@@ -1,6 +1,6 @@
 // Cache-first cho shell + chương; làm mới ngầm (stale-while-revalidate).
 // Đổi VERSION khi sửa app.js/style.css/index.html để máy đọc bản mới.
-const VERSION = 'v1';
+const VERSION = 'v2';
 const SHELL = ['./', 'index.html', 'style.css', 'app.js', 'manifest.webmanifest', 'icon.svg', 'icon-192.png', 'icon-512.png'];
 
 self.addEventListener('install', (e) => {
