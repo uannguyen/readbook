@@ -1,0 +1,424 @@
+{
+ "chapters": [
+  {
+   "n": 1,
+   "title": "Chương 1: Kinh trập (1)"
+  },
+  {
+   "n": 2,
+   "title": "Chương 2: Kinh trập (2)"
+  },
+  {
+   "n": 3,
+   "title": "Chương 3: Mở cửa"
+  },
+  {
+   "n": 4,
+   "title": "Chương 4: Mặt trời mọc (1)"
+  },
+  {
+   "n": 5,
+   "title": "Chương 5: Mặt trời mọc (2)"
+  },
+  {
+   "n": 6,
+   "title": "Chương 6: Se sẻ (1)"
+  },
+  {
+   "n": 7,
+   "title": "Chương 7: Se sẻ (2)"
+  },
+  {
+   "n": 8,
+   "title": "Chương 8: Nói toạc ra (1)"
+  },
+  {
+   "n": 9,
+   "title": "Chương 9: Nói toạc ra (2)"
+  },
+  {
+   "n": 10,
+   "title": "Chương 10: Thẻ hạ (1)"
+  },
+  {
+   "n": 11,
+   "title": "Chương 11: Thẻ hạ (2)"
+  },
+  {
+   "n": 12,
+   "title": "Chương 12: Chén nước (1)"
+  },
+  {
+   "n": 13,
+   "title": "Chương 13: Chén nước (2)"
+  },
+  {
+   "n": 14,
+   "title": "Chương 14: Chén nước (3)"
+  },
+  {
+   "n": 15,
+   "title": "Chương 15: Cỏ rác (1)"
+  },
+  {
+   "n": 16,
+   "title": "Chương 16: Cỏ rác (2)"
+  },
+  {
+   "n": 17,
+   "title": "Chương 17: Cỏ rác (3)"
+  },
+  {
+   "n": 18,
+   "title": "Chương 18: Thiên vũ tuy khoan (1)"
+  },
+  {
+   "n": 19,
+   "title": "Chương 19: Thiên vũ tuy khoan (2)"
+  },
+  {
+   "n": 20,
+   "title": "Chương 20: Thực trâu bò (1)"
+  },
+  {
+   "n": 21,
+   "title": "Chương 21: Thực trâu bò (2)"
+  },
+  {
+   "n": 22,
+   "title": "Chương 22: Thiếu nữ và Phi kiếm (1)"
+  },
+  {
+   "n": 23,
+   "title": "Chương 23: Thiếu nữ và Phi kiếm (2)"
+  },
+  {
+   "n": 24,
+   "title": "Chương 24: Thiếu nữ và Phi kiếm (3)"
+  },
+  {
+   "n": 25,
+   "title": "Chương 25: Ngõ nhỏ (1)"
+  },
+  {
+   "n": 26,
+   "title": "Chương 26: Ngõ nhỏ (2)"
+  },
+  {
+   "n": 27,
+   "title": "Chương 27: Tương phùng (1)"
+  },
+  {
+   "n": 28,
+   "title": "Chương 28: Tương phùng (2)"
+  },
+  {
+   "n": 29,
+   "title": "Chương 29: Tương phùng (3)"
+  },
+  {
+   "n": 30,
+   "title": "Chương 30: Mùng năm tháng năm (1)"
+  },
+  {
+   "n": 31,
+   "title": "Chương 31: Mùng năm tháng năm (2)"
+  },
+  {
+   "n": 32,
+   "title": "Chương 32: Áp thắng (1)"
+  },
+  {
+   "n": 33,
+   "title": "Chương 33: Áp thắng (2)"
+  },
+  {
+   "n": 34,
+   "title": "Chương 34: Mơ tưởng (1)"
+  },
+  {
+   "n": 35,
+   "title": "Chương 35: Mơ tưởng (2)"
+  },
+  {
+   "n": 36,
+   "title": "Chương 36: Bất bình tắc minh (1)"
+  },
+  {
+   "n": 37,
+   "title": "Chương 37: Bất bình tắc minh (2)"
+  },
+  {
+   "n": 38,
+   "title": "Chương 38: Bất bình tắc minh (3)"
+  },
+  {
+   "n": 39,
+   "title": "Chương 39: Ngũ khứ kỳ Tam (1)"
+  },
+  {
+   "n": 40,
+   "title": "Chương 40: Ngũ khứ kỳ Tam (2)"
+  },
+  {
+   "n": 41,
+   "title": "Chương 41: Ngũ khứ kỳ Tam (3)"
+  },
+  {
+   "n": 42,
+   "title": "Chương 42: Đại đạo"
+  },
+  {
+   "n": 43,
+   "title": "Chương 43: Đột nhiên đâm lén (1)"
+  },
+  {
+   "n": 44,
+   "title": "Chương 44: Đột nhiên đâm lén (2)"
+  },
+  {
+   "n": 45,
+   "title": "Chương 45: Ưng săn rắn (1)"
+  },
+  {
+   "n": 46,
+   "title": "Chương 46: Ưng săn rắn (2)"
+  },
+  {
+   "n": 47,
+   "title": "Chương 47: Chỉ cảnh (1)"
+  },
+  {
+   "n": 48,
+   "title": "Chương 48: Chỉ cảnh (2)"
+  },
+  {
+   "n": 49,
+   "title": "Chương 49: Hòe âm (1)"
+  },
+  {
+   "n": 50,
+   "title": "Chương 50: Hòe âm (2)"
+  },
+  {
+   "n": 51,
+   "title": "Chương 51: Đem tặng (1)"
+  },
+  {
+   "n": 52,
+   "title": "Chương 52: Đem tặng (2)"
+  },
+  {
+   "n": 53,
+   "title": "Chương 53: Đem tặng (3)"
+  },
+  {
+   "n": 54,
+   "title": "Chương 54: Ly Biệt (1)"
+  },
+  {
+   "n": 55,
+   "title": "Chương 55: Ly Biệt (2)"
+  },
+  {
+   "n": 56,
+   "title": "Chương 56: Ly Biệt (3)"
+  },
+  {
+   "n": 57,
+   "title": "Chương 57: Lời nói hay (1)"
+  },
+  {
+   "n": 58,
+   "title": "Chương 58: Lời nói hay (2)"
+  },
+  {
+   "n": 59,
+   "title": "Chương 59: Vẽ rồng điểm mắt (1)"
+  },
+  {
+   "n": 60,
+   "title": "Chương 60: Vẽ rồng điểm mắt (2)"
+  },
+  {
+   "n": 61,
+   "title": "Chương 61: Vẽ rồng điểm mắt (3)"
+  },
+  {
+   "n": 62,
+   "title": "Chương 62: Tham tiền"
+  },
+  {
+   "n": 63,
+   "title": "Chương 63: Hồ Mị (1)"
+  },
+  {
+   "n": 64,
+   "title": "Chương 64: Hồ Mị (2)"
+  },
+  {
+   "n": 65,
+   "title": "Chương 65: Phòng tối (1)"
+  },
+  {
+   "n": 66,
+   "title": "Chương 66: Phòng tối (2)"
+  },
+  {
+   "n": 67,
+   "title": "Chương 67: Gõ núi (1)"
+  },
+  {
+   "n": 68,
+   "title": "Chương 68: Gõ núi (2)"
+  },
+  {
+   "n": 69,
+   "title": "Chương 69: Lá đào (1)"
+  },
+  {
+   "n": 70,
+   "title": "Chương 70: Lá đào (2)"
+  },
+  {
+   "n": 71,
+   "title": "Chương 71: Cải trang vi hành (1)"
+  },
+  {
+   "n": 72,
+   "title": "Chương 72: Cải trang vi hành (2)"
+  },
+  {
+   "n": 73,
+   "title": "Chương 73: Tề tụ (1)"
+  },
+  {
+   "n": 74,
+   "title": "Chương 74: Tề tụ (2)"
+  },
+  {
+   "n": 75,
+   "title": "Chương 75: Tề tụ (3)"
+  },
+  {
+   "n": 76,
+   "title": "Chương 76: Cam thảo (1)"
+  },
+  {
+   "n": 77,
+   "title": "Chương 77: Cam thảo (2)"
+  },
+  {
+   "n": 78,
+   "title": "Chương 78: Cam thảo (3)"
+  },
+  {
+   "n": 79,
+   "title": "Chương 79: Quyền phổ (1)"
+  },
+  {
+   "n": 80,
+   "title": "Chương 80: Quyền phổ (2)"
+  },
+  {
+   "n": 81,
+   "title": "Chương 81: Cửu cảnh (1)"
+  },
+  {
+   "n": 82,
+   "title": "Chương 82: Cửu cảnh (2)"
+  },
+  {
+   "n": 83,
+   "title": "Chương 83: Cửu cảnh (3)"
+  },
+  {
+   "n": 84,
+   "title": "Chương 84: Chửi cây hòe (1)"
+  },
+  {
+   "n": 85,
+   "title": "Chương 85: Chửi cây hòe (2)"
+  },
+  {
+   "n": 86,
+   "title": "Chương 86: Hoàn lễ (1)"
+  },
+  {
+   "n": 87,
+   "title": "Chương 87: Hoàn lễ (2)"
+  },
+  {
+   "n": 88,
+   "title": "Chương 88: Luyện quyền (1)"
+  },
+  {
+   "n": 89,
+   "title": "Chương 89: Luyện quyền (2)"
+  },
+  {
+   "n": 90,
+   "title": "Chương 90: Thiên tài (1)"
+  },
+  {
+   "n": 91,
+   "title": "Chương 91: Thiên tài (2)"
+  },
+  {
+   "n": 92,
+   "title": "Chương 92: Thiên tài (3)"
+  },
+  {
+   "n": 93,
+   "title": "Chương 93: Thiếu niên cùng con chó già (1)"
+  },
+  {
+   "n": 94,
+   "title": "Chương 94: Thiếu niên cùng con chó già (2)"
+  },
+  {
+   "n": 95,
+   "title": "Chương 95: Tra ra manh mối (1)"
+  },
+  {
+   "n": 96,
+   "title": "Chương 96: Tra ra manh mối (2)"
+  },
+  {
+   "n": 97,
+   "title": "Chương 97: Dương quang (1)"
+  },
+  {
+   "n": 98,
+   "title": "Chương 98: Dương quang (2)"
+  },
+  {
+   "n": 99,
+   "title": "Chương 99: Dương quang (3)"
+  },
+  {
+   "n": 100,
+   "title": "Chương 100: Đao ép váy"
+  },
+  {
+   "n": 578,
+   "title": "Chương 578: Cân nhắc"
+  },
+  {
+   "n": 579,
+   "title": "Chương 579: Sơn thủy xa xôi"
+  },
+  {
+   "n": 580,
+   "title": "Chương 580: Người đọc sách cùng người giang hồ cùng với mỹ nhân"
+  },
+  {
+   "n": 581,
+   "title": "Chương 581: Thế sự như cờ, ván nào cũng mới"
+  },
+  {
+   "n": 582,
+   "title": "Chương 582: Đáp án ngay tại trên trúc xanh"
+  }
+ ]
+}
