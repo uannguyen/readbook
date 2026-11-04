@@ -1,479 +1,671 @@
-# Chương 580: Người đọc sách cùng người giang hồ cùng với mỹ nhân
+# Chương 580: Người đọc sách, người giang hồ và mỹ nhân
 
-Nước đổ mồ hôi vào đất, thành phố như một cái lồng hấp, khiến lòng người không tránh khỏi cảm giác buồn bực.
+Trời nóng đến đổ mồ hôi xuống đất, thành thị như một cái lồng hấp, khiến lòng người không tránh khỏi bực bội.
 
-Ngũ Lăng quốc, con đường Trà Mã cổ đạo hoang phế nhiều năm nay, dần dần hiện lên trước mắt.
+Trên đất Ngũ Lăng quốc, con đường Trà Mã cổ đạo hoang phế nhiều năm dần hiện ra trước mắt.
 
-Đột nhiên, một cơn mưa rào bất ngờ ập đến. Dù có đội áo tơi, những hạt mưa như đậu nành vẫn rơi, đánh vào mặt khiến ai nấy đều đau nhức. Mọi người vội vàng giục ngựa tìm chỗ trú mưa, cuối cùng họ tìm thấy một tòa đình nghỉ chân giữa sườn núi và tất cả đều xuống ngựa.
+Đột nhiên một cơn mưa rào ập đến. Dù khoác áo tơi, những hạt mưa to như hạt đậu vẫn đập vào mặt đau rát. Cả đoàn vội giục ngựa tìm chỗ trú, cuối cùng thấy một tòa đình nghỉ chân lưng chừng sườn núi, tất cả đều xuống ngựa.
 
-Tại đó, họ thấy một chàng trai trẻ tuổi mặc áo xanh đang ngồi xếp bằng trên ghế dài, bên chân để một chiếc rương trúc lớn. Trước mặt anh ta có một bộ bàn cờ cùng hai cái sứ men xanh để chơi cờ. Khi thấy bọn họ, anh chỉ mỉm cười rồi tiếp tục di chuyển quân cờ trên bàn.
+Trong đình đã có một người trẻ tuổi mặc thanh sam ngồi xếp bằng trên ghế dài, bên chân đặt một chiếc rương trúc lớn. Trước mặt hắn là một bàn cờ cùng hai hộp cờ men xanh. Thấy bọn họ, hắn chỉ mỉm cười rồi tiếp tục đi quân.
 
-Một chiến sĩ khôi ngô liếc nhìn trang phục và đôi giày của chàng trai, đoán rằng anh đã ở đây từ trước, né tránh cơn mưa lớn và đang tự mình học đánh cờ.
+Một hán tử khôi ngô liếc qua trang phục và đôi giày của hắn, đoán rằng người này đã ở đây từ trước, trốn được cơn mưa lớn, đang tự đánh cờ một mình.
 
-Một lão nhân đứng ở cửa đình nghỉ chân, không lâu nữa cơn mưa chắc sẽ dứt, quay đầu mỉm cười hỏi: "Trong lúc rảnh rỗi, công tử có muốn đánh cờ một ván không?"
+Một lão nhân đứng ở cửa đình, thấy mưa chắc không lâu nữa sẽ dứt, quay đầu mỉm cười hỏi:
 
-Chàng trai trẻ tuổi suy nghĩ một lát, mở bàn tay ra và khép lại quân cờ trên bàn. Anh không bỏ lại để chơi tiếp, mà chỉ chất đống quân cờ ở giữa, mỉm cười gật đầu nói: "Được."
+- Rảnh rỗi thế này, công tử có muốn đánh một ván cờ không?
 
-Một đôi thiếu niên nhìn nhau cười khúc khích.
+Người trẻ tuổi suy nghĩ một lát, xòe tay gạt quân cờ trên bàn lại. Hắn không bày tiếp thế cờ cũ mà chỉ dồn quân vào giữa, mỉm cười gật đầu:
 
-Ngoài ra, còn một phụ nhân đội mũ có vải che mặt ngồi ở đối diện trên ghế dài, lúc ngồi xuống đã kê một chiếc khăn tay nhỏ.
+- Được.
 
-Lão nhân cầm một quân cờ trắng, cười nói: "Nếu lão phu trẻ thêm vài tuổi, công tử sẽ đoán được gì?"
+Một đôi thiếu niên thiếu nữ nhìn nhau cười khúc khích.
 
-Trần Bình An vê một viên cờ đen, lão nhân đặt quân cờ trắng lên bàn, sau đó mỉm cười nói: "Công tử đi trước."
+Ngoài ra còn có một nữ tử đội mũ che mặt ngồi ở ghế dài đối diện, trước khi ngồi đã trải một chiếc khăn tay nhỏ.
 
-Chẳng mấy chốc, Trần Bình An đã thay đổi tư thế ngồi, không còn xếp bằng như trước, mà nghiêng người, một tay đỡ tay áo, một tay cầm quân cờ và thả lên bàn.
+Lão nhân cầm một quân cờ trắng, cười nói:
 
-Hai thiếu niên ở bên kia thì thầm to nhỏ: "Xem dáng vẻ, người này giống như một cao thủ đánh cờ."
+- Lão phu lớn hơn công tử vài tuổi, công tử đoán quân nhé?
 
-Thiếu nữ mỉm cười nói: "Kỹ thuật đánh cờ của người ta hơn hẳn cũng không phải chuyện nhỏ đâu."
+Trần Bình An vê một quân cờ đen. Lão nhân đặt quân trắng lên bàn, mỉm cười:
 
-Thiếu niên thích tranh luận với thiếu nữ, "Ta thấy người này rất khó đối phó. Ông nội từng nói, những cao thủ đánh cờ chỉ cần một tuổi thơ say mê cờ, ngoài trừ trên núi tiên nhân là khác, người độ tuổi sắp thành niên thường có thể… Hàng đầu là độ tuổi, từ khoảng ba mươi tuổi trở đi càng lớn tuổi thì càng dễ gặp bất lợi."
+- Công tử đi trước.
 
-Thiếu nữ mỉm cười chế giễu: "Theo lời ông nội, chỉ nhắm đến những thiên tài xuất chúng, còn người bình thường, chắc chắn không trong số đó."
+Chẳng mấy chốc Trần Bình An đã đổi tư thế, không còn xếp bằng như trước mà nghiêng người, một tay đỡ tay áo, một tay cầm quân thả lên bàn.
 
-Lão nhân suy nghĩ một lúc, dù tự mình có sức mạnh trong chiến cờ, hưởng dự danh nghĩa một quốc gia, nhưng vẫn không vội vã hạ quân. Ông không sợ gặp phải quái dị mà lo lắng về việc đánh cờ với một người xa lạ, liền ngẩng đầu nhìn về phía hai vị trẻ tuổi, nhíu mày.
+Hai thiếu niên ở bên kia thì thầm to nhỏ. Thiếu niên nói:
 
-Thiếu niên cười nói: "Biết rồi, chỉ xem thôi, không nói chuyện gì khác."
+- Xem dáng vẻ thì người này giống một cao thủ đánh cờ.
 
-Bàn cờ lên xuống chưa đầy ba mươi nước, hai thiếu niên liền nhìn nhau.
+Thiếu nữ mỉm cười:
 
-Hóa ra chỉ là một trò chơi lặp đi lặp lại của những người đánh cờ tệ.
+- Dáng vẻ đánh cờ đẹp hơn người cũng không phải chuyện nhỏ đâu.
 
-Chẳng nói gì đến ông nội người khét tiếng, mà chỉ riêng hai người họ, cũng đã để cho hai ba quân cờ, tự do đánh cho đối phương tan tác.
+Thiếu niên thích cãi lại nàng:
 
-Lão nhân kiềm chế nụ cười.
+- Ta thấy người này rất khó đối phó. Ông nội từng nói, cao thủ đánh cờ đều say mê cờ từ thuở nhỏ. Trừ tiên nhân trên núi ra, người sắp đến tuổi trưởng thành thường đã vào hàng đầu, từ khoảng ba mươi tuổi trở đi càng lớn tuổi càng bất lợi.
 
-Thực sự, lão không quan tâm đến việc đối phương có khả năng đánh cờ cao hay thấp, mà vẫn kiên nhẫn cùng chàng trai trẻ tuổi kia thi đấu.
+Thiếu nữ cười chế giễu:
 
-Giữa mưa dầm và những chuyến đi tha phương, có thể gặp được bạn cờ thực sự đã là một điều may mắn.
+- Lời ông nội chỉ nói về những thiên tài xuất chúng, người bình thường chắc chắn không nằm trong số đó.
 
-Chàng trai tuổi trẻ ngẩng đầu nhìn ra ngoài đình qua màn mưa, buông cờ và nhận thua.
+Lão nhân suy nghĩ một lúc. Dù kỳ lực của mình rất mạnh, có danh quốc thủ, lão vẫn không vội hạ quân. Lão không sợ gặp phải quái chiêu, chỉ là cẩn thận khi đánh với người lạ, rồi ngẩng đầu nhìn về phía hai đứa trẻ, nhíu mày.
 
-Lão nhân chỉ gật đầu, giúp dọn bàn cờ. Chàng trai trẻ mắc áo xanh, thực chất có trình độ chơi cờ khá tốt, nhưng lão nhân để tâm nhìn nhận, suýt nữa đã nhầm tưởng người này là một cao thủ chân chính. Chỉ có điều, sau đó anh lập tức bộc lộ bất lợi, thua một cách khó khăn, khiến lão không khỏi tiếc nuối. Trong lúc dọn bàn cờ, hai người trò chuyện. Chàng trai tự giới thiệu mình là họ Trần, đến từ phương Nam. Lần này bắc du, muốn đi đến Lục Oanh quốc ở phía Đông vào bờ biển lớn, sau đó đi ngược dòng sông để xem. Còn lão nhân họ Tùy, đã từ quan trở về quê, lần này đi đến kinh thành Đại Triện, vì kỳ hội cỏ cây mười năm một lần do Hoàng đế Chu thị tổ chức. Tại đây, hơn mười nước sẽ hợp tụ, trong đó có Ngũ Lăng quốc và Kim Phi quốc, các cao thủ cờ vây cũng sẽ có cơ hội giao lưu, lão nhân cũng mong muốn tới xem một chút. Hoàng đế Chu thị không chỉ xuất ra một bộ giá trị trăm bảo khảm thanh cung thư phòng, tổng cộng chín kiện, mà còn có một quyển sách dạy đánh cờ, dành cho người đoạt giải nhất được vinh danh.
+Thiếu niên cười nói:
 
-Trần Bình An hỏi: "Kỳ hội cỏ cây này diễn ra vào lúc nào và kéo dài bao lâu?"
+- Biết rồi, chỉ xem thôi, không nói nữa.
 
-Lão nhân họ Tùy, cháu trai của người thắng giải trước đó, trả lời: "Nó bắt đầu vào ngày Lập thu, các quốc gia sẽ cử kỳ thủ xuất sắc tham gia. Dưới sự sắp xếp của Vi kỳ thánh cùng ba vị đệ tử sẽ lựa chọn ra các tài năng kỳ thủ từ các nước. Ba vị đứng đầu sẽ được xếp riêng, còn những kỳ thủ khác sẽ bốc thăm đấu loại cho ra một trăm người, cộng thêm hai mươi người hạt giống từ ba vị đương kim, vào ngày Lập đông sẽ bắt đầu các trận đấu thực sự. Thời điểm ấy, tuyết rơi nhiều, kinh thành Đại Triện sẽ chào đón trận đấu đầu tiên, từ đó còn lại mười người xuất sắc, Hoàng đế Chu sẽ trao giải trăm bảo khảm và quyển sách dạy cờ, chỉ còn cần phân chia thứ tự thắng thua."
+Bàn cờ chưa đầy ba mươi nước, hai thiếu niên đã nhìn nhau.
 
-Trần Bình An lại hỏi: "Lực lượng của vị Vi kỳ thánh này rốt cuộc có cao hơn tất cả mọi người không?"
+Hóa ra chỉ là một tay cờ dở.
 
-Chàng trai thanh tú gật đầu: "Đương nhiên, Vi kỳ thánh là hộ quốc chân nhân của Đại Triện, ông ấy có sức mạnh vô địch. Ông nội tôi hồi hai mươi năm trước đã từng có may mắn đấu cờ cùng Vi kỳ thánh, tiếc là sau đó thua cho một đệ tử trẻ của ông, không thể lọt vào ba vị hạng đầu. Không phải vì ông tôi lực chơi kém, mà là thiếu niên kia lúc đó thực sự rất xuất sắc, khoảng mười ba mười bốn tuổi đã có bảy phần chắc tay từ Vi kỳ thánh. Mười năm trước, trong kỳ hội cỏ cây, nếu không vì bế quan, vị quốc sư này đã không để cho Lan Phòng quốc Sở Diêu đứng đầu."
+Đừng nói đến ông nội danh tiếng lẫy lừng, chỉ cần hai người họ chấp hai ba quân cũng đủ đánh cho đối phương tan tác.
 
-Trần Bình An hỏi: "Liệu những người tu đạo trên núi có thể tham gia không?"
+Lão nhân kìm nụ cười.
 
-Đánh cờ vẫn là một vấn đề thú vị.
+Thực ra lão không quan tâm đối phương đánh cờ cao hay thấp, vẫn kiên nhẫn đánh tiếp với người trẻ tuổi.
 
-Trên núi dưới núi, là hai thế giới hoàn toàn khác biệt.
+Giữa mưa dầm và đường xa đất khách, gặp được người cùng đánh một ván cờ cũng đã là may mắn.
 
-Thế tục có những danh thủ trong quốc gia, họ thường gặp gỡ và thi đấu cờ, nhưng phần thắng không nằm trong tay họ, điều khiến cả những người dưới núi phải sợ hãi chính là một số hình thái tinh diệu mà họ không nhận thức được. Thêm vào đó, trên núi, các tu sĩ đôi khi còn gặp nhiều khó khăn trong việc phân biệt đúng sai, khiến cho những chuyện này trở nên mù mờ và khó hiểu hơn.
+Người trẻ tuổi ngẩng đầu nhìn màn mưa ngoài đình, buông quân nhận thua.
 
-Ông lão họ Tùy mỉm cười và nói: "Khi lên núi cũng như gặp các thần tiên, họ như chìm trong mây mù. Đối với chúng ta, những người phàm tục như mình, đó là điều vô cùng hiếm thấy. Người tu đạo thích chơi cờ lại càng ít hơn nữa. Năm trước, trong đại hội cỏ cây tại Đại Triện, các người tu đạo chỉ lác đác hiện diện. Mà vị đại diện Vi kỳ, dù cũng là người tu đạo, nhưng mỗi lần đánh cờ, cậu ta rất nhanh tay, hoàn toàn không chịu để người khác chiếm lợi. Ta đã có cơ hội đánh cờ với cậu ta, nhưng ngay khi ta vừa đặt quân cờ xuống, cậu ấy đã dứt khoát đáp trả, và kết quả là ta thua, phải thầm phục."
+Lão nhân chỉ gật đầu, giúp dọn bàn cờ. Thật ra lúc đầu người trẻ tuổi này đánh khá ổn, lão còn để tâm nhìn kỹ, suýt nữa tưởng gặp cao thủ chân chính. Có điều sau đó hắn lập tức lộ thế yếu, thua khá khó coi, khiến lão hơi tiếc. Lúc dọn cờ, hai người trò chuyện. Người trẻ tuổi tự giới thiệu họ Trần, từ phương nam đến, lần này bắc du muốn đi tới Lục Oanh quốc ở phía đông, nơi sông lớn đổ ra biển, rồi đi ngược dòng sông xem thử. Lão nhân họ Tùy, đã từ quan về quê, lần này đi kinh thành Đại Triện vì kỳ hội Thảo Mộc tập [?] mười năm một lần do hoàng đế Chu thị tổ chức. Cao thủ cờ vây của hơn mười nước, trong đó có Ngũ Lăng quốc và Kim Phi quốc, sẽ hội tụ giao lưu, lão cũng mong được tới xem một chút. Hoàng đế Chu thị không chỉ đem ra một bộ văn phòng tứ bảo khảm trăm báu trong thư phòng Thanh Cung, tổng cộng chín món, mà còn có một quyển kỳ phổ, dành cho người đoạt giải nhất.
 
-Trần Bình An hỏi: "Tùy lão tiên sinh, có nghe nói gần đây Đại Triện có chút bất thường gì không?"
+Trần Bình An hỏi:
 
-Ông lão với vẻ mặt nghi hoặc lắc đầu và đáp: "Xin mời nghe thêm."
+- Kỳ hội này diễn ra vào lúc nào và kéo dài bao lâu?
 
-Trần Bình An nói: "Chỉ là nghe thấy một vài tin tức nhỏ trên giang hồ, rằng bên ngoài kinh thành Đại Triện có một con sông lớn, đang gặp phải lũ lụt."
+Cháu trai của lão nhân họ Tùy trả lời:
 
-Thiếu niên liền tỏ vẻ không tin, nói: "Có phải là Ngọc Tỳ Giang không? Có gì phải lo lắng chứ, với Vi kỳ thánh đứng ra bảo vệ, một trận lũ lớn liệu có thể dìm cả kinh thành không? Nếu thực sự có tinh quái nào gây rối, ta nghĩ Vi kỳ thánh cũng không cần phải vào cuộc, vị kiếm thánh đó chỉ cần một lần ghé thăm Ngọc Tỳ Giang, ắt hẳn sẽ bình yên trở lại."
+- Bắt đầu vào ngày Lập thu, các nước cử kỳ thủ xuất sắc tham gia. Vi kỳ thánh cùng ba vị đệ tử sẽ sắp xếp, chọn tài năng từ các nước. Ba vị đứng đầu được xếp riêng, những kỳ thủ khác bốc thăm đấu loại lấy một trăm người, cộng thêm hai mươi người hạt giống do ba vị đương kim chọn, đến ngày Lập đông mới bắt đầu các trận thật sự. Khi ấy tuyết rơi nhiều, kinh thành Đại Triện đón trận đấu đầu tiên, từ đó còn lại mười người xuất sắc, hoàng đế Chu thị sẽ trao giải trăm báu và kỳ phổ, chỉ còn phân thứ tự thắng thua.
 
-Trần Bình An chỉ cười cười: "Nên cẩn thận một chút thôi. Tùy lão tiên sinh, có phải là người nào đó đang mong muốn vào triều lại chạy bộ đó không?"
+Trần Bình An lại hỏi:
 
-Ông lão lắc đầu: "Lần này trong cỏ cây tập, cao thủ tụ hội, không thể so với những lần trước. Dù ta có chút danh tiếng trong nước, nhưng ta biết mình chưa thể vào top 10. Vì vậy, lần này tới Đại Triện chỉ mong có cơ hội kết bạn, cùng những người bạn cũ ở các nước khác uống trà và cũng nhân tiện mua một vài cuốn sách dạy đánh cờ, vậy là mãn nguyện rồi."
+- Kỳ lực của vị Vi kỳ thánh này rốt cuộc có cao hơn tất cả mọi người không?
 
-Người phụ nữ đeo khăn che mặt, suốt thời gian im lặng, cuối cùng cũng lên tiếng nhẹ nhàng: "Cha ơi, con nghĩ công tử này nói không sai. Ngọc Tỳ Giang xảy ra lũ quét kỳ lạ, nếu thực sự Vi kỳ thánh cùng những nữ hán tử đáng gờm có thể giải quyết dễ dàng, làm sao mà kéo dài đến giờ? E rằng Ngọc Tỳ Giang gặp rắc rối lớn, nhưng hoàng đế Chu thị không muốn từ bỏ cỏ cây tập vì sĩ diện, đến khi đó có thể sẽ xảy ra chuyện ngoài ý muốn..."
+Thiếu niên thanh tú gật đầu:
 
-Người phụ nữ không nói tiếp, nếu cha cố ý đi về phía trước, lời nàng có thể sẽ trở thành những lời khiến người khác khó chịu.
+- Đương nhiên. Vi kỳ thánh là hộ quốc chân nhân của Đại Triện, kỳ lực vô địch. Hai mươi năm trước ông nội ta từng may mắn đấu cờ với Vi kỳ thánh, tiếc là sau đó thua một đệ tử nhỏ tuổi của ông ấy, không lọt vào ba vị đứng đầu. Không phải kỳ lực của ông nội kém, mà đứa trẻ kia lúc đó thật sự quá xuất sắc, mới mười ba mười bốn tuổi đã có bảy phần chân truyền của Vi kỳ thánh [?]. Mười năm trước, nếu không phải bế quan, vị quốc sư này đã không để Sở Diêu của Lan Phòng quốc đứng đầu kỳ hội.
 
-Thực ra, lần này khi khởi hành tới Đại Triện tham gia cỏ cây tập, nàng không hoàn toàn đồng ý từ ban đầu. Dù ông lão không muốn bỏ lỡ thịnh hội, ông cũng chỉ muốn hỏi thăm và giúp đỡ hậu bối trong nhà vui vẻ. Ông đã mời một người bạn thân trong giang hồ làm thị vệ hộ tống cho mình. Người đó là một tông sư nổi tiếng trong võ lâm Ngũ Lăng, trên đường đi sẽ có nhiều hỗ trợ. Người hán tử mang bội đao tên Hồ Tân Phong, có ý định hộ tống họ đến kinh thành Đại Triện, trong lúc tham gia cỏ cây tập cũng sẽ tranh thủ ghé thăm bạn bè giang hồ ở Kim Phi quốc.
+Trần Bình An hỏi:
 
-Đại Triện tổ chức cỏ cây tập mười năm một lần, là dịp để các danh thủ quốc gia quyết đấu. Không chỉ vậy, bên trong thành phố, đường phố cũng nhộn nhịp với những cuộc cá cược, các tướng cướp, quan viên đều thích tham gia vào cá cược. Quý nhân cũng có tiền, tham gia vào cờ bạc tại cỏ cây tập ngoại, cũng không phải là ít, nghe nói mỗi lần tổ chức, có hàng triệu bạc đổ vào kinh thành. Người dân qua lại để cờ bạc cũng rất thích thú, ném ra vài lượng bạc chẳng phải điều gì lạ lẫm. Những gia đình khá giả đánh cược không dưới vài chục lượng bạc. Trong các đạo quán, chùa miếu, nhiều người quý tộc, văn nhân đến tham gia, không tiện trực tiếp đánh bạc, nên gần như dùng các vật phẩm lịch sự để cược, và rồi bán đi, cũng thu về không ít tiền.
+- Tu sĩ trên núi có thể tham gia không?
 
-Gương mặt thiếu nữ có chút ủy khuất: "Cô cô, nếu chúng ta không tới Đại Triện, chẳng phải là đi một quãng đường dài vô nghĩa sao, hơn ngàn dặm đấy?"
+Đánh cờ vẫn là chuyện thú vị.
 
-Thiếu nữ có tư tâm riêng, nàng muốn một lần gặp vị đại sư năm xưa đã thắng ông nội mình, người mà ngày nay đã hai mươi tuổi, tuy vẫn còn trẻ nhưng được cho là cực kỳ xinh đẹp. Nghe nói hai hoàng tử của Chu thị còn tranh giành tình cảm của nàng. Banyak người bạn gái yêu thích cờ ở những khu vườn, đều hy vọng nàng có thể tận mắt thấy vẻ đẹp của người con gái này, không biết dung mạo có giống như lời đồn hay không. Nàng đã hứa sẽ tìm cơ hội nói chuyện với nàng ấy khi tới cỏ cây tập.
+Trên núi và dưới núi là hai thế giới hoàn toàn khác biệt.
 
-Hồ Tân Phong, người hán tử mang bội đao, vẫn đứng canh gác ở cửa ra vào. Một giang hồ tông sư như hắn không ngại gian khổ để phục vụ cho một ông lão không còn chức quyền. Một chuyến đi mất gần nửa năm, không phải là người bình thường có thể chịu được. Hồ Tân Phong quay đầu lại cười: "Bên ngoài kinh thành Đại Triện, Ngọc Tỳ Giang quả thật có nhiều điều kỳ quái và lời đồn thổi kỳ lạ, nhưng những gì Tùy tiểu thư nói cũng không kém phần chính xác. Tùy lão ca, lần này chúng ta quả thực nên cẩn thận một chút."
+Thế tục có những quốc thủ thường gặp gỡ đấu cờ. Điều khiến người dưới núi phải sợ không phải chuyện thắng thua, mà là một số thế cờ tinh diệu họ không nhận ra nổi. Thêm vào đó, tu sĩ trên núi đôi khi còn khó phân biệt đúng sai, khiến những chuyện này càng mù mờ khó hiểu.
 
-Ông lão có vẻ bối rối.
+Lão nhân họ Tùy mỉm cười:
 
-Liền Hồ Tân Phong như vậy giang hồ đại hiệp cũng như nói rằng, lão nhân không tránh khỏi trong lòng lo lắng. Nhưng để nói như vậy mà dẹp đường về phủ, lại không cam lòng.
+- Thần tiên trên núi như ẩn trong mây mù, với những người phàm tục như chúng ta là vô cùng hiếm thấy, tu sĩ thích đánh cờ lại càng ít. Kỳ hội trước ở Đại Triện, tu sĩ chỉ lác đác vài người. Vị Vi kỳ thánh tuy cũng là tu sĩ, nhưng mỗi lần đánh cờ rất nhanh tay, hoàn toàn không để người khác chiếm lợi. Ta từng có cơ hội đánh với vị ấy, ta vừa đặt quân xuống là ông ấy đã dứt khoát đáp trả, kết quả ta thua, phải thầm phục.
 
-Người phụ nữ có mũ che mặt, là một nữ tử có búi tóc, nhẹ nhàng thở dài. Dù sao nàng cũng có chút suy nghĩ không tập trung. Lần này cùng phụ thân và cháu trai đi xa Đại Triện kinh thành, nàng đã bí mật bói toán vài lần, đều có quẻ tượng kỳ quái, trong sự hiểm nguy lại có phúc duyên quấn lấy, tóm lại chính là phúc họa bất định, làm cho nàng thật sự khó có thể đoán định thâm ý bên trong. Kỳ thực, theo lẽ thường mà nói, Đại Triện vương triều thái bình lâu dài, quốc lực mạnh mẽ, với Đại Quan vương triều phía nam có thực lực tương đương, hơn nữa hoàng thất hai bên còn có quan hệ thông gia. Đại Triện Chu thị lại có nữ tử võ thần cùng hộ quốc chân nhân tọa trấn kinh thành. Ngọc Tỳ giang có những chuyện cổ quái nghe đồn, dù là có thực thì cũng không nên có phiền toái lớn. Nàng tin rằng, chưa từng có sắc phong thủy thần, xây dựng thần từ Ngọc Tỳ giang, cũng có khả năng giấu kín một cái hắc giao, nhưng mà nàng không tin một cái thủy giao có thể làm rối loạn Đại Triện kinh thành.
+Trần Bình An hỏi:
 
-Cuối cùng, nàng vẫn còn một chút tiếc nuối vì nhiều năm như vậy, chỉ có thể dựa vào một quyển sách nhỏ do cao nhân lưu lại, tự mình mò mẫm cân nhắc, lung tung tu hành tiên gia thuật pháp, vẫn không có biện pháp thực sự trở thành một vị thầy giỏi chỉ điểm, truyền thừa tự động từ tiên sư. Bằng không thì với tình hình Đại Triện kinh thành, nàng sớm nên hiểu rõ trong lòng.
+- Tùy lão tiên sinh có nghe nói gần đây Đại Triện có gì bất thường không?
+
+Lão nhân nghi hoặc lắc đầu:
+
+- Xin được nghe thêm.
+
+Trần Bình An nói:
+
+- Chỉ là nghe được vài tin nhỏ trên giang hồ, rằng bên ngoài kinh thành Đại Triện có một con sông lớn đang gặp lũ lụt.
+
+Thiếu niên liền tỏ vẻ không tin:
+
+- Là Ngọc Tỳ giang chứ gì? Có gì phải lo. Có Vi kỳ thánh bảo vệ, một trận lũ lớn liệu dìm nổi kinh thành không? Nếu thật có tinh quái gây rối, ta nghĩ Vi kỳ thánh cũng không cần ra tay, vị kiếm thánh kia chỉ cần ghé qua Ngọc Tỳ giang một chuyến, ắt sẽ yên ổn trở lại.
+
+Trần Bình An chỉ cười cười:
+
+- Nên cẩn thận một chút thôi. Tùy lão tiên sinh nhất định phải đi chuyến này sao [?]?
+
+Lão nhân lắc đầu:
+
+- Lần này cao thủ tụ hội, không thể so với những lần trước. Dù ta có chút danh tiếng trong nước, nhưng biết mình chưa thể vào mười người đứng đầu. Vì vậy lần này tới Đại Triện chỉ mong kết giao, uống trà với mấy người bạn cũ ở các nước khác, nhân tiện mua vài cuốn kỳ phổ là mãn nguyện rồi.
+
+Nữ tử che mặt nãy giờ im lặng, cuối cùng cũng nhẹ giọng lên tiếng:
+
+- Cha, con nghĩ công tử này nói không sai. Ngọc Tỳ giang có lũ lạ, nếu Vi kỳ thánh cùng vị nữ võ thần kia giải quyết dễ dàng thì sao lại kéo dài đến giờ? E rằng Ngọc Tỳ giang gặp rắc rối lớn, nhưng hoàng đế Chu thị vì sĩ diện không muốn bỏ kỳ hội, đến lúc đó có thể xảy ra chuyện ngoài ý muốn...
+
+Nàng không nói tiếp. Nếu cha cố ý đi tiếp, lời nàng sẽ thành những câu khó nghe.
+
+Thực ra ngay từ đầu nàng đã không hoàn toàn đồng ý với chuyến đi này. Lão nhân không muốn bỏ lỡ thịnh hội, cũng muốn cho hậu bối trong nhà được vui vẻ, liền mời một người bạn thân trên giang hồ hộ tống. Người đó là một tông sư nổi tiếng trong võ lâm Ngũ Lăng, đi đường có thể giúp được nhiều. Hán tử đeo đao tên Hồ Tân Phong, định hộ tống họ đến kinh thành Đại Triện, nhân lúc kỳ hội diễn ra sẽ tranh thủ thăm bạn bè giang hồ ở Kim Phi quốc.
+
+Thảo Mộc tập của Đại Triện mười năm một lần, là dịp các quốc thủ quyết đấu. Không chỉ vậy, trong thành, đường phố nhộn nhịp những cuộc cá cược, từ thương nhân đến quan viên đều thích tham gia. Quý nhân có tiền đánh cược vào kỳ hội cũng không ít, nghe nói mỗi lần có hàng triệu lượng bạc đổ vào kinh thành. Dân chúng ném vài lượng bạc đánh cược chẳng phải chuyện lạ, nhà khá giả cược không dưới vài chục lượng. Trong đạo quán, chùa miếu có nhiều quý tộc, văn nhân tham gia nhưng không tiện đánh bạc trực tiếp, nên dùng vật phẩm nhã nhặn để cược, rồi bán đi, thu về cũng không ít.
+
+Thiếu nữ có chút ủy khuất:
+
+- Cô cô, nếu không tới Đại Triện, chúng ta chẳng phải đi một quãng đường dài vô ích sao, hơn ngàn dặm đấy?
+
+Thiếu nữ có tư tâm riêng. Nàng muốn gặp một lần vị đại sư năm xưa đã thắng ông nội, người nay mới hai mươi tuổi [?], rất trẻ mà nghe nói cực kỳ xinh đẹp, hai vị hoàng tử của Chu thị còn tranh giành nàng ấy. Nhiều bằng hữu nữ yêu cờ trong khuê phòng của thiếu nữ đều hy vọng nàng thay họ nhìn tận mắt xem dung mạo người kia có như lời đồn hay không. Nàng đã hứa sẽ tìm cơ hội nói chuyện với vị ấy khi tới kỳ hội.
+
+Hán tử đeo đao Hồ Tân Phong vẫn đứng canh ở cửa. Một tông sư giang hồ như hắn không ngại gian khổ phục vụ một lão nhân đã hết chức quyền, chuyến đi mất gần nửa năm, không phải người bình thường chịu được. Hồ Tân Phong quay đầu lại cười:
+
+- Bên ngoài kinh thành Đại Triện, Ngọc Tỳ giang quả thật có nhiều chuyện lạ và lời đồn kỳ quái, Tùy tiểu thư nói không sai. Tùy lão ca, lần này chúng ta quả thực nên cẩn thận một chút.
+
+Lão nhân có vẻ bối rối.
+
+Đến cả đại hiệp giang hồ như Hồ Tân Phong cũng nói thế, lão không khỏi lo lắng. Nhưng bảo quay đầu về phủ thì lại không cam lòng.
+
+Nữ tử đội mũ che mặt, tóc đã búi kiểu phụ nhân, khẽ thở dài. Dù sao tâm tư nàng cũng có chút không yên. Lần này cùng phụ thân và các cháu đi xa, nàng đã bí mật bói toán vài lần, đều được quẻ kỳ quái, trong hiểm có phúc duyên quấn lấy, tóm lại phúc họa bất định, khiến nàng khó đoán ý sâu trong đó. Theo lẽ thường, Đại Triện vương triều thái bình lâu dài, quốc lực mạnh mẽ, ngang ngửa Đại Quan vương triều phía nam, hoàng thất hai bên còn có quan hệ thông gia. Đại Triện Chu thị lại có nữ võ thần và hộ quốc chân nhân tọa trấn kinh thành. Những lời đồn về Ngọc Tỳ giang, dù có thật cũng không nên thành phiền toái lớn. Nàng tin rằng, Ngọc Tỳ giang chưa từng có sắc phong thủy thần, xây thần từ, có thể giấu một con hắc giao, nhưng không tin một con thủy giao có thể làm loạn kinh thành Đại Triện.
+
+Cuối cùng nàng vẫn còn chút tiếc nuối. Nhiều năm như vậy chỉ có thể dựa vào một quyển sách nhỏ do cao nhân để lại, tự mình mò mẫm tu hành tiên gia thuật pháp, chẳng có vị tiên sư nào thực sự chỉ điểm, truyền thừa. Bằng không tình hình kinh thành Đại Triện, nàng đã sớm hiểu rõ trong lòng.
 
 Thiếu niên nhếch miệng cười.
 
-Cô cô của mình là một người kỳ nhân, nghe đồn bà nội mang thai tháng mười, một ngày nào đó trong mộng có thần nhân ôm trẻ sơ sinh vào nhà thờ tổ, tự tay giao cho bà nội, rồi sau đó sinh ra cô cô. Nhưng mà cô cô mệnh cứng rắn, từ nhỏ đã tinh thông cầm kỳ thư họa, trước kia trong nhà từng có cao nhân đi qua, tặng cho ba chiếc trâm cài cùng một bộ y phục trắng gọi là "Trúc y", nói đây là đạo duyên. Sau khi cao nhân ra đi, cô cô lớn lên càng ngày càng xinh đẹp, tại triều đình và dân gian Ngũ Lăng quốc, nhất là văn đàn, danh tiếng càng lúc càng lớn. Thế nhưng cô cô lại gặp trắc trở trong chuyện kết hôn. Ông nội đã giúp nàng tìm hai vị phu quân, một người là thám hoa lang môn đăng hộ đối, đường quan lộ rộng mở, tên đầy Ngũ Lăng kinh thành. Ai ngờ chẳng bao lâu đã cuốn vào các kỳ thi, ông nội liền không dám tìm đọc sách nữa, tìm một vị bát tự cứng rắn hơn, cô cô vẫn chưa có chồng. Vào thời điểm sắp về nhà chồng, có xảy ra chuyện với nhà Phương, vị giang hồ thiếu hiệp bất đắc dĩ đi xa, được đồn đãi là đến Lan Phòng, bên Thanh Từ quốc lưu lạc, trở thành một người hùng, đến nay vẫn chưa cưới vợ, vẫn còn nhớ mãi cô cô.
+Cô cô của hắn là một kỳ nhân. Nghe đồn khi bà nội mang thai đủ mười tháng, một ngày trong mộng có thần nhân ôm một đứa trẻ sơ sinh vào từ đường, tự tay giao cho bà, rồi sau đó sinh ra cô cô. Nhưng cô cô mệnh cứng, từ nhỏ đã tinh thông cầm kỳ thư họa. Trước kia trong nhà từng có cao nhân đi qua, tặng ba chiếc trâm cùng một bộ y phục trắng gọi là "Trúc y", nói đây là đạo duyên. Cao nhân đi rồi, cô cô càng lớn càng xinh đẹp, danh tiếng trong triều ngoài dân ở Ngũ Lăng quốc, nhất là văn đàn, ngày một lớn. Thế nhưng chuyện kết hôn lại gặp trắc trở. Ông nội đã tìm cho nàng hai vị phu quân. Một người là thám hoa môn đăng hộ đối, quan lộ rộng mở, danh tiếng khắp kinh thành Ngũ Lăng, ai ngờ chẳng bao lâu đã dính vào vụ án khoa cử, từ đó ông nội không dám tìm người đọc sách nữa. Ông tìm một người bát tự cứng hơn, cô cô vẫn chưa thành thân. Vào lúc sắp về nhà chồng thì nhà họ Phương xảy ra chuyện, vị thiếu hiệp giang hồ bất đắc dĩ đi xa, nghe đồn lưu lạc tới Lan Phòng và Thanh Từ quốc, thành một nhân vật anh hùng, đến nay chưa cưới vợ, vẫn nhớ mãi cô cô.
 
-Cô cô hiện đã hơn ba mươi tuổi, nhưng vẫn xinh đẹp động lòng người, tựa như bích họa bước ra từ cõi tiên.
+Cô cô nay đã hơn ba mươi tuổi, vẫn xinh đẹp động lòng người, tựa như bích họa bước ra từ cõi tiên.
 
-Nếu không phải cô cô nhiều năm thường ở nhà, không lộ diện, chỉ thỉnh thoảng đi đến chùa miếu thắp hương, thì cũng không chọn những ngày Mùng một Mười lăm để hành hương, bình thường chỉ gặp gỡ một số văn nhân nhã sĩ, có khi chỉ để đánh cờ vài ván. Thiếu niên tin rằng, cho dù cô cô đã đến độ tuổi "gái lỡ thì" rồi, nhưng cầu thân người cũng không ai dám tiến gần.
+Những năm này cô cô thường ở nhà không lộ diện, thỉnh thoảng mới đi chùa thắp hương, lại không chọn ngày mùng một, mười lăm, bình thường chỉ gặp gỡ vài văn nhân nhã sĩ, có khi chỉ để đánh mấy ván cờ. Nếu không phải vậy, thiếu niên tin rằng dù cô cô đã quá lứa lỡ thì, người cầu thân vẫn đông đúc, chỉ là chẳng ai dám tiến lại gần [?].
 
-Thanh tú thiếu niên đối với hành trình tới Đại Triện kinh thành, có những ước mơ không giống tỷ tỷ của mình. Chu thị hoàng đế tổ chức những bữa tiệc ngoài trời, còn Đại Triện vương triều có thể đẩy ra mười đại giang hồ cao thủ cùng bốn đại mỹ nhân. Chỉ cần trong phường hội ở Đại Triện kinh thành, cũng có thể được hoàng đế tiếp kiến và nhận lễ trọng. Biết đâu hôm nay trong Đại Triện kinh thành đã tụ tập rất nhiều nhân tài trẻ tuổi mới mẻ. Mỗi mười năm một lần có bảng bình chọn giang hồ, không biết lão nhân nào sẽ bị loại bỏ, khuôn mặt nào sẽ có cơ hội lên bảng, Đại Triện kinh thành cũng có nhiều tiền cược lớn.
+Thiếu niên thanh tú đối với chuyến đi kinh thành Đại Triện có mơ ước khác tỷ tỷ. Hoàng đế Chu thị mở tiệc ngoài trời, Đại Triện vương triều sẽ công bố mười đại cao thủ giang hồ cùng bốn đại mỹ nhân. Chỉ cần có mặt trong các hội ở kinh thành, cũng có thể được hoàng đế tiếp kiến, ban lễ trọng. Biết đâu lúc này kinh thành Đại Triện đã tụ tập nhiều nhân tài trẻ tuổi mới mẻ. Bảng giang hồ mười năm một lần, không biết lão nhân nào bị loại, gương mặt nào được lên bảng, kinh thành cũng có nhiều cửa cược lớn.
 
-Thiếu niên họ Tùy từ Ngũ Lăng quốc, tuy rằng xuất thân từ thư hương môn đệ, nhưng đã định sẵn sẽ từng bước hoàn thành, đi theo gia gia và cha chú cùng huynh trưởng. Thế nhưng, sâu trong tâm hồn mình, hắn lại rất khao khát hành hiệp trượng nghĩa, trở thành người hùng trong giang hồ. Ẩn giấu trong thư phòng có hơn mười quyển tiểu thuyết giang hồ, sách vở đã lật nát, đọc thuộc lòng. Thiếu niên còn sùng bái Hồ thúc thúc, một nhân vật trong võ lâm, nếu không phải hắn đã có gia đình, thiếu niên lại mơ tưởng tác hợp giữa Hồ đại hiệp và cô cô.
+Thiếu niên họ Tùy của Ngũ Lăng quốc tuy xuất thân thư hương môn đệ, đã định sẵn sẽ đi từng bước theo ông nội, cha chú và huynh trưởng, nhưng trong sâu thẳm lại rất khao khát hành hiệp trượng nghĩa, thành anh hùng giang hồ. Trong thư phòng hắn giấu hơn mười quyển tiểu thuyết giang hồ, lật đến nát, đọc thuộc lòng. Hắn còn sùng bái Hồ thúc thúc, nhân vật trong võ lâm. Nếu Hồ đại hiệp chưa có gia đình, hắn còn mơ tác hợp đại hiệp với cô cô.
 
-Trần Bình An thấy sắc mặt lão nhân họ Tùy, liền không nói thêm gì nữa.
+Trần Bình An nhìn sắc mặt lão nhân họ Tùy, liền không nói thêm nữa.
 
-Khi vừa dọn bàn cờ xong, mưa cũng ngớt.
+Vừa dọn bàn cờ xong thì mưa cũng ngớt.
 
-Dù cho bên ngoài đường lầy lội, ngoại trừ Trần Bình An, những người khác cũng có chút tâm sự, không vội vàng chạy đi.
+Đường ngoài kia lầy lội, trừ Trần Bình An ra, những người khác đều có tâm sự, không vội đi.
 
-Trần Bình An đã thu xếp bàn cờ và đặt vào rương trúc, cầm gậy leo núi, đội mũ rộng vành, cáo từ rời đi.
+Trần Bình An cất bàn cờ vào rương trúc, cầm gậy leo núi, đội mũ rộng vành, cáo từ rời đi.
 
-Trước đó, khi thấy màn mưa, bỏ cờ nhận thua, dọn bàn cờ xong, vừa đúng lúc mưa to đã ngừng lại.
+Trước đó hắn nhìn màn mưa, bỏ cờ nhận thua, dọn bàn xong vừa đúng lúc mưa lớn ngừng lại.
 
-Điều này vốn là một loại nhắc nhở không lời của Trần Bình An. Còn về việc người phụ nữ có mũ che mặt có phát giác được dấu vết để lại hay không, chính là chuyện của nàng.
+Đó vốn là một lời nhắc không tiếng của Trần Bình An. Còn nữ tử che mặt có phát giác dấu vết hay không là chuyện của nàng.
 
-Còn người cầm bội đao là một võ phu năm cảnh, tại Ngũ Lăng quốc cũng coi như là một tông sư hùng cứ võ lâm.
+Hán tử đeo đao là võ phu cảnh thứ năm, ở Ngũ Lăng quốc cũng coi như tông sư hùng cứ võ lâm.
 
-Còn về nàng có mũ che mặt, dường như là một luyện khí sĩ mới vào, cảnh giới không cao, khoảng hai ba cảnh mà thôi.
+Còn nữ tử che mặt có vẻ là luyện khí sĩ mới nhập môn, cảnh giới không cao, khoảng cảnh thứ hai, thứ ba mà thôi.
 
-Trần Bình An vừa dừng chân bên ngoài đình nghỉ, đôi mày nhíu lại.
+Trần Bình An vừa dừng chân ngoài đình, đôi mày đã nhíu lại.
 
-Có phải là một sự trùng hợp kỳ lạ không?
+Có phải trùng hợp kỳ lạ không?
 
-Giữa rừng núi hoang vu, tại sao lại có một người đàn ông vĩ đại, cảnh giới Kim Thân, đang thúc ngựa chạy đến? Với thân phận của lão nhân họ Tùy, không lý nào lại có kẻ thù từ triều đình hay giang hồ ở đây.
+Giữa rừng núi hoang vu, tại sao lại có một võ phu Kim thân cảnh thúc ngựa chạy đến? Với thân phận lão nhân họ Tùy, không lý nào có kẻ thù trong triều hay trên giang hồ ở đây.
 
-Đại Triện vương triều với hơn mười quốc gia lớn nhỏ trên bản đồ, những nước như Lan Phòng, Ngũ Lăng, có lẽ cũng chưa từng có một vĩ nhân Kim Thân nào giữ vai trò bảo vệ võ vận. Giống như ở Bảo Bình châu, trung bộ Thải Y quốc hay Sơ Thủy quốc, hầu hết đều có những bậc tiền bối cảnh cao võ giỏi như Tống lão. Lực lượng của họ thật sự đủ sức làm cho một quốc gia giang hồ trở nên vững mạnh. Chỉ có điều, dưới núi người ta thấy cảnh giới chân nhân, còn trên núi thì lại thấy những người tu hành, đó là vì Trần Bình An tu vi cao thâm, nhãn lực của hắn đã đạt đến mức sâu sắc, nên mới có thể thấy nhiều điều đến vậy. Nếu không, giống như năm xưa khi còn là học đồ ở trấn nhỏ Long Diêu, hắn sẽ nhìn mọi người chỉ đơn thuần qua tiền bạc, không có tiền thì mọi thứ đều khác.
+Đại Triện vương triều và hơn mười nước lớn nhỏ quanh đó, những nước như Lan Phòng, Ngũ Lăng có lẽ cũng chưa từng có một vị Kim thân giữ võ vận. Giống như ở Bảo Bình Châu, Thải Y quốc hay Sơ Thủy quốc ở trung bộ đều có những bậc tiền bối cảnh giới cao như Tống lão, sức mạnh đủ để giang hồ một nước vững vàng. Chỉ có điều, dưới núi người ta thấy cảnh giới của võ phu, còn trên núi lại thấy người tu hành, đó là vì tu vi Trần Bình An đã cao, nhãn lực sâu, mới thấy được nhiều như thế. Nếu không, như năm xưa làm học đồ lò gốm ở trấn nhỏ Long Diêu, hắn chỉ nhìn người qua tiền bạc, không có tiền thì mọi thứ đều khác.
 
-Sau nhiều năm du hành bốn phương, chỉ ngoại trừ Đảo Huyền Sơn, những nơi khác mà hắn đặt chân đến bây giờ đều là phàm phu tục tử, chỉ khác là những chuyện xưa đã thưa thớt hơn.
+Sau nhiều năm du hành bốn phương, ngoại trừ Đảo Huyền Sơn, những nơi hắn đặt chân đến bây giờ phần nhiều là phàm phu tục tử, chỉ khác là chuyện xưa đã thưa thớt hơn.
 
-Vị võ sư kia nhanh chóng dừng ngựa lại ở xa, có vẻ như đang đợi ai đó.
+Vị võ sư kia nhanh chóng dừng ngựa ở xa, có vẻ đang đợi ai đó.
 
-Bên cạnh hắn còn có một người tu hành cỡi ngựa.
+Bên cạnh hắn còn có một tu sĩ cưỡi ngựa.
 
-Sau đó, từ một hướng khác trên con đường cổ Trà Mã, vang lên âm thanh ồn ào, có khoảng hơn mười người, bước đi có nhanh có chậm, tu vi cũng có cao có thấp.
+Sau đó, từ một hướng khác trên Trà Mã cổ đạo vang lên âm thanh ồn ào, có khoảng hơn mười người, bước đi nhanh chậm khác nhau, tu vi cũng cao thấp khác nhau.
 
-Trần Bình An do dự một chút, đưa chân đạp xuống bùn lầy, rồi rút chân ra, cọ cọ đế giày trên bậc thang. Hắn thở dài, rồi quyết định quay trở lại đình nghỉ chân, nói: "Thôi, ngồi thêm một lát đi, chờ cho nắng nóng dịu lại rồi hẵng đi, chứ đi mà không từng chút khó chịu."
+Trần Bình An do dự một chút, đưa chân giẫm xuống bùn lầy, rồi rút chân ra, cọ đế giày lên bậc thang. Hắn thở dài, quay trở lại đình, nói:
 
-Thiếu niên bên cạnh, một cậu trai tính tình thoải mái, lạc quan, lại là lần đầu tiên ra giang hồ, không giấu giếm, cười nói: "Quá hay!"
+- Thôi, ngồi thêm một lát đi, chờ tan bớt nóng rồi hẵng đi, đường này đi khó chịu quá.
+
+Thiếu niên bên cạnh tính tình thoải mái, lại là lần đầu ra giang hồ, không giấu giếm, cười nói:
+
+- Hay quá!
 
 Trần Bình An chỉ mỉm cười.
 
-Hồ Tân Phong có chút thất vọng, thầm nghĩ có vẻ cậu nhóc này không thể càn rỡ như vậy trên giang hồ.
+Hồ Tân Phong có chút thất vọng, thầm nghĩ tiểu tử này xem ra không thể càn rỡ như vậy trên giang hồ được.
 
-Chưa kịp nói, bỗng từ nơi nào đó, một nữ tử che mặt trong lớp vải mỏng lên tiếng giáo huấn: "Là người đọc sách, không được vô lễ như vậy, mau xin lỗi Trần công tử đi!"
+Chưa kịp nói, nữ tử che mặt đã lên tiếng dạy bảo:
 
-Thiếu niên nhìn về phía ông nội mình, lão nhân mỉm cười nói: "Người đọc sách phải để người khác xin lỗi thì có gì khó đâu? Hay là lý lẽ trên sách vở quý giá hơn, hay là do dung mạo của cậu bé này đáng giá hơn?"
+- Là người đọc sách, không được vô lễ, mau xin lỗi Trần công tử!
 
-Thiếu niên quả thật hồn nhiên, mỉm cười tươi rói, nối tay chắp lại tỏ ý xin lỗi. Người đang đứng lại không nói gì, chỉ cười và đứng yên, không yêu cầu phải xin lỗi.
+Thiếu niên nhìn về phía ông nội, lão nhân mỉm cười:
 
-Thiếu nữ che mặt bật cười khúc khích, thấy em trai mình ngạc nhiên, đúng là một chuyện thú vị.
+- Người đọc sách xin lỗi người ta thì có gì khó? Lý lẽ trong sách quý hơn, hay mặt mũi của ngươi quý hơn?
 
-Lão nhân họ Tùy nói: "Công tử, chúng ta đi thôi."
+Thiếu niên quả thật hồn nhiên, cười tươi rói, chắp tay xin lỗi. Người mặc thanh sam không nói gì, chỉ cười đứng yên, không đòi phải xin lỗi.
 
-Trần Bình An gật đầu, cười đáp: "Hữu duyên gặp lại."
+Nữ tử che mặt bật cười khẽ, thấy cháu trai ngạc nhiên cũng là chuyện thú vị.
 
-Nhưng khi họ vừa định rời khỏi đình nghỉ chân để dẫn ngựa, bỗng thấy một đám giang hồ nhân sĩ chen chúc nhau, bước tới với những bước chân lội bùn.
+Lão nhân họ Tùy nói:
 
-Hồ Tân Phong đứng quay lưng như một thanh kiếm, không lên ngựa, đồng thời ra hiệu bằng tay cho bốn người bên cạnh không nên hấp tấp lên ngựa, tránh cho việc bị người khác nhìn thấy rồi nghi ngờ.
+- Công tử, chúng ta đi thôi.
 
-Một nhóm giang hồ có khoảng nửa số người đã qua đình nghỉ, tiếp tục tiến lên, bỗng một người hán tử có chiều cao nổi bật và cổ áo rộng mở dừng lại, hô lớn: “Các huynh đệ, nghỉ chút đi!”
+Trần Bình An gật đầu, cười đáp:
+
+- Hữu duyên gặp lại.
+
+Nhưng khi họ vừa định rời đình dắt ngựa thì một đám nhân sĩ giang hồ chen chúc nhau, lội bùn đi tới.
+
+Hồ Tân Phong đứng thẳng lưng như một thanh kiếm, không lên ngựa, đồng thời ra hiệu cho bốn người bên cạnh đừng vội lên ngựa, tránh bị người ta nhìn thấy mà nghi ngờ.
+
+Khoảng nửa đám người giang hồ đã qua đình, tiếp tục đi lên, bỗng một hán tử cao lớn, cổ áo phanh rộng dừng lại, hô lớn:
+
+- Các huynh đệ, nghỉ chút đi!
 
 Nữ tử che mặt nhíu mày.
 
-Hồ Tân Phong nhẹ nhàng nói: "Để bọn họ đi đây, cố gắng đừng chọc giận."
+Hồ Tân Phong nhẹ giọng:
 
-Lão nhân họ Tùy chỉ gật đầu, còn thiếu niên và thiếu nữ thì gần gũi bên lão nhân.
+- Để bọn họ đi trước, cố gắng đừng chọc giận.
 
-Người thanh sam có mũ rộng vành dường như cũng hiểu ra, không dám tiếp tục đứng lại trong đình, mà chỉ lặng lẽ di chuyển ở bên cầu thang, cũng không khác gì với ý nghĩ của họ, nhường cho bọn người khó gần này một không gian.
+Lão nhân họ Tùy gật đầu, thiếu niên và thiếu nữ nép sát bên ông.
 
-Tuy vậy, cho dù là người trẻ tuổi cầm đầu có khinh thường một chút, vẫn chú ý xung quanh, nhưng cuối cùng vẫn bị một vài người đàn ông cùng nhau đi vào đình, một trong số đó lén lút va chạm vào vai hắn.
+Người mặc thanh sam đội mũ rộng vành dường như cũng hiểu ra, không dám đứng lại trong đình, chỉ lặng lẽ dịch ra bên bậc thang, cũng có suy nghĩ giống họ, nhường chỗ cho đám khó gần này.
 
-Người thanh sam đó lảo đảo lùi lại, nơi khó chịu này phát ra lời xin lỗi. Người đàn ông khổng lồ tức giận nói: "Đường này rộng rãi như vậy, không cần phải đụng chạm nhau. Đừng tưởng ta dễ bị bắt nạt, có phụ nữ ở đây mà muốn phô trương."
+Tuy vậy, dù người trẻ tuổi cầm gậy đã chú ý né tránh, cuối cùng vẫn bị mấy gã đàn ông cùng đi vào đình, một tên trong đó lén va vào vai hắn.
 
-Kẻ cầm đầu nhóm du học sinh ấy, vai đeo rương sách, chiếc ba-la-lô chạm nhau phát ra tiếng động, người trẻ tuổi sắc mặt bỗng trắng bệch, vẫn không ngừng xin lỗi và bước lùi, nhường chỗ cho họ.
+Người mặc thanh sam loạng choạng lùi lại, khó xử nói lời xin lỗi. Gã to con tức giận:
 
-Người hán tử dữ tợn vẫn tiến về phía trước, bất ngờ thò tay đẩy mạnh vào vai người thanh sam, làm cho hắn ngã ngồi xuống nền bùn lầy bên ngoài đình.
+- Đường rộng thế này mà cũng đụng vào người. Đừng tưởng ta dễ bắt nạt, có đàn bà ở đây mà muốn phô trương à?
 
-Gương mặt thư sinh trẻ tuổi đầy hoảng sợ, liếc mắt nhìn thấy đám đông tụ tập nơi bậc thang bên kia, nhưng lão nhân họ Tùy chỉ thở dài, như không nhìn thấy gì. Thiếu niên và thiếu nữ sắc mặt trắng bệch, trong khi Hồ Tân Phong chỉ nhíu mày. Chỉ có nữ tử che mặt, muốn lên tiếng nhưng lại bị lão nhân họ Tùy ra hiệu im lặng, không nên xen vào. Dù sao trong những năm tháng qua, Hồ Tân Phong đã khó khăn lắm mới leo lên được một vị trí cao, nay bắt đầu tiến vào con đường làm ăn bạch đạo với nhiều tài nguyên, nếu không biết cách tránh né phiền phức, sẽ gặp rắc rối lớn. Những người này nghe giọng nói, không phải là nhân sĩ Ngũ Lăng quốc, mà tổn thất tên tuổi của Hồ Tân Phong tại bản quốc cũng sẽ vô ích.
+Chiếc rương trúc trên lưng va vào nhau phát ra tiếng động. Người trẻ tuổi mặt bỗng trắng bệch, vẫn không ngừng xin lỗi, bước lùi nhường chỗ.
 
-Hồ Tân Phong thực sự tâm trạng có chút nặng nề, nhưng bề ngoài vẫn giữ vẻ bình tĩnh.
+Gã hán tử dữ tợn vẫn tiến tới, bất ngờ thò tay đẩy mạnh vào vai người mặc thanh sam, khiến hắn ngã ngồi xuống nền bùn ngoài đình.
 
-Bởi vì nhóm người chính giữa, nhìn qua có vẻ là những người giang hồ có trình độ võ kỹ thấp nhất, nhưng thực chất không phải vậy, mà chỉ là những trò lừa bịp của một số kẻ giang hồ non nớt, chỉ cần chạm đến họ, thì sẽ phải mất một lớp da. Nói đến một người trong số đó, là một lão giả mặt đầy vết sẹo. Hồ Tân Phong chưa chắc đã nhận ra hắn, nhưng ký ức về Dương Nguyên, một tà đạo tông sư nổi tiếng tại Kim Phi quốc với những vụ án lớn, thì vẫn còn mới mẻ trong tâm trí. Dương Nguyên có danh hiệu Hồn Giang Giao, với thân công phu tu luyện tinh vi, quyền pháp cực kỳ hung hãn. Năm đó, hắn đã từng là một trong những ác nhân của lục lâm Kim Phi quốc, đã trốn tránh suốt hơn mười năm. Nghe nói hắn đang ẩn thân tại vùng biên giới giữa Thanh Từ quốc và Lan Phòng quốc, tụ tập một đám đông kẻ hung ác khác, từ một kẻ đơn thương độc mã trở thành một môn phái tà đạo mạnh mẽ. Lâm Thù, môn chủ của Tranh Vanh môn, một trong bốn đại chính đạo cao thủ của Kim Phi quốc, đã từng dẫn theo hơn mười người chính đạo đến để vây giết hắn, nhưng vẫn không thành công và phải bỏ chạy trong tình thế bị thương.
+Gương mặt thư sinh trẻ tuổi đầy hoảng sợ, liếc nhìn đám người tụ ở bậc thang bên kia. Nhưng lão nhân họ Tùy chỉ thở dài, như không nhìn thấy gì. Thiếu niên và thiếu nữ mặt trắng bệch, Hồ Tân Phong chỉ nhíu mày. Chỉ có nữ tử che mặt muốn lên tiếng, lại bị lão nhân họ Tùy ra hiệu im lặng, đừng xen vào. Dù sao những năm qua Hồ Tân Phong khó khăn lắm mới leo lên được vị trí cao, nay đang bước vào đường làm ăn bạch đạo, nhiều tài nguyên, không biết tránh phiền phức sẽ gặp rắc rối lớn. Nghe giọng thì đám này không phải người Ngũ Lăng quốc, tên tuổi của Hồ Tân Phong trong nước cũng chẳng ích gì.
 
-Khi thật sự đối mặt với lão ma đầu Dương Nguyên, dù cho hắn vào năm đó bị trọng thương, phải chịu di chứng, nhưng với tuổi tác lớn và tình trạng khí huyết yếu ớt qua năm tháng, Hồ Tân Phong không chắc hắn là đối thủ của mình. Tuy nhiên, Dương Nguyên vẫn có bộ hạ đông đảo. Nếu như hắn vẫn còn trong tình trạng sức khỏe tốt, và võ thuật tiến bộ, thì Hồ Tân Phong có lẽ sẽ phải dè chừng. Địa bàn này, Trà Mã cổ đạo, thường ít người lui tới, Hồ Tân Phong cảm thấy như mình đang dệt hoa trên gấm trong hành trình này, không thể không vì Tùy gia mà liều mạng một phen, đem chút ấm áp đến giữa ngày tuyết rơi.
+Thực ra tâm tình Hồ Tân Phong có chút nặng nề, nhưng bề ngoài vẫn giữ bình tĩnh.
 
-Hồ Tân Phong ban đầu lo lắng rằng Tùy lão ca, một thư sinh khí phách, nhất định sẽ can thiệp vào vấn đề này, nhưng nhìn lại thì có lẽ hắn đã quá lo xa. Dù bản thân không nói thẳng về thân phận và sức mạnh của Dương Nguyên, nhưng Tùy lão ca cũng không có ý định can thiệp vào chuyện này.
+Bởi vì nhóm người ở giữa, nhìn qua như võ kỹ thấp nhất, thực chất không phải vậy. Chạm vào bọn họ sẽ bị lột một lớp da, những kẻ giang hồ non nớt chỉ là đám lừa bịp bên ngoài. Trong đó có một lão giả mặt đầy sẹo. Hồ Tân Phong chưa chắc đã nhận ra hắn, nhưng ký ức về Dương Nguyên, tà đạo tông sư nổi tiếng của Kim Phi quốc với những vụ án lớn thì vẫn còn mới. Dương Nguyên có biệt hiệu Hồn Giang Giao, công phu tu luyện tinh vi, quyền pháp cực kỳ hung hãn. Năm đó hắn là một trong những ác nhân của lục lâm Kim Phi quốc, trốn tránh suốt hơn mười năm. Nghe nói hắn ẩn thân ở vùng biên giới Thanh Từ quốc và Lan Phòng quốc, tụ tập một đám hung ác, từ kẻ đơn thương độc mã trở thành một môn phái tà đạo mạnh mẽ. Lâm Thù, môn chủ Tranh Vanh môn, một trong bốn cao thủ chính đạo của Kim Phi quốc, từng dẫn hơn mười người chính đạo tới vây giết hắn, nhưng vẫn không thành, hắn bị thương chạy thoát.
+
+Đối mặt thật với lão ma đầu Dương Nguyên, dù năm đó hắn bị trọng thương, chịu di chứng, cộng với tuổi cao, khí huyết yếu đi qua năm tháng, Hồ Tân Phong không chắc hắn có còn là đối thủ của mình. Nhưng Dương Nguyên vẫn có đông bộ hạ. Nếu sức khỏe hắn tốt, võ thuật lại tiến bộ, thì phải dè chừng. Trà Mã cổ đạo ít người lui tới, Hồ Tân Phong thấy mình chuyến này chỉ là thêu hoa trên gấm, không thể vì Tùy gia mà liều mạng thành đưa than ngày tuyết.
+
+Lúc đầu Hồ Tân Phong lo Tùy lão ca, một thư sinh khí phách, nhất định sẽ can thiệp, nhưng nhìn lại thì mình đã quá lo xa. Dù mình không nói thẳng thân phận và sức mạnh của Dương Nguyên, Tùy lão ca cũng không có ý nhúng tay.
 
 Quả nhiên chính là Hồn Giang Giao Dương Nguyên!
 
-Lão nhân sắc bén ấy nhìn về phía Hồ Tân Phong. Hồ Tân Phong do dự một lúc, ôm quyền nói: "Ngũ Lăng quốc Hoành Độ bang, bang chủ Hồ Tân Phong, bái kiến các vị giang hồ bằng hữu."
+Lão nhân sắc bén nhìn về phía Hồ Tân Phong. Hồ Tân Phong do dự một lúc, ôm quyền:
 
-Dương Nguyên suy nghĩ một chút, khàn giọng cười nói: "Chưa từng nghe qua."
+- Bang chủ Hoành Độ bang của Ngũ Lăng quốc là Hồ Tân Phong, bái kiến các vị bằng hữu giang hồ.
 
-Mọi người xung quanh đều cười ồ lên.
+Dương Nguyên suy nghĩ một chút, khàn giọng cười:
 
-Dương Nguyên liếc nhìn một nữ tử đội mũ có vải che mặt, đôi mắt vốn mờ đục bỗng tỏa sáng, thoáng qua một giây rồi quay sang một thanh niên tráng kiện bên cạnh, nói: "Chúng ta khó có dịp hành tẩu giang hồ, đừng vì chút va chạm mà đánh đập nhau, hãy để cho người ta bồi thường sau khi mọi việc kết thúc."
+- Chưa từng nghe qua.
 
-Thanh niên tráng kiện hơi ngạc nhiên, một người đứng bên cạnh Dương Nguyên, tuổi trẻ mang theo kiếm, tay cầm quạt xếp, mỉm cười nói: "Bồi thường năm sáu chục lượng thì được, đừng làm khó một thư sinh chán nản."
+Đám người xung quanh cười ồ lên.
 
-Chàng thư sinh ngồi dưới đất, không dám đứng dậy, mặt mày bối rối nói: "Tôi đâu có nhiều bạc như vậy, trong rương chỉ có một bộ bàn cờ, giá trị khoảng mười mấy lượng bạc."
+Dương Nguyên liếc nhìn nữ tử đội mũ che mặt, đôi mắt mờ đục bỗng lóe sáng, thoáng qua một giây rồi quay sang một thanh niên tráng kiện bên cạnh:
 
-Chàng kiếm khách cầm quạt xếp nói: "Như vậy thì hơi khó rồi."
+- Chúng ta khó có dịp hành tẩu giang hồ, đừng vì chút va chạm mà đánh đập nhau, để người ta bồi thường là xong.
 
-Những thanh thiếu niên khác muốn lên tiếng, nhưng bị ông lão Tùy ngăn lại, ông liếc mắt nhìn cánh tay của thiếu niên, tức tối trừng mắt.
+Thanh niên tráng kiện hơi ngạc nhiên. Một người trẻ tuổi đứng cạnh Dương Nguyên, đeo kiếm, cầm quạt xếp, mỉm cười:
 
-Thiếu niên bị cái nhìn nguy hiểm của ông nội hù dọa, không dám nói gì.
+- Bồi thường năm sáu chục lượng là được, đừng làm khó một thư sinh sa cơ.
 
-Ông Tùy liếc nhanh sang cái thư sinh đáng thương đó, thấy may mắn là hắn không có ý cầu cứu mình vay tiền, nếu không thì ông cũng sẽ không ngần ngại mắng một câu, tận dụng thời cơ mà thoát khỏi tình huống khó xử này, điều này thật sẽ làm tổn hại đến hình tượng hiền lành hòa ái của ông trước mặt những người vãn bối.
+Thư sinh ngồi dưới đất không dám đứng dậy, mặt mày bối rối:
 
-Chẳng biết vì sao lão ma đầu Dương Nguyên lại phất tay. Đến khi tiếng nói khàn khàn của hắn vang lên như mài dao, ông chỉ cười nói: "Thôi được rồi, hù dọa một chút là đủ, hãy để cho người đọc sách rời khỏi đây, anh chàng này cũng coi như có chút khí phách, như vậy so với những kẻ đứng nhìn thì tốt hơn nhiều. Chỉ sợ nếu làm tức giận, thì không biết trong tay có dao hay không, nhưng người ngoài vẫn còn nhiều, bằng không có lẽ đã sớm thấy một dao chém chết thư sinh trẻ tuổi này rồi."
+- Ta đâu có nhiều bạc như vậy, trong rương chỉ có một bộ bàn cờ, giá khoảng mười mấy lượng bạc.
 
-Kẻ tráng kiện có vẻ thất vọng, làm bộ như muốn đạp, nhưng thư sinh trẻ tuổi vừa lăn lộn vừa bò dậy, lách qua mọi người, vội vã chạy ra khỏi con đường nhỏ, lầy lội và văng tung tóe.
+Kiếm khách cầm quạt xếp nói:
 
-Họ Tùy, lão nhân, thần sắc tự nhiên.
+- Vậy thì hơi khó rồi.
 
-Thiếu niên thanh tú lại đỏ bừng mặt, khi nghe lão gia hỏa kia ngụ ý về sau, xấu hổ không thôi.
+Thiếu niên định lên tiếng, bị lão nhân họ Tùy ngăn lại, ông túm cánh tay cháu, tức giận trừng mắt.
 
-Người nữ tử che mặt nhìn thấy con đường nhỏ ở phía cuối, thanh sam người trẻ tuổi dừng bước, quay đầu lại trông, sau đó lộ ra một nụ cười, không biết có phải là nàng ảo tưởng hay không, vui vẻ nghiền ngẫm, người nọ bước nhanh rời đi.
+Thiếu niên bị ánh mắt của ông nội dọa sợ, không dám nói gì.
 
-Ở bên này đình nghỉ chân, Dương Nguyên chỉ chỉ vào vị thiếu niên đang cầm quạt bên cạnh, nhìn về phía nữ tử che mặt, “Đây là ái đồ của ta, đến nay vẫn chưa cưới vợ. Ngươi tuy rằng bị mũ che mặt nhưng cũng là phụ nhân búi tóc, không vấn đề gì. Đệ tử của ta không so đo những chuyện này, không bằng chúng ta kết thân gia đi? Vị lão tiên sinh này yên tâm, chúng ta dù là người giang hồ nhưng của cải không tầm thường, sính lễ chắc chắn phong phú hơn con cháu của một quốc gia nhiều. Nếu ngươi không tin, có thể hỏi vị đệ tử bên cạnh, thân thủ tốt như vậy, hẳn là nhận ra lão phu thân phận.”
+Lão nhân họ Tùy liếc nhanh sang thư sinh đáng thương kia, thầm thấy may là hắn không có ý cầu cứu mình vay tiền, nếu không thì ông cũng sẽ phải mắng một câu để thoát khỏi tình huống khó xử, như vậy sẽ tổn hại hình tượng hiền hòa trước mặt đám hậu bối.
 
-Họ Tùy lão nhân sắc mặt xanh mét.
+Chẳng biết vì sao lão ma đầu Dương Nguyên phất tay, giọng khàn khàn như mài dao:
 
-Hồ Tân Phong thần sắc lúng túng, đã chuẩn bị tốt các bước trong đầu, nói với lão nhân: “Tùy lão ca, vị này là Dương Nguyên, tên hiệu Hồn Giang Giao, từng là một võ học tông sư của Kim Phi quốc.”
+- Thôi được rồi, dọa một chút là đủ, để người đọc sách đi. Tiểu tử này cũng coi như có chút khí phách, hơn hẳn những kẻ đứng nhìn. Chỉ là chọc giận thì không biết trong tay có dao hay không, may còn nhiều người ngoài, bằng không có lẽ một đao đã chém chết thư sinh trẻ tuổi này rồi.
 
-Thiếu niên nơm nớp lo sợ, nhỏ nhẹ nói: “Hồn Giang Giao Dương Nguyên, không phải đã bị môn chủ Tranh Vanh môn, Lâm Thù, đánh chết sao?”
+Gã tráng kiện có vẻ thất vọng, làm bộ muốn đạp. Thư sinh trẻ tuổi vừa lăn vừa bò dậy, lách qua đám đông, vội vã chạy ra con đường nhỏ, bùn văng tung tóe.
 
-Âm thanh của thiếu niên khá nhỏ, tự cho là người khác không nghe thấy, nhưng thực ra Hồ Tân Phong cùng Dương Nguyên, những cao thủ trong giang hồ đều nghe rõ ràng.
+Lão nhân họ Tùy thần sắc tự nhiên.
 
-Hồ Tân Phong quay đầu giận dữ nói: “Tùy Văn Pháp, không được nói hưu nói vượn! Ngươi mau xin lỗi Dương lão tiền bối!”
+Thiếu niên thanh tú lại đỏ bừng mặt. Nghe lão già kia ngụ ý về sau, hắn xấu hổ không thôi.
+
+Nữ tử che mặt nhìn thấy ở cuối con đường nhỏ, người trẻ tuổi mặc thanh sam dừng bước, quay đầu lại nhìn rồi lộ ra một nụ cười, không biết có phải nàng tưởng tượng không, trông như vui vẻ nghiền ngẫm. Người đó bước nhanh rời đi.
+
+Bên này trong đình, Dương Nguyên chỉ vào người trẻ tuổi cầm quạt bên cạnh, nhìn về phía nữ tử che mặt:
+
+- Đây là ái đồ của ta, đến nay chưa cưới vợ. Ngươi tuy đội mũ che mặt nhưng búi tóc phụ nhân, không vấn đề gì, đồ đệ ta không so đo chuyện này. Chi bằng kết thân gia đi? Vị lão tiên sinh này yên tâm, chúng ta tuy là người giang hồ nhưng của cải không tầm thường, sính lễ chắc chắn phong phú hơn con cháu một nước nhiều. Nếu không tin, có thể hỏi vị thuộc hạ bên cạnh, thân thủ tốt như vậy, hẳn nhận ra lão phu là ai.
+
+Lão nhân họ Tùy sắc mặt xanh mét.
+
+Hồ Tân Phong lúng túng, đã chuẩn bị sẵn trong đầu các bước, nói với lão nhân:
+
+- Tùy lão ca, vị này là Dương Nguyên, biệt hiệu Hồn Giang Giao, từng là một võ học tông sư của Kim Phi quốc.
+
+Thiếu niên nơm nớp lo sợ, nhỏ giọng nói:
+
+- Hồn Giang Giao Dương Nguyên, chẳng phải đã bị môn chủ Tranh Vanh môn là Lâm Thù đánh chết sao?
+
+Giọng thiếu niên khá nhỏ, tự cho là không ai nghe thấy, nhưng Hồ Tân Phong và Dương Nguyên đều là cao thủ giang hồ, nghe rõ ràng.
+
+Hồ Tân Phong quay đầu giận dữ:
+
+- Tùy Văn Pháp, không được nói bậy! Mau xin lỗi Dương lão tiền bối!
 
 Thiếu niên lại chắp tay xin lỗi.
 
-Đây là lần thứ hai trong ngày hắn phải làm người khác nói xin lỗi.
+Đây là lần thứ hai trong ngày hắn phải xin lỗi người khác.
 
-Dương Nguyên duỗi tay, cười nói: “Đi vào trong trò chuyện. Vấn đề này, hy vọng ngươi, Tùy lão thị lang, nên suy nghĩ kỹ.”
+Dương Nguyên duỗi tay, cười nói:
 
-Họ Tùy lão nhân nhẹ nhàng thở ra. Không có lập tức nổi giận, thì thật tốt. Cảnh huống máu me mơ hồ, trong sách thường có, nhưng lão thực sự chưa thấy tận mắt bao giờ.
+- Vào trong trò chuyện. Chuyện này, mong Tùy lão thị lang suy nghĩ kỹ.
 
-Nếu đối phương nhận ra thân phận của mình và xưng hô là lão thị lang, có khả năng tình hình sẽ chuyển biến.
+Lão nhân họ Tùy nhẹ nhàng thở ra. Không lập tức nổi giận là tốt rồi. Cảnh máu me trong sách thường có, nhưng lão thật sự chưa thấy tận mắt bao giờ.
 
-Hai bên ngồi đối diện nhau trên ghế dài trong đình, chỉ có lão nhân Dương Nguyên và vị đệ tử đeo kiếm ngồi đối mặt với cửa. Lão nhân nghiêng người về phía trước, nắm tay, không có vẻ gì của một ma đầu giang hồ ác sát, chỉ cười nhìn về phía nữ tử che mặt, người vẫn im lặng bên cạnh nàng. Lão nhân mỉm cười nói: “Nếu Tùy lão thị lang không ngại, có thể kết thân hơn nữa. Trong gia đình ta còn có một vị cháu trai, năm nay vừa tròn mười sáu, không theo ta đi giang hồ nhưng đã đọc đủ thứ thi thư. Cháu trai ta không phải là loại ngôn từ lừa gạt người. Năm nay, khoa cử Lan Phòng quốc, cháu ta đỗ được hai giáp tiến sĩ, tên là Dương Thụy, Tùy lão thị lang chắc hẳn nghe qua.”
+Đối phương nhận ra thân phận của mình và gọi là lão thị lang, có thể tình hình sẽ chuyển biến.
 
-Sau đó, lão nhân quay sang đệ tử cười nói: “Không biết cháu ta sẽ chọn ai, có thể có xung đột với ngươi không?”
+Hai bên ngồi đối diện trên ghế dài trong đình, chỉ có Dương Nguyên và đệ tử đeo kiếm ngồi quay mặt ra cửa. Dương Nguyên nghiêng người về phía trước, nắm tay, chẳng có vẻ gì của ma đầu giang hồ, cười nhìn về phía nữ tử che mặt vẫn im lặng và thiếu nữ bên cạnh:
 
-Vị đệ tử đeo kiếm nhanh chóng nói: “Không bằng cưới vợ lớn tuổi hơn một chút, còn nhỏ thì làm thiếp.”
+- Nếu Tùy lão thị lang không ngại, có thể kết thân thêm một lần nữa. Trong nhà ta còn có một đứa cháu trai, năm nay vừa tròn mười sáu, không theo ta đi giang hồ mà đọc đủ thi thư. Ta không nói ngoa. Khoa cử năm nay của Lan Phòng quốc, cháu ta đỗ tiến sĩ nhị giáp, tên là Dương Thụy, Tùy lão thị lang chắc hẳn từng nghe.
 
-Lão nhân cau mày nói: “Như vậy thì không hợp lễ nghi.”
+Rồi lão quay sang đệ tử cười nói:
 
-Đệ tử kia cười nói: “Người trong giang hồ không cần chú ý nhiều như vậy. Nếu không được, có thể bảo hai vị cô nương nhường chút, thay đổi danh tính là được. Gả cho Dương Thụy, có tài có sắc có gia thế. Nếu không có Lan Phòng quốc, công chúa hay huyện chủ vẫn chưa đủ độ tuổi, đã sớm trở thành phò mã rồi. Hai vị cô nương gả cho Dương Thụy, thật sự là phúc khí!”
+- Không biết cháu ta sẽ chọn ai, có xung đột với ngươi không?
 
-Hồ Tân Phong chịu đựng cơn giận, “Dương lão tiền bối, đừng quên, chúng ta đang ở Ngũ Lăng quốc!”
+Đệ tử đeo kiếm nhanh nhảu:
 
-Dương Nguyên cười nói: “Nếu là người thứ nhất Ngũ Lăng quốc, Vương Độn, đang ở đây, ta sẽ không tiến vào đình này. Hôm nay, Vương Độn hẳn đang ở Đại Triện kinh thành. Dường như chúng ta, một tốp đông người như vậy, đi qua, chết người nhiều lắm, nhất định những cao thủ lão đạo trong Ngũ Lăng quốc sẽ tìm được dấu vết. Nhưng không sao, đến lúc đó Tùy lão thị lang sẽ gánh vác việc dàn xếp rối rắm này, người đọc sách nặng nhất thanh danh, chuyện xấu trong nhà không thể để lộ ra ngoài.”
+- Chi bằng cưới người lớn tuổi hơn một chút làm vợ, người nhỏ thì làm thiếp.
 
-Hồ Tân Phong thở dài, quay sang nhìn họ Tùy lão nhân, “Tùy lão ca, ngươi nghĩ sao?”
+Dương Nguyên cau mày:
 
-Họ Tùy lão nhân nhìn vị lão nhân sắc bén, cười lạnh nói: “Ta không tin ngươi, Dương Nguyên, thật sự có thể làm điều gì vô pháp vô thiên tại Ngũ Lăng quốc này.”
+- Như vậy không hợp lễ nghi.
 
-Dương Nguyên cười trừ, quay sang hỏi Hồ Tân Phong: “Hồ đại hiệp nghĩ thế nào? Là liều mạng mình mà không nói, còn muốn bồi thường cho một môn phái đủ lớn cùng người già, lại muốn bảo vệ hai vị nữ tử, cản trở hai nhà chúng ta kết thân? Hay là nên biết điều một chút, mau chóng về gặp Thụy, đến ngày cưới, với tư cách là khách quý nhất, đến tặng lễ chúc mừng, sau đó đưa lại cho ta phần đại lễ?”
+Đệ tử cười:
 
-Vị đệ tử đeo kiếm hắc hắc cười nói: “Gạo nấu thành cơm rồi, nữ tử sẽ nghe lời rất nhiều.”
+- Người giang hồ không cần câu nệ. Không được thì bảo hai vị cô nương nhường nhau chút, đổi danh tính là xong. Gả cho Dương Thụy, có tài có sắc có gia thế. Nếu không phải công chúa, huyện chủ của Lan Phòng quốc chưa đủ tuổi, hắn đã sớm thành phò mã rồi. Hai vị cô nương gả cho Dương Thụy thật sự là phúc khí!
 
-Dương Nguyên cười gật đầu nói: “Nói đúng như vậy.”
+Hồ Tân Phong nén giận:
 
-Họ Tùy lão nhân cầu xin: “Hồ đại hiệp! Nguy nan rồi, không thể bỏ mặc chúng ta!”
+- Dương lão tiền bối, đừng quên chúng ta đang ở Ngũ Lăng quốc!
+
+Dương Nguyên cười:
+
+- Nếu người đệ nhất Ngũ Lăng quốc là Vương Độn ở đây, ta đã không vào đình này. Bây giờ Vương Độn hẳn đang ở kinh thành Đại Triện. Một đám đông như chúng ta đi qua, chết nhiều người, chắc chắn các cao thủ lão đạo của Ngũ Lăng quốc sẽ tìm ra dấu vết. Nhưng không sao, đến lúc đó Tùy lão thị lang sẽ đứng ra dàn xếp mớ rối rắm này. Người đọc sách coi trọng thanh danh nhất, chuyện xấu trong nhà không thể lộ ra ngoài.
+
+Hồ Tân Phong thở dài, quay sang nhìn lão nhân họ Tùy:
+
+- Tùy lão ca, ngươi nghĩ sao?
+
+Lão nhân họ Tùy nhìn Dương Nguyên, cười lạnh:
+
+- Ta không tin Dương Nguyên ngươi thật sự dám làm chuyện vô pháp vô thiên ở Ngũ Lăng quốc này.
+
+Dương Nguyên cười trừ, quay sang hỏi Hồ Tân Phong:
+
+- Hồ đại hiệp nghĩ thế nào? Liều mạng mình, đền cả một môn phái lớn cùng người nhà để bảo vệ hai vị nữ tử, cản hai nhà chúng ta kết thân? Hay biết điều một chút, mau về gặp Thụy nhi, đến ngày cưới làm khách quý nhất, tới tặng lễ chúc mừng, sau đó đưa lại cho ta phần đại lễ?
+
+Đệ tử đeo kiếm hắc hắc cười:
+
+- Gạo nấu thành cơm rồi, nữ tử sẽ nghe lời lắm.
+
+Dương Nguyên cười gật đầu:
+
+- Nói phải.
+
+Lão nhân họ Tùy cầu xin:
+
+- Hồ đại hiệp! Nguy nan rồi, không thể bỏ mặc chúng ta!
 
 Hồ Tân Phong ánh mắt phức tạp, trong lòng giao chiến.
 
-Dương Nguyên mỉm cười nói: “Đáng tiếc thiếu niên thư sinh không có ở đây, nếu có hắn sẽ bảo các ngươi, những người đọc sách phải mắng thông gia ngươi vài câu, nhưng may là hắn không có mặt, bằng không ta sẽ không tha cho thông gia ngươi mà giết luôn. Ta đây tính khí so với năm đó tốt hơn nhiều, nhất là từ khi trong nhà có Thụy nhi, ta càng kính trọng các ngươi những người đọc sách, bất kể họ vào bụng bao nhiêu sách thánh hiền.”
+Dương Nguyên mỉm cười:
 
-Nữ tử che mặt đột nhiên mở miệng: “Ta có thể ở lại, để cho họ đi, sau đó lập tức chạy tới Lan Phòng quốc. Dù có người báo quan, chỉ cần chúng ta qua biên giới, vào Kim Phi quốc là an toàn.”
+- Tiếc là thư sinh trẻ kia không có ở đây, nếu có, hắn sẽ phải mắng thông gia ngươi vài câu theo lẽ người đọc sách. May mà hắn không có mặt, bằng không ta đã không tha mà giết luôn. Tính khí ta bây giờ so với năm đó đã tốt hơn nhiều, nhất là từ khi trong nhà có Thụy nhi, ta càng kính trọng người đọc sách các ngươi, bất kể trong bụng có bao nhiêu sách thánh hiền.
 
-Dương Nguyên lắc đầu nói: “Chuyện phiền toái ngay tại đây. Chúng ta đến Ngũ Lăng quốc lần này, là để cho Thụy tìm vợ, đồng thời còn có một số chuyện phải làm. Vì vậy, quyết định của Hồ đại hiệp rất quan trọng.”
+Nữ tử che mặt đột nhiên mở miệng:
 
-Hồ Tân Phong đột nhiên hỏi: “Giả sử ta gật đầu đáp ứng trong đình này, các ngươi sẽ thực sự buông lòng sao?”
+- Ta có thể ở lại, để họ đi, sau đó lập tức chạy tới Lan Phòng quốc. Dù có người báo quan, chỉ cần chúng ta qua biên giới, vào Kim Phi quốc là an toàn.
 
-Dương Nguyên cười nói: “Chắc chắn là có.”
+Dương Nguyên lắc đầu:
 
-Hồ Tân Phong hít một hơi sâu, eo nhéo, ngay lập tức đấm vào đầu họ Tùy lão nhân.
+- Phiền toái ở ngay chỗ này. Chúng ta đến Ngũ Lăng quốc lần này, là để tìm vợ cho Thụy nhi, đồng thời còn vài chuyện phải làm. Vì vậy quyết định của Hồ đại hiệp rất quan trọng.
 
-Đừng nói là một vị lão giả văn nhược, ngay cả cao thủ giang hồ bình thường cũng không chịu nổi sức mạnh của Hồ Tân Phong.
+Hồ Tân Phong đột nhiên hỏi:
 
-Nhưng ngay lúc đó, Hồ Tân Phong đã bị một mũi kiếm cản lại, bỗng nhiên thu tay.
+- Giả sử ta gật đầu đáp ứng trong đình này, các ngươi sẽ thật sự buông tha sao?
 
-Hóa ra trước mặt họ Tùy lão nhân, có một thanh kiếm ngang ra cản lại.
+Dương Nguyên cười:
 
-Xuất hiện trước mắt là một thanh niên trẻ tuổi tự mãn, đúng là đệ tử của Hồn Giang - Dương Nguyên. Hắn một tay để sau lưng, một tay cầm kiếm, trên mặt nở nụ cười khinh bỉ: "Quả nhiên, những cao thủ của Ngũ Lăng quốc không có gì đáng giá, khiến người ta thật thất vọng. Chỉ một Vương Độn thôi đã như hạc giữa bầy gà, được giới thiệu trên Đại Triện với danh sách mười người, tuy rằng Vương Độn chỉ đứng gần cuối, nhưng cũng không thể đánh bại những người khác ở Ngũ Lăng quốc."
+- Chắc chắn rồi.
 
-Dương Nguyên nhíu mày: "Nói những lời vô nghĩa đó làm gì?"
+Hồ Tân Phong hít sâu một hơi, xoay eo, lập tức đấm vào đầu lão nhân họ Tùy.
 
-Người trẻ tuổi, tự biết mình đã nói quá, trên mặt hiện lên một vẻ tức giận, rồi bước ra một bước, kiếm quang lóe lên giữa trời mưa. Những cơn mưa lớn hòa với không khí nóng bức dường như khiến mọi thứ trở nên khó chịu. Thời điểm này, ánh sáng từ mũi kiếm của hắn khiến người ta cảm nhận được sự mát lạnh thấm vào da thịt.
+Đừng nói một lão giả văn nhược, ngay cả cao thủ giang hồ bình thường cũng không chịu nổi sức mạnh của Hồ Tân Phong.
 
-Hồ Tân Phong lùi lại phía sau, bực bội nói: "Dương tiền bối, đây là lý do gì?!"
+Nhưng ngay lúc đó, Hồ Tân Phong bị một mũi kiếm cản lại, bỗng nhiên thu tay.
 
-Khi đứng trước ánh sáng chói mắt và kiếm quang lấp lánh ấy, rõ ràng Hồ Tân Phong nổi lên lo lắng, không hề kém cạnh so với Dương Nguyên.
+Hóa ra trước mặt lão nhân họ Tùy, có một thanh kiếm đưa ngang ra chắn.
 
-Người thanh niên không nhấn mạnh vào người khác mà chỉ chăm chú nhìn về phía một nữ nhân xinh đẹp và mảnh mai, nghe tiếng nói của nàng khiến lòng hắn mềm đi, phải công nhận rằng nàng là một mỹ nhân tuyệt sắc. Dù ngoại hình nàng có thể không nổi bật hơn người khác, nhưng sức hấp dẫn của nàng thật khó cưỡng. Thực tế, nàng là con gái của một gia tộc quyền quý ở Ngũ Lăng quốc, được đánh giá cao và chắc chắn sẽ rất thú vị. Hắn không ngờ rằng mình lại cảm thấy thích Dương Thụy tiểu tử đó. Trong lúc này, sự tức giận đã khiến thanh niên kiếm khách thêm phần mạnh mẽ.
+Đó là người trẻ tuổi tự mãn, đệ tử của Hồn Giang Giao Dương Nguyên. Hắn một tay chắp sau lưng, một tay cầm kiếm, trên mặt nở nụ cười khinh bỉ:
 
-Dưới sự bảo vệ của lão nhân họ Tùy, thiếu niên Tùy Văn Pháp núp bên cạnh, còn thiếu nữ Tùy Văn Di tựa vào ngực của cô cô mình, run rẩy.
+- Quả nhiên, cao thủ Ngũ Lăng quốc chẳng có gì đáng giá, thật khiến người ta thất vọng. Chỉ một Vương Độn như hạc giữa bầy gà, được ghi tên trong bảng mười người ở Đại Triện, tuy chỉ đứng gần cuối nhưng những kẻ khác ở Ngũ Lăng quốc cũng không ai bì được.
 
-Người phụ nữ đeo mặt nạ nhẹ giọng an ủi: "Đừng sợ."
+Dương Nguyên nhíu mày:
 
-Dương Nguyên, như một con khỉ, xoay người và lao đi, nhanh chóng tìm thấy kẽ hở, đôi tay của hắn giống như búa tạ, khó khăn lắm mới tránh thoát một kiếm từ Hồ Tân Phong, làm cho hắn bay ngược vào một góc sân, ngã xuống đất, không ngừng ho ra máu, vùng vẫy mãi cũng không thể đứng dậy.
+- Nói mấy lời vô nghĩa đó làm gì?
 
-Trong lòng Dương Nguyên thầm cười lạnh; hai mươi năm trước là như thế, hai mươi năm sau vẫn vậy. Đám người mà mẹ hắn coi là quân cờ giang hồ chính nghĩa đã từng rất cường tráng và thông minh. Năm xưa, chính bản thân hắn cũng ngu xuẩn, khiến mình không có mảnh đất nào để bám víu ở Kim Phi quốc. Nhưng cũng tốt thôi, người ta nói "nhân họa đắc phúc," không chỉ khai sáng một môn phái mới tại vùng biên giới của hai nước mà còn có mối quan hệ với hai vị cao nhân ở Lan Phòng quốc và Thanh Từ quốc.
+Người trẻ tuổi biết mình lỡ lời, trên mặt thoáng vẻ tức giận, bước ra một bước, kiếm quang lóe lên giữa trời mưa. Mưa lớn hòa với khí nóng bức khiến mọi thứ khó chịu, lúc này ánh sáng từ mũi kiếm hắn lại khiến người ta cảm nhận được hơi lạnh thấm vào da thịt.
 
-Thanh niên kiếm khách định lao về phía Hồ đại hiệp, bổ thêm một vài kiếm nữa.
+Hồ Tân Phong lùi ra sau, bực bội nói:
 
-Nhưng Dương Nguyên đã nhanh tay ngăn lại. Khi Hồ Tân Phong nghiêng đầu lau máu, bờ môi khẽ nhúc nhích, Dương Nguyên cũng như vậy.
+- Dương tiền bối, đây là lý gì?!
 
-Đúng lúc này, trên con đường nhỏ có hai người cưỡi ngựa chậm rãi tới gần, không chút nào chậm lại trước cảnh "giang hồ tranh chấp".
+Đứng trước kiếm quang chói mắt ấy, rõ ràng Hồ Tân Phong lo lắng không kém gì Dương Nguyên.
 
-Một người là lão giả mặc áo choàng đen, một người khác khoảng ba mươi tuổi.
+Người trẻ tuổi không để ý đến ai khác, chỉ chăm chú nhìn về phía nữ tử mảnh mai, nghe giọng nàng mà lòng mềm đi, phải công nhận nàng là mỹ nhân tuyệt sắc. Dù chưa nhìn thấy mặt, sức hấp dẫn của nàng vẫn khó cưỡng. Nàng lại là con gái nhà quyền quý Ngũ Lăng quốc, chắc chắn sẽ rất thú vị. Hắn không ngờ mình lại ghen tị với tiểu tử Dương Thụy kia. Trong lúc này, cơn tức giận khiến kiếm của hắn thêm phần mạnh mẽ.
 
-Thế nhưng, khi hai người qua đình nghỉ chân, lão nhân kia chỉ nhìn thoáng qua rồi tiếp tục gấp ngựa đi.
+Dưới sự che chở của lão nhân họ Tùy, thiếu niên Tùy Văn Pháp nép bên cạnh, còn thiếu nữ Tùy Văn Di tựa vào lòng cô cô, run rẩy.
 
-Họ Tùy hô to: "Hai vị hiệp sĩ cứu mạng! Tôi là Tùy Tân Vũ, từng là thị lang công bộ Ngũ Lăng quốc, những kẻ xấu này đang mưu tính hãm hại tính mạng chúng tôi!”
+Nữ tử che mặt nhẹ giọng an ủi:
 
-Người thanh niên đó bỗng nhiên ghìm ngựa quay đầu lại, ngạc nhiên nói: "Thế nhưng là Tùy bá bá?!"
+- Đừng sợ.
+
+Dương Nguyên như một con khỉ, xoay người lao đi, nhanh chóng tìm thấy kẽ hở, đôi tay như búa tạ. Hồ Tân Phong khó khăn lắm mới tránh được một kiếm, thì đã bị hắn đánh bay ngược vào một góc đình, ngã xuống đất, ho ra máu không ngừng, vùng vẫy mãi cũng không đứng dậy nổi.
+
+Trong lòng Dương Nguyên cười lạnh. Hai mươi năm trước là thế, hai mươi năm sau vẫn thế. Đám người giang hồ tự xưng chính nghĩa, bị người ta coi như quân cờ, từng cường tráng và thông minh lắm. Năm xưa chính hắn cũng ngu xuẩn, đến nỗi ở Kim Phi quốc không còn mảnh đất cắm dùi. Nhưng cũng tốt thôi, nhân họa đắc phúc, không chỉ khai sáng một môn phái mới ở biên giới hai nước, còn có quan hệ với hai vị cao nhân ở Lan Phòng quốc và Thanh Từ quốc.
+
+Kiếm khách trẻ tuổi định lao về phía Hồ đại hiệp bổ thêm mấy kiếm nữa.
+
+Nhưng Dương Nguyên đã nhanh tay ngăn lại. Khi Hồ Tân Phong nghiêng đầu lau máu, môi khẽ nhúc nhích, Dương Nguyên cũng vậy.
+
+Đúng lúc này, trên con đường nhỏ có hai người cưỡi ngựa chậm rãi tới gần, không hề chậm lại trước cảnh giang hồ tranh chấp.
+
+Một người là lão giả mặc áo choàng đen, người kia khoảng ba mươi tuổi.
+
+Khi qua đình nghỉ chân, lão nhân chỉ nhìn thoáng qua rồi tiếp tục thúc ngựa đi.
+
+Lão nhân họ Tùy hô to:
+
+- Hai vị hiệp sĩ cứu mạng! Ta là Tùy Tân Vũ, từng là thị lang công bộ Ngũ Lăng quốc, đám kẻ xấu này mưu hại tính mạng chúng ta!
+
+Người trẻ tuổi kia bỗng ghìm ngựa quay đầu lại, ngạc nhiên:
+
+- Là Tùy bá bá?!
 
 Tùy Tân Vũ bất ngờ, nhanh chóng gật đầu.
 
-Dương Nguyên cười nói: "Thông gia, ngươi thật sự không sợ gây hại tới những người vô tội sao? Ta giờ đây có chút thay đổi ý kiến về hôn sự của chúng ta, ai mà biết được liệu có thể bán ngươi cho người khác vào một ngày nào đó không?"
+Dương Nguyên cười nói:
 
-Người thanh niên nọ xuống ngựa, chắp tay hành lễ, khóc nói: "Vãn bối là Tào Phú, bái kiến Tùy bá bá! Năm đó, vãn bối vì phải trốn chạy, sợ rằng sẽ liên lụy đến Tùy bá bá nên không thể tạm biệt, cuối cùng lại khiến Tùy cô nương phải chịu khổ."
+- Thông gia, ngươi thật sự không sợ hại người vô tội sao? Bây giờ ta có chút đổi ý về hôn sự của chúng ta, biết đâu có ngày đem ngươi bán cho người khác?
 
-Ngoại trừ Dương Nguyên, những người khác đều sắc mặt đại biến, ai nấy đều kinh hồn bạt vía.
+Người trẻ tuổi xuống ngựa, chắp tay hành lễ, khóc nói:
 
-Tào Phú là nhân vật nổi tiếng tại Lan Phòng quốc và Thanh Từ quốc, hắn từ một kẻ phong trần mệt mỏi trở thành một người có danh tiếng và quyền lực. Dù rằng có rất nhiều người tu đạo nổi tiếng, không phải ai cũng khiến người khác khiếp đảm. Mọi người đều biết đến hắn và những thành tựu mà hắn đã đạt được.
+- Vãn bối là Tào Phú, bái kiến Tùy bá bá! Năm đó vãn bối phải trốn chạy, sợ liên lụy đến Tùy bá bá nên không thể từ biệt, cuối cùng lại khiến Tùy cô nương chịu khổ.
 
-Hơn mười năm qua, Tào Phú nhiều lần xuống núi du lịch giang hồ, bên cạnh luôn có những hộ vệ âm thầm bảo vệ. Tuy nhiên, Tào Phú hiếm khi ra tay, mà danh tiếng của hắn đã sớm vang xa.
+Ngoại trừ Dương Nguyên, những người khác đều biến sắc, kinh hồn bạt vía.
 
-Hôm nay, khi Đại Triện vương triều công bố danh sách mười đại tông sư và bốn đại mỹ nhân, hai trong số đó có liên quan đến Tào Phú.
+Tào Phú là nhân vật nổi tiếng ở Lan Phòng quốc và Thanh Từ quốc, từ một kẻ phong trần mệt mỏi trở thành người có danh tiếng và quyền lực. Có rất nhiều tu sĩ nổi tiếng, nhưng không phải ai cũng khiến người ta khiếp sợ như hắn. Ai cũng biết thành tựu của hắn.
 
-Lúc này, thiếu nữ ngẩng đầu kéo lấy cánh tay cô cô, mừng rỡ nói: "Cô cô, có thật là Tào Phú thúc mà mẫu thân thường nhắc đến không?"
+Hơn mười năm qua, Tào Phú nhiều lần xuống núi du lịch giang hồ, bên cạnh luôn có hộ vệ âm thầm bảo vệ. Hắn hiếm khi ra tay, nhưng danh tiếng đã vang xa.
 
-Thiếu niên Tùy Văn Pháp thì rơi nước mắt, hắn luôn mơ ước được gặp gỡ Tào Phú, mà bây giờ điều này đã trở thành hiện thực.
+Hôm nay Đại Triện vương triều công bố danh sách mười đại tông sư và bốn đại mỹ nhân, có hai người liên quan đến Tào Phú.
+
+Lúc này thiếu nữ ngẩng đầu kéo cánh tay cô cô, mừng rỡ:
+
+- Cô cô, có thật là Tào Phú thúc mà mẫu thân thường nhắc đến không?
+
+Thiếu niên Tùy Văn Pháp thì rơi nước mắt. Hắn luôn mơ được gặp Tào Phú, giờ đã thành sự thật.
 
 Tào Phú đứng thẳng, tiến lại nâng Hồ đại hiệp dậy.
 
-Hồ Tân Phong than thở: "Tào công tử, thật đáng trách ta, Hồ Tân Phong này. Nếu không có các ngươi đến, có lẽ ta đã mất mạng và không thể bảo vệ Tùy lão ca, một khi để chuyện lớn xảy ra, ta quả thật không thể tha thứ cho mình."
+Hồ Tân Phong than thở:
 
-Tào Phú lập tức lùi lại một bước, chắp tay hành lễ: "Hồ đại hiệp là người có đạo đức, vãn bối Tào Phú xin kính cẩn cúi đầu.”
+- Tào công tử, thật đáng trách Hồ Tân Phong ta. Nếu các ngươi không đến, có lẽ ta đã mất mạng mà không bảo vệ được Tùy lão ca. Để xảy ra chuyện lớn, ta không thể tha thứ cho mình.
 
-Tùy Tân Vũ hừ lạnh, vung tay áo một cái: "Tào Phú, tri nhân tri diện nhưng không tri tâm, Hồ đại hiệp vừa mới thử sức cùng người ta, suýt nữa đã khiến ngươi gặp chuyện không hay cho Tùy bá bá."
+Tào Phú lập tức lùi một bước, chắp tay hành lễ:
+
+- Hồ đại hiệp là người có đạo đức, vãn bối Tào Phú xin kính cẩn cúi đầu.
+
+Tùy Tân Vũ hừ lạnh, vung tay áo:
+
+- Tào Phú, biết người biết mặt không biết lòng. Hồ đại hiệp vừa mới ra tay, suýt nữa khiến ngươi không còn Tùy bá bá nữa.
 
 Tào Phú ngạc nhiên.
 
-Tùy Tân Vũ thở dài, "Tào Phú, ngươi quá mức trạch tâm nhân hậu rồi, không hiểu được cái giang hồ hiểm ác này. Không sao, hoạn nạn mới thấy giao tình. Xem như ta, Tùy Tân Vũ, trước đây đã mù mắt, nhận thức Hồ đại hiệp như một người bằng hữu. Hồ Tân Phong, ngươi có thể đi, về sau ta Tùy gia không dám trèo cao không có phận sự với Hồ đại hiệp nữa, cũng đừng có tiếp xúc với bất kỳ ai khác."
+Tùy Tân Vũ thở dài:
 
-Hồ Tân Phong quay đầu, phun ra một ngụm máu tươi vào mặt đất, ôm quyền cúi đầu nói: "Về sau, Hồ Tân Phong nhất định sẽ đến thỉnh tội tại phủ đệ của Tùy lão ca."
+- Tào Phú, ngươi quá nhân hậu, không hiểu giang hồ hiểm ác. Không sao, hoạn nạn mới thấy giao tình. Coi như Tùy Tân Vũ ta trước đây mù mắt, nhận Hồ đại hiệp làm bằng hữu. Hồ Tân Phong, ngươi có thể đi, về sau Tùy gia không dám trèo cao, đừng qua lại với ai trong nhà ta nữa.
 
-Người cầm bội đao một tay xoa ngực, một tay nắm đao, lảo đảo từng bước rời đi, bóng lưng tỏ ra thê lương.
+Hồ Tân Phong quay đầu, phun một ngụm máu tươi xuống đất, ôm quyền cúi đầu:
 
-Dương Nguyên đứng ở đình nghỉ chân, sắc mặt âm trầm, trầm giọng nói: "Tào Phú, đừng ỷ vào quan hệ sư môn mà cho rằng có thể làm bừa, nơi này là Ngũ Lăng quốc, không phải là Lan Phòng quốc, lại càng không phải là Thanh Từ quốc."
+- Về sau Hồ Tân Phong nhất định sẽ đến phủ thỉnh tội với Tùy lão ca.
 
-Tùy Tân Vũ vuốt râu cười nói: "Ngôn ngữ này nghe có vẻ quen tai."
+Hắn một tay xoa ngực, một tay nắm đao, lảo đảo từng bước rời đi, bóng lưng thê lương.
 
-Sắc mặt của Dương Nguyên nguội lạnh, tựa hồ đang kiềm chế một cơn tức giận, không dám hành động quyết liệt, điều này càng khiến cho lão thị lang ở Ngũ Lăng quốc cảm thấy được biết dùng người sinh khoái ý, tốt một người sinh vô thường, dấy lên hy vọng.
+Dương Nguyên đứng trong đình, sắc mặt âm trầm:
 
-Thiếu nữ Tùy Văn Di nép vào cô cô, che miệng cười, đôi mắt híp lại như trăng lưỡi liềm, nhìn về phía Tào Phú, nhưng tâm trạng lại thoáng ảm đạm.
+- Tào Phú, đừng ỷ vào quan hệ sư môn mà cho rằng có thể làm bừa. Nơi này là Ngũ Lăng quốc, không phải Lan Phòng quốc, càng không phải Thanh Từ quốc.
 
-Tùy Văn Pháp trừng mắt, nhìn vào Tào Phú, cảm giác mình nhất định phải để ý một chút như từ sách mà ra giang hồ đại hiệp, tiếc là người có dáng vẻ nho nhã này lại không có bội kiếm hay đao, bằng không thì thật hoàn mỹ.
+Tùy Tân Vũ vuốt râu cười:
 
-Tào Phú đứng giữa đường, một tay đưa ra sau lưng, một tay đặt vững trên bụng, hiện rõ phong thái danh sĩ phong lưu. Thấy Tùy lão thị lang gật đầu, không hổ danh là người đã chọn con gái lương thiện, quả nhiên là nhân trung long phượng.
+- Lời này nghe quen tai quá.
 
-Tào Phú nhìn sang mũ có vải che mặt nữ tử, ánh mắt ôn nhu như nước, không rõ là thương cảm hay nhớ nhung. Sau đó, hắn quay về phía Dương Nguyên, lại thể hiện phong thái tiêu sái của một giang hồ nhân, bước lùi lại một bước, hai đầu gối hơi khụy xuống, đưa tay ra phía trước, mỉm cười nói: "Dương Nguyên, nhiều năm rồi không gặp, nếu có dịp, hãy luận bàn mấy chiêu nhé?"
+Sắc mặt Dương Nguyên lạnh đi, như đang kiềm chế cơn tức, không dám làm gì quyết liệt. Điều đó khiến vị lão thị lang Ngũ Lăng quốc càng thấy khoái ý, đời người vô thường, lại dấy lên hy vọng.
 
-Dương Nguyên cười lạnh nói: "Ngươi kém lấy bối phận, hãy để cho đệ tử ta, Phó Trăn, cùng ngươi giao đấu vài chiêu, sinh tử tự phụ, không liên lụy đến sư môn trưởng bối, được chứ?"
+Thiếu nữ Tùy Văn Di nép vào cô cô, che miệng cười, đôi mắt híp lại như trăng lưỡi liềm, nhìn về phía Tào Phú, nhưng tâm tình lại thoáng ảm đạm.
+
+Tùy Văn Pháp trừng mắt nhìn Tào Phú, thấy đây đúng là đại hiệp giang hồ từ trong sách bước ra, tiếc là người nho nhã này lại không đeo kiếm đao, bằng không thì thật hoàn mỹ.
+
+Tào Phú đứng giữa đường, một tay chắp sau lưng, một tay đặt trên bụng, phong thái danh sĩ phong lưu. Tùy lão thị lang gật đầu, không hổ là người năm đó mình chọn cho con gái, quả nhiên là nhân trung long phượng.
+
+Tào Phú nhìn sang nữ tử đội mũ che mặt, ánh mắt dịu dàng như nước, không rõ là thương cảm hay nhớ nhung. Sau đó hắn quay về phía Dương Nguyên, lại tỏ ra phong thái tiêu sái của người giang hồ, lùi một bước, hai đầu gối hơi khụy, đưa tay ra phía trước, mỉm cười:
+
+- Dương Nguyên, nhiều năm không gặp, có dịp thì luận bàn mấy chiêu nhé?
+
+Dương Nguyên cười lạnh:
+
+- Ngươi kém ta về bối phận, để đệ tử ta là Phó Trăn giao đấu với ngươi vài chiêu, sinh tử tự chịu, không liên lụy đến trưởng bối sư môn, được chứ?
 
 Phó Trăn đứng bên cạnh, khóe miệng co giật.
 
-Dương Nguyên đã nói: "Phó Trăn, bất kể thắng bại, chỉ ra ba kiếm thôi."
+Dương Nguyên lại nói:
 
-Phó Trăn nhẹ nhõm thở ra, cuối cùng sư phụ không đẩy mình vào tử lộ. Hắn hít sâu, cười nói: "Vậy thì tôi xin lĩnh giáo Tào đại tiên sư ba chiêu."
+- Phó Trăn, bất kể thắng bại, chỉ ra ba kiếm thôi.
 
-Một kiếm thẳng tắp được xuất ra, bước chân tiến lên nhẹ nhàng như chuồn chuồn lướt nước.
+Phó Trăn thở phào, cuối cùng sư phụ không đẩy mình vào đường chết. Hắn hít sâu, cười nói:
 
-Nhìn qua, khí thế như cầu vồng nhưng thực tế, hắn vẫn dành nhiều sức lực cho nó. Nghĩ rằng có lẽ đối phương sẽ chỉ chịu một chút đau đớn và bảo toàn được mạng sống.
+- Vậy ta xin lĩnh giáo Tào đại tiên sư ba chiêu.
 
-Nhưng mà, Phó Trăn rất nhanh đã hối hận.
+Một kiếm thẳng tắp xuất ra, bước chân nhẹ như chuồn chuồn lướt nước.
 
-Người nọ bước ra, đầu hơi nghiêng. Khi mà Phó Trăn đang do dự không biết có nên tượng trưng một chiêu hay không, người ấy đã ngay lập tức đứng trước mặt Phó Trăn. Một bàn tay chặn lại khuôn mặt hắn, mỉm cười nói: "Ngũ lôi thực triện, tốc độ như đỏ thẫm cung."
+Nhìn qua khí thế như cầu vồng, thực tế hắn vẫn giữ lại nhiều sức, nghĩ đối phương chỉ chịu chút đau đớn, mình giữ được mạng.
 
-Ầm ầm một tiếng.
+Nhưng Phó Trăn rất nhanh đã hối hận.
+
+Người kia bước ra, đầu hơi nghiêng. Khi Phó Trăn đang do dự không biết có nên làm một chiêu tượng trưng không, người ấy đã đứng ngay trước mặt. Một bàn tay chặn lên mặt hắn, mỉm cười:
+
+- Ngũ lôi chính pháp, cấp tốc như Xích Cung [?].
+
+Ầm một tiếng.
 
 Như có sấm sét nổ tung vào mặt Phó Trăn.
 
-Máu chảy từ bảy dặm vào, mất mạng tại chỗ, Phó Trăn bị đánh bay ra ngoài, đập vào vách tường của đình nghỉ chân, trong nháy mắt không còn hình bóng.
+Máu chảy từ bảy khiếu, mất mạng tại chỗ. Phó Trăn bị đánh bay ra ngoài, đập vào vách đình, trong nháy mắt không còn hình bóng.
 
-Thanh kiếm rơi xuống đất, bị Tào Phú nhặt lên, tay vung nhẹ, c*m v** một cây đại thụ.
+Thanh kiếm rơi xuống đất, được Tào Phú nhặt lên, vung tay nhẹ, găm vào một cây đại thụ.
 
-Thiếu niên Tùy Văn Pháp cảm xúc dâng trào, lau mặt, thực khóc. Hắn nghĩ, dẫu gì cũng là một người dượng mà, chính là người dượng trong suy nghĩ của mình! Nhất định phải cùng vị dượng này học hỏi một chút, về sau mình sẽ có cơ hội du học... Ít nhất sẽ không giống như cái tên đánh cờ dở tệ, là khách bình thường đáng thương, chỉ biết xin lỗi người khác, gặp phải chuyện không may còn chẳng dám lên tiếng, khi chạy trốn lại bước đi vội vã, lại còn mang theo một cái rương lớn, thật là ngốc nghếch.
+Thiếu niên Tùy Văn Pháp cảm xúc dâng trào, lau mặt, khóc thật. Hắn nghĩ, dù sao cũng là dượng, chính là người dượng trong suy nghĩ của mình! Nhất định phải học hỏi vị dượng này một chút, sau này có cơ hội đi du học... Ít nhất sẽ không như tên đánh cờ dở tệ kia, khách đường xa đáng thương, chỉ biết xin lỗi người khác, gặp chuyện không dám lên tiếng, lúc chạy trốn còn cuống quýt, lại mang theo một cái rương lớn, thật ngốc nghếch.
 
-Dương Nguyên dẫn người nhanh chóng rời khỏi đình nghỉ chân. Tào Phú cười hỏi: "Tùy bá bá, có cần ngăn bọn họ lại không?"
+Dương Nguyên dẫn người nhanh chóng rời đình. Tào Phú cười hỏi:
 
-Mũ che mặt nữ tử không có nhiều phản ứng.
+- Tùy bá bá, có cần ngăn bọn họ lại không?
 
-Tùy lão nhân suy nghĩ một chút, lắc đầu cười nói: "Thôi, đã giáo huấn qua bọn họ rồi. Chúng ta nên tranh thủ thời gian rời khỏi nơi này, dù sao ở phía sau còn có một thi thể."
+Nữ tử che mặt không có nhiều phản ứng.
 
-Về phần những kẻ hung ác nào đó, có thể sẽ gây nguy hiểm cho một người vô tội. Trước đó, ông cũng đã từng lệch lạc khi gặp phải cha vợ, có thể do ăn ý, có thể là cũng không muốn nhúng tay, tóm lại ông sẽ không quản lý việc đó.
+Lão nhân họ Tùy suy nghĩ một chút, lắc đầu cười:
 
-Sau một hồi hết chuyện này tới chuyện khác, biết rằng Tào Phú vừa từ Lan Phòng, Thanh Từ, Kim Phi quốc đi đến, thực ra trước đó đã đến tìm nhà Tùy gia ở Ngũ Lăng quốc. Khi nghe nói lão thị lang đã lên đường đến Đại Triện, Tào Phú lại liên tục chạy đến, hỏi han tung tích, không ngờ lại gặp được ở nơi này, Trà Mã cổ đạo, Tào Phú cảm thấy rất may mắn, nói rằng mình đến trễ, lão thị lang cười lớn, bảo rằng đến sớm hơn lại không bằng đến vào lúc này, không muộn, không muộn. Khi nói ra những lời này, lão nhân có phần nhã nhặn nhìn về phía con gái mình, đáng tiếc mũ che mặt nữ tử không nói một lời, khiến lão nhân càng vui vẻ hơn, đây có thể là dấu hiệu con gái đang thẹn thùng. Tào Phú không có rể hiền nào, một lần bỏ lỡ là sự tiếc nuối lớn, hôm nay chắc chắn không thể để lần nữa vụt qua một cơ hội tốt, việc hôn nhân mới chính là hàng đầu.
+- Thôi, đã dạy dỗ bọn họ rồi. Chúng ta nên tranh thủ rời khỏi đây, dù sao phía sau còn có một thi thể.
 
-Trước kia, tên thủ lĩnh bạo ngược là Dương Nguyên, chính là "Tào đại tiên sư" đã giảng giải cho ông nhớ mãi.
+Còn đám hung ác kia có thể gây nguy hiểm cho người vô tội, trước đó ông đã từng nhìn lệch khi gặp chuyện thông gia, có thể do ăn ý, có thể do không muốn nhúng tay, tóm lại ông sẽ không quản [?].
 
-Tào Phú vốn định đưa lão nhân đi hướng Đại Triện, nguyện ý đồng hành, nhưng sau khi nghe lão nhân nói về quê, thị tập thịnh hội, đường xá xa xôi, thấy tình hình của mình chưa chắc có thể chịu đựng được, nên đã thay đổi quyết định. Hắn cũng nói hôm nay Đại Triện có loạn giao, không đi cũng được.
+Chuyện nọ nối chuyện kia, mới biết Tào Phú vừa từ Lan Phòng, Thanh Từ, Kim Phi quốc đi đến, trước đó đã đến nhà Tùy gia ở Ngũ Lăng quốc tìm. Nghe nói lão thị lang lên đường đi Đại Triện, Tào Phú lại vội vàng đuổi theo, hỏi tung tích, không ngờ gặp ở Trà Mã cổ đạo này. Tào Phú thấy rất may mắn, nói mình đến trễ, lão thị lang cười lớn, bảo đến sớm không bằng đến đúng lúc, không muộn, không muộn. Nói xong, lão nhân nhã nhặn nhìn về phía con gái, đáng tiếc nữ tử che mặt không nói một lời, khiến lão càng vui, đây có thể là dấu hiệu con gái thẹn thùng. Tào Phú đúng là rể hiền hiếm có, một lần bỏ lỡ đã là tiếc nuối lớn, hôm nay chắc chắn không thể để lỡ thêm lần nữa, hôn sự mới là hàng đầu.
 
-Cả đoàn người rời khỏi đình nghỉ chân, mỗi người cưỡi ngựa, dọc theo Trà Mã cổ đạo chậm rãi xuống núi, quay trở lại Ngũ Lăng quốc, nơi có Tùy gia. Hơn nữa, để đi qua kinh đô và vùng lân cận, có lẽ đến lúc đó sẽ gặp lại những bạn cũ, thật không tệ.
+Còn tên thủ lĩnh bạo ngược Dương Nguyên kia, câu "Tào đại tiên sư" đã khiến ông nhớ mãi [?].
 
-Mũ che mặt nữ tử ngẩng đầu lên ngựa, khóe mắt liếc qua đoạn đường phía cuối, dường như có điều suy nghĩ.
+Tào Phú vốn định đưa lão nhân đi Đại Triện, nguyện ý đồng hành, nhưng nghe lão nhân nói về quê, kỳ hội, đường xá xa xôi, sức mình chưa chắc chịu nổi, nên đổi ý. Hắn cũng nói bây giờ Đại Triện có loạn giao long, không đi cũng được.
 
-Những kẻ giang hồ, hung bạo đám đó đã quay trở về theo con đường cũ, hoặc là chuyển hướng chạy trốn, hoặc là chạy như điên. Nếu không, nếu họ tiếp tục tiến về phía Đại Triện, rất có khả năng sẽ đụng phải.
+Cả đoàn rời đình, mỗi người cưỡi ngựa, dọc theo Trà Mã cổ đạo chậm rãi xuống núi, quay về Ngũ Lăng quốc, nơi có Tùy gia. Hơn nữa đi qua kinh đô và vùng lân cận, có lẽ đến lúc đó gặp lại bạn cũ, cũng không tệ.
 
-Xuống núi trên đường.
+Nữ tử che mặt ngẩng đầu lên ngựa, khóe mắt liếc qua đoạn đường phía cuối, như có điều suy nghĩ.
 
-Trước đó, khi Hồ Tân Phong bước ra, ánh mắt mọi người đổ dồn về phía hắn, khiến hắn lập tức vội vã bỏ đi. Kết quả, hắn thấy người thanh niên khoác áo dài tay, mũ rộng vành. Khi nhìn thấy kẻ phế vật kia, Hồ Tân Phong cảm thấy vô cùng tức giận. Hôm nay thật sự không may mắn, mọi chuyện đều do kẻ này gây ra. Nếu không phải hắn đã chết đi sống lại trong đình, mê mải đánh cờ với họ Tùy, sớm ra khỏi chỗ nghỉ, hoặc chậm một chút nữa thì có lẽ tình hình đã khác. Hắn, Hồ Tân Phong, không chỉ giữ được mối quan hệ hòa hợp với gia tộc Tùy, mà có thể còn thuận lợi đưa mình lên vị trí cao hơn, như Tào Phú. Kết quả, hôm nay lại chọc giận Tùy Tân Vũ, mối quan hệ với Tào Phú cũng không còn. Hắn còn cảm thấy rằng nếu không cẩn thận, một ngày nào đó, mình sẽ gặp phải những rắc rối to lớn.
+Đám hung bạo giang hồ kia có kẻ quay về đường cũ, có kẻ chuyển hướng chạy trốn, có kẻ chạy như điên. Nếu không, tiếp tục đi về phía Đại Triện rất có khả năng sẽ đụng phải.
 
-Nghĩ đến những chuyện này, Hồ Tân Phong nổi giận, liền một cú đá trúng đầu kẻ thư sinh yếu đuối, khiến hắn ngã lăn ra ngoài, không thấy bóng dáng đâu nữa. Lúc này, Hồ Tân Phong mới cảm thấy trong lòng thoải mái hơn chút ít.
+Đường xuống núi.
 
-Tâm trạng của hắn dần bình tĩnh lại. Hắn phun ra một ngụm có lẫn máu thịt. Trước đó bị Dương Nguyên đánh vào ngực, tuy nhìn thì có vẻ nặng nề, nhưng thật ra không bị thương quá nặng.
+Trước đó khi Hồ Tân Phong bước ra, ánh mắt mọi người đổ dồn về phía hắn, khiến hắn lập tức vội vã bỏ đi. Kết quả hắn thấy người thanh niên mặc áo dài, đội mũ rộng vành. Nhìn thấy tên phế vật kia, Hồ Tân Phong vô cùng tức giận. Hôm nay thật sự xui xẻo, mọi chuyện đều do kẻ này gây ra. Nếu không phải hắn mê mải đánh cờ với lão họ Tùy trong đình, mà sớm rời khỏi chỗ nghỉ, hoặc chậm một chút nữa thôi, thì có lẽ tình hình đã khác. Hồ Tân Phong hắn không chỉ giữ được quan hệ tốt với Tùy gia, mà có thể còn thuận lợi leo lên chỗ cao hơn như Tào Phú. Kết quả hôm nay đắc tội Tùy Tân Vũ, quan hệ với Tào Phú cũng không còn. Hắn còn thấy nếu không cẩn thận, một ngày nào đó mình sẽ gặp rắc rối lớn.
 
-Thế nhưng, sau khi đi được một đoạn đường, hắn bỗng nhiên mở to mắt, tại sao lại thấy kẻ thanh niên cầm gậy leo núi đó xuất hiện trước mặt? "Hồ Tân Phong này liệu có phải đang gặp dương gian quỷ hay không?" Hắn thắc mắc.
+Nghĩ đến đây, Hồ Tân Phong nổi giận, một cú đá trúng đầu tên thư sinh yếu đuối, khiến hắn lăn ra ngoài, không thấy bóng dáng đâu nữa. Lúc này Hồ Tân Phong mới thấy trong lòng thoải mái hơn chút.
 
-Hồ Tân Phong cẩn thận nhặt một viên đá, nhẹ nhàng ném về phía kẻ kia. Viên đá trúng ngay vào ót của hắn. Người đó đưa tay ôm đầu, quay lại mắng: "Cái gì vậy?"
+Tâm tình hắn dần bình tĩnh lại. Hắn phun ra một ngụm có lẫn máu. Trước đó bị Dương Nguyên đánh vào ngực nhìn thì nặng nề, thật ra không bị thương quá nặng.
 
-Hồ Tân Phong muốn cười nhưng lại không dám. Tâm trạng của hắn rất căng thẳng, cảm thấy âm khí xung quanh dày đặc. Thế nhưng, kẻ ấy lại tiến tới gần với vẻ mặt bình thản. Cảnh tượng kỳ lạ này khiến Hồ Tân Phong trong giây phút không thể nào động đậy.
+Thế nhưng đi được một đoạn, hắn bỗng mở to mắt. Tại sao tên thanh niên cầm gậy leo núi kia lại xuất hiện trước mặt? Chẳng lẽ Hồ Tân Phong này gặp quỷ giữa ban ngày?
 
-Mặt mũi Hồ Tân Phong cứng ngắc. Kẻ kia chỉnh lại mũ rộng vành, cười hỏi: "Sao vậy? Không đi đường lớn sao? Không sợ quỷ đến bức tường à?"
+Hồ Tân Phong cẩn thận nhặt một viên đá, nhẹ nhàng ném về phía kẻ kia. Viên đá trúng ngay vào ót. Người đó đưa tay ôm đầu, quay lại mắng:
 
-Hồ Tân Phong nuốt một ngụm nước bọt, gật đầu: "Đi đường lớn, ta sẽ đi đường lớn."
+- Cái gì vậy?
 
-Hai người chậm rãi tiến cùng nhau. Hồ Tân Phong suy nghĩ một hồi, phát hiện rằng kẻ này có vẻ bước đi không vững, mặt mũi tái nhợt, mồ hôi trên trán chảy xuống. Sau một chút do dự, hắn hít sâu, dồn khí vào tay và mạnh mẽ đấm vào thái dương của người đó.
+Hồ Tân Phong muốn cười nhưng không dám. Hắn rất căng thẳng, cảm thấy âm khí xung quanh dày đặc. Thế nhưng kẻ ấy lại tiến tới gần với vẻ mặt bình thản. Cảnh tượng kỳ lạ khiến Hồ Tân Phong trong chốc lát không thể động đậy.
 
-"Ầm!" một tiếng vang lên. Người kia lại bay ra ngoài.
+Mặt mũi Hồ Tân Phong cứng ngắc. Kẻ kia chỉnh lại mũ rộng vành, cười hỏi:
 
-Hồ Tân Phong dùng tay xoa xoa nắm đấm, đau nhức. Hắn nghĩ rằng tên đó chắc chắn không chết được.
+- Sao vậy? Không đi đường lớn à? Không sợ quỷ đánh tường sao?
 
-Sau khi đi thêm một đoạn nữa, tên thanh niên khoác áo dài lại xuất hiện trong tầm mắt. Hồ Tân Phong mồ hôi chảy ròng ròng, lại một lần nữa cảm thấy lạnh sống lưng.
+Hồ Tân Phong nuốt nước bọt, gật đầu:
 
-May mắn thay, người kia vẫn đi về hướng hắn, rồi cùng nhau tiếp tục đi xuống núi. Hồ Tân Phong mồ hôi rơi xuống như mưa.
+- Đi đường lớn, ta sẽ đi đường lớn.
 
-Bỗng nhiên, một tiếng vó ngựa vang lên sau lưng hắn. Hồ Tân Phong giật mình quay lại, lớn tiếng hô: "Tùy lão ca, Tào công tử, người này là đồng lõa của Dương Nguyên!"
+Hai người chậm rãi cùng đi. Hồ Tân Phong suy nghĩ một hồi, phát hiện kẻ này bước đi không vững, mặt tái nhợt, mồ hôi trên trán chảy xuống. Sau chút do dự, hắn hít sâu, dồn khí vào tay, đấm mạnh vào thái dương người đó.
 
-Tuy nhiên, người cưỡi ngựa chỉ thoáng qua, không ai quay đầu nhìn hắn. Hồ Tân Phong cảm thấy như bị sét đánh.
+Ầm một tiếng, người kia lại bay ra ngoài.
 
-Kẻ thanh niên cầm gậy leo núi cười nói: "Cảnh này có chút lúng túng."
+Hồ Tân Phong xoa nắm đấm đau nhức, nghĩ tên đó chắc chắn không chết được.
 
-Nhưng đột nhiên, kẻ thanh niên nhíu mày. Người ở giữa, một nữ tử che mặt lấy tay như tâm hồ nước hoảng loạn nói: "Trần công tử, cứu ta!"
+Đi thêm một đoạn nữa, thanh niên mặc áo dài lại xuất hiện trong tầm mắt. Hồ Tân Phong mồ hôi chảy ròng ròng, lạnh sống lưng lần nữa.
 
-Trần Bình An sly nhìn qua và chỉ lặng lẽ bỏ qua, từ từ giảm tốc độ, hắn chậm lại, Hồ Tân Phong cũng vì thế mà tiếp tục theo sau.
+May thay người kia vẫn đi về phía hắn, rồi cùng nhau xuống núi. Mồ hôi Hồ Tân Phong rơi như mưa.
 
-Nữ tử này, bất chấp tất cả, một mình cưỡi ngựa quay lại, đúng hướng về phía thanh niên khoác áo dài này. Trần Bình An cũng có phần ngạc nhiên khi nhìn thấy cảnh này, nhưng dù vậy, chưa bao giờ chứng kiến cảnh hoành tráng không biết xấu hổ như vậy. Nữ tử đó xuống ngựa, lao về phía Trần Bình An, thậm chí còn nép vào sau hắn và thì thầm: "Trần công tử, ta biết ngươi là người tu đạo, hãy cứu giúp ta."
+Bỗng tiếng vó ngựa vang lên sau lưng. Hồ Tân Phong giật mình quay lại, lớn tiếng hô:
 
-Trần Bình An quay lại hỏi: "Ta là cha của ngươi hay là ông nội của ngươi?"
+- Tùy lão ca, Tào công tử, người này là đồng lõa của Dương Nguyên!
 
-Nàng tháo mũ rộng vành, lộ ra dáng vẻ của mình, khuôn mặt đau khổ nói: "Chỉ cần ngươi cứu ta, ta sẽ lĩnh ơn và báo đáp ngươi..."
+Nhưng đoàn người cưỡi ngựa chỉ lướt qua, không ai quay đầu nhìn hắn. Hồ Tân Phong như bị sét đánh.
 
-Nào ngờ, người kia bỗng một cái tát, đánh nàng ngã lăn ra đất, lập tức khiến nàng choáng váng.
+Thanh niên cầm gậy leo núi cười nói:
 
-"Kẻ này, ta đã chịu đựng bọn ngươi một thời gian dài rồi," hắn nói.
+- Cảnh này có chút lúng túng.
 
-Nhưng chỉ sau một khắc, hắn thở dài, nhìn về phía nàng cùng với Hồ Tân Phong – người thư sinh yếu đuối, rồi lại lấy ra một chiếc quạt xếp bằng ngọc, mỉm cười và nói: "Đường đột giai nhân, đường đột giai nhân rồi."
+Nhưng đột nhiên hắn nhíu mày. Người ở giữa, nữ tử che mặt, đưa tay như tâm hồ nước hoảng loạn truyền lời [?]:
+
+- Trần công tử, cứu ta!
+
+Trần Bình An nhìn qua rồi lặng lẽ bỏ qua, từ từ giảm tốc độ, đi chậm lại, Hồ Tân Phong cũng vì thế mà đi theo sau.
+
+Nữ tử bất chấp tất cả, một mình cưỡi ngựa quay lại, đúng hướng về phía thanh niên mặc áo dài. Trần Bình An cũng có phần ngạc nhiên, chưa bao giờ thấy cảnh trắng trợn không biết xấu hổ như vậy. Nàng xuống ngựa, lao về phía Trần Bình An, thậm chí còn nép ra sau lưng hắn, thì thầm:
+
+- Trần công tử, ta biết ngươi là tu sĩ, hãy cứu ta.
+
+Trần Bình An quay lại hỏi:
+
+- Ta là cha ngươi hay ông nội ngươi?
+
+Nàng tháo mũ che mặt, lộ ra dung nhan, khuôn mặt đau khổ:
+
+- Chỉ cần ngươi cứu ta, ta sẽ ghi ơn báo đáp...
+
+Nào ngờ người kia giáng một cái tát, đánh nàng ngã lăn ra đất, lập tức choáng váng.
+
+- Ta đã nhịn các ngươi lâu lắm rồi.
+
+Nhưng chỉ một khắc sau, hắn thở dài, nhìn về phía nàng cùng Hồ Tân Phong, rồi lại lấy ra một chiếc quạt xếp bằng ngọc, mỉm cười nói:
+
+- Đường đột giai nhân, đường đột giai nhân rồi.

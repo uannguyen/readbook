@@ -1,401 +1,587 @@
 # Chương 582: Đáp án ngay tại trên trúc xanh
 
-Mưa dầm dề trong thời tiết lạnh lẽo, cuộc hành trình tha hương vốn đã rất phiền muộn, huống chi còn như có đao gác trên cổ. Điều này càng khiến lão thị lang Tùy Tân Vũ thêm đau khổ. Sau khi trải qua vài trạm dịch, khi đối diện với những bức tường lạnh lẽo nơi đất khách quê người, những bài thơ thi ca lại càng làm cho lão thêm cảm động. Nhiều lần ông đã mượn rượu để giải sầu, nhưng chỉ thấy những thiếu niên, thiếu nữ ngày càng thêm lo lắng; chỉ có một người phụ nữ đội mũ có vải che mặt vẫn thản nhiên đứng đó.
+Mưa dầm dề, trời lạnh lẽo, chuyến đi xa xứ vốn đã phiền muộn, huống chi còn như có đao gác trên cổ. Điều đó càng khiến lão thị lang Tùy Tân Vũ thêm đau khổ. Qua mấy trạm dịch, nhìn những bức tường lạnh lẽo nơi đất khách, đọc thơ đề trên tường lại càng cảm khái. Nhiều lần ông mượn rượu giải sầu, nhưng chỉ thấy hai đứa nhỏ ngày càng lo lắng, chỉ có nữ tử đội mũ che mặt vẫn thản nhiên.
 
-Bốn người cưỡi ngựa chỉ dám chọn con đường quan đạo đi về phía kinh đô Ngũ Lăng quốc và vùng lân cận. Hôm nay, giữa lúc chiều tà, mưa như trút nước vừa ngừng, mặc dù họ đã thức trắng đêm chạy trốn mưa gió, nhưng vẫn không thể đến được trạm dịch. Điều này làm cho lão thị lang vừa mới cởi áo mưa và đội mũ rộng vành cảm thấy khó chịu. Ngắm nhìn xung quanh, ông cảm thấy nguy cơ rình rập khắp nơi. Nếu không nhờ vào sự cường tráng và sức khỏe của mình sau quãng thời gian về quê, thường xuyên du lịch cùng bạn bè, chắc hẳn ông đã sớm mắc bệnh, không thể chịu đựng nổi cảnh khốn khổ này.
+Bốn người cưỡi ngựa chỉ dám chọn quan đạo, đi về phía kinh đô Ngũ Lăng quốc và vùng lân cận. Hôm nay giữa lúc chiều tà, trận mưa như trút vừa ngừng. Họ đã thức trắng đêm chạy mưa gió mà vẫn chưa tới được trạm dịch. Lão thị lang vừa cởi áo mưa, đội lại mũ rộng vành thì thấy khó chịu. Nhìn quanh, ông cảm thấy nguy cơ rình rập khắp nơi. Nếu không nhờ thân thể khỏe mạnh sau những năm về quê thường xuyên du ngoạn cùng bạn bè, ông đã sớm đổ bệnh, không chịu nổi cảnh khốn khổ này.
 
-Trên con đường quan đạo, một gương mặt lạ lẫm xuất hiện từ phía bí mật bên cạnh, đúng là một chàng trai trẻ tàn bạo với vẻ mặt hung dữ, khoảng cách với bốn người Tùy gia chỉ chừng ba mươi bước. Chàng ta cầm trong tay một thanh trường đao, không nói một lời, lập tức chạy về phía họ.
+Trên quan đạo, từ chỗ ẩn nấp bên đường bỗng xuất hiện một gương mặt lạ, một hán tử trẻ tuổi dữ tợn, cách bốn người Tùy gia chừng ba mươi bước. Hắn cầm trường đao, không nói một lời, lao thẳng về phía họ.
 
-Tùy Tân Vũ lớn tiếng kêu: "Kiếm tiên cứu mạng!"
+Tùy Tân Vũ lớn tiếng kêu:
 
-Tuy nhiên, mọi thứ xung quanh chỉ còn lại sự yên tĩnh đáng sợ.
+- Kiếm tiên cứu mạng!
 
-Bỗng nhiên, lão thị lang siết chặt dây cương, dẫn ngựa dừng lại. Tiếng vó ngựa dồn dập vang lên, và một người phụ nữ đội mũ có vải che mặt lao ra.
+Nhưng xung quanh chỉ còn lại sự yên tĩnh đáng sợ.
 
-Ánh đao lóe lên, một kẻ cầm đao khác lao đến gần.
+Lão thị lang bỗng siết chặt dây cương, ghìm ngựa lại. Tiếng vó ngựa dồn dập vang lên, nữ tử đội mũ che mặt phóng ra.
 
-Người phụ nữ mũ che mặt dường như bị ánh đao va chạm ở phần eo, thân hình mềm mại bị hất ra, ngã xuống ngựa, máu tươi trào ra không ngớt.
+Ánh đao lóe lên, một kẻ cầm đao khác cũng lao tới gần.
 
-Tên đàn ông kia liền lao tới, đôi chân lảo đảo được vài bước rồi ngã xuống đất.
+Nữ tử che mặt như bị ánh đao chém trúng ở eo, thân hình mềm mại bị hất văng, ngã xuống ngựa, máu tươi trào ra không ngớt.
 
-Khuôn mặt, cổ và ngực của hắn bị đâm trúng bằng một chiếc trâm cài. Như một vũ khí tội ác nơi giang hồ, chiếc trâm kia chỉ xuyên thủng qua da, máu tươi thoáng hiện, nhưng gần như đã không thể gây tử vong ngay lập tức. Duy chỉ có phần cổ mới thực sự là vết thương chí mạng.
+Gã đàn ông lao tới, chân lảo đảo được vài bước thì ngã xuống đất.
 
-Người phụ nữ đội mũ che mặt lảo đảo đứng dậy, sờ tay lên phần bụng. Không biết vì sao, kẻ cầm đao lại thay đổi lưỡi đao thành phần sống, có phải vì muốn không gây tử vong? Tùy Cảnh Rừng cố gắng làm cho bản thân có thể thở dễ dàng, trong tai nghe thấy âm thanh rất nhỏ ở đâu đó vọng lại.
+Mặt, cổ và ngực hắn bị một chiếc trâm đâm trúng. Như một thứ vũ khí tội ác nơi giang hồ, chiếc trâm chỉ xuyên qua da, máu thoáng hiện, gần như không gây chết người ngay. Duy chỉ có phần cổ mới là vết thương chí mạng.
 
-Tùy Cảnh Rừng quay lại, hô lớn: "Cẩn thận! Mau xuống ngựa tránh né!"
+Nữ tử che mặt lảo đảo đứng dậy, đưa tay sờ bụng. Không hiểu vì sao kẻ cầm đao lại trở lưỡi đao thành sống đao, có phải muốn không gây chết người [?]? Tùy Cảnh Rừng cố hít thở cho dễ, trong tai nghe thấy một âm thanh rất nhỏ vọng lại từ đâu đó.
 
-Một người nương theo dây cung, mũi tên mạnh mẽ bay tới, tiếng thét gào chói tai khuấy động lòng người.
+Tùy Cảnh Rừng quay lại, hô lớn:
 
-Tùy Cảnh Rừng cảm thấy nơi khóe miệng tứa máu, nhưng vẫn cố chịu đựng cơn đau nhói ở phần eo. Cô nín thở tập trung tư tưởng, niệm lại khẩu quyết trong cuốn sách nhỏ chứa đựng bí mật lục đồ phổ mà cao nhân đã tặng năm xưa. Một tay cô ấn niệm pháp quyết, eo nhỏ nhắn co lại, ống tay áo lướt vòng, ba chiếc trâm cài từ thi thể trên đường được rút ra, đón mũi tên đang lao tới. Ba chiếc trâm cài bay đi nhanh đến mức ngay cả tiếng dây cung cũng không thể theo kịp, nhưng chúng chỉ chạm vào mũi tên, còn mũi tên vẫn không thay đổi quỹ đạo, lao thẳng về phía đầu lão thị lang cưỡi ngựa.
+- Cẩn thận! Mau xuống ngựa tránh đi!
 
-Tùy Cảnh Rừng mặt mày tuyệt vọng. Dù cho cô đã mặc chiếc áo vải mỏng trắng lên người cha, nếu như mũi tên bắn trúng đầu thì dù cho đó có là thần tiên trong truyền thuyết cũng không thể cứu được.
+Có người giương dây cung, một mũi tên bay tới mạnh mẽ, tiếng rít chói tai khuấy động lòng người.
 
-Mắt cô chớp lớn, nước mắt trào ra.
+Khóe miệng Tùy Cảnh Rừng rỉ máu, nhưng nàng vẫn cố chịu cơn đau nhói ở eo, nín thở tập trung, niệm lại khẩu quyết trong cuốn sách nhỏ chứa lục đồ phổ bí mật mà cao nhân đã tặng năm xưa. Một tay nàng bấm pháp quyết, eo nhỏ co lại, ống tay áo lướt vòng, ba chiếc trâm rút ra từ thi thể trên đường bay ra đón mũi tên. Ba chiếc trâm bay nhanh đến mức tiếng dây cung cũng không đuổi kịp, nhưng chỉ chạm vào mũi tên chứ không đổi được quỹ đạo của nó, mũi tên vẫn lao thẳng vào đầu lão thị lang đang cưỡi ngựa.
 
-Sự sống và cái chết đang ở trước mắt, chân thành hiện lên rõ ràng.
+Tùy Cảnh Rừng mặt mày tuyệt vọng. Dù nàng đã khoác lên người cha chiếc áo vải mỏng màu trắng, nhưng nếu mũi tên trúng đầu thì dù là thần tiên trong truyền thuyết cũng không cứu nổi.
 
-Dù là có thể có nhận thức về cha, Tùy Cảnh Rừng cũng không hoàn toàn hiểu về ông. Nhưng tình cảnh của người phụ nữ thì không phải giả dối.
+Nàng trợn mắt, nước mắt trào ra.
 
-Cô cũng như chiếc áo mỏng như cánh ve trắng cho Tùy Tân Vũ mặc, có một phần nguyên nhân là do Tùy Cảnh Rừng cho rằng mình tạm thời không nguy hiểm đến tính mạng. Nhưng đến cả tai vạ, cũng có thể như Tùy Cảnh Rừng mà mong muốn đánh cược, không phải ai cũng có thể làm được, đặc biệt là một cô gái thông minh có chí hướng như Tùy Cảnh Rừng.
+Sống chết ngay trước mắt, tình cảm chân thật hiện rõ.
 
-Vào một khắc sau đó.
+Dù có thể hiểu cha, Tùy Cảnh Rừng cũng không hoàn toàn thấu ông. Nhưng tình cảnh của nữ tử này thì không giả dối.
 
-Một người trẻ tuổi mặc áo trắng, tay đeo kiếm, xuất hiện, đứng chắn trước mũi tên, từ trên không nhẹ nhàng đáp xuống, mũi tên hóa thành bụi mịn.
+Nàng khoác cho Tùy Tân Vũ chiếc áo mỏng như cánh ve màu trắng, một phần là vì cho rằng mình tạm thời không nguy hiểm đến tính mạng. Nhưng ngay cả tai họa cũng dám mong đánh cược như Tùy Cảnh Rừng, không phải ai cũng làm được, nhất là một cô gái thông minh có chí hướng như nàng.
 
-Một mũi tên khác lại gào thét lao đến. Lần này tốc độ cực nhanh, trời đất rung chuyển. Một tiếng dây cung kéo căng vang lên trước khi mũi tên lao tới.
+Khoảnh khắc sau.
 
-Nhưng mũi tên đã bị người mặc áo trắng bắt lấy trong tay, vỡ vụn trong tay hắn.
+Một người trẻ tuổi mặc áo trắng, đeo kiếm xuất hiện, đứng chắn trước mũi tên, từ trên không nhẹ nhàng đáp xuống, mũi tên hóa thành bụi mịn.
 
-Kiếm tiên áo trắng nhìn về phía mũi tên, mỉm cười và nói: "Tiêu Thúc Dạ, ngươi không phải là đao khách sao, sao lại bị đánh cong vậy?"
+Một mũi tên khác lại gào thét lao tới. Lần này tốc độ cực nhanh, trời đất rung chuyển. Tiếng dây cung căng vang lên trước khi mũi tên tới.
 
-Kiếm tiên áo trắng lướt qua như gió.
+Nhưng mũi tên đã bị người áo trắng bắt gọn trong tay, vỡ vụn.
 
-Tùy Cảnh Rừng hô: "Cẩn thận, mưu kế đang chực chờ... "
+Kiếm tiên áo trắng nhìn về hướng mũi tên bắn tới, mỉm cười:
 
-Nhưng người áo trắng đã ngoảnh mặt làm ngơ, chỉ một mình, vội vàng đuổi theo. Một tia sáng trắng từ dưới đất bay lên, làm cho người bên ngoài thấy hoa mắt.
+- Tiêu Thúc Dạ, ngươi không phải đao khách sao, sao lại thành cung thủ cong thế này?
 
-Tùy Cảnh Rừng lập tức quay mình lên ngựa, giục ngựa chạy đi, vẫy tay thu hồi ba chiếc trâm cài rơi trên đường vào tay áo, hô lớn với ba người còn lại: "Mau đi!"
+Kiếm tiên áo trắng lướt đi như gió.
+
+Tùy Cảnh Rừng hô:
+
+- Cẩn thận, có mưu kế đang chực chờ...
+
+Nhưng người áo trắng không quay đầu, một mình vội vàng đuổi theo. Một tia sáng trắng từ dưới đất bay lên, làm người ngoài hoa cả mắt.
+
+Tùy Cảnh Rừng lập tức xoay người lên ngựa, giục ngựa chạy, vẫy tay thu ba chiếc trâm rơi trên đường vào tay áo, hô lớn với ba người còn lại:
+
+- Mau đi!
 
 Bốn người Tùy gia cưỡi ngựa phóng nhanh bỏ chạy.
 
-Đã chạy được vài dặm nhưng vẫn chưa thấy bóng dáng của trạm dịch. Lão thị lang chỉ cảm thấy mệt rã rời, nước mắt tràn đầy trên mặt.
+Chạy được vài dặm mà vẫn chưa thấy bóng trạm dịch. Lão thị lang chỉ thấy mệt rã rời, nước mắt đầy mặt.
 
-Tùy Cảnh Rừng giơ tay lên, đột nhiên dừng ngựa lại.
+Tùy Cảnh Rừng giơ tay, đột nhiên ghìm ngựa.
 
-Ba người còn lại cũng tranh thủ thời gian nắm chặt dây cương.
+Ba người còn lại cũng vội nắm chặt dây cương.
 
-Trên đường, Tào Phú đứng một tay sau lưng, cười với người phụ nữ đội mũ có vải che mặt, "Cảnh Rừng, theo ta lên núi tu hành đi, ta có thể cam đoan, chỉ cần ngươi theo ta vào núi, Tùy gia về sau sẽ có rất nhiều phú quý chờ."
+Trên đường, Tào Phú đứng một tay sau lưng, cười với nữ tử đội mũ che mặt:
 
-Tùy Tân Vũ sắc mặt biến đổi không ngừng.
+- Cảnh Rừng, theo ta lên núi tu hành đi. Ta có thể cam đoan, chỉ cần nàng theo ta vào núi, Tùy gia về sau sẽ có phú quý chờ sẵn.
 
-Tùy Cảnh Rừng lạnh lùng nói: "Nếu thực sự là vậy, tại sao ngươi, Tào Phú, lại phải mất công như thế? Theo như tính cách của cha ta và người Tùy gia, chỉ biết dâng hiến mọi thứ cho ta. Nếu như ta không đoán sai, lúc trước Dương Nguyên đệ tử trong Hồn Giang đã không cẩn thận tiết lộ rằng bảng danh sách mười vị đại tông sư đã ra lò, và Vương Độn tiền bối của Ngũ Lăng quốc hình như đứng ở vị trí cuối cùng? Như vậy, bốn vị mỹ nhân kia hẳn là đã có đáp án, phải chăng ta, Tùy Cảnh Rừng, cũng may mắn trở thành một trong số đó? Không biết có cái gọi là lý do gì không? Nếu như ta không lầm, ngươi, một vị lục địa thần tiên sư phụ, đối với tình thế của Tùy Cảnh Rừng là thật, nhưng đáng tiếc các ngươi chưa chắc bảo vệ được ta, Tùy Cảnh Rừng, càng đừng đề cập đến Tùy gia, vì vậy chỉ có thể lén lút mưu mô đưa ta dân đến chỗ ngươi để tu hành."
+Sắc mặt Tùy Tân Vũ biến đổi không ngừng.
 
-Tào Phú thu tay lại, chậm rãi tiến về phía trước. "Cảnh Rừng, đến giờ ngươi vẫn thông minh như vậy, khiến người ta kinh diễm. Quả thật không sai khi nói ngươi là một nữ tử có duyên thâm hậu. Hãy cùng ta kết làm đạo lữ, hai ta cùng nhau lên núi, tiêu dao cưỡi gió, chẳng phải là điều tuyệt vời sao? Con đường tu đạo của ta đã trải qua hàng chục năm, nhân gian này dường như đã trôi qua 60 năm, những người gọi là thân nhân giờ đây chỉ còn lại bạch cốt, có cần phải để trong lòng không? Nếu thực sự cảm thấy áy náy, cho dù có chút tai họa, chỉ cần Tùy gia còn sống con cháu, đó chính là phúc khí của họ. Chờ khi chúng ta nắm tay nhau, đưa thân vào địa tiên, Tùy gia tại Ngũ Lăng quốc vẫn có thể bừng bừng sinh khí."
+Tùy Cảnh Rừng lạnh lùng nói:
 
-Tùy Tân Vũ lúc này mới hiểu ý của Tào Phú, nên đến lúc này mới nhận ra rằng, đối phương chỉ lo lắng cho sự sống chết của Tùy Cảnh Rừng, còn con gái đi rồi thì dường như Tùy gia sẽ gặp tai họa.
+- Nếu thật như vậy, sao Tào Phú ngươi lại phải mất công thế này? Theo tính cách của cha ta và người Tùy gia, họ chỉ biết dâng hết mọi thứ cho ta. Nếu ta đoán không sai, lúc nãy đệ tử của Hồn Giang Giao Dương Nguyên đã vô ý để lộ rằng bảng mười đại tông sư đã ra, Vương Độn tiền bối của Ngũ Lăng quốc hình như đứng cuối? Vậy bốn vị mỹ nhân kia hẳn cũng đã có đáp án, phải chăng Tùy Cảnh Rừng ta cũng may mắn là một trong số đó? Không biết có lý do gì không? Nếu ta không lầm, sư phụ ngươi là lục địa thần tiên, coi trọng tình thế của Tùy Cảnh Rừng ta là thật, nhưng đáng tiếc các ngươi chưa chắc bảo vệ được ta, càng đừng nói Tùy gia, nên chỉ có thể lén lút mưu tính dẫn ta về chỗ ngươi tu hành.
 
-Tùy Tân Vũ tức giận mắng: "Tào Phú, ta luôn đối đãi ngươi không tệ, sao ngươi lại hại Tùy gia như vậy?!"
+Tào Phú thu tay lại, chậm rãi tiến lên:
 
-Tào Phú mỉm cười đáp: "Tùy bá bá đối với ta cũng rất tốt, năm đó mắt nhìn rất tinh tường mới chọn được ta làm con rể. Vì thế, ân tình này nếu không có cơ hội tự tay đền bù, tương lai khi ta và Cảnh Rừng tu hành đắc đạo, sẽ có phúc khí gấp bội hoàn lại cho con cháu của Tùy gia."
+- Cảnh Rừng, đến giờ nàng vẫn thông minh khiến người ta kinh diễm. Quả không sai khi nói nàng là nữ tử có duyên sâu dày. Hãy cùng ta kết làm đạo lữ, hai ta cùng lên núi, tiêu dao cưỡi gió, chẳng phải tuyệt vời sao? Đường tu đạo của ta đã mấy chục năm, nhân gian có lẽ đã trôi qua sáu mươi năm, những người gọi là thân nhân giờ chỉ còn bạch cốt, có cần để trong lòng không? Nếu thật thấy áy náy, dù có chút tai họa, chỉ cần Tùy gia còn con cháu thì đó chính là phúc khí của họ. Đợi đến khi chúng ta nắm tay nhau, thân vào địa tiên, Tùy gia ở Ngũ Lăng quốc vẫn có thể hưng thịnh [?].
 
-Tùy Tân Vũ tức giận đến mức phải thò tay đỡ lấy trán mình.
+Lúc này Tùy Tân Vũ mới hiểu ý Tào Phú: hắn chỉ lo cho sống chết của Tùy Cảnh Rừng, còn con gái mà đi rồi thì Tùy gia xem như sẽ gặp tai họa.
 
-Tào Phú liếc mắt nhìn xa xa, "Không cần khách sáo nữa, Cảnh Rừng, ta cuối cùng sẽ cho ngươi một cơ hội, nếu ngươi cùng ta rời đi một cách ngoan ngoãn, ta sẽ không giết ba người còn lại. Nếu ngươi không muốn, ta sẽ chờ cơ hội đánh ngất ngươi, để ba người còn lại sẽ không thấy được nữa. Về sau, khi hoàng hậu thăm viếng, cũng sẽ dễ dàng hơn. Chỉ cần ở trên núi của ta, trong thời điểm thanh minh, ngươi và ta là vợ chồng như nhau."
+Tùy Tân Vũ tức giận mắng:
 
-Tùy Cảnh Rừng tháo mũ vải che mặt, tiện tay ném đi, hỏi: "Ngươi và ta cưỡi ngựa đi lên tiên sơn? Ngươi không sợ kiếm kia sẽ g**t ch*t Tiêu Thúc Dạ rồi quay lại tìm ngươi sao?"
+- Tào Phú, ta luôn đối đãi ngươi không tệ, sao ngươi lại hại Tùy gia như vậy?!
 
-Tào Phú lần ra mấy tấm bùa chú, nói trước: "Hôm nay ngươi có thể coi như là nửa người tu đạo. Dán bùa này, ta và ngươi sẽ miễn cưỡng cưỡi gió đi xa."
+Tào Phú mỉm cười đáp:
 
-Tùy Cảnh Rừng xuống ngựa, "Ta đồng ý với ngươi."
+- Tùy bá bá cũng rất tốt với ta, năm đó mắt nhìn tinh tường mới chọn ta làm con rể. Ân tình này nếu không có cơ hội tự tay báo đáp, sau này khi ta và Cảnh Rừng tu hành đắc đạo, sẽ có phúc khí gấp bội hoàn lại cho con cháu Tùy gia.
 
-Tào Phú duỗi tay ra, "Vậy là đúng rồi. Đợi đến khi ngươi chứng kiến tiên sơn và tiên sư, ngươi sẽ thấy hôm nay lựa chọn không sai chút nào."
+Tùy Tân Vũ tức đến mức phải đưa tay đỡ trán.
+
+Tào Phú liếc nhìn xa xa:
+
+- Không cần khách sáo nữa. Cảnh Rừng, ta cho nàng cơ hội cuối cùng: nếu nàng ngoan ngoãn đi cùng ta, ta sẽ không giết ba người còn lại. Nếu không muốn, ta sẽ chờ cơ hội đánh ngất nàng, để ba người kia không còn thấy nàng nữa. Về sau khi hoàng hậu [?] thăm viếng cũng sẽ dễ hơn. Chỉ cần ở trên núi của ta, đến tiết thanh minh, nàng và ta là vợ chồng như nhau.
+
+Tùy Cảnh Rừng tháo mũ vải che mặt, tiện tay ném đi, hỏi:
+
+- Ngươi và ta cưỡi ngựa lên tiên sơn? Ngươi không sợ thanh kiếm kia giết xong Tiêu Thúc Dạ rồi quay lại tìm ngươi sao?
+
+Tào Phú lấy ra mấy tấm bùa chú, nói:
+
+- Bây giờ nàng cũng coi như nửa người tu đạo. Dán bùa này, ta và nàng sẽ miễn cưỡng cưỡi gió đi xa.
+
+Tùy Cảnh Rừng xuống ngựa:
+
+- Ta đồng ý với ngươi.
+
+Tào Phú đưa tay ra:
+
+- Vậy là đúng rồi. Đợi nàng tận mắt thấy tiên sơn và tiên sư, sẽ biết hôm nay lựa chọn không sai chút nào.
 
 Hai người cách nhau chỉ hơn mười bước.
 
-Đột nhiên, ba chiếc trâm từ bên Tùy Cảnh Rừng bay tới, nhưng bị Tào Phú tay áo cuốn lại, nắm chặt trong lòng bàn tay. Dù chỉ là một chiếc trâm sáng rực, nhưng lòng bàn tay hắn cảm thấy nóng hổi, da thịt như nổ tung, ngay tức khắc huyết nhục mơ hồ. Tào Phú nhíu mày, lấy ra một chiếc bùa màu vàng mà sư phụ đã trao cho, lặng lẽ niệm bí quyết, bao bọc ba chiếc trâm bên trong, lúc này mới không còn xảy ra dị tượng, cẩn thận cất vào trong tay áo. Tào Phú cười nói: "Cảnh Rừng, yên tâm, ta sẽ không với ngươi mà tức giận. Ngươi bướng bỉnh như vậy, khiến lòng ta động rất nhiều."
+Đột nhiên ba chiếc trâm từ phía Tùy Cảnh Rừng bay tới, nhưng bị tay áo Tào Phú cuốn lại, nắm chặt trong lòng bàn tay. Dù chỉ là một chiếc trâm sáng rực, lòng bàn tay hắn lại nóng bỏng, da thịt như nổ tung, máu thịt be bét tức khắc. Tào Phú nhíu mày, lấy ra một lá bùa vàng sư phụ trao cho, lặng lẽ niệm bí quyết, bọc ba chiếc trâm lại, lúc này mới không còn dị tượng, rồi cẩn thận cất vào tay áo. Tào Phú cười:
 
-Ánh mắt Tào Phú vượt qua Tùy Cảnh Rừng, "Chỉ cần ngươi đổi ý trước đây, cũng đừng trách phu quân không giữ lời hứa."
+- Cảnh Rừng yên tâm, ta sẽ không giận nàng. Nàng bướng bỉnh như vậy, càng khiến lòng ta rung động.
 
-Hắn bỗng cảm thấy bất ngờ, vô cùng bất đắc dĩ: "Sao, có người theo sau ta sao? Cảnh Rừng, ngươi có biết trên núi tu hành, việc nắm bắt vận mệnh con người là một môn học vấn cần phải nắm rõ."
+Ánh mắt Tào Phú vượt qua Tùy Cảnh Rừng:
 
-Tuy nhiên, Tùy Cảnh Rừng lại có vẻ cổ quái.
+- Chỉ cần nàng đổi ý, đừng trách phu quân không giữ lời hứa.
+
+Hắn bỗng thấy bất ngờ, vô cùng bất đắc dĩ:
+
+- Sao, có người theo sau ta ư? Cảnh Rừng, nàng có biết tu hành trên núi, nắm bắt vận mệnh người khác là một môn học vấn cần phải rành không?
+
+Nhưng Tùy Cảnh Rừng lại có vẻ cổ quái.
 
 Tào Phú bỗng quay đầu lại, không thấy một ai.
 
-Tùy Cảnh Rừng cắn răng, một lượng linh khí tích lũy vốn ít ỏi, dồn nhanh vào cổ tay, một bàn tay, trong mạch máu ánh sáng chói mắt, từng bước tiến lên, mạnh mẽ chộp vào Tào Phú.
+Tùy Cảnh Rừng cắn răng, dồn chút linh khí tích lũy vốn ít ỏi vào cổ tay, một bàn tay sáng chói trong mạch máu, bước tới chộp mạnh vào Tào Phú.
 
-Hắn ta không kịp phòng ngừa, lại bị Tào Phú xoay người, tay trái nắm lấy linh khí đang vận hành của Tùy Cảnh Rừng, lòng bàn tay ấm áp, hướng về phía trước một cái chộp, rồi khuỷu tay đập mạnh vào trán nàng. Tào Phú kéo một cái, Tùy Cảnh Rừng ngã xuống đất, bị Tào Phú phiên một cước đạp lên cánh tay, cúi người cười nói: "Ngươi có biết ta là một người tu đạo, chỉ cần nhìn đôi mắt thu thủy của ngươi, là có thể thấy phía sau ta có ai không? Vì vậy, quay đầu lại chỉ là để cho ngươi hy vọng rồi tuyệt vọng thôi."
+Hắn không kịp phòng bị, nhưng Tào Phú xoay người, tay trái nắm lấy linh khí đang vận hành của Tùy Cảnh Rừng, lòng bàn tay ấm áp chộp về phía trước, rồi khuỷu tay đập mạnh vào trán nàng. Tào Phú kéo một cái, Tùy Cảnh Rừng ngã xuống đất, bị hắn giẫm một chân lên cánh tay, cúi người cười:
 
-Tào Phú nhéo mũi chân nàng, Tùy Cảnh Rừng phát ra một tiếng kêu nén, Tào Phú dùng hai ngón tay đâm vào trán nàng, khiến nàng như bị thi triển thuật định thân, hắn mỉm cười bảo: "Đến lúc này, ta cũng không ngại nói thật với ngươi, tại Đại Triện vương triều, ngươi được chọn là một trong những tứ đại mỹ nhân mang tên "Tùy gia người ngọc", sau đó, chỉ còn ba con đường cho ngươi: hoặc đi theo cha ngươi về Đại Triện kinh thành rồi được chọn làm thái tử phi, hoặc giữa đường bị hoàng đế nào đó bắt cóc làm hoàng hậu của một tiểu quốc vùng biên, hoặc bị ta mang đi đến Thanh Từ quốc trong vùng biên của sư môn, trước tiên bị sư phụ luyện chế thành người sống đỉnh lô, truyền thụ cho ngươi một môn bí thuật, rồi sau đó sẽ giao ngươi cho một vị tiên nhân chân chính. Đây chính là kim lân Cung Cung chủ sư bá, nhưng ngươi đừng lo, đối với ngươi mà nói, đây là một cơ hội lớn, may mắn được cùng một vị tiên nhân đã cảnh giới Nguyên Anh. Trên con đường tu hành của ngươi, cảnh giới sẽ tiến bộ rất nhanh. Tiêu Thúc Dạ cũng không rõ những điều này, cho nên cái người kiếm tu tình cờ gặp được kia cũng không phải Kim Lân cung Kim Đan tu sĩ, chỉ làm cho người ta sợ mà thôi. Ta không muốn phơi bày hắn ra, chỉ là muốn để Tiêu Thúc Dạ tiêu hao chút sức lực. Tiêu Thúc Dạ đã chết rồi, cuộc giao dịch này, đều là ta với sư phụ hưởng lợi."
+- Nàng có biết ta là tu sĩ, chỉ cần nhìn đôi mắt thu thủy của nàng là biết phía sau ta có ai hay không? Quay đầu lại chỉ là để cho nàng hy vọng rồi tuyệt vọng thôi.
 
-Tào Phú cảm thán: "Cảnh Rừng, ta và ngươi thật sự vô duyên, lúc trước ngươi xem bói đúng quá đấy."
+Tào Phú nhéo mũi chân nàng, Tùy Cảnh Rừng rên khẽ một tiếng. Tào Phú dùng hai ngón tay điểm vào trán nàng, khiến nàng như bị định thân. Hắn mỉm cười:
 
-Hắn nâng Tùy Cảnh Rừng đứng dậy, lấy ra hai tấm bùa chú, xoay người dán chúng lên mắt cá chân nàng, nhìn về phía Tùy gia ba kỵ, "Dù cho thế nào, cũng đều chỉ là cái chết."
+- Đến lúc này ta cũng không ngại nói thật. Ở Đại Triện vương triều, nàng được chọn là một trong tứ đại mỹ nhân với danh "Tùy gia ngọc nhân". Sau đó nàng chỉ còn ba con đường: hoặc theo cha về kinh thành Đại Triện rồi được chọn làm thái tử phi; hoặc giữa đường bị một vị hoàng đế tiểu quốc vùng biên bắt về làm hoàng hậu; hoặc bị ta mang đến Thanh Từ quốc, vùng biên của sư môn, trước tiên bị sư phụ luyện thành lò đỉnh sống, truyền cho nàng một môn bí thuật, rồi sau đó giao cho một vị tiên nhân chân chính, chính là Cung chủ Kim Lân cung, sư bá của ta. Nhưng nàng đừng lo, với nàng đây là cơ hội lớn, may mắn được ở cùng một vị tiên nhân cảnh Nguyên Anh, đường tu hành sẽ tiến rất nhanh. Tiêu Thúc Dạ cũng không biết những chuyện này, nên người kiếm tu tình cờ gặp kia cũng không phải tu sĩ Kim Đan của Kim Lân cung, chỉ là dọa người thôi. Ta không muốn vạch trần hắn, chỉ muốn để Tiêu Thúc Dạ tiêu hao chút sức. Tiêu Thúc Dạ chết rồi, cuộc giao dịch này, ta và sư phụ đều được lợi.
 
-Đúng lúc này, bên cạnh Tào Phú vang lên một giọng nói quen thuộc: "Còn điều gì nữa không? Không còn bí mật nào nữa hay sao? Nghe nói Kim Lân cung lão tổ sư rất chú ý đến Tùy Cảnh Rừng, nếu sư phụ ngươi đã chia cắt đồ vật đạo duyên trên người nàng, vậy còn ngươi, vất vả chạy một chuyến, rốt cuộc là vì cái gì? Cơ quan tính toán tỉ mỉ, bôn ba khó nhọc, cũng chỉ là công sức vô bổ sao?"
+Tào Phú cảm thán:
 
-Tào Phú thấy khổ sở, quay đầu lại nhìn, một vị khách mặc thanh sam rộng vành đứng bên cạnh mình. Tào Phú hỏi: "Ngươi không phải đi đuổi theo Tiêu Thúc Dạ sao?"
+- Cảnh Rừng, ta và nàng thật sự vô duyên, lúc trước nàng xem bói đúng quá đấy.
 
-Người kia đáp: "Âm thần đã đi xa, ngươi tự cho rằng là người tu đạo, nhưng lại không nhận thấy điều này sao?"
+Hắn nâng Tùy Cảnh Rừng dậy, lấy ra hai tấm bùa chú, xoay người dán lên mắt cá chân nàng, nhìn về phía ba kỵ của Tùy gia:
 
-Tào Phú phàn nàn: "Kiếm tu rất ít khi gặp âm thần đi xa."
+- Dù thế nào cũng chỉ là cái chết.
 
-Người nọ gật đầu, "Cho nên nói giang hồ đi lại ít, chuyện xấu sẽ phải làm nhỏ lại."
+Đúng lúc này, bên cạnh Tào Phú vang lên một giọng nói quen thuộc:
 
-Tào Phú còn định nói thêm gì đó, nhưng đã ngã sõng soài xuống đất, hôn mê.
+- Còn gì nữa không? Không còn bí mật nào nữa sao? Nghe nói lão tổ sư Kim Lân cung rất chú ý đến Tùy Cảnh Rừng. Nếu sư phụ ngươi đã chia nhau đồ vật đạo duyên trên người nàng, vậy còn ngươi, vất vả chạy một chuyến rốt cuộc là vì cái gì? Cơ quan tính toán tỉ mỉ, bôn ba khó nhọc, cũng chỉ là công cốc sao?
 
-Trần Bình An vung tay lên, phá vỡ phong ấn linh khí trên trán Tùy Cảnh Rừng.
+Tào Phú chua chát, quay đầu nhìn, một vị khách mặc thanh sam đội mũ rộng vành đang đứng ngay bên cạnh. Tào Phú hỏi:
 
-Hắn tiếp tục vung tay áo, đẩy thi thể kia ra xa, rơi xuống trong bụi cỏ.
+- Ngươi không phải đi đuổi theo Tiêu Thúc Dạ sao?
 
-Ở một khoảng rất xa, một điểm ánh hồng cách mặt đất chỉ cách nhau hai ba trượng, ngự kiếm tới, cầm trong tay một cái đầu lâu không khép mắt, bay xuống đường, cùng vị khách thanh sam đan xen, rung động từng trận, hóa thành một người.
+Người kia đáp:
 
-Chỉ thấy vị khách thanh sam trong tay cầm thêm một cái đầu lâu.
+- Âm thần đã đi xa, ngươi tự cho là tu sĩ mà lại không nhận ra à?
 
-Trần Bình An nhìn Tùy Cảnh Rừng nói: "Ngươi thông minh như vậy, đã quyết định tương lai đường đi của mình chưa?"
+Tào Phú phàn nàn:
 
-Tùy Cảnh Rừng quỳ xuống đất, bắt đầu dập đầu, "Tại Ngũ Lăng quốc, Tùy gia nhất định sẽ bị diệt. Nếu ta không ở đây, mới có một con đường sinh cơ. Khẩn cầu tiên sư nhận ta làm đồ đệ!"
+- Kiếm tu rất ít khi để âm thần đi xa.
 
-Trần Bình An liếc nhìn chiếc mũ vải che mặt mà nàng đã ném trên đất, cười nói: "Nếu ngươi tu hành sớm hơn chút, có thể trở thành một vị sư môn truyền thừa, chắc chắn hôm nay sẽ có thành tựu không nhỏ."
+Người nọ gật đầu:
 
-Màn đêm nặng nề, trên một đỉnh núi, Tào Phú nhức đầu muốn nứt, từ từ mở mắt ra, phát hiện mình đang ngồi xếp bằng, còn cầm một đồ vật trong tay.
+- Cho nên nói đi giang hồ ít, chuyện xấu sẽ phải làm nhỏ lại.
 
-Cúi đầu nhìn, Tào Phú cảm thấy tâm tư như tro tàn.
+Tào Phú còn định nói thêm nhưng đã ngã sõng soài xuống đất, bất tỉnh.
 
-Ngẩng đầu, bên cạnh đống lửa, người thanh niên thư sinh ngồi xếp bằng, gác ngang một cây gậy leo núi trên đùi, phía sau là một chiếc rương bằng trúc.
+Trần Bình An vung tay, phá phong ấn linh khí trên trán Tùy Cảnh Rừng.
 
-Không còn chiếc mũ vải che mặt che khuất gương mặt tuyệt mỹ của Tùy Cảnh Rừng, nàng ngồi gần đó, hai tay ôm đầu gối, cuộn mình suy tư.
+Hắn tiếp tục vung tay áo, đẩy thi thể kia ra xa, rơi vào bụi cỏ.
 
-Tào Phú cầm viên đầu lâu của Tiêu Thúc Dạ, không dám nhúc nhích.
+Ở một nơi rất xa, một điểm hồng quang cách mặt đất chỉ hai ba trượng, ngự kiếm tới, trong tay cầm một cái đầu lâu không nhắm mắt, bay xuống đường, đan xen cùng vị khách thanh sam, rung động từng trận rồi hóa thành một người.
 
-Trần Bình An hỏi: "Ngươi hãy kể rõ hơn về sư môn cùng Kim Lân cung."
+Chỉ thấy trong tay vị khách thanh sam đã có thêm một cái đầu lâu.
 
-Tào Phú không chút do dự, hắn đã đem tất cả những gì mình biết về nội tình và chân tướng ra nói hết.
+Trần Bình An nhìn Tùy Cảnh Rừng nói:
 
-Hắn không muốn trở thành bạn đồng hành của Tiêu Thúc Dạ trên con đường hoàng tuyền.
+- Ngươi thông minh như vậy, đã quyết định đường đi sau này của mình chưa?
 
-Sư phụ đã từng nói rằng, Tiêu Thúc Dạ gần như không còn tiềm lực. Hắn, Tào Phú, thì khác, có được tư chất Kim Đan.
+Tùy Cảnh Rừng quỳ xuống đất, dập đầu:
 
-Trần Bình An lại tiếp tục hỏi: "Rồi hãy kể về gia sự của ngươi và những chuyện giang hồ ở Ngũ Lăng quốc."
+- Ở Ngũ Lăng quốc, Tùy gia nhất định sẽ bị diệt. Nếu ta không ở đây, mới có một con đường sống. Khẩn cầu tiên sư nhận ta làm đồ đệ!
 
-Tào Phú vẫn giữ vững lập trường, nói ra những gì hắn biết.
+Trần Bình An liếc nhìn chiếc mũ vải che mặt nàng ném trên đất, cười nói:
 
-Tùy Cảnh Rừng khi Tào Phú mở miệng lần đầu tiên cũng đã lấy lại tinh thần và lắng nghe yên lặng.
+- Nếu ngươi tu hành sớm hơn, có thể thành một vị truyền thừa sư môn, chắc chắn hôm nay đã có thành tựu không nhỏ.
 
-Sau khi Tào Phú kể xong, người thanh niên nói: "Ngươi có thể mang viên đầu lâu này đi, âm thầm hộ tống lão thị lang trở về quê hương là được, ngươi sẽ được phản hồi kết quả công tác cho sư môn."
+Đêm nặng nề, trên một đỉnh núi, Tào Phú đau đầu như muốn nứt, từ từ mở mắt, phát hiện mình đang ngồi xếp bằng, trong tay còn cầm một vật.
+
+Cúi đầu nhìn, Tào Phú thấy lòng tro lạnh.
+
+Ngẩng đầu, bên đống lửa, người thanh niên thư sinh ngồi xếp bằng, gác ngang một cây gậy leo núi trên đùi, phía sau là chiếc rương trúc.
+
+Tùy Cảnh Rừng không còn mũ che mặt, gương mặt tuyệt mỹ lộ ra, ngồi gần đó, hai tay ôm gối, cuộn mình suy tư.
+
+Tào Phú cầm đầu lâu của Tiêu Thúc Dạ, không dám nhúc nhích.
+
+Trần Bình An hỏi:
+
+- Ngươi kể rõ hơn về sư môn và Kim Lân cung đi.
+
+Tào Phú không chút do dự, nói hết những gì mình biết về nội tình và chân tướng.
+
+Hắn không muốn làm bạn đồng hành với Tiêu Thúc Dạ trên đường hoàng tuyền.
+
+Sư phụ từng nói Tiêu Thúc Dạ gần như không còn tiềm lực, còn Tào Phú hắn thì khác, có tư chất Kim Đan.
+
+Trần Bình An lại hỏi:
+
+- Giờ kể về gia sự của ngươi và chuyện giang hồ ở Ngũ Lăng quốc.
+
+Tào Phú vẫn giữ vững lập trường, nói ra những gì mình biết.
+
+Khi Tào Phú mở miệng lần đầu, Tùy Cảnh Rừng cũng đã lấy lại tinh thần, lặng lẽ lắng nghe.
+
+Tào Phú kể xong, người thanh niên nói:
+
+- Ngươi có thể mang đầu lâu này đi, âm thầm hộ tống lão thị lang về quê, như vậy sư môn sẽ nhận được tin báo công việc của ngươi [?].
 
 Tùy Cảnh Rừng muốn nói gì đó nhưng lại thôi.
 
-Người nọ không nhìn nàng, chỉ thuận miệng nói: "Nếu ngươi muốn giết Tào Phú, hãy tự mình động thủ thử xem."
+Người nọ không nhìn nàng, chỉ thuận miệng nói:
 
-Tào Phú sắc mặt biến sắc.
+- Nếu ngươi muốn giết Tào Phú, cứ tự mình động thủ thử xem.
 
-Cuối cùng, Tào Phú thật sự không chết, chỉ mang theo viên đầu lâu mà rời khỏi đỉnh núi.
+Sắc mặt Tào Phú biến đổi.
 
-Xuống núi, hắn cảm thấy như vừa trải qua một thế hệ, nhưng vận mệnh vẫn chưa được biết, tương lai khó lường. Hắn vốn nghĩ rằng giang hồ Ngũ Lăng quốc chỉ là một cái vũng bùn nhỏ mà thôi, nhưng vẫn cảm thấy lo âu.
+Cuối cùng Tào Phú thật sự không chết, chỉ mang theo đầu lâu rời khỏi đỉnh núi.
 
-Bên cạnh đống lửa, Tùy Cảnh Rừng đột nhiên nói: "Tạ ơn tiền bối."
+Xuống núi, hắn thấy như vừa trải qua một đời người, nhưng vận mệnh vẫn chưa biết, tương lai khó lường. Hắn vốn nghĩ giang hồ Ngũ Lăng quốc chỉ là vũng bùn nhỏ, nhưng vẫn thấy lo âu.
 
-Việc giết một Tào Phú đối với nàng có vẻ đơn giản, nhưng với Tùy gia mà nói, chưa chắc đã là chuyện tốt.
+Bên đống lửa, Tùy Cảnh Rừng đột nhiên nói:
 
-Nếu cả Tiêu Thúc Dạ và Tào Phú đều chết đêm nay, sẽ có rất nhiều người có thể phải chết, như Dương Nguyên của Hồn Giang, hay Hồ Tân Phong, bang chủ Hoành Độ bang, và có thể là cả gia đình Tùy gia.
+- Tạ ơn tiền bối.
 
-Việc để Tào Phú đi dễ dàng, tự do hắn truyền tin cho phía sau, tự bản thân đã là một sự thị uy đối với sư phụ Tào Phú cũng như Kim Lân cung.
+Giết một Tào Phú với nàng có vẻ đơn giản, nhưng với Tùy gia chưa chắc đã là chuyện tốt.
 
-Trần Bình An khuấy đống lửa, "Nói chuyện với người thông minh là đỡ tốn sức hơn nhiều."
+Nếu cả Tiêu Thúc Dạ và Tào Phú đều chết đêm nay, sẽ có rất nhiều người có thể phải chết, như Dương Nguyên của Hồn Giang, hay Hồ Tân Phong bang chủ Hoành Độ bang, và có thể cả Tùy gia.
 
-Rồi Tùy Cảnh Rừng thấy người đó từ rương trúc lấy ra một bàn cờ, không giống như trước đây thường chơi cờ trong đình, mà bắt đầu khống chế một tiên nhân phi kiếm, mài dũa hai viên cờ. Nhìn cách hắn khắc cờ, Tùy Cảnh Rừng nhận ra đó là tên của sư phụ Tào Phú cùng tổ sư Kim Lân cung, được khắc thành hai mặt khác nhau, bên cạnh còn một vài viên cờ là những tu sĩ quan trọng của hai bên.
+Để Tào Phú đi dễ dàng, tự do truyền tin cho phía sau, bản thân việc đó đã là một sự thị uy với sư phụ Tào Phú cũng như Kim Lân cung.
 
-Tùy Cảnh Rừng mỉm cười nói: "Tiền bối từ đình nghỉ chân mà gặp lại, hẳn cũng hãy xem chúng ta, đúng không?"
+Trần Bình An khều đống lửa:
 
-Trần Bình An gật đầu: "Ngươi đánh bạc thật may mắn, ta rất ngưỡng mộ."
+- Nói chuyện với người thông minh đỡ tốn sức hơn nhiều.
+
+Rồi Tùy Cảnh Rừng thấy người đó lấy từ rương trúc ra một bàn cờ. Không như trước kia thường đánh cờ trong đình, lần này hắn điều khiển một thanh tiên nhân phi kiếm, mài khắc hai quân cờ. Nhìn cách hắn khắc, Tùy Cảnh Rừng nhận ra đó là tên của sư phụ Tào Phú và tổ sư Kim Lân cung, khắc thành hai mặt khác nhau, bên cạnh còn vài quân cờ khắc tên những tu sĩ quan trọng của hai bên.
+
+Tùy Cảnh Rừng mỉm cười:
+
+- Tiền bối từ lúc ở đình nghỉ chân đã nhìn chúng ta như quân cờ, đúng không?
+
+Trần Bình An gật đầu:
+
+- Ngươi đánh bạc thật may mắn, ta rất ngưỡng mộ.
 
 Tùy Cảnh Rừng lại hiện vẻ ngại ngùng.
 
-Những tâm cơ mà nàng tự cho là thâm sâu, trước mắt người khác nhìn như trò trẻ con, thật là buồn cười.
+Những tâm cơ nàng tự cho là thâm sâu, trước mắt người ta lại như trò trẻ con, thật buồn cười.
 
-Trần Bình An sắp xếp các quân cờ, lần lượt đặt chúng lên biên của bàn cờ.
+Trần Bình An sắp xếp các quân cờ, lần lượt đặt lên mép bàn cờ.
 
-Gã dùng hai tay lồng tay áo, chăm chú nhìn các quân cờ, chậm rãi nói: "Trong đình nghỉ chân, thiếu niên Tùy Văn Pháp đã nói một câu đùa với ta. Thật ra không liên quan đến đúng sai, nhưng mà ngươi lại khiến hắn phải xin lỗi, lão thị lang có một câu nói mà ta thấy rất có lý, chính là sau đó Tùy Văn Pháp đã thành tâm xin lỗi."
+Hắn lồng hai tay vào tay áo, chăm chú nhìn các quân cờ, chậm rãi nói:
 
-Trần Bình An ngẩng đầu, nhìn về phía Tùy Cảnh Rừng, "Ta thấy rằng đây là một gia phong mà môn đệ nên có, rất tốt. Dù cho sau này cha ngươi có nhiều ý tưởng và hành động, thật ra có chút xấu hổ với hai chữ "Thuần Chính", nhưng mà một chuyện là một chuyện, đúng sai phải phân chia, lớn nhỏ có khác, cả hai không xung đột. Do đó, những người như Dương Nguyên cản trở chúng ta vào lúc đó, ta cũng đã cố tình trách móc một cách lầy lội, rồi lùi vào đình nghỉ chân. Bởi vì ta cảm thấy, người đọc sách bước vào giang hồ, là người trải nghiệm hàng ngàn dặm đường, không nên bị giang hồ mưa gió cản trở."
+- Trong đình nghỉ chân, thiếu niên Tùy Văn Pháp đùa với ta một câu. Thật ra chuyện này không liên quan đúng sai, nhưng ngươi bắt hắn xin lỗi, còn lão thị lang có một câu ta thấy rất có lý, và sau đó Tùy Văn Pháp thành tâm xin lỗi.
 
-Tùy Cảnh Rừng gật đầu, tò mò hỏi: "Lúc đó tiền bối đã phát hiện ra Tào Phú và Tiêu Thúc Dạ đến chưa? Cũng đã biết rõ đây là một cái cục nào đó?"
+Trần Bình An ngẩng đầu, nhìn Tùy Cảnh Rừng:
 
-Trần Bình An nhìn ra xa màn đêm, "Sớm biết như vậy rồi."
+- Ta thấy đó là gia phong mà con em nên có, rất tốt. Dù sau này cha ngươi có nhiều ý nghĩ và hành động, thật ra có chút hổ thẹn với hai chữ "thuần chính", nhưng chuyện nào ra chuyện đó, đúng sai phải phân, lớn nhỏ có khác, hai bên không xung đột. Vì vậy, khi Dương Nguyên và đám người cản đường lúc đó, ta cũng cố tình để họ trách móc cho lầy lội rồi lùi vào đình nghỉ chân. Bởi ta thấy người đọc sách bước vào giang hồ là người đi ngàn dặm đường, không nên bị mưa gió giang hồ cản trở.
 
-Nụ cười của Tùy Cảnh Rừng như hoa, thật sự gây rung động lòng người.
+Tùy Cảnh Rừng gật đầu, tò mò hỏi:
 
-Nàng đã từng đọc những tiểu thuyết kỳ quái và diễn nghĩa giang hồ, nhưng chưa bao giờ tôn sùng hay ngưỡng mộ kiểu tiên nhân một kiếm như cầu vồng, hay một quyền giết kẻ cướp. Hai loại người, hai loại tình huống, dễ mà tốt, nhưng cũng khiến nàng thấy thỏa mãn khi đọc sách. Tuy nhiên, nàng vẫn cảm thấy không đủ so với việc tu tập tiên pháp, đại đạo thành công và những bậc cao nhân bên ngoài.
+- Lúc đó tiền bối đã phát hiện Tào Phú và Tiêu Thúc Dạ đến, cũng đã biết đây là một cái cục rồi sao?
 
-Nàng cảm giác rằng, người tu đạo thực sự là những người hiểu biết rõ tâm lý con người, tính toán mọi thứ, tâm kế và đạo pháp tương xứng với nhau, giống như đứng cao trong mây biển, mới thật sự là người đã đạt đạo, ngồi cao trên nơi vũ trụ, những người đó nhìn xuống nhân gian, nhưng không ngại khi xuống núi theo đuổi những thị phi, vẫn sẵn lòng trừng phạt kẻ ác.
+Trần Bình An nhìn ra màn đêm xa:
 
-Trần Bình An từ tốn nói: "Thế gian thông minh và ngu dốt, đều là một thanh kiếm hai lưỡi. Chỉ cần kiếm chém lên, thế đạo này sẽ có tốt xấu phát sinh. Do đó, ta còn muốn nhìn kỹ hơn, chậm một chút. Tối nay những lời ta nói, ngươi tốt nhất nhớ kỹ, để có dịp sau này nói rõ ràng với ai đó. Còn phần ngươi có thể nghe hiểu bao nhiêu, và lấy về tự mình sử dụng, ta không quản. Ta đã từng nói với ngươi, ta sẽ không nhận ngươi làm đệ tử, bởi ngươi và ta có cách nhìn đời rất tương đồng, ta không cảm thấy mình có thể dạy cho ngươi thứ gì công bằng. Còn về việc truyền thụ cho ngươi tiên gia thuật pháp, coi như đã xong, nếu như ngươi có thể sống để rời khỏi Bắc Câu Lô Châu, đi đến hướng Bảo Bình Châu, thì đến lúc đó sẽ có cơ duyên waiting cho ngươi khám phá."
+- Sớm biết rồi.
 
-Tùy Cảnh Rừng đổi tư thế ngồi, chồm tới bên cạnh đống lửa, "Tiền bối dạy bảo, từng lời từng chữ, Cảnh Rừng sẽ ghi nhớ trong lòng. Dạy người câu cá không bằng dạy người câu cá, điều đó Cảnh Rừng cũng hiểu. Tiền bối truyền cho ta những căn bản về đại đạo, quan trọng hơn bất kỳ tiên gia thuật pháp nào."
+Nụ cười của Tùy Cảnh Rừng như hoa, thật sự khiến lòng người rung động.
 
-Trần Bình An chỉ vào bàn cờ, "Trong mắt ta, có lẽ chẳng có lý lẽ hoàn toàn chính xác, chỉ có sự thật và chân tướng. Làm cho ngươi trước hết phải nhìn rõ những thứ đã được giấu kín trong ngôn từ và hành vi, rồi từ đó hiểu rõ chân tướng nhân tâm, để biết được một ít logic tự nhiên, nhờ vậy sẽ làm cho sự phức tạp trở nên đơn giản hơn. Lý lẽ có thể xảy ra hư ảo, ta cùng ngươi sắp xếp bàn cờ hai quân cờ là được."
+Nàng từng đọc những tiểu thuyết kỳ quái và diễn nghĩa giang hồ, nhưng chưa bao giờ tôn sùng hay ngưỡng mộ kiểu tiên nhân một kiếm như cầu vồng, hay một quyền giết giặc cướp. Hai loại người, hai loại tình huống, dễ mà tốt, cũng khiến nàng thấy thỏa mãn khi đọc sách. Nhưng nàng vẫn thấy không đủ so với việc tu tập tiên pháp, đại đạo thành công và những bậc cao nhân bên ngoài.
 
-Hắn nhấc một quân cờ lên, "Trong lúc sinh tử, nhân tính sẽ có ác. Chết giữa cầu sống, không từ mọi thủ đoạn, ta hiểu được. Về phần có tiếp tục hay không, là tùy vào người."
+Nàng cảm giác người tu đạo thực sự là người hiểu rõ lòng người, tính toán mọi thứ, tâm kế và đạo pháp tương xứng nhau, như đứng cao trong mây biển. Đó mới là người đã đạt đạo, ngồi cao nơi vũ trụ, nhìn xuống nhân gian mà không ngại xuống núi theo đuổi chuyện thị phi, vẫn sẵn lòng trừng phạt kẻ ác.
 
-Hắn giơ viên cờ lên, nhẹ nhàng thả xuống bàn cờ, "Hồ Tân Phong của Hoành Độ bang, hắn đã chọn ác một lần. Do đó, hắn đã hành tẩu giang hồ, sinh tử tự phụ, bên cạnh ta, chưa chắc đã đúng, nhưng ngay lúc đó trên bàn cờ, hắn chết giữa cầu sống, đã thành công. Bởi vì hắn khác với ngươi, Tùy Cảnh Rừng, từ đầu đến cuối, không đoán ra ta là một vị người tu đạo, và hơn nữa, dám âm thầm xem xét tình thế."
+Trần Bình An từ tốn nói:
 
-Tùy Cảnh Rừng hỏi: "Nếu như hắn thề sống chết bảo vệ Tùy gia thì tiền bối sẽ làm sao?"
+- Thế gian thông minh hay ngu dốt đều là thanh kiếm hai lưỡi. Chỉ cần kiếm chém ra, thế đạo này sẽ sinh ra tốt xấu. Vì vậy ta còn muốn nhìn kỹ hơn, chậm hơn một chút. Những lời ta nói tối nay, tốt nhất ngươi nhớ kỹ, để sau này có dịp nói rõ lại với ai đó. Ngươi nghe hiểu được bao nhiêu và mang về dùng thế nào, ta không quản. Ta đã nói, ta sẽ không nhận ngươi làm đệ tử, vì ngươi và ta có cách nhìn đời rất giống nhau, ta không thấy mình có thể dạy ngươi điều gì cho công bằng. Còn chuyện truyền thụ tiên gia thuật pháp cho ngươi thì coi như xong. Nếu ngươi sống được để rời Bắc Câu Lô Châu, đi về hướng Bảo Bình Châu, đến lúc đó sẽ có cơ duyên chờ ngươi khám phá.
 
-Trần Bình An chậm rãi nói: "Vậy thì Ngũ Lăng quốc sẽ có một đại hiệp chính thức, tiếp tục hành tẩu giang hồ, phong ba sau đó. Nếu đại hiệp đó muốn mời ta uống rượu, ta sẽ cảm thấy rất vinh dự."
+Tùy Cảnh Rừng đổi tư thế ngồi, chồm tới bên đống lửa:
 
-Trần Bình An chỉ vào hai quân cờ chưa vào cục, "Chỉ vì Tào Phú là một vị tiên sư trên núi, hay Tiêu Thúc Dạ là một vị vũ phu Kim Thân cảnh? Đừng coi thường giang hồ, nó không chỉ là một hồ nước nhỏ. Một bước chân xuống thôi là thấy đáy? Đừng nói là họ, ngay cả ta cũng cẩn thận, mà vẫn không thể hiểu và tránh được sự nuốt chửng của cái gọi là kiếm thuyền của kẻ khác, có lúc còn suýt chết trên hồ Kim Phi quốc và bên ngọn núi cao vời vợi. Vì vậy, giang hồ luôn ẩn chứa hiểm nguy. Dù tốt hay xấu, nếu không cẩn thận mà tránh được họa thì cũng có thể chết, huống hồ là tự tìm đến cái chết. Nếu Tiêu Thúc Dạ phải gánh chịu, cũng chỉ có thể trách mình không đủ cứng rắn, không gánh nổi một kiếm từ người khác."
+- Tiền bối dạy bảo, từng lời từng chữ Cảnh Rừng đều ghi nhớ trong lòng. Dạy người câu cá không bằng dạy người cách câu cá, điều đó Cảnh Rừng cũng hiểu. Tiền bối truyền cho ta những căn bản về đại đạo, quan trọng hơn bất kỳ tiên gia thuật pháp nào.
 
-Trần Bình An nhẹ nhàng vê viên cờ, nói: "Nhưng mà Hồ Tân Phong lại không có sự lựa chọn nào vì lẽ hiệp nghĩa, ngược lại, hắn để cho d*c v*ng tồi tệ trỗi dậy. Điều này là điều thường tình của con người. Ta sẽ không vì vậy mà giết hắn; ta chỉ để hắn tự quyết định sinh tử. Cuối cùng, hắn sẽ tự tìm ra con đường sống cho mình. Vậy nên ta nói, ngoài việc nói về ta, Hồ Tân Phong trong tình hình hiện tại đã đưa ra một quyết định đúng đắn. Còn về những chuyện sau này liên quan đến Trà Mã cổ đạo, ta không cần bàn đến, đó là vấn đề khác, không liên quan đến các ngươi."
+Trần Bình An chỉ vào bàn cờ:
 
-Trần Bình An đặt bốn viên cờ Tùy gia lên bàn cờ. "Ta đã sớm biết các ngươi là những người tháo lui trong cuộc chơi cờ. Tào Phú là một người chơi cờ, mà sau đó ta cũng nhận ra rằng chính hắn cũng chỉ là một quân cờ. Phía sau sự giật dây của hắn và Kim Lân cung mới thật sự là người chủ mưu của cuộc cờ. Không cần phải bàn về người trước hay người sau, hãy chỉ nói về lúc đó, khi ta gặp phải một vấn đề khó khăn: ta không biết Tào Phú đã bày ra cái bẫy này với mục đích gì. Hắn là người như thế nào, điểm thiện ác của hắn nằm ở đâu? Hắn và Tùy gia có ân oán tình cừu gì? Dù sao thì Tùy gia cũng là một gia tộc thư hương, nhưng họ cũng chưa chắc chưa từng phạm sai lầm nghiêm trọng. Hành động của Tào Phú lần này có phần mơ hồ, lén lút, và hắn thậm chí đã kéo theo Dương Nguyên - một người có thể nói là không gian danh vọng vào cuộc. Hành động này rõ ràng không phải là quang minh chính đại, nhưng cũng không thể nói hoàn toàn bất thiện. Nếu hắn không giết người ngay khi lộ diện, vậy ta phải làm sao để xác định được mối quan hệ giữa ngươi, Tùy Cảnh Rừng, và Tùy gia? Đây không phải là một ván quay lại mà kai tướng phong hồi lô chuyển, mà là một điều vui vẻ?"
+- Trong mắt ta có lẽ không có lý lẽ nào hoàn toàn chính xác, chỉ có sự thật và chân tướng. Trước hết phải nhìn rõ những thứ giấu trong lời nói và hành vi, rồi từ đó hiểu chân tướng lòng người, biết một ít lô-gic tự nhiên, nhờ vậy làm cho chuyện phức tạp trở nên đơn giản. Lý lẽ có thể hư ảo, ta cùng ngươi sắp xếp bàn cờ hai quân là được.
 
-Tùy Cảnh Rừng gật đầu nhẹ nhàng.
+Hắn nhấc một quân cờ lên:
 
-Trần Bình An nghiêng người về phía trước, đặt ngón tay lên quân cờ khắc tên Tùy Tân Vũ, nói: "Điều đầu tiên làm ta thất vọng không phải là Hồ Tân Phong, mà là cha ngươi."
+- Trong lúc sinh tử, nhân tính sẽ có ác. Chết giữa đường cầu sống, không từ thủ đoạn, ta hiểu được. Còn có tiếp tục hay không là tùy người.
 
-Tùy Cảnh Rừng nghi hoặc hỏi: "Tại sao lại như vậy? Gặp nạn mà tự bảo vệ bản thân, không dám cứu giúp người khác. Nếu là một hiệp khách giang hồ thông thường, tôi cũng không cảm thấy lạ. Nhưng với tính cách của tiền bối... "
+Hắn giơ quân cờ lên, nhẹ nhàng thả xuống bàn:
 
-Tùy Cảnh Rừng không tiếp tục nói nữa, sợ sẽ nói thêm điều không hay.
+- Hồ Tân Phong của Hoành Độ bang đã chọn ác một lần. Hắn đi giang hồ, sinh tử tự chịu, ở bên ta chưa chắc đã đúng, nhưng ngay lúc đó trên bàn cờ, hắn cầu sống giữa đường chết, và đã thành công. Bởi hắn khác ngươi, Tùy Cảnh Rừng: từ đầu đến cuối hắn không đoán ra ta là tu sĩ, vậy mà dám âm thầm xem xét tình thế.
 
-Trần Bình An thu tay lại, mỉm cười nói: "Con cái nghìn vàng phải cẩn thận, quân tử không đứng dưới tường nguy hiểm. Những điều này tự nhiên đều có lý do. Tùy Tân Vũ là người rất kín đáo, không nói một lời, đó là hành vi của người đã thành thạo. Nhưng ta muốn hỏi ngươi, cha ngươi, Tùy Tân Vũ, là ai?"
+Tùy Cảnh Rừng hỏi:
 
-Tùy Cảnh Rừng không vội trả lời, nghĩ đến cha mình, chủ gia tộc Tùy, người giỏi cờ trong Ngũ Lăng quốc, từng là một quan chức có trọng trách. Nàng điều chỉnh lại suy nghĩ, thở dài: "Là một vị văn nhân lớn với kiến thức cao siêu, người hiểu nhiều đạo lý thánh hiền.... Một người đọc sách."
+- Nếu hắn thề sống chết bảo vệ Tùy gia thì tiền bối sẽ làm sao?
 
-Trần Bình An đáp: "Có một sự thật quan trọng hơn, đó là Hồ Tân Phong khi đó đã không tiết lộ với các ngươi về thân phận của kẻ thù, mà ẩn chứa một cái tên hung dữ, đó là Dương Nguyên."
+Trần Bình An chậm rãi nói:
 
-Vì thế, thực tế hiện tại đối với Tùy Tân Vũ không phải là vấn đề sinh tử, mà là một tình huống đầy phiền phức, càng thêm rắc rối trong bối cảnh Ngũ Lăng quốc. Danh tiếng của Hồ Tân Phong trong Hoành Độ bang có ai biết đến?
+- Vậy Ngũ Lăng quốc sẽ có một đại hiệp chân chính, tiếp tục đi giang hồ, chịu phong ba về sau. Nếu đại hiệp đó muốn mời ta uống rượu, ta sẽ thấy rất vinh dự.
 
-Tùy Cảnh Rừng đỏ mặt, nói: "Đương nhiên là có ích. Thời điểm đó, ta chỉ nghĩ đó là một trò khôi hài trong giang hồ. Nên, thực ra trong lòng ta vẫn có chút nghi ngờ với tiền bối. Đó là lý do mà ta cố tình không mở miệng mượn tiền."
+Trần Bình An chỉ vào hai quân cờ chưa vào cục:
 
-Trần Bình An nói: "Bởi vì Hồ Tân Phong sợ tự rước họa, không muốn vạch trần thân phận của Dương Nguyên, điều đó thể hiện sự bình tĩnh của hắn. Sự cảnh giác của các ngươi cũng là đúng đắn. Đây là kinh nghiệm của người từng trải. Đã phải trả giá bằng mạng sống, nên ta lúc ấy chỉ lướt qua ánh mắt của lão thị lang. Thấy ta không mở miệng vay tiền, lão ấy như trút đi một gánh nặng. Đó không phải là điều gì quá quan trọng, chính thường tình. Nhưng Tùy Tân Vũ là một người học vấn, một người đã từng ở vị trí cao, mang trong mình tri thức thánh hiền, lại phụng sự đất nước."
+- Chỉ vì Tào Phú là tiên sư trên núi, hay Tiêu Thúc Dạ là võ phu Kim thân cảnh sao? Đừng coi thường giang hồ, nó không chỉ là một hồ nước nhỏ, một bước chân xuống là thấy đáy. Đừng nói họ, ngay cả ta cũng cẩn thận mà vẫn không hiểu và tránh nổi sự nuốt chửng của cái gọi là kiếm thuyền của kẻ khác, có lúc còn suýt chết trên hồ Kim Phi quốc và bên ngọn núi cao vời vợi [?]. Cho nên giang hồ luôn ẩn chứa hiểm nguy. Dù tốt hay xấu, nếu không cẩn thận mà tránh họa thì cũng có thể chết, huống hồ là tự tìm đến cái chết. Nếu Tiêu Thúc Dạ phải gánh chịu thì cũng chỉ trách mình không đủ cứng, không đỡ nổi một kiếm của người khác.
 
-Nói đến đây, Trần Bình An giơ hai ngón tay cái lên, nhẹ nhàng xoay tròn rồi dừng lại, như đang đưa một viên cờ vào bàn, "Thánh nhân từng nói, nếu không có lòng trắc ẩn, con người có thể khác biệt với cỏ cây, súc sinh. Ngươi nghĩ Tùy Tân Vũ - cha của ngươi - có một chút nào lòng trắc ẩn hay không? Ngươi là con gái hắn, hẳn là hiểu rõ hơn ta về tính tình hắn."
+Trần Bình An nhẹ vê quân cờ:
 
-Tùy Cảnh Rừng lắc đầu, cười khổ: "Không có."
+- Nhưng Hồ Tân Phong thì không chọn theo lẽ hiệp nghĩa, ngược lại để dục vọng tồi tệ trỗi dậy. Đó là điều thường tình của con người. Ta sẽ không vì vậy mà giết hắn, chỉ để hắn tự quyết sinh tử. Cuối cùng hắn tự tìm ra đường sống cho mình. Cho nên ta nói, ngoài chuyện của ta, Hồ Tân Phong trong tình thế hiện giờ đã đưa ra một quyết định đúng. Còn những chuyện sau này liên quan đến Trà Mã cổ đạo, ta không cần bàn, đó là chuyện khác, không liên quan đến các ngươi.
 
-Cô lầm bầm: "Thật không có."
+Trần Bình An đặt bốn quân cờ của Tùy gia lên bàn:
 
-"Vậy cho thấy rằng, một người đi chậm, nhìn nhiều suy nghĩ, như vậy, thực sự là một thanh kiếm hai lưỡi, đã nhìn thấy nhiều người và chuyện, cũng chính là như vậy."
+- Ta sớm biết các ngươi là những người bị đẩy vào ván cờ. Tào Phú là người đánh cờ, nhưng sau đó ta nhận ra chính hắn cũng chỉ là một quân cờ. Phía sau hắn và Kim Lân cung còn có người chủ mưu của ván cờ này. Không cần bàn trước sau, chỉ nói lúc đó, ta gặp một vấn đề khó: ta không biết Tào Phú bày bẫy này với mục đích gì. Hắn là người thế nào, thiện ác ở chỗ nào? Hắn với Tùy gia có ân oán tình cừu gì? Dù sao Tùy gia cũng là gia tộc thư hương, nhưng cũng chưa chắc chưa từng phạm sai lầm nghiêm trọng. Hành động lần này của Tào Phú mập mờ, lén lút, thậm chí còn kéo cả Dương Nguyên, một kẻ có thể nói là danh tiếng chẳng sạch, vào cuộc. Hành động ấy rõ ràng không quang minh chính đại, nhưng cũng không thể nói hoàn toàn bất thiện. Nếu hắn không giết người ngay khi lộ diện, vậy ta làm sao xác định được quan hệ giữa ngươi, Tùy Cảnh Rừng, và Tùy gia? Đây không phải một ván quay đầu là xoay chuyển được, mà là một chuyện... thú vị [?].
 
-Người nọ có vẻ như đã quen với điều này, ngẩng đầu nhìn về hướng xa xăm, nhẹ nhàng nói: "Trong những khoảnh khắc sinh tử, ta luôn tin tưởng muốn sống sót. Cơn ác mộng bất ngờ bùng phát như núi, cũng dễ hiểu. Nhưng sẽ có những người, có thể không quá nhiều, nhưng một số người chắc chắn sẽ có, ở đó biết rõ cái chết sắp đến, cũng sẽ thắp lên những ánh sáng lấp lánh."
+Tùy Cảnh Rừng khẽ gật đầu.
 
-"Ở bên kia đình nghỉ chân, cũng như những gì đã xảy ra sau đó, ta đang chờ đợi."
+Trần Bình An nghiêng người về phía trước, đặt ngón tay lên quân cờ khắc tên Tùy Tân Vũ:
 
-"Chỉ cần ta tìm thấy một ngọn đèn dầu, cho dù chỉ là một chút ánh sáng, cho dù nó có bị người ta dập tắt ngay lập tức."
+- Người đầu tiên làm ta thất vọng không phải Hồ Tân Phong, mà là cha ngươi.
 
-"Nhưng mà trong mắt ta, những người này, ngay cả chỉ một ngọn đèn dầu, cũng có thể toả sáng cùng nhật nguyệt."
+Tùy Cảnh Rừng nghi hoặc hỏi:
 
-Trần Bình An nhìn Tùy Cảnh Rừng, nói: "Lần đầu tiên nếu Hồ Tân Phong dốc sức liều mạng vì lý tưởng giang hồ, không tiếc mạng sống làm một việc nhìn có vẻ phi lý, thì ta cũng không cần điều tra ván này xem chuyện gì xảy ra tiếp theo; lúc đó, ta sẽ ra tay. Lần thứ hai, nếu cha ngươi, cho dù chỉ đứng nhìn, nhưng cũng có một chút lòng trắc ẩn, không phải ngồi yên mà quở trách ta, thì ta cũng sẽ không đứng ngoài mà chọn ra tay."
+- Tại sao vậy? Gặp nạn mà tự bảo vệ mình, không dám cứu người khác, nếu là hiệp khách giang hồ thông thường, con cũng không thấy lạ. Nhưng với tính cách của tiền bối...
 
-Trần Bình An cười: "Ngược lại, Hồ Tân Phong đã khiến ta bất ngờ. Sau khi ta phân biệt với các ngươi thì tìm được hắn, thấy được hắn. Một lần là trước lúc chết, hắn cầu xin ta không làm tổn thương người vô tội. Một lần khác là hắn hỏi ta xem bốn người các ngươi có đáng chết hay không, hắn khen ngợi Tùy Vũ Kỳ như một quan viên thực sự xuất sắc, và là bạn bè. Cuối cùng, hắn kể cho ta nghe về những hoạt động anh hùng của hắn trong quá khứ, điều này thực sự rất thú vị."
+Tùy Cảnh Rừng không nói tiếp, sợ nói thêm sẽ thành lời không hay.
 
-Tùy Cảnh Rừng nhẹ nhàng hỏi: "Nhưng bất kể như thế nào, sao tiền bối lại rất thất vọng mà vẫn cố gắng bảo vệ chúng ta?"
+Trần Bình An thu tay lại, mỉm cười:
 
-"Đạo gia từng nói, phúc họa không cửa, chỉ có do người tạo nên; Phật gia thì nói, hôm qua gieo nhân, hôm nay gặt quả, cũng không sai. Nhưng trên đời có rất nhiều người xem như thần tiên, mà thực tế, họ không phải là người tu đạo chân chính. Thật khó để truyền đạt đạo lý cho họ."
+- Con nhà ngàn vàng không ngồi dưới mái hiên, quân tử không đứng dưới tường nguy hiểm. Những điều đó đương nhiên đều có lý do. Tùy Tân Vũ là người rất kín đáo, không nói một lời, đó là hành vi của người đã thạo đời. Nhưng ta muốn hỏi ngươi, cha ngươi, Tùy Tân Vũ, là người thế nào?
 
-Trần Bình An nói, "Có thể các ngươi đang bị vướng mắc ngay trong cái đình nghỉ chân ấy, là kẻ yếu. Ta vừa vặn gặp, lại cẩn thận nghĩ ra thì lại có sức lực tự bảo vệ, vì vậy ta mới không ra tay. Nhưng trong hoàn cảnh này, các ngươi sinh tử ngoài ra, nếu phải chịu đựng bất kỳ nỗi đau khổ nào, ví dụ như một hành trình mưa gió, hoặc lo lắng chờ đợi, hay nếu ngươi bị người khác đánh một đao vào lưng ngựa, thì đấy đều là tự mình tìm đến, đó là luật công bằng trả lại cho các ngươi. Dần dần mà nhìn, điều này không hoàn toàn là chuyện xấu. Dù sao, các ngươi vẫn còn sống, và còn nhiều kẻ yếu khác, còn có lý do hơn các ngươi để tồn tại. Nói đến cùng, cái chết cũng sẽ đến thôi."
+Tùy Cảnh Rừng không vội trả lời. Nàng nghĩ về cha mình, chủ gia tộc họ Tùy, người giỏi cờ của Ngũ Lăng quốc, từng là quan chức có trọng trách. Nàng điều chỉnh suy nghĩ, thở dài:
 
-Kẻ yếu quá nghiêm khắc với bậc cao hơn, Trần Bình An cảm thấy không sao cả, đó là lệ thường. Dù cho có nhiều người mạnh hơn che chở cho kẻ yếu, mà không có một chút lòng biết ơn nào, thì Trần Bình An hôm nay cũng không cảm thấy điều gì phiền phức cả.
+- Là một văn nhân lớn, kiến thức cao siêu, hiểu nhiều đạo lý thánh hiền... một người đọc sách.
 
-Tùy Gia thành một hồi, chịu cơn thiên kiếp biển mây, Trần Bình An không bao giờ hối tiếc về quyết định của mình.
+Trần Bình An đáp:
 
-Bởi vì trong những ngõ ngách bên trong Tùy Gia, có thể sẽ có Trần Bình An, có thể có Lưu Tiện Dương, đang lặng lẽ phát triển.
+- Còn một sự thật quan trọng hơn: khi ấy Hồ Tân Phong không tiết lộ với các ngươi thân phận kẻ thù, mà giấu đi cái tên hung dữ ấy, Dương Nguyên.
 
-Nếu phải nói đến những tai họa đã tồn tại hàng nghìn năm, như thế giới này, như tâm người, thì rất khó để sửa đổi. Mọi người nên càng thông minh hơn, sống lâu hơn một chút, không cần phải từ thiện mà khổ mình. Thực ra, lại chính là phải chấp nhận ý trời cho, ác ác tương sinh, thời gian tuần hoàn mãi, sớm muộn gì rồi, con người cũng sẽ phải trả giá cho những gì đã làm.
+Vì thế sự thật bây giờ với Tùy Tân Vũ không phải vấn đề sinh tử, mà là tình huống đầy phiền phức, càng rắc rối trong bối cảnh Ngũ Lăng quốc. Danh tiếng của Hồ Tân Phong trong Hoành Độ bang có ai biết đến [?]?
 
-Tùy Cảnh Rừng trầm ngâm suy nghĩ, ném vài nhánh khô vào đống lửa, định hỏi tại sao tiền bối không tiêu diệt những kẻ Hồn giang giao Dương Nguyên đó, nhưng rất nhanh nàng đã hiểu ra mấu chốt trong đó, không còn hỏi thêm nữa.
+Tùy Cảnh Rừng đỏ mặt:
 
-Một khi động đến rắn, Tào Phú và Tiêu Thúc Dạ chắc chắn sẽ trở nên cẩn thận hơn.
+- Đương nhiên là có ích. Lúc đó con chỉ nghĩ đó là một trò khôi hài trong giang hồ. Nên thực ra trong lòng con vẫn có chút nghi ngờ tiền bối. Đó là lý do con cố tình không mở miệng mượn tiền.
 
-Tùy Cảnh Rừng lại định hỏi tại sao ban đầu ở Trà Mã cổ đạo không g**t ch*t hai người kia, nhưng nàng nhanh chóng tự đưa ra câu trả lời.
+Trần Bình An nói:
+
+- Hồ Tân Phong sợ rước họa, không muốn vạch trần thân phận Dương Nguyên, điều đó thể hiện sự bình tĩnh của hắn. Sự cảnh giác của các ngươi cũng đúng. Đó là kinh nghiệm của người từng trải, đã phải trả giá bằng mạng sống. Lúc ấy ta chỉ liếc qua ánh mắt của lão thị lang, thấy ta không mở miệng vay tiền, ông như trút được gánh nặng. Đó không phải chuyện gì quá quan trọng, là lẽ thường. Nhưng Tùy Tân Vũ là người có học vấn, từng ở vị trí cao, mang tri thức thánh hiền, lại phụng sự đất nước.
+
+Nói đến đây, Trần Bình An giơ hai ngón tay cái lên, nhẹ nhàng xoay tròn rồi dừng lại, như đưa một quân cờ vào bàn:
+
+- Thánh nhân từng nói, không có lòng trắc ẩn thì không phải người. Ngươi nghĩ Tùy Tân Vũ, cha ngươi, có chút lòng trắc ẩn nào không? Ngươi là con gái ông, hẳn hiểu tính tình ông hơn ta.
+
+Tùy Cảnh Rừng lắc đầu, cười khổ:
+
+- Không có.
+
+Nàng lầm bầm:
+
+- Thật sự không có.
+
+- Vậy cho thấy một người đi chậm, nhìn nhiều nghĩ nhiều thì thật sự là thanh kiếm hai lưỡi. Nhìn thấy nhiều người nhiều chuyện, cũng chính là như vậy.
+
+Người nọ có vẻ quen với điều này, ngẩng đầu nhìn xa xăm, nhẹ nhàng nói:
+
+- Trong khoảnh khắc sinh tử, ta luôn tin ai cũng muốn sống. Cơn ác bất ngờ bùng phát như núi, cũng dễ hiểu. Nhưng sẽ có những người, có thể không nhiều, nhưng chắc chắn có, dù biết rõ cái chết sắp đến cũng vẫn thắp lên những ánh sáng lấp lánh.
+
+- Ở bên đình nghỉ chân kia, cũng như những chuyện xảy ra sau đó, ta đang chờ.
+
+- Chỉ cần ta tìm thấy một ngọn đèn dầu, dù chỉ một chút ánh sáng, dù nó bị người ta dập tắt ngay.
+
+- Nhưng trong mắt ta, những người này, dù chỉ một ngọn đèn dầu cũng có thể tỏa sáng cùng nhật nguyệt.
+
+Trần Bình An nhìn Tùy Cảnh Rừng:
+
+- Lần đầu, nếu Hồ Tân Phong dốc sức liều mạng vì lý tưởng giang hồ, không tiếc mạng làm một việc nhìn có vẻ vô lý, thì ta cũng không cần xem ván này diễn tiếp ra sao, lúc đó ta sẽ ra tay. Lần thứ hai, nếu cha ngươi dù chỉ đứng nhìn mà có chút lòng trắc ẩn, không ngồi yên quở trách ta, thì ta cũng sẽ không đứng ngoài mà chọn không ra tay.
+
+Trần Bình An cười:
+
+- Ngược lại Hồ Tân Phong đã khiến ta bất ngờ. Sau khi chia tay các ngươi ta tìm được hắn. Một lần là trước lúc chết, hắn cầu xin ta đừng làm hại người vô tội. Một lần khác là hắn hỏi ta bốn người các ngươi có đáng chết không, rồi khen Tùy Tân Vũ là quan viên thật sự xuất sắc, cũng là bằng hữu. Cuối cùng hắn kể ta nghe những chuyện hành hiệp của mình thuở trước, rất thú vị.
+
+Tùy Cảnh Rừng nhẹ giọng hỏi:
+
+- Nhưng dù sao đi nữa, vì sao tiền bối đã thất vọng mà vẫn cố bảo vệ chúng con?
+
+- Đạo gia từng nói, họa phúc không cửa, chỉ do người tự gọi; Phật gia nói, hôm qua gieo nhân, hôm nay gặt quả, cũng không sai. Nhưng trên đời có rất nhiều người được xem như thần tiên mà thực ra không phải người tu đạo chân chính. Rất khó truyền đạo lý cho họ.
+
+Trần Bình An nói:
+
+- Các ngươi bị vướng ngay trong cái đình nghỉ chân ấy, là kẻ yếu. Ta vừa vặn gặp, lại nghĩ kỹ thì thấy các ngươi cũng có sức tự bảo vệ, nên ta mới không ra tay. Nhưng trong hoàn cảnh này, sinh tử của các ngươi ngoài ra, nếu phải chịu bất kỳ nỗi khổ nào, như hành trình mưa gió, như lo lắng chờ đợi, hay như bị người ta chém một đao vào lưng ngựa, thì đều là tự mình tìm đến, là công bằng trả lại cho các ngươi. Từ từ mà nhìn, điều đó không hoàn toàn là chuyện xấu. Dù sao các ngươi vẫn còn sống, còn nhiều kẻ yếu khác có lý do tồn tại hơn các ngươi. Nói cho cùng, cái chết rồi cũng sẽ đến.
+
+Kẻ yếu quá nghiêm khắc với người cao hơn, Trần Bình An thấy không sao, đó là lẽ thường. Dù nhiều người mạnh hơn che chở kẻ yếu mà không nhận được chút biết ơn, Trần Bình An hôm nay cũng không thấy phiền gì.
+
+Tùy gia trải qua một hồi, chịu một cơn thiên kiếp biển mây, Trần Bình An không bao giờ hối tiếc quyết định của mình [?].
+
+Bởi trong những ngõ ngách của Tùy gia, có thể sẽ có Trần Bình An, có thể có Lưu Tiện Dương, đang lặng lẽ lớn lên.
+
+Nói đến những tai họa tồn tại hàng nghìn năm, như thế giới này, như lòng người, thì rất khó sửa. Mọi người nên thông minh hơn, sống lâu hơn một chút, không cần từ thiện mà khổ mình. Thực ra lại chính là phải chấp nhận ý trời, ác ác tương sinh, thời gian tuần hoàn mãi, sớm muộn con người cũng phải trả giá cho những gì đã làm.
+
+Tùy Cảnh Rừng trầm ngâm, ném vài cành khô vào đống lửa, định hỏi tại sao tiền bối không diệt đám Hồn Giang Giao Dương Nguyên, nhưng rất nhanh nàng hiểu ra mấu chốt, không hỏi thêm.
+
+Một khi động đến rắn, Tào Phú và Tiêu Thúc Dạ chắc chắn sẽ cẩn thận hơn.
+
+Tùy Cảnh Rừng lại định hỏi tại sao ban đầu ở Trà Mã cổ đạo không giết hai người kia, nhưng nàng nhanh chóng tự có câu trả lời.
 
 Sao lại như vậy?
 
 Hai người đó thiện ác cụ thể ra sao?
 
-Tùy Cảnh Rừng đưa tay nắn huyệt Thái Dương.
+Tùy Cảnh Rừng đưa tay xoa huyệt thái dương.
 
-Nhiều chuyện, nàng đều nghe rõ, nhưng lại cảm thấy hơi đau đầu, trong đầu một mớ rối rắm: thực sự tu hành như thế thì phải như vậy sao? Nếu có được sức mạnh như tiền bối, sao còn phải lằng nhằng? Nếu lâm vào tình thế kịp thời cần xuất thủ, lại không thể phân rõ thiện ác, sao còn không muốn dùng đạo pháp để cứu người hay giết chóc?
+Nhiều chuyện nàng nghe rõ, nhưng thấy hơi đau đầu, trong đầu một mớ rối rắm: tu hành thật sự phải như thế sao? Nếu có sức mạnh như tiền bối, sao còn phải lằng nhằng? Nếu gặp lúc cần ra tay, lại không phân rõ thiện ác, sao không dùng đạo pháp cứu người hay giết người?
 
-Người nọ như hiểu rõ tâm tư của Tùy Cảnh Rừng, mỉm cười nói: "Chờ đến khi ngươi quen với việc đó, nhìn thấy càng nhiều người và sự việc, thì khi hành động se có sự chính xác, không chỉ không rườm rà mà cũng rất nhanh, nhanh đến mức không thể tin."
+Người nọ như hiểu tâm tư Tùy Cảnh Rừng, mỉm cười:
 
-Hắn chỉ vào bàn cờ: "Nếu như Dương Nguyên vừa đặt chân vào đình nghỉ chân, lập tức sẽ bị đánh chết, hoặc lúc đó mà ta không thể nhìn thấu hành động của Phó Trăn ngăn cản Hồ Tân Phong, thì ta cũng không thể nhìn xa hơn. Hãy tin tưởng ta, Phó Trăn và Hồ Tân Phong, họ không biết mình sẽ chết như thế nào."
+- Đợi đến khi ngươi quen việc, thấy nhiều người nhiều chuyện hơn, thì khi hành động sẽ chính xác, không chỉ không rườm rà mà còn rất nhanh, nhanh đến khó tin.
 
-Trần Bình An nhìn về phía Tùy Cảnh Rừng, thấy nàng mỉm cười gật đầu.
+Hắn chỉ vào bàn cờ:
 
-Trước đó cô quỳ trên con đường, một lần nữa mở miệng cầu xin, "Tùy Cảnh Rừng muốn cùng tiền bối học hỏi thuật pháp tiên gia!"
+- Nếu Dương Nguyên vừa bước vào đình đã bị đánh chết, hoặc lúc đó ta không nhìn thấu hành động của Phó Trăn ngăn Hồ Tân Phong, thì ta cũng không nhìn xa hơn được. Hãy tin ta, Phó Trăn và Hồ Tân Phong không biết mình sẽ chết thế nào [?].
 
-Hắn đặt ra hai câu hỏi: "Dựa vào cái gì? Vì sao?"
+Trần Bình An nhìn Tùy Cảnh Rừng, thấy nàng mỉm cười gật đầu.
 
-"Ta từ nhỏ đã có duyên bên người, có thiên phú về tu hành, có cao nhân ban tặng bảo vật tiên gia, là trời sinh người tu đạo, chỉ là còn thiếu thầy giỏi chỉ đường. Nếu có thể tu thành tiên pháp, ta sẽ đồng hành cùng tiền bối trên giang hồ!"
+Lúc trước nàng quỳ trên đường, lần nữa mở miệng cầu xin:
 
-Hai câu trả lời, một cái không sai, một cái vẫn rất thông minh.
+- Tùy Cảnh Rừng muốn học tiên gia thuật pháp với tiền bối!
 
-Vì vậy, Trần Bình An có ý định để Tùy Cảnh Rừng đi tìm Thôi Đông Sơn, theo hắn tu hành. Hắn biết rõ làm thế nào để dạy nàng, không chỉ là truyền thụ tiên gia thuật pháp mà còn là cách sống.
+Hắn đặt hai câu hỏi:
 
-Tùy Cảnh Rừng có thiên phú ra sao, Trần Bình An không dám thốt ra những điều không phải, nhưng tâm trí của nàng thực sự không tầm thường. Đặc biệt là vận may đánh bạc của nàng, nhiều lần đều được như ý. Điều đó không chỉ đơn thuần là hồng phúc hay vận khí đặc biệt mà còn là do... tài nghệ đánh bạc.
+- Dựa vào đâu? Vì sao?
 
-Tuy nhiên, lý do Trần Bình An muốn Tùy Cảnh Rừng tìm Thôi Đông Sơn không chỉ có thế.
+- Con từ nhỏ đã có duyên bên mình, có thiên phú tu hành, có cao nhân ban tặng bảo vật tiên gia, là người tu đạo bẩm sinh, chỉ thiếu thầy giỏi chỉ đường. Nếu tu thành tiên pháp, con sẽ cùng tiền bối đồng hành trên giang hồ!
 
-Sau vài ván cờ, Trần Bình An có nhiều điều muốn đưa cho Thôi Đông Sơn, coi như đáp án cho những câu hỏi mà học sinh đã từng hỏi thầy.
+Hai câu trả lời, một câu không sai, một câu vẫn rất thông minh.
 
-Hắn lấy phi kiếm Mười lăm ra, nhẹ nhàng vê trong tay, rồi bắt đầu khắc lên một cây nhỏ như gậy leo núi, cúi đầu xoay người, mỗi nhát dao đều để lại dấu vết.
+Vì vậy Trần Bình An có ý để Tùy Cảnh Rừng đi tìm Thôi Đông Sơn, theo hắn tu hành. Hắn biết rõ phải dạy nàng thế nào, không chỉ truyền tiên gia thuật pháp mà còn cách sống.
 
-Trong tầm nhìn của Tùy Cảnh Rừng, các vết khắc như in vào chỗ cũ.
+Tùy Cảnh Rừng thiên phú ra sao, Trần Bình An không dám nói bừa, nhưng tâm trí nàng thật sự không tầm thường. Nhất là vận may đánh bạc của nàng, nhiều lần đều như ý. Điều đó không chỉ là hồng phúc hay vận khí đặc biệt mà còn do tài nghệ đánh bạc.
 
-Nàng im lặng, chỉ nhìn trân trân vào người đang khắc sâu.
+Có điều lý do Trần Bình An muốn Tùy Cảnh Rừng tìm Thôi Đông Sơn không chỉ có thế.
 
-Một nén nhang sau, đôi mắt Tùy Cảnh Rừng có chút cay, nàng dụi mắt.
+Sau vài ván cờ, Trần Bình An có nhiều điều muốn đưa cho Thôi Đông Sơn, coi như đáp án cho những câu hỏi mà học trò từng hỏi thầy.
 
-Khoảng một lúc lâu sau, Trần Bình An thu hồi phi kiếm, kiếm quang lóe lên rồi biến mất tại mi tâm hắn.
+Hắn lấy phi kiếm Mười Lăm ra, nhẹ nhàng vê trong tay, rồi bắt đầu khắc lên một cây gậy leo núi nhỏ [?], cúi đầu xoay người, mỗi nhát dao đều để lại dấu vết.
 
-Hắn nghiêm mặt nói: "Sau khi tìm được Thôi Đông Sơn, ngươi hãy nói với hắn rằng ta có một số suy nghĩ về đáp án của vấn đề đó. Nhưng trước tiên, cần phải có hai điều kiện tiên quyết: Một là việc mà ngươi tìm kiếm phải tuyệt đối chính xác. Hai là, nếu có sai sót thì cần phải nhận biết và sửa chữa. Về phần cách sửa chữa như thế nào, cách nhận ra sai sót và sửa sai, đáp án đó sẽ nằm trên cây gậy leo núi này. Ta hy vọng hắn có thể nhìn nhận một cách tinh tế hơn, làm tốt hơn. Một cái một, tức là vô số một, tức là thiên địa đại đạo, nhân gian chúng sinh. Hãy để hắn nhìn từ những điều hắn có thể thấy và cảm nhận. Không phải chỉ dừng lại ở kết quả chính xác, mà trong mỗi nhầm lẫn nhỏ cũng có thể trở thành cơ hội để học hỏi. Dưới đời này không có chuyện gì tốt như vậy, đâu chỉ cần một lần nhìn kỹ, hơn nữa cần phải xem xét thật kỹ. Nếu không, cái gọi là kết quả chính xác chỉ đơn thuần là kết quả của tính toán ngắn hạn, không phải là con đường đúng đắn bền lâu."
+Trong tầm mắt Tùy Cảnh Rừng, các vết khắc như in vào chỗ cũ.
 
-Tùy Cảnh Rừng không hiểu lắm, nhưng vẫn gật đầu mạnh.
+Nàng im lặng, chỉ nhìn trân trân người đang khắc sâu.
 
-Trần Bình An không vội vàng đưa cây gậy leo núi cho nàng, nhẹ nhàng chống tay trên gậy, ngửa đầu nhìn về bầu trời, nói: "Tu hành không chỉ đơn thuần là tìm kiếm cơ duyên, sở hữu bảo vật hay học tập thuật pháp. Quan trọng hơn, chính là rèn luyện đạo tâm. Ngươi tu hành theo cách tự nhiên, cũng có thể dùng điều này để mài giũa tâm cảnh. Khi ngươi cảm ngộ thánh hiền đạo lý, hãy càng hiểu rõ hơn về sự phức tạp của nhân tâm. Thân người như một tiểu thiên địa, tâm tư ý niệm không phải lúc nào cũng nhất quán. Mặc dù điều này ban đầu rất khó, nhưng một khi đã vượt qua được, may mắn sẽ đến. Giống như xây dựng một cầu trường sinh thứ hai, sẽ đem lại lợi ích suốt đời."
+Một nén nhang sau, mắt Tùy Cảnh Rừng hơi cay, nàng dụi mắt.
 
-Tùy Cảnh Rừng nhìn thấy người kia chỉ ngẩng đầu nhìn lên bầu trời đêm.
+Hồi lâu sau, Trần Bình An thu phi kiếm, kiếm quang lóe lên rồi biến mất nơi mi tâm hắn.
 
-Bất ngờ, Trần Bình An hỏi: "Trên đường đi đến bến đò tiên gia ở quốc gia Lục Oanh, về an nguy của Tùy gia, ngươi có cảm thấy còn thiếu gì không? Nếu như ngươi muốn nói, có thể chia sẻ, đừng ngần ngại làm phiền ta. Dù có cần quay lại Ngũ Lăng quốc cũng không sao."
+Hắn nghiêm mặt nói:
 
-Trần Bình An khép hai ngón tay lại, nhẹ nhàng gõ vào hai nơi trên gậy, nói: "Khi đã trói buộc và thiến cắt, đó chính là một chuyện. Làm thế nào để thực hiện tốt nhất, vẫn nhìn nhau mà làm, cũng là một loại tu hành. Nếu kéo hai đầu quá xa, chưa chắc đã làm tốt. Đó là quy luật của nhân lực và đạo lý."
+- Sau khi tìm được Thôi Đông Sơn, ngươi nói với hắn rằng ta có vài suy nghĩ về đáp án của vấn đề đó. Nhưng trước tiên cần hai điều kiện tiên quyết: một là việc ngươi tìm kiếm phải tuyệt đối chính xác; hai là nếu có sai sót thì phải nhận ra và sửa. Còn sửa thế nào, nhận ra sai sót và sửa sai thế nào, đáp án nằm trên cây gậy leo núi này. Ta mong hắn nhìn tinh tế hơn, làm tốt hơn. Một là một, tức là vô số cái một, tức là thiên địa đại đạo, nhân gian chúng sinh. Hãy để hắn nhìn từ những điều hắn thấy được và cảm nhận được. Không chỉ dừng ở kết quả chính xác, trong mỗi sai lầm nhỏ cũng có thể thành cơ hội học hỏi. Dưới đời này không có chuyện tốt như vậy, đâu chỉ cần nhìn kỹ một lần, mà còn phải xem xét thật kỹ. Nếu không, cái gọi là kết quả chính xác chỉ là kết quả của tính toán ngắn hạn, không phải con đường đúng đắn bền lâu.
 
-Tùy Cảnh Rừng nhớ lại khi nàng chuẩn bị lên núi, nàng cười lắc đầu: "Tiền bối suy nghĩ xa, kể cả Vương Độn tiền bối cũng nằm trong đó, ta không còn gì để nói."
+Tùy Cảnh Rừng không hiểu lắm, nhưng vẫn gật đầu thật mạnh.
 
-Trần Bình An vẫy tay: "Không cần phải vội kết luận, dưới đời này không có ai hoàn hảo không có sơ hở. Ngươi không cần bởi vì hôm nay ta có tu vi cao mà nghĩ ta luôn đúng. Nếu ta là Tùy Cảnh Rừng, khi ngồi nghỉ ngơi lại không dành tâm tư, không chỉ là chuyện dễ, mà việc thoát khỏi một tình huống khó khăn cũng sẽ không khó hơn so với ngươi."
+Trần Bình An không vội đưa gậy leo núi cho nàng, nhẹ nhàng chống tay lên gậy, ngửa đầu nhìn trời, nói:
 
-Cuối cùng, ánh mắt hắn thu hồi lại, nhìn Tùy Cảnh Rừng với ánh sáng thanh khiết.
+- Tu hành không chỉ là tìm cơ duyên, sở hữu bảo vật hay học thuật pháp. Quan trọng hơn là rèn luyện đạo tâm. Ngươi tu hành theo cách tự nhiên, cũng có thể dùng điều này để mài giũa tâm cảnh. Khi cảm ngộ đạo lý thánh hiền, hãy hiểu rõ hơn sự phức tạp của lòng người. Thân người như một tiểu thiên địa, tâm tư ý niệm không phải lúc nào cũng nhất quán. Điều này ban đầu rất khó, nhưng một khi vượt qua được, may mắn sẽ đến. Giống như xây cây cầu trường sinh thứ hai, sẽ mang lại lợi ích suốt đời.
 
-Tùy Cảnh Rừng chưa bao giờ nhìn thấy ánh mắt nào từ nam nhân nào sáng ngời như vậy, nàng mỉm cười nói: "Đoạn đường này có lẽ còn dài, ngươi nói với ta đạo lý, ta sẽ lắng nghe. Dù cho ngươi có đúng hay không, ta cũng sẵn lòng tiếp nhận. Nếu đúng, ngươi chính là đúng, ta sẽ nhận sai. Trong tương lai, nếu có cơ hội, ngươi sẽ biết, ta có muốn nói những lời khách sáo với ngươi hay không."
+Tùy Cảnh Rừng thấy người kia chỉ ngẩng đầu nhìn lên bầu trời đêm.
 
-"Dù vậy, có ta ở đây, cho dù chỉ mình ta, ngươi cũng không thể nói rằng tất cả đạo lý dưới đời này đều nằm trong quyền lực của những người áp đặt. Nếu có ai nói với ngươi rằng đạo lý như vậy chỉ có một mình quyền lực, đừng tin họ. Đó là những người đã trải nghiệm đủ nỗi khổ sở mà vẫn chưa thấy đủ. Bởi vì những người này thực tế sống trong vô số vô hình quy luật mà không hề hay biết."
+Bất ngờ, Trần Bình An hỏi:
 
-"Hơn nữa, những người như ta vẫn còn rất nhiều, chỉ là ngươi chưa gặp được hoặc đã gặp rồi mà không nhận ra. Chính vì họ phân rõ phải trái, làm việc âm thầm, ngươi mới không cảm nhận được."
+- Trên đường đến bến đò tiên gia ở Lục Oanh quốc, về an nguy của Tùy gia, ngươi thấy còn thiếu gì không? Nếu muốn nói thì cứ nói, đừng ngại làm phiền ta. Dù phải quay lại Ngũ Lăng quốc cũng không sao.
 
-Người nọ đứng dậy, hai tay chống vào gậy leo núi, nhìn về núi sông xa xa. "Ta hy vọng rằng dù là mười năm hay một trăm năm sau, Tùy Cảnh Rừng vẫn có thể trở thành người có thể ngồi nghỉ bên đình và nguyện ý để lại một bảo vật bảo vệ tính mạng cho người khác. Con người cũng vậy, trong nhiều ngọn đèn dầu nhỏ, dù cho tương lai ngươi đã trở thành một tu sĩ trên núi, cũng hãy nhớ rằng, khi ngươi quan sát, dù chúng nó chỉ sáng một cách riêng lẻ, nhưng khi tất cả đều thắp sáng, đó mới chính là sự phối hợp rộng lớn của nhân gian. Chúng ta hôm nay có những người tu đạo, rất nhiều người phàm tục, chính nhờ những ngọn đèn dầu nhỏ này mà từ những ngõ hẹp đến những đường lớn, từ các khu phố đến các biệt thự, từ những nơi thấp đến những nơi cao, đã hiện lên từng người thực sự mạnh mẽ. Họ ra tay và chấp nhận lẽ phải, chính là những người đã mở đường cho những thế hệ sau, lặng lẽ che chở cho người yếu đuối, và chính vì vậy mà chúng ta mới có thể bước đến hôm nay."
+Trần Bình An khép hai ngón tay, nhẹ gõ vào hai chỗ trên gậy:
 
-Người nọ quay đầu lại, cười nói: "Còn nói đến việc giữa người thông minh và người xấu, có khó gì không? Ta thấy không khó, khó ở chỗ nào? Có phải khó vì ta đã biết lòng dạ hiểm ác của con người mà vẫn muốn trả giá cho lẽ phải?"
+- Khi đã trói buộc và cắt bỏ, đó là một chuyện. Làm thế nào để thực hiện tốt nhất, vẫn nhìn nhau mà làm, cũng là một loại tu hành. Nếu kéo hai đầu quá xa thì chưa chắc làm tốt. Đó là quy luật của nhân lực và đạo lý [?].
 
-Tùy Cảnh Rừng đỏ bừng cả khuôn mặt, "Tiền bối, ta vẫn chưa xứng, còn kém rất xa!"
+Tùy Cảnh Rừng nhớ lại lúc mình chuẩn bị lên núi, cười lắc đầu:
 
-Người nọ khẽ cười: "Ừ, ta nhận lời khen này."
+- Tiền bối nghĩ xa, đến cả Vương Độn tiền bối cũng nằm trong đó, con không còn gì để nói.
+
+Trần Bình An vẫy tay:
+
+- Đừng vội kết luận. Dưới đời này không ai hoàn hảo không sơ hở. Ngươi không cần vì hôm nay ta tu vi cao mà nghĩ ta luôn đúng. Nếu ta là Tùy Cảnh Rừng, khi ngồi nghỉ ngơi mà không để tâm, không chỉ là chuyện dễ, việc thoát khỏi tình thế khó khăn cũng chưa chắc dễ hơn ngươi.
+
+Cuối cùng ánh mắt hắn thu lại, nhìn Tùy Cảnh Rừng với ánh sáng trong trẻo.
+
+Tùy Cảnh Rừng chưa từng thấy ánh mắt nam nhân nào sáng như vậy, nàng mỉm cười:
+
+- Đoạn đường này có lẽ còn dài, tiền bối nói đạo lý với con, con sẽ lắng nghe. Dù tiền bối đúng hay không, con cũng sẵn lòng tiếp nhận. Nếu đúng, tiền bối đúng, con nhận sai. Sau này nếu có cơ hội, tiền bối sẽ biết con có muốn nói lời khách sáo với tiền bối hay không.
+
+- Dù vậy, có ta ở đây, dù chỉ mình ta, ngươi cũng không thể nói mọi đạo lý dưới đời này đều nằm trong tay quyền lực của kẻ áp đặt. Nếu ai nói với ngươi đạo lý chỉ có một mình quyền lực, đừng tin. Đó là những người đã nếm đủ khổ sở mà vẫn chưa thấy đủ. Bởi họ thực tế sống trong vô số quy luật vô hình mà không hay biết.
+
+- Hơn nữa, những người như ta còn rất nhiều, chỉ là ngươi chưa gặp hoặc đã gặp mà không nhận ra. Chính vì họ phân rõ phải trái, làm việc âm thầm, nên ngươi mới không cảm nhận được.
+
+Người nọ đứng dậy, hai tay chống lên gậy leo núi, nhìn núi sông xa xa:
+
+- Ta hy vọng dù mười năm hay trăm năm sau, Tùy Cảnh Rừng vẫn có thể là người ngồi nghỉ bên đình và nguyện để lại một món bảo vật giữ mạng cho người khác. Con người cũng vậy, trong nhiều ngọn đèn dầu nhỏ, dù tương lai ngươi đã là tu sĩ trên núi, cũng hãy nhớ rằng khi ngươi quan sát, những ngọn đèn tuy sáng riêng lẻ, nhưng khi tất cả cùng thắp lên, đó mới là sự hòa hợp rộng lớn của nhân gian. Hôm nay chúng ta có tu sĩ, có rất nhiều người phàm, chính nhờ những ngọn đèn dầu nhỏ này mà từ ngõ hẹp đến đường lớn, từ phố xá đến biệt thự, từ chỗ thấp đến chỗ cao, đã hiện ra từng người thực sự mạnh mẽ. Họ ra tay và chấp nhận lẽ phải, chính là những người đã mở đường cho thế hệ sau, lặng lẽ che chở người yếu, nhờ vậy chúng ta mới bước được đến hôm nay.
+
+Người nọ quay đầu lại, cười nói:
+
+- Còn chuyện giữa người thông minh và người xấu, có gì khó? Ta thấy không khó. Khó ở chỗ nào? Có phải khó vì ta đã biết lòng dạ hiểm ác của con người mà vẫn muốn trả giá cho lẽ phải?
+
+Mặt Tùy Cảnh Rừng đỏ bừng:
+
+- Tiền bối, con vẫn chưa xứng, còn kém rất xa!
+
+Người nọ khẽ cười:
+
+- Ừ, ta nhận lời khen này.
 
 Tùy Cảnh Rừng vừa ngạc nhiên vừa vui.
 
-Người nọ lại tiếp tục nhìn về bầu trời đêm, cằm đặt lên hai tay, nhẹ nhàng nói: "Ngươi cũng giúp ta giải quyết một khúc mắc, ta gửi lời cảm ơn ngươi, đó chính là làm thế nào để hòa hợp với những người phụ nữ xinh đẹp. Vì vậy, ta sẽ tiếp tục tiến bộ trong việc trưởng thành của bản thân, để trở thành mạnh mẽ hơn. Dưới đời này, có không ít mỹ nhân, ta sẽ không cảm thấy e ngại khi nhìn nhiều người họ."
+Người nọ lại nhìn lên bầu trời đêm, cằm đặt trên hai tay, nhẹ nhàng nói:
 
-"À, như vậy cũng là thành công trong việc tu tâm rồi."
+- Ngươi cũng giúp ta giải một khúc mắc, ta cảm ơn ngươi, đó là làm thế nào để hòa hợp với những cô gái xinh đẹp. Vì vậy ta sẽ tiếp tục tiến bộ trong việc trưởng thành của bản thân, để mạnh mẽ hơn. Dưới đời này có không ít mỹ nhân, ta sẽ không e ngại khi nhìn nhiều người trong số họ [?].
 
-Tùy Cảnh Rừng do dự một chút, cảm thấy cần phải nói ra điều gì, cuối cùng nói: "Tiền bối, những lời này, để trong lòng là đủ, đừng để ý đến việc nói ra với tâm hồn phụ nữ, điều đó không tốt."
+- À, như vậy cũng là thành công trong việc tu tâm rồi.
 
-Người nọ quay đầu lại, nghi ngờ: "Không thể nói sao?"
+Tùy Cảnh Rừng do dự một chút, thấy cần nói điều gì đó, cuối cùng nói:
 
-Tùy Cảnh Rừng gật đầu, khẳng định: "Không thể nói!"
+- Tiền bối, những lời này để trong lòng là đủ, đừng nói ra trước mặt nữ tử, như vậy không tốt.
+
+Người nọ quay đầu lại, nghi ngờ:
+
+- Không thể nói sao?
+
+Tùy Cảnh Rừng gật đầu, khẳng định:
+
+- Không thể nói!
 
 Người nọ tựa như có chút bối rối.
 
-Tùy Cảnh Rừng vui vẻ, "Tiền bối, ta cũng được xem là một trong những nữ tử xinh đẹp, đúng không?"
+Tùy Cảnh Rừng vui vẻ:
 
-Người nọ không quay đầu lại, có vẻ trong tâm trạng không tồi, lần đầu tiên trêu ghẹo, "Đừng làm hỏng lẽ đạo của ta."
+- Tiền bối, con cũng được xem là một trong những nữ tử xinh đẹp, đúng không?
+
+Người nọ không quay đầu lại, có vẻ tâm tình không tồi, lần đầu trêu ghẹo:
+
+- Đừng làm hỏng đạo tâm của ta.
 
 Tùy Cảnh Rừng không dám tiến thêm một bước.
 
-Nhưng so với bản thân nàng, từ "Ngọc Tùy gia" trên bản đồ mười nước, cùng với ba mỹ nhân tuyệt sắc, nàng cũng cảm thấy đây là điều đáng tự hào.
+Nhưng so với bản thân mình, "Tùy gia ngọc nhân" trên bảng mười nước, cùng ba mỹ nhân tuyệt sắc kia, nàng cũng thấy đây là điều đáng tự hào.
 
-Nàng tâm trạng không tĩnh, lại cảm thấy hơi mệt mỏi, nên bắt đầu thò tay sưởi ấm. Một lát sau, nàng quay lại nhìn cây gậy leo núi, thấy nó vẫn nằm tại chỗ cũ, trong khi người nọ lại chậm rãi luyện quyền.
+Tâm trạng nàng không yên, lại hơi mệt, nên bắt đầu đưa tay sưởi ấm. Một lát sau, nàng quay lại nhìn cây gậy leo núi, thấy nó vẫn nằm nguyên chỗ cũ, còn người kia thì đang chậm rãi luyện quyền.
 
-Tùy Cảnh Rừng dụi mắt hỏi: "Sau khi đến bến đò tiên gia, liệu tiền bối có cùng trở về phía nam Hài Cốt ghềnh không?"
+Tùy Cảnh Rừng dụi mắt hỏi:
 
-Người nọ vừa ra quyền vừa lắc đầu: "Không, vậy nên trên thuyền, ngươi cần phải cẩn thận một chút. Dĩ nhiên, ta sẽ cố gắng giúp ngươi giảm bớt một số bất ngờ, nhưng con đường tu hành này, vẫn cần dựa vào chính mình."
+- Sau khi đến bến đò tiên gia, tiền bối có cùng trở về phía nam Hài Cốt ghềnh không?
+
+Người nọ vừa ra quyền vừa lắc đầu:
+
+- Không, cho nên trên thuyền ngươi phải cẩn thận một chút. Đương nhiên ta sẽ cố giúp ngươi giảm bớt vài bất ngờ, nhưng đường tu hành này vẫn phải dựa vào chính mình.
 
 Tùy Cảnh Rừng có điều muốn nói nhưng lại thôi.
 
-Người kia nói: "Cây gậy leo núi này, liên quan đến mạng sống của ngươi. Nếu có lẽ phải lựa chọn giữa việc giữ hay bỏ, hãy đừng do dự, mạng sống là quan trọng nhất."
+Người kia nói:
 
-Tùy Cảnh Rừng bất đắc dĩ, "Tiền bối, ngươi biết mọi chuyện sao?"
+- Cây gậy leo núi này liên quan đến mạng sống của ngươi. Nếu phải chọn giữa giữ và bỏ, đừng do dự, mạng sống là quan trọng nhất.
 
-Người nọ suy nghĩ một chút, ngay lập tức hỏi: "Ngươi năm nay ba mươi mấy tuổi rồi?"
+Tùy Cảnh Rừng bất đắc dĩ:
 
-Tùy Cảnh Rừng ngạc nhiên không nói nên lời, cuối cùng chỉ biết quay đầu đi và ném những cành khô vào đống lửa.
+- Tiền bối, ngài biết hết mọi chuyện sao?
+
+Người nọ suy nghĩ một chút, rồi hỏi ngay:
+
+- Ngươi năm nay ba mươi mấy tuổi rồi?
+
+Tùy Cảnh Rừng ngạc nhiên không nói nên lời, cuối cùng chỉ biết quay đầu đi, ném những cành khô vào đống lửa.

@@ -1,413 +1,535 @@
 # Chương 579: Sơn thủy xa xôi
 
-Một bộ thanh sam đi qua Lan Phòng quốc, hành trình bắc du.
+Một người mặc thanh sam đi qua Lan Phòng quốc, tiếp tục bắc du.
 
-Lan Phòng quốc dồi dào hoa lan quý giá, quốc gia này như đang say mê, không tiếc tiền bạc, của cải phong phú. Giá cả hoa lan trên thị trường gần như cao ngất ngưởng, chỉ còn lại vài cọng.
+Lan Phòng quốc sản nhiều hoa lan quý, cả nước như say như cuồng vì lan, vung tiền không tiếc tay. Giá lan trên thị trường cao ngất trời, có gốc chỉ vài cọng lá mà đắt đến khó tin [?].
 
-Ngoài điều đó ra, quốc gia này không có đặc thù gì nổi bật, nhưng một số tập tục đã in sâu vào trí nhớ người dân. Chẳng hạn, phụ nữ thường ném tiền để cầu may, dân chúng, dù là giàu có hay nghèo hèn, đều thích thả cá phóng sinh. Tại đây, phong tục thịnh hành cả trong triều đình lẫn dân gian; tuy nhiên, việc phóng sinh lại có sự phân chia rõ ràng giữa thượng du và hạ du. Ở thượng du, người ta thường thành kính thả cá, trong khi hạ du, nhiều người lại đi bắt cá và rùa. Ngoài ra, có cả những người kéo thuyền, bất kể là phụ nữ thanh tú hay đầu trần chân đất, đều phơi mình dưới ánh nắng mặt trời.
+Ngoài chuyện đó ra, nước này không có gì đặc biệt, chỉ có vài tập tục khiến người ta nhớ lâu. Chẳng hạn phụ nữ hay gieo tiền xem quẻ, còn dân chúng, bất kể giàu nghèo, đều thích phóng sinh. Phong tục này thịnh hành cả trong triều lẫn ngoài dân gian, nhưng thượng du và hạ du lại khác hẳn nhau: ở thượng du người ta thành kính thả cá, thì ở hạ du nhiều người giăng sẵn lưới bắt cá bắt rùa. Lại có những người kéo thuyền, kể cả nữ tử thanh tú, cũng đầu trần chân đất, phơi mình dưới nắng [?].
 
-Tại những nơi bị hạn hán úng lụt, người dân cũng hay dùng giấy Long vương để dạo phố. Điều này không chỉ đơn thuần để cầu mưa hay tránh mưa mà còn thể hiện cho sự tôn kính của họ, khi họ liên tục quất những tờ giấy Long vương cho đến khi chúng vỡ nát.
+Gặp năm hạn hán hay úng lụt, dân chúng thường làm Long vương bằng giấy đem rước khắp phố. Nhưng không chỉ cầu mưa hay cầu tạnh, người ta còn lấy roi quất Long vương giấy, quất đến khi rách nát mới thôi.
 
-Phía bắc Lan Phòng quốc là Thanh Từ quốc, nơi mà quyền lực được đặt lên hàng đầu với tôn sùng đạo gia. Đạo quán như mây, trong khi Phật môn lại bị áp bức, các chùa miếu hoàn toàn vắng vẻ.
+Phía bắc Lan Phòng quốc là Thanh Từ quốc, nơi quyền thế đặt lên hàng đầu và rất sùng đạo. Đạo quán nhiều như mây, Phật môn bị chèn ép, chùa chiền vắng tanh.
 
-Tiến xa hơn về phía bắc, ta sẽ gặp Đại Triện vương triều, là vùng đất bị Kim Phi quốc cai trị. Đặc trưng của nơi này là sự phân chia rõ ràng giữa võ thuật và văn hóa, và cảnh hỗn loạn xảy ra gần như khắp nơi. Thi thoảng ta còn bắt gặp cảnh máu chảy, nhiều nhà phú quý trẻ tuổi lại đam mê võ thuật, họ tham gia vào các cuộc đấu tranh, chẳng cần quan tâm đến ai khác.
+Xa hơn về phía bắc là Kim Phi quốc, một nước phiên thuộc của Đại Triện vương triều. Đất này trọng võ khinh văn, dân phong hung hãn, chỗ nào cũng có cảnh đánh đấm, thỉnh thoảng còn gặp cảnh máu chảy. Nhiều con em nhà giàu mê võ thuật, lao vào tranh đấu, chẳng coi ai ra gì.
 
-Kim Phi quốc có quân chủ xuất thân từ quân đội, với chính sách trọng võ khinh văn. Do vậy, trong triều đình, các văn thần thường xuyên trở về nhà với thân thể bầm dập.
+Quân chủ Kim Phi quốc xuất thân từ quân đội, chính sách lại càng trọng võ khinh văn, cho nên trong triều, văn thần thường xuyên về nhà với thân thể bầm dập.
 
-Tại một nơi không thể tin được ở Kim Phi, người dân đã quen với việc lạm dụng và chế giễu các đại học sĩ hay lễ bộ thượng thư, mà chỉ coi họ như một chủ đề tán gẫu khi rượu bia.
+Ở Kim Phi quốc có một chuyện khó tin: đại học sĩ hay lễ bộ thượng thư bị đánh, bị cười nhạo, dân chúng cũng đã quen, chỉ xem đó là chuyện phiếm trên bàn rượu.
 
-Dọc đường đi, Trần Bình An gặp phải thời tiết mưa phùn, màn mưa như tấm vải rũ xuống, tiếng mưa rơi lên tiếng gió nhẹ như tiếng chuông.
+Dọc đường đi, Trần Bình An gặp mưa phùn, màn mưa rủ xuống như tấm vải, tiếng mưa hòa với tiếng gió nhẹ như tiếng chuông.
 
-Trong rừng núi, có người đốn củi bỗng nhiên phát hiện một cây hoa lan, khiến tâm trí họ vui vẻ như điên dại. Đêm khuya, tiếng côn trùng kêu vang, ánh trăng chiếu sáng như nước, bên cạnh bếp lửa lập lòe.
+Trong rừng núi có người đốn củi tình cờ gặp được một cây lan, mừng như điên dại. Đêm khuya tiếng côn trùng rả rích, ánh trăng sáng như nước, bên cạnh là bếp lửa lập lòe.
 
-Trời sắp chuyển sang mưa dầm.
+Trời sắp vào tiết mưa dầm.
 
-Hôm nay Trần Bình An lang thang bên ngoài một khu quận thành của Kim Phi quốc. Khu vực này cũng chứa nhiều hổ dữ, nên người dân và những môn đồ quyền quý thường xuyên đến đây săn bắn. Dọc đường, hắn đã gặp nhiều nhóm người cầm đao, mang cung đi săn, tiếng hét vang lên như một trào lưu, phần lớn là những thanh niên trẻ tuổi, không ít trong đó là nữ lưu, họ đều có dáng vẻ mạnh mẽ.
+Hôm nay Trần Bình An đi tới bên ngoài một quận thành của Kim Phi quốc. Vùng này có nhiều hổ dữ, dân chúng và con em quyền quý thường đến săn bắn. Dọc đường hắn đã gặp mấy tốp người đeo đao mang cung đi săn, tiếng hò hét vang dội, gần như thành một trào lưu. Phần lớn là thanh niên trẻ tuổi, trong đó không ít nữ tử, dáng vẻ ai cũng mạnh mẽ.
 
-Vài ngày trước, Trần Bình An tận mắt chứng kiến một đám thanh niên từ kinh thành Kim Phi tụ tập ở một ngọn núi thần miếu. Họ uống rượu thả ga, đến nỗi đã lưu lại những hình vẽ kỳ quái trên tường miếu. Một vị thanh niên cao lớn đã không ngần ngại nâng một bức tượng thần lên và tuyên bố muốn thử sức với sơn thần. Còn những vị thần linh thinh lặng ad phải chứng kiến đám thanh niên này, chỉ biết thở dài ngao ngán.
+Vài ngày trước, Trần Bình An tận mắt thấy một đám con em từ kinh thành Kim Phi tụ tập ở một tòa sơn thần miếu. Bọn họ uống rượu thả ga, còn vẽ bậy lung tung lên tường miếu. Một gã cao lớn thẳng tay nhấc tượng thần lên, tuyên bố muốn so sức với sơn thần. Vị sơn thần chỉ đành lặng thinh nhìn đám người trẻ tuổi này, thở dài ngao ngán.
 
-Khi màn đêm buông xuống, Trần Bình An không vào quận thành mà rời xa con đường chính, leo núi băng rừng theo lối nhỏ. Thỉnh thoảng hắn bắt gặp bóng dáng người qua lại, đa phần là những nhân sĩ giang hồ. Trong bộ thanh sam, hắn lướt nhẹ như làn khói xanh giữa rừng núi. Vào ban đêm, khi không còn ánh đèn, hắn bất chợt dừng lại, đứng dưới một gốc cây lớn, ngước nhìn về phía xa. Một tòa núi lớn với bốn mặt đều là vách đá, ngọn đèn sáng rực, nhà cửa chật chội. Dưới chân hắn, có một cầu gỗ bằng xích sắt có thể dẫn l*n đ*nh núi.
+Trời tối, Trần Bình An không vào quận thành mà rời đường lớn, băng rừng leo núi theo lối nhỏ. Thỉnh thoảng hắn bắt gặp bóng người qua lại, đa phần là nhân sĩ giang hồ. Bộ thanh sam lướt giữa rừng núi nhẹ như một làn khói xanh. Đến lúc đêm đen không còn ánh đèn, hắn bỗng dừng bước, đứng dưới một gốc cây lớn, ngước nhìn về phía xa. Một ngọn núi lớn bốn mặt đều là vách đá, đèn đuốc sáng rực, nhà cửa san sát. Từ phía chân hắn có một cây cầu gỗ treo bằng xích sắt nối thẳng lên đỉnh núi.
 
-Đó dường như là một môn phái võ lớn, nhưng do xung quanh thiếu linh khí, nơi đây chỉ là vùng biên của các quốc gia khác mà thôi, không phải là nơi lý tưởng cho việc tu luyện.
+Trông như một môn phái võ lớn. Nhưng quanh đây linh khí thưa thớt, lại chỉ là vùng biên của các nước, không phải nơi lý tưởng để tu luyện.
 
-Trần Bình An ngồi trên cành cây, nhai một miếng bánh, trong hồ lô bên cạnh là hơn mười cân rượu Lan Phòng quốc. Hắn chưa uống nhiều còn lại khá nhiều. Hắn nhắm mắt lại để hồi phục sức lực, dù có luyện nhưng vẫn không thể hoàn toàn hóa giải hai khối trảm long đài.
+Trần Bình An ngồi trên cành cây, nhai một miếng bánh. Trong hồ lô có hơn mười cân rượu Lan Phòng quốc, hắn chưa uống nhiều nên còn lại khá nhiều. Hắn nhắm mắt dưỡng sức, tuy có luyện nhưng vẫn chưa thể hoàn toàn luyện hóa hai khối trảm long đài.
 
-Thời gian trôi qua, ánh đèn đối diện đỉnh núi dần dần tắt, chỉ còn lại những chấm sáng le lói.
+Thời gian trôi qua, ánh đèn trên đỉnh núi đối diện dần dần tắt, chỉ còn lại những chấm sáng le lói.
 
-Sáng sớm hôm sau, Trần Bình An mở mắt, hướng về phía mình, lấy bức phù mà Đỗ Du đã dạy ở Quỷ Phủ để tiếp tục tu luyện.
+Sáng sớm hôm sau, Trần Bình An mở mắt, tiếp tục tu luyện theo đạo phù mà Đỗ Du ở Quỷ Phủ đã dạy [?].
 
-Trên con đường bắc du, hắn sẽ đi từ từ, chỉ cần tới Bắc Câu Lô Châu phía đông vào mùa thu, nơi đó có con sông lớn vào đại độc. Vùng trung tâm của Bắc Câu Lô Châu cao ngất, các vật thể nghiêng về phía biển, khu vực phía bắc còn cao hơn. Tất cả Bắc Câu Lô Châu từ Hài Cốt ghềnh hướng bắc đều có đặc điểm địa lý như bậc thang. Ở phía bắc có hơn mười dòng sông lớn hội tụ về một dòng, tạo thành cái kỳ quan hiếm thấy này.
+Trên đường bắc du hắn có thể đi từ từ, chỉ cần đến mùa thu tới được phía đông Bắc Câu Lô Châu, nơi có con sông lớn chảy vào đại độc. Vùng trung tâm Bắc Câu Lô Châu cao ngất, địa thế nghiêng dần về phía biển, phía bắc còn cao hơn nữa. Toàn châu từ Hài Cốt ghềnh đi lên phía bắc đều có thế đất như bậc thang. Ở phía bắc có hơn mười con sông lớn đổ về một dòng, tạo thành kỳ quan hiếm thấy.
 
-Sau khi tập trung rèn luyện hai khối trảm long đài, Trần Bình An đặt chúng ở hai nơi mà trước đây có "Một đám kiếm khí nhỏ", phi kiếm Mùng Một và Mười Lăm lần lượt trú ngụ trong đó.
+Sau khi tập trung rèn luyện, Trần Bình An đặt hai khối trảm long đài vào hai khiếu huyệt mà trước đây "một đám kiếm khí nhỏ" từng cư ngụ [?], phi kiếm Mùng Một và Mười Lăm lần lượt trú ngụ trong đó.
 
-Mỗi lần phi kiếm va chạm với trảm long đài, ma luyện mũi kiếm phát ra tia lửa, Trần Bình An cảm thấy tâm trạng nặng nề. Dạo này hắn đi không nhanh, vì tốc độ nhỏ luyện rất chậm. Hắn khó khăn lắm mới có thể theo kịp tốc độ của Mùng Một và Mười Lăm. Khi chúng đã hấp thụ đủ trảm long đài, mới tới công đoạn tiếp theo, đó là biến chúng thành vật mà hắn tâm đắc, quá trình này tất yếu gặp nhiều nguy hiểm và khó khăn.
+Mỗi lần phi kiếm va chạm với trảm long đài, mài mũi kiếm tóe ra tia lửa, Trần Bình An lại thấy tâm tình nặng nề. Dạo này hắn đi không nhanh, vì tốc độ luyện hóa quá chậm. Hắn khó khăn lắm mới theo kịp tốc độ của Mùng Một và Mười Lăm. Đợi hai thanh phi kiếm hấp thụ đủ trảm long đài mới tới công đoạn tiếp theo, là luyện chúng thành bản mệnh vật của mình [?], quá trình này chắc chắn gặp nhiều nguy hiểm và khó khăn.
 
-Tuy nhiên, cảm giác như trở về trên Lạc Phách lầu trúc lại khiến Trần Bình An cảm thấy an tâm.
+Tuy nhiên, cảm giác này tựa như trở về lầu trúc trên núi Lạc Phách, khiến Trần Bình An thấy an tâm.
 
-Trên cầu vang lên tiếng xe cộ lăn, bên cầu phía này núi cao có một khu vườn rau rộng lớn. Sau đó, một nhóm người gánh nước từ khe núi đi ra, trong đó có những đứa trẻ mang theo gậy, chạy nhảy vui vẻ. Ở bên trong trấn nhỏ trên đỉnh núi, vang lên tiếng luyện tập quyền cước của những người võ sĩ.
+Trên cầu vang lên tiếng xe lăn. Bên này cầu, trên núi có một khu vườn rau rộng lớn. Sau đó một tốp người gánh nước từ khe núi đi ra, có cả mấy đứa trẻ cầm gậy chạy nhảy vui vẻ. Trong trấn nhỏ trên đỉnh núi vang lên tiếng võ sĩ luyện quyền.
 
-Sống trên núi không phải là những người tu chân, mà cũng có khá nhiều phiền phức. Những hình bóng của người quay về trong đêm trước đó chủ yếu là những người chung quanh, trong số đó có những người gánh hàng nặng đi qua cầu trở về nhà.
+Người sống trên núi không phải tu sĩ, cuộc sống cũng lắm phiền phức. Những bóng người về trong đêm hôm trước phần lớn là dân quanh đây, trong đó có người gánh hàng nặng qua cầu trở về nhà.
 
-Trần Bình An quyết định ở lại đây thêm hai ngày nữa để tiếp tục rèn luyện kỹ năng trong việc cầu mưa ở Bích Du Cung, cố gắng rèn luyện hai khối trảm long đài một cách toàn diện, rồi lại tiếp tục hành trình.
+Trần Bình An quyết định ở lại thêm hai ngày, tiếp tục rèn luyện theo pháp môn hành vũ của Bích Du cung [?], cố gắng rèn hai khối trảm long đài một lượt cho kỹ rồi mới lên đường.
 
-Kể cả trong quốc gia Kim Phi mà có hơn mười nước, đứng đầu là Đại Triện vương triều, nơi có võ thuật thịnh vượng, giang hồ cũng hỗn loạn, khiến cho nhiều võ sĩ liên thủ tấn công các môn phái bí ẩn.
+Hơn mười nước quanh đây kể cả Kim Phi quốc đều lấy Đại Triện vương triều làm đầu. Võ thuật thịnh hành, giang hồ cũng hỗn loạn, thậm chí nhiều võ sĩ còn liên thủ tấn công các môn phái thần bí.
 
-Trên bản đồ rộng lớn, chỉ có một vị Nguyên Anh trấn giữ Kim Lân cung, miễn cưỡng giữ an toàn, nhưng trong số đệ tử của họ xuống núi rèn luyện vẫn cần phải cẩn trọng.
+Trên bản đồ rộng lớn này chỉ có một vị Nguyên Anh trấn giữ Kim Lân cung miễn cưỡng giữ được yên ổn, vậy mà đệ tử của họ xuống núi rèn luyện vẫn phải hết sức cẩn trọng.
 
-Trần Bình An lần đầu tiên nghe được tin tức này từ Xuân Lộ phố và đã cảm thấy thật khó tin, nhưng khi nghe rằng bốn người võ sĩ mạnh mẽ ở Bắc Câu Lô Châu, trong đó có một người ở sau Đại Triện vương triều, hắn đã dần hiểu ra.
+Lần đầu nghe tin này ở phố Xuân Lộ, Trần Bình An còn thấy khó tin. Nhưng khi nghe rằng bốn đại võ phu mạnh nhất Bắc Câu Lô Châu có một người đứng sau Đại Triện vương triều, hắn mới dần hiểu ra.
 
-Bắc Câu Lô Châu hiện tại có bốn người mạnh mẽ đứng đầu, trong đó người lớn tuổi nhất là một vị có tiếng tăm dưới núi, cùng là bạn tri kỷ của những thanh kiếm tiên trên núi. Không rõ vì lý do gì, vào vài năm trước, ông đã mắc sai lầm nghiêm trọng, khiến cho mấy vị tu sĩ ở đây tốn rất nhiều công sức để giam giữ. Dù sao họ cũng không dám dễ dàng tấn công, sợ làm tổn thương đến tính mạng hữu ích của ông, vì vậy ông đã kiên nhẫn chờ đợi thiên quân Tạ Thực từ Bảo Bình châu quay về để ban hành chỉ dụ.
+Bắc Câu Lô Châu hiện nay có bốn vị võ phu đứng đầu. Người lớn tuổi nhất có tiếng tăm dưới núi, lại là tri kỷ của các kiếm tiên trên núi. Không rõ vì lý do gì, vài năm trước ông mắc sai lầm nghiêm trọng, khiến mấy vị tu sĩ tốn rất nhiều công sức mới giam giữ được. Bọn họ cũng không dám tùy tiện ra tay, sợ làm tổn hại tính mạng hữu ích của ông, vì vậy ông kiên nhẫn chờ thiên quân Tạ Thực từ Bảo Bình Châu quay về để định đoạt.
 
-Người trẻ tuổi nhất chỉ mới trăm tuổi, là người thuộc một tông môn cao nhất ở phía bắc. Vợ của hắn là một nữ kiếm tiên dưới ngọn Ngọc Phác cảnh, thật ra bên nhau cũng là việc không dễ dàng.
+Người trẻ tuổi nhất mới chừng trăm tuổi, xuất thân từ một tông môn đứng đầu phương bắc. Vợ của hắn là một vị nữ kiếm tiên Ngọc Phác cảnh, đôi này quả thật không dễ gì mới được ở bên nhau.
 
-Sau đó, có một vị cao nhân sống ẩn dật trong Đại Triện vương triều, vẫn sống trong cảnh bí ẩn suốt hàng chục năm qua. Nhiều tin đồn cho rằng ông đã chết, nhưng cũng nói rằng ông chết vì một cuộc chiến với kẻ thù vốn là một đại kiếm tiên. Mặc dù Đại Triện vương triều che dấu rất tốt, cũng có lời đồn cho rằng ông đi về hướng hoa sơn trà động thiên, dự định làm những việc lớn, dùng linh khí rèn luyện cơ thể, giống như hồi còn trẻ đánh triều ở bờ biển, và hơn nữa, ông cũng từng chém giết với đại kiếm tiên Viên Đề sơn cách đây 60 năm trước.
+Tiếp đó là một vị cao nhân ẩn cư trong Đại Triện vương triều, mấy chục năm qua hành tung bí ẩn. Có nhiều lời đồn rằng người này đã chết, nói là chết trong trận chiến với kẻ thù, một vị đại kiếm tiên. Đại Triện vương triều giấu rất kỹ, nhưng cũng có tin đồn rằng người này đã đi về phía động thiên Hoa Sơn Trà [?], định làm một chuyện lớn, dùng linh khí rèn luyện thân thể như lúc trẻ từng ra bờ biển đánh sóng triều. Hơn nữa, sáu mươi năm trước người này còn từng chém giết với đại kiếm tiên của Viên Đề sơn.
 
-Mới đây, có một người xuất hiện với lai lịch cổ quái. Hắn ra tay không nhiều lần, nhưng mỗi lần đều khiến đối thủ không chết mà chỉ bị thương nặng. Hắn đã phá hủy hai tòa đỉnh núi của đường Tổ Sư, nơi có những người tu luyện Nguyên Anh trấn giữ, vì vậy mà Bắc Câu Lô Châu mới dám ngắt lời người này. Tin đồn cho rằng hắn liên quan đến Sư Tử phong, và tên thật có khả năng là một cái tên giả, Lý Nhị.
+Người cuối cùng mới xuất hiện gần đây, lai lịch cổ quái. Hắn ra tay không nhiều, nhưng lần nào đối thủ không chết cũng bị thương nặng. Hắn từng đánh sập hai tòa Tổ sư đường trên đỉnh núi có tu sĩ Nguyên Anh trấn giữ, vì vậy Bắc Câu Lô Châu mới không dám coi thường người này. Tin đồn nói hắn có liên quan đến Sư Tử phong, tên thật có lẽ chỉ là một cái tên giả, Lý Nhị.
 
-Trong Đại Triện vương triều, còn có một vị vũ phu cảnh giới tám, khá quen thuộc, đó là một nữ kiếm khách đại tông sư. Hiện tại cô đảm nhiệm vai trò tùy tùng thân cận của hoàng đế Chu thị. Tuy nhiên, tiền đồ của cô không được coi trọng; việc đạt đến Viễn Du cảnh cũng đã là hết sức khó khăn, và sống trong đời này, cô gần như vô vọng vươn tới Sơn Điên cảnh.
+Trong Đại Triện vương triều còn có một vị võ phu cảnh thứ tám khá quen tên, là một nữ kiếm khách đại tông sư, hiện làm cận vệ của hoàng đế Chu thị. Tuy nhiên, tiền đồ của nàng không được coi trọng: đạt tới Viễn Du cảnh đã là hết sức khó khăn, đời này gần như vô vọng bước tới Sơn Điên cảnh.
 
-Nói một cách ngắn gọn, tại đây, giang hồ đều coi những vũ phu có tiếng là kẻ mạnh nhất, với nắm đấm cứng rắn nhất.
+Nói ngắn gọn, ở nơi này, giang hồ xem những võ phu có tiếng là kẻ mạnh nhất, nắm đấm cứng nhất.
 
-Hôm nay, Trần Bình An đối với núi Lạc Phách bên ngoài, có phần không lường trước được sức mạnh của các vũ phu Kim thân cảnh.
+Ở bên ngoài núi Lạc Phách, đến hôm nay Trần Bình An vẫn chưa lường hết được sức mạnh của võ phu Kim thân cảnh.
 
-Trước đây, hắn từng muốn hỏi Tống lão tiền bối về kiếm tiên Tô Lang, đó là người đầu tiên. Thương Quân hồ Long cung cũng từng đánh lén hắn, đó là người thứ hai. Trên thuyền của tiểu công tử Ngụy Bạch có một tên tùy tùng, là người thứ ba.
+Trước đây hắn từng định đến hỏi Tống lão tiền bối về kiếm tiên Tô Lang, đó là người đầu tiên. Ở Long cung Thương Quân hồ từng có kẻ đánh lén hắn, đó là người thứ hai. Trên thuyền của tiểu công tử Ngụy Bạch có một tên tùy tùng, là người thứ ba.
 
-Thực ra, Trần Bình An rất muốn tìm một vị Viễn Du cảnh vũ phu để luận bàn một phen, đáng tiếc rằng trên thuyền Cao Thừa phân thân, chỉ có một vũ phu cảnh giới tám. Tuy vậy, vị lão kiếm khách khí thế phi phàm đó, đã khiến hắn cảm thấy áp lực. Khi hắn cầm kiếm chém đầu kẻ thù, câu nói "Ba vị Phi Ma tông Ngọc Phác cảnh, không xứng để ta chém" thực sự thể hiện được khí phách anh hùng của hắn.
+Thực ra Trần Bình An rất muốn tìm một vị võ phu Viễn Du cảnh để luận bàn một phen, đáng tiếc trên thuyền của phân thân Cao Thừa chỉ có một võ phu cảnh thứ tám. Tuy vậy, vị lão kiếm khách khí thế phi phàm đó vẫn khiến hắn cảm thấy áp lực. Câu nói lúc cầm kiếm chém đầu kẻ thù, "Ba vị Ngọc Phác cảnh của Phi Ma tông không xứng để ta chém", đúng là thể hiện khí phách anh hùng.
 
-Trước đó, tại Kim Phi quốc, giữa một hồ nước, Trần Bình An đã thuê một chiếc thuyền nhỏ để thả câu trong đêm và xa xa chứng kiến một cuộc chém giết đẫm máu.
+Trước đó, trên một hồ nước ở Kim Phi quốc, Trần Bình An từng thuê một chiếc thuyền nhỏ thả câu ban đêm, từ xa chứng kiến một trận chém giết đẫm máu.
 
-Dường như đây là một cuộc vây quét đã được lên kế hoạch từ trước. Một chiếc thuyền neo giữa hồ đã xảy ra nội chiến, với hơn mười người chia thành hai phái, sử dụng nhiều loại vũ khí khác nhau. Số người này có thể được coi là những cao thủ hàng đầu trong giang hồ Kim Phi quốc, đa phần là những vũ phu từ năm đến sáu cảnh. Họ chiến đấu quyết liệt, khiến đầu lâu và tay chân bay tứ tung. Sau đó, bảy tám chiếc chiến thuyền quân đội Kim Phi quốc xuất hiện, treo đèn sáng chói, ánh sáng từ đèn lấp lánh như ban ngày, bao vây chiếc thuyền. Một loạt mũi tên từ những cung nỏ mạnh mẽ b*n r*, khi chém giết diễn ra, cả hai bên đã trở nên thê thảm, với hơn mười đầu thi thể lăn lóc. Những người còn lại lập tức bỏ chạy về thuyền, tìm cách tránh né. Chiến thuyền quân đội đã lao vào tấn công chiếc thuyền đang gặp nguy hiểm, trong lúc hỗn loạn, nhiều cao thủ giang hồ đã tìm cách thoát thân nhưng không tránh khỏi bị thiệt mạng, có người thì bị ngã xuống nước và bị dìm xuống đáy.
+Hình như đây là một cuộc vây quét đã lên kế hoạch từ trước. Trên chiếc thuyền lớn neo giữa hồ xảy ra nội chiến, hơn mười người chia thành hai phe, dùng đủ loại vũ khí. Số người này có thể coi là cao thủ hàng đầu của giang hồ Kim Phi quốc, đa phần là võ phu cảnh thứ năm, thứ sáu. Bọn họ đánh nhau quyết liệt, đầu lâu và tay chân bay tứ tung. Sau đó bảy tám chiếc chiến thuyền của quân đội Kim Phi quốc xuất hiện, treo đèn sáng như ban ngày, bao vây chiếc thuyền. Một loạt mũi tên từ cung nỏ mạnh bắn ra. Lúc này hai bên đều đã thê thảm, hơn mười thi thể nằm lăn lóc, những người còn lại vội chạy vào trong thuyền tìm cách tránh né. Chiến thuyền lao vào tấn công, trong lúc hỗn loạn nhiều cao thủ giang hồ muốn thoát thân cũng không tránh khỏi cái chết, có người rơi xuống nước rồi bị dìm xuống đáy.
 
-Trần Bình An đã khống chế thuyền của mình, lặng lẽ rời xa hiện trường đó.
+Trần Bình An điều khiển thuyền của mình, lặng lẽ rời xa nơi đó.
 
-Hình ảnh cuối cùng trong ký ức của hắn thật sâu sắc. Nữ kiếm khách trên chiếc thuyền, không ngừng xuất kiếm, bất kể là thi thể trôi nổi hay những người bị thương, đều bị nàng đâm chết bằng những nhát kiếm nhanh chóng. Có lẽ cuối cùng sẽ không còn ai sống sót trên chiếc thuyền đó, và những người có khả năng sống sót chỉ sợ chính là nội ứng của triều đình.
+Hình ảnh cuối cùng hắn nhớ rất rõ. Một nữ kiếm khách đứng trên thuyền không ngừng xuất kiếm, bất kể là xác nổi trên nước hay người bị thương đều bị nàng đâm chết bằng những nhát kiếm rất nhanh. Có lẽ cuối cùng sẽ chẳng còn ai sống sót trên chiếc thuyền đó, còn những kẻ sống sót sợ rằng chính là nội ứng của triều đình.
 
-Trần Bình An đã thấy có ba người lên chiếc chiến thuyền cao nhất, cúi chào vị võ tướng mặc áo giáp cam. Hắn nhắm mắt lại, tiếp tục tham gia rèn luyện tại trảm long đài.
+Trần Bình An thấy có ba người lên chiếc chiến thuyền cao nhất, cúi chào một vị võ tướng mặc giáp màu cam. Hắn nhắm mắt lại, tiếp tục luyện với trảm long đài.
 
-Việc tu hành và giao tiếp với người khác sẽ khiến ta nhận ra điều không đáng giá lại là giá trị nhất, đó chính là thời gian. Còn về những việc trong giang hồ, Trần Bình An thực sự không có ý định can thiệp.
+Tu hành rồi qua lại với người đời, sẽ nhận ra thứ tưởng không đáng giá lại đáng giá nhất, đó chính là thời gian. Còn chuyện giang hồ, Trần Bình An thật sự không có ý định can thiệp.
 
-Trong màn đêm hôm nay, Trần Bình An nhẹ nhàng thở ra, nhìn thấy trên cầu có một đôi nam nữ trẻ tuổi. Nữ tử vẫn còn vẻ ngây thơ, nhất định là một vũ phu tam cảnh, nam tử thì nho nhã, giống như một thư sinh chưa được học hành chính thức, không phải là một vũ phu thuần túy. Nữ tử động đậy chiếc áo xích sắt bước chậm rãi, tuy tuổi còn trẻ nhưng lại tỏ ra lo lắng cho nam tử bên cạnh. Khi họ đến đầu cầu, nữ tử nhẹ nhàng nhảy xuống và được nam tử nắm tay dắt đi.
+Đêm nay, Trần Bình An nhẹ nhàng thở ra một hơi, thấy trên cầu có một đôi nam nữ trẻ tuổi. Nữ tử còn vẻ ngây thơ, chắc là võ phu cảnh thứ ba. Nam tử nho nhã như một thư sinh chưa từng học hành chính thức, không phải võ phu thuần túy. Nữ tử giẫm trên xích sắt bước chậm rãi, tuổi còn trẻ mà tỏ ra lo lắng cho nam tử bên cạnh. Đến đầu cầu, nàng nhẹ nhàng nhảy xuống, được nam tử nắm tay dắt đi.
 
-Hai người dọc theo con đường núi, tay trong tay trò chuyện rôm rả. Trần Bình An nghe được một số thông tin về triều đình và giang hồ Kim Phi quốc.
+Hai người đi dọc đường núi, tay trong tay trò chuyện rôm rả. Trần Bình An nghe được ít nhiều về triều đình và giang hồ Kim Phi quốc.
 
-Nguyên lai những năm gần đây, trên giang hồ vô cùng bất ổn. Đương kim quân chủ sau khi soán ngôi đăng cơ, theo như các ghi chép trong "Kim Phi quốc sách tạp lục" đã nói, vị hoàng đế này ngay sau khi ngồi lên ngai vàng, đã lập tức ra tay với các hoàng thất cửu tộc. Hắn sai người gọi những người có tên trong danh sách hoàng thất đến đại điện, mở ra từng trang gia phả, từ những đại thần đã treo cổ tự vẫn, lập tức hô lên một cái tên, và bên ngoài đại điện sẽ không thiếu một cái đầu mất đi. Hắn đã giết sạch tất cả những kẻ có liên quan đến triều đại trước. Trong vòng một đêm, máu chảy thành sông, nhưng cuối cùng vẫn có một cá lọt lưới – là con út của tiên triều, may mắn được cung nữ mang theo trốn ra khỏi hoàng cung. Dưới sự bảo vệ tận tụy của trung thần, hắn đã an toàn ra khỏi kinh thành, và kể từ đó sống lưu vong trên giang hồ, xa xôi không rõ tin tức. Vì vậy, nhiều năm qua, trên giang hồ thường xuất hiện những vụ thảm án diệt môn bí ẩn, chủ yếu là các đại phái. Dù cho đối với những kẻ rõ ràng đã chết vì báo thù, các quan phủ vẫn không dám truy cứu, chỉ sợ nếu bất cẩn sẽ lại chạm đến vị vua đang nắm quyền ở kinh thành.
+Thì ra mấy năm gần đây, giang hồ vô cùng bất ổn. Đương kim quân chủ soán ngôi đăng cơ. Theo ghi chép trong "Kim Phi quốc sách tạp lục", vừa ngồi lên ngai vàng, hoàng đế này đã lập tức ra tay với hoàng tộc cửu tộc. Hắn sai gọi những người có tên trong danh sách hoàng thất đến đại điện, mở từng trang gia phả, đọc lên một cái tên là bên ngoài đại điện rơi một cái đầu; các đại thần thì treo cổ tự vẫn [?]. Hắn giết sạch những kẻ dính dáng đến triều trước. Chỉ trong một đêm máu chảy thành sông, nhưng cuối cùng vẫn còn một con cá lọt lưới: con trai út của tiên đế may mắn được cung nữ mang theo trốn khỏi hoàng cung. Dưới sự bảo vệ tận tụy của trung thần, đứa trẻ an toàn ra khỏi kinh thành, từ đó lưu vong trên giang hồ, biệt vô âm tín. Vì vậy nhiều năm qua giang hồ thường xảy ra những vụ thảm án diệt môn bí ẩn, chủ yếu nhắm vào các đại phái. Dù là những kẻ rõ ràng chết vì bị báo thù, quan phủ cũng không dám truy cứu, chỉ sợ bất cẩn lại chạm đến vị vua đang nắm quyền ở kinh thành.
 
-Các quan phủ vô cùng lúng túng, bởi Kim Phi quốc vốn coi trọng võ lực, các võ tướng nơi đây càng yêu thích việc tiêu diệt kẻ cướp ngụy trang, sử dụng một loạt người trong giang hồ để huấn luyện quân đội. Trong khi đó, những nhân sĩ giang hồ chính nghĩa, lại sống trong cảnh khốn cùng không thể tả.
+Quan phủ vô cùng lúng túng. Kim Phi quốc vốn coi trọng võ lực, võ tướng lại càng thích giả làm cướp đi tiêu diệt, lấy người giang hồ ra luyện quân. Trong khi đó những nhân sĩ chính nghĩa trên giang hồ lại sống khốn khổ không để đâu cho hết.
 
-Giang hồ, dù sao vẫn đang trong tình trạng hỗn loạn, nhưng đây không phải vấn đề lớn. Vì vậy, trong số những cao thủ võ lâm của Kim Phi quốc có hơn chục người, cộng với bảy tám kẻ ma đạo hùng bá, họ khó khăn lắm mới cùng nhau tạm gác lại thành kiến, ý định bí mật tổ chức một yến hội. Dĩ nhiên, đó không phải là để lật đổ chính quyền, mà là để làm hoàng đế không yên lòng, khiến triều đình và dân chúng trong tình trạng hoảng loạn. Họ quyết định hợp lực, giúp hoàng đế đào bới lên những gì đã chôn vùi trong giang hồ, tìm kiếm vị hoàng tử đã mất tích từ lâu của triều trước. Nếu kẻ đó bị tiêu diệt, hoàng đế tất nhiên sẽ vui mừng, tình thế giang hồ cũng sẽ chuyển biến tích cực hơn, tạo điều kiện để các anh hùng giang hồ thở phào nhẹ nhõm.
+Giang hồ loạn thì cũng đã loạn rồi, chuyện đó không phải vấn đề lớn. Vì vậy hơn chục cao thủ võ lâm của Kim Phi quốc, cộng với bảy tám tên kiêu hùng ma đạo, khó khăn lắm mới chịu gác lại thành kiến, định bí mật tổ chức một yến hội. Đương nhiên không phải để lật đổ triều đình. Hoàng đế bấy lâu không yên lòng, khiến triều đình và dân gian hoang mang, nên bọn họ quyết định hợp lực đào bới cả giang hồ giúp hoàng đế, tìm cho ra vị hoàng tử mất tích của triều trước. Hắn chết rồi, hoàng đế tất nhiên vui mừng, tình thế giang hồ cũng sẽ khá hơn, các anh hùng giang hồ mới thở phào được.
 
-Trong lòng những nam nữ trẻ tuổi, họ vẫn lo lắng về những cuộc chiến đẫm máu và bạo lực.
+Đôi nam nữ trẻ tuổi vẫn lo lắng về những cuộc đổ máu đó.
 
-Môn phái của họ, gọi là Tranh Vanh môn, là thế lực hàng đầu trong giang hồ Kim Phi quốc. Theo như môn phái trong võ lâm phân chia, có gần trăm môn phái lớn nhỏ có thể điều tra được. Mối quan hệ giữa các môn phái này cũng có sự phân chia rõ ràng dựa theo thời đại hoàng đế đương nhiệm. Giang hồ chia ra làm mới và cũ, các môn phái mới thường phụ thuộc vào người có quyền lực ở kinh thành, trong khi những kẻ lão luyện thì vẫn đứng vững. Tranh Vanh môn tự nhiên thuộc về những lão luyện, với nữ tử là con gái của một trong bốn cao thủ chính đạo.
+Môn phái của họ tên là Tranh Vanh môn, thế lực hàng đầu trong giang hồ Kim Phi quốc. Xét cả võ lâm, có gần trăm môn phái lớn nhỏ tra cứu được. Các môn phái này cũng phân chia rõ ràng theo thời đại đương kim hoàng đế: giang hồ chia ra mới và cũ, môn phái mới thường dựa vào người có quyền ở kinh thành, còn phe lão luyện thì vẫn đứng vững. Tranh Vanh môn dĩ nhiên thuộc phe cũ, nữ tử kia là con gái của một trong bốn cao thủ chính đạo.
 
-Tin tức mà nàng nhận được muộn nhất là việc yến hội cuối cùng cũng đã được định rõ. Địa điểm chọn là một hồ lớn, hứa hẹn là nơi không có cơ hội cho cả hai bên động tay động chân.
+Tin nàng nhận được muộn nhất là yến hội cuối cùng cũng đã định xong. Địa điểm là một hồ lớn, được coi là nơi cả hai bên đều khó có cơ hội động tay động chân.
 
-Hai nhà Hắc Bạch đều không muốn đến thảo luận trên lãnh thổ của đối phương, và không ai biết liệu có thể tránh khỏi việc bị tận diệt hay không. Người chính đạo cảm thấy những kẻ trong ma đạo rất tàn bạo, còn đám người hắc đạo thì châm biếm những kẻ tự xưng hiệp sĩ kia, cho rằng họ cũng chẳng tốt đẹp gì hơn.
+Hai phe hắc bạch đều không muốn đến địa bàn của đối phương bàn chuyện, vì không ai biết có bị giết sạch hay không. Người chính đạo cho rằng ma đạo tàn bạo, còn đám hắc đạo thì châm biếm những kẻ tự xưng hiệp sĩ kia, bảo rằng bọn họ cũng chẳng tốt đẹp gì hơn.
 
-Chỉ có một điều khiến người ta lo lắng, dưới ánh trăng, mọi người dường như mong chờ một điều gì đó, giữa không gian tĩnh lặng, tự nhiên không thể kiềm chế cảm xúc, dẫn đến những hành động nhỏ nhặt.
+Chỉ có một điều khiến người ta lo lắng. Dưới ánh trăng, giữa không gian tĩnh lặng, đôi trẻ dường như đang mong chờ điều gì đó, không kiềm chế được tình cảm, tay chân bắt đầu có những hành động nhỏ.
 
-Trước đây, nữ tử đã cầm một nhánh cây trong tay, nhảy múa trong gió, một tay múa quyền, tay kia thì tạo ra những cánh hoa kiếm xinh đẹp.
+Trước đó, nữ tử cầm một nhánh cây múa trong gió, một tay đánh quyền, tay kia múa ra những đường kiếm hoa đẹp mắt.
 
-Trần Bình An nhẹ nhàng thở dài, người nói rằng Tranh Vanh môn chính là một trong ba cao thủ giang hồ cuối cùng, người này ra quyền rất chi là tương tự với nữ tử ở bên cạnh, cổ tay hắn quấn quanh một thanh nhuyễn kiếm, ngay khi xuất kiếm, cổ gót bị chém đứt, kiếm thuật vô cùng mềm mại và biến hóa kỳ diệu.
+Trần Bình An khẽ thở dài. Nghe đồn Tranh Vanh môn có một trong ba cao thủ giang hồ cuối cùng, quyền pháp của người này rất giống nữ tử kia, cổ tay quấn một thanh nhuyễn kiếm, xuất kiếm ra là cổ họng đối phương đứt lìa, kiếm thuật cực kỳ mềm mại, biến hóa kỳ diệu.
 
-Nam nữ hối hả dựa sát vào nhau, trong những động tác có chút gì đó kh*** g**.
+Đôi nam nữ dựa sát vào nhau, động tác có chút khiêu gợi.
 
-Nếu chỉ là như thế, thì cũng vậy thôi. Trần Bình An chỉ cần nhắm mắt tu hành là đủ. Có thể hắn đã sợ rằng nam nữ đ*ng t*nh tạm thời, có thể gây ra thiên lôi động đến địa hỏa.
+Nếu chỉ có thế thì cũng thôi đi. Trần Bình An chỉ cần nhắm mắt tu hành là đủ. Hắn chỉ sợ đôi trẻ đang lúc động tình, tình cảnh như thiên lôi câu địa hỏa.
 
-Quả thật, điều ta sợ thường sẽ đến. Ở phía sau cây, nam nữ vây quanh đã chọn một chỗ bóng cây rậm rạp hơn một chút để ngồi, nhằm bảo đảm bí mật hơn. Nếu không, họ sẽ không cho hắn động tay động chân.
+Quả nhiên, sợ gì thường gặp nấy. Đôi nam nữ chọn đúng chỗ bóng cây rậm rạp hơn một chút sau gốc cây để ngồi cho kín đáo. Nữ tử nói nếu không thì sẽ không cho hắn động tay động chân.
 
-Nam tử cười và đồng ý, nữ tử trẻ tuổi liền nắm lấy bả vai người yêu, cả hai đều muốn nhảy lên.
+Nam tử cười đồng ý, nữ tử trẻ tuổi liền nắm lấy vai người yêu, cả hai đều muốn nhảy lên.
 
-Trên người hắn có một tấm Đà Bi phù. Trần Bình An ngắm nhìn bốn phía, búng ngón tay và một viên đá nhẹ nhàng vỡ vụn dưới bụi cỏ.
+Trên người Trần Bình An có một tấm Đà Bi phù. Hắn nhìn quanh bốn phía, búng ngón tay, một viên đá nhỏ vỡ vụn trong bụi cỏ.
 
-Nam nữ càng thêm hoảng sợ và vội vàng quay đầu lại nhìn.
+Đôi nam nữ càng hoảng sợ, vội vàng quay đầu lại nhìn.
 
-Trần Bình An đứng dậy, lướt qua và đi.
+Trần Bình An đứng dậy, lướt đi.
 
-"Được rồi, địa bàn này sẽ dành cho các ngươi."
+"Được rồi, địa bàn này nhường cho các ngươi."
 
-Trần Bình An tiến về phía ngọn núi cao hơn, tiếp tục luyện tập trảm long đài.
+Hắn đi về phía ngọn núi cao hơn, tiếp tục luyện trảm long đài.
 
-Chẳng qua sau khi đôi nam nữ bớt hoảng sợ và v**t v* an ủi một lát, họ nhanh chóng chạy về phía cầu dây bên kia, vì Tranh Vanh môn trên dưới đều thắp đèn dầu, sáng trắng như tuyết.
+Chẳng qua sau khi bớt hoảng sợ, âu yếm an ủi nhau một lát, đôi nam nữ đã nhanh chóng chạy về phía cầu xích, vì trên dưới Tranh Vanh môn đều thắp đèn dầu, sáng trắng như tuyết.
 
-Sau đó, họ vọt tới cửa chính bên kia, tựa hồ đều muốn nghênh đón khách quý.
+Rồi hai người chạy thẳng ra cửa chính bên kia, xem ra đều muốn đón khách quý.
 
-Trần Bình An nhìn xa xăm, trên con đường mòn trong núi, bất chợt hiện ra một con rồng lửa rất nhỏ, chậm rãi di chuyển về phía trước. Nó giống như bùa chú rồng lửa mà Liễu Chất Thanh vẽ trên bàn, nhìn vào mắt không có gì khác biệt.
+Trần Bình An nhìn ra xa. Trên con đường mòn trong núi bỗng hiện ra một con rồng lửa rất nhỏ, chậm rãi bò về phía trước, giống như con rồng lửa Liễu Chất Thanh vẽ bằng bùa chú trên mặt bàn, nhìn vào mắt không có gì khác biệt.
 
-Hẳn là có một đội lớn đang lên núi bái phỏng Tranh Vanh sơn vào đêm nay.
+Hẳn là có một đoàn đông người đang lên núi bái phỏng Tranh Vanh sơn đêm nay.
 
-Thực ra, Trần Bình An đã nhận ra dấu vết từ đêm qua, phát hiện có mấy vị trinh sát giang hồ đang lén lút, tựa hồ đang điều tra địa hình.
+Thực ra từ tối qua Trần Bình An đã nhận ra dấu vết, phát hiện mấy tên trinh sát giang hồ lén lút qua lại, hình như đang dò xét địa hình.
 
-Trần Bình An suy nghĩ, đứng dậy, lượn quanh con đường xa đi ven vách núi, cố gắng tránh xa ánh đèn dầu bên kia sơn môn. Hắn lùi lại vài bước, rồi lướt đi, một tay bám lấy nơi đỉnh núi Tranh Vanh dựng đứng trên vách đá, sau đó lướt phải leo trèo, cuối cùng lặng lẽ trốn ở cầu dây bên dưới, một tay năm ngón tay đinh vào thạch bích, thân hình theo gió nhẹ nhàng lắc lư, một tay tháo hồ lô dưỡng kiếm uống rượu.
+Trần Bình An suy nghĩ một chút, đứng dậy, đi vòng theo con đường xa ven vách núi, cố tránh xa ánh đèn dầu bên phía sơn môn. Hắn lùi lại vài bước rồi lướt đi, một tay bám vào vách đá dựng đứng của đỉnh Tranh Vanh, cứ thế leo trèo, cuối cùng lặng lẽ ẩn mình bên dưới cầu xích. Một tay năm ngón đóng vào vách đá, thân hình đong đưa nhẹ theo gió, tay kia tháo hồ lô dưỡng kiếm uống rượu.
 
-Tại đầu cầu dây, môn chủ Tranh Vanh môn, Lâm Thù, sắc mặt trắng nhợt. Trong một trận chiến, hắn bị thương không nhẹ, vẫn chưa khỏi hẳn. Nhưng lại vừa thắng lớn, trở thành một môn môn phú quý trong tám ngày, tinh thần rất tốt.
+Tại đầu cầu xích, môn chủ Tranh Vanh môn là Lâm Thù sắc mặt trắng nhợt. Trong một trận chiến hắn bị thương không nhẹ, đến giờ vẫn chưa khỏi hẳn. Nhưng hắn vừa thắng lớn, cả môn sắp được phú quý [?], nên tinh thần rất tốt.
 
-Lần này, thuận đường bái phỏng Tranh Vanh môn là ba vị khách quý: Trấn quốc đại tướng quân Đỗ Huỳnh, cùng với nghĩa tử được đương kim bệ hạ ban thưởng. Ngoài ra còn có một vị ngự mã giám hoạn quan thân thủ cao thâm mạt trắc, và một vị khách quý đến từ Đại Triện vương triều, Trịnh Thủy Châu. Nàng có kiếm thuật trác tuyệt và là sư phụ của nàng, chính là người giữ cửa trong hoàng cung của Đại Triện.
+Lần này, người thuận đường bái phỏng Tranh Vanh môn có ba vị khách quý: Trấn quốc đại tướng quân Đỗ Huỳnh, nghĩa tử do đương kim bệ hạ ban ân; một vị hoạn quan của Ngự mã giám thân thủ cao thâm khó lường; và một vị khách quý đến từ Đại Triện vương triều, Trịnh Thủy Châu, kiếm thuật trác tuyệt, sư phụ của nàng chính là người giữ cửa hoàng cung của Đại Triện.
 
-Trịnh Thủy Châu là một trong những đệ tử được sủng ái của vị nữ thần võ thuật trong Đại Triện, có tư chất tốt nhất, được ưu ái tối đa. Nàng lần này tham dự chiến dịch quét sạch trên hồ Kim Phi quốc, chỉ là để giải sầu, không có trách nhiệm sư môn bên mình. Lâm Thù từ sớm đã lựa chọn quy hàng vào giang hồ tông sư, nhưng sau đó đã ở ẩn hơn mười năm. Những tin đồn cho rằng có một con hắc giao hung mãnh chiếm giữ bên ngoài kinh thành Đại Triện, đạo hạnh rất cao, đã sống bình an với nhân gian nghìn năm. Không biết vì lý do gì, gần đây liên tiếp xảy ra thủy tai, mơ hồ có khả năng đe dọa thành phố. Vì vậy, Lâm Thù lờ mờ đoán ra rằng Trịnh Thủy Châu xuôi nam có thể liên quan đến việc cung phụng ở kinh thành Kim Phi quốc.
+Trịnh Thủy Châu là một trong những đệ tử được sủng ái nhất của vị nữ võ thần Đại Triện, tư chất tốt nhất, được ưu ái hết mực. Nàng tham gia trận quét sạch trên hồ ở Kim Phi quốc lần này, nói là chỉ để giải sầu, không mang trách nhiệm sư môn. Lâm Thù đã quy thuận từ sớm, sau đó ẩn mình hơn mười năm làm tông sư giang hồ, tin tức cũng nhiều. Có tin đồn rằng một con hắc giao hung mãnh chiếm giữ bên ngoài kinh thành Đại Triện, đạo hạnh rất cao, nghìn năm sống yên ổn với nhân gian. Không biết vì lý do gì gần đây liên tiếp xảy ra thủy tai, thấp thoáng có khả năng đe dọa kinh thành. Vì vậy Lâm Thù lờ mờ đoán ra, việc Trịnh Thủy Châu nam hạ có thể liên quan đến món đồ cung phụng ở kinh thành Kim Phi quốc.
 
-Dù sao, sư phụ của Trịnh Thủy Châu, mặc dù là một đại tông sư có thể cưỡi gió đi xa, nhưng bội kiếm cũng chỉ là một kiện thần binh lợi khí. Để đối phó với một con thủy giao gây sóng gió, quả thật thiếu một kiện tiên gia binh khí vừa vặn học được.
+Dù sao sư phụ của Trịnh Thủy Châu tuy là đại tông sư có thể ngự gió đi xa, nhưng bội kiếm cũng chỉ là một món thần binh lợi khí. Muốn đối phó con thủy giao đang gây sóng gió, quả thật còn thiếu một món binh khí tiên gia vừa tay.
 
-Còn thanh bảo đao của Kim Phi quốc, đã nhuốm máu tươi của hơn một trăm vị tiền triều long tử long tôn. Hơn thế nữa, nó từng chặt đứt đầu lâu của tiền nhiệm Trấn quốc đại tướng quân, đó là một mối công huân trác tuyệt, góp phần cho bệ hạ hiện tại lên ngôi.
+Còn thanh bảo đao của Kim Phi quốc, đã nhuốm máu tươi của hơn một trăm long tử long tôn tiền triều. Không chỉ vậy, nó còn từng chém đầu vị Trấn quốc đại tướng quân tiền nhiệm, một công lớn giúp đương kim bệ hạ lên ngôi.
 
-Có thể nói, chính thanh đao này đã triệt để chặt đứt tiền triều long mạch quốc tộ.
+Có thể nói chính thanh đao này đã chặt đứt long mạch quốc tộ của tiền triều.
 
-Ở đầu bên kia cầu dây, đại tướng quân Đỗ Huỳnh vẫn mặc giáp trắng như tuyết, lấy đao chống đất, không nói gì.
+Ở đầu bên kia cầu xích, đại tướng quân Đỗ Huỳnh vẫn mặc giáp trắng như tuyết, chống đao xuống đất, không nói gì.
 
-Cô gái tuổi khoảng hai mươi lăm, hai mươi sáu tuổi, lưng đeo trường kiếm "Tị Nguyệt". Thanh kiếm này là vật sư phụ nàng yêu quý, bồi bạn sư phụ đã qua luyện thân thể và luyện khí trong suốt năm tháng, cho đến khi phải luyện thần cảnh, sư phụ mới tặng nó cho đệ tử quan môn Trịnh Thủy Châu. Điều này trước kia bốn vị sư huynh sư tỷ cũng không có được vinh hạnh như vậy. Khi tặng kiếm, Trịnh Thủy Châu mới chỉ sáu tuổi, hai tay đỡ kiếm, kiếm còn cao hơn cả người nàng. Sư phụ thấy cảnh đó đã cười to, nhưng Trịnh Thủy Châu lúc ấy đã nhận ra ánh mắt khác nhau của bốn vị đồng môn.
+Trịnh Thủy Châu tuổi khoảng hai mươi lăm, hai mươi sáu, sau lưng đeo trường kiếm "Tị Nguyệt". Đây là thanh kiếm sư phụ nàng yêu quý, theo bà qua năm tháng luyện thể, luyện khí, cho đến khi bước vào luyện thần cảnh mới tặng cho đệ tử quan môn Trịnh Thủy Châu. Bốn vị sư huynh sư tỷ trước kia đều không có được vinh hạnh đó. Khi nhận kiếm, Trịnh Thủy Châu mới sáu tuổi, hai tay đỡ kiếm, kiếm còn cao hơn người. Sư phụ thấy cảnh đó thì cười to, còn nàng lúc ấy đã nhận ra ánh mắt khác lạ của bốn vị đồng môn.
 
-Bây giờ, Trịnh Thủy Châu ngắm nhìn xung quanh, gió núi thổi từng trận, đối diện với ánh đèn sáng trưng xây dựng trên ngọn núi nhỏ, trong đêm tối, tựa như một chiếc đèn lồng lớn trôi nổi trong không trung.
+Bây giờ Trịnh Thủy Châu nhìn quanh, gió núi thổi từng trận. Đối diện là ngọn núi nhỏ đèn đuốc sáng trưng, trong đêm tối giống như một chiếc đèn lồng lớn trôi nổi giữa không trung.
 
-Về phần lão hoạn quan ngự mã giám, tuy tóc đã bạc trắng nhưng làn da cũng vẫn trắng nõn, nét mặt tỏa sáng, ông là một vị võ phu Kim thân cảnh, được vinh dự trong đêm thần dạ du của Kim Phi quốc.
+Về phần lão hoạn quan Ngự mã giám, tóc đã bạc trắng nhưng da dẻ vẫn trắng nõn, nét mặt hồng hào. Ông là một võ phu Kim thân cảnh, có danh là dạ du thần của Kim Phi quốc [?].
 
-Trong cuộc luận bàn về giới giang hồ đầy chém giết, lão hoạn quan thực chất chỉ muốn vượt trội hơn Trịnh Thủy Châu một cách rõ rệt. Tuy nhiên, con đường đi xuống phía Nam và trở về phía Bắc lại rất xa xôi. Lão hoạn quan vẫn đối xử với cô gái trẻ tuổi này bằng lòng cung kính, mặc dù nàng đã đạt tới cảnh giới năm phách, nhưng thực lực có thể ngang hàng với sáu cảnh kiếm khí. Điều này được xem như là lợi thế từ truyền thừa bề thế trong gia đình, cũng là bùa hộ mệnh giúp người ta hành tẩu giang hồ. Đặc biệt là danh tính sư phụ của nàng, giống như một tấm bùa hộ mệnh, cùng với rất nhiều mối quan hệ chằng chịt trong triều đình, giúp nàng có thể tùy ý thực hiện những âm mưu của mình mà không bị ai truy cứu. Trịnh Thủy Châu có thể giết người chỉ cần không phải là tướng của quốc gia khác thì không ai dám lên tiếng. Chỉ có điều, đây là lần đầu nàng rời khỏi kinh thành, và với nhiệm vụ bí mật bên mình, vì thế nàng không được danh tiếng như bốn vị sư huynh, sư tỷ.
+Nếu luận chém giết giang hồ, lão hoạn quan thật ra hơn hẳn Trịnh Thủy Châu. Nhưng đường nam hạ rồi về bắc rất xa, lão vẫn đối xử với cô gái trẻ này hết sức cung kính. Nàng mới cảnh thứ năm, nhưng thực lực có thể ngang kiếm khách cảnh thứ sáu. Đó là lợi thế từ truyền thừa lớn, cũng là bùa hộ mệnh để hành tẩu giang hồ. Đặc biệt là danh tiếng của sư phụ nàng, cùng rất nhiều mối quan hệ chằng chịt trong triều, giúp nàng có thể làm gì tùy ý mà không ai truy cứu. Trịnh Thủy Châu giết người, chỉ cần không phải tướng của nước khác thì không ai dám lên tiếng. Có điều đây là lần đầu nàng rời kinh thành, lại mang nhiệm vụ bí mật, nên chưa nổi danh bằng bốn vị sư huynh, sư tỷ.
 
-Ba vị khách quý dừng lại, Lâm Thù đành phải ở lại chỗ cũ.
+Ba vị khách quý dừng lại, Lâm Thù cũng đành đứng yên tại chỗ.
 
-Đỗ Huỳnh đột nhiên lên tiếng: "Ta đã chịu trách nhiệm tìm hiểu về những dư nghiệt tiền triều hơn mười năm nay, từng khám phá sâu vào hơn một trăm môn phái giang hồ, tự mình quan sát chúng. Cùng với kinh nghiệm từ triều đình, trong giang hồ, thậm chí còn không thiếu các thế lực dòng họ tiên gia. Từ khi một đứa trẻ bốn tuổi đến nay, đã nhiều năm không ngừng tìm kiếm, giờ đây đã trở thành một thanh niên sắp trưởng thành, ta là một kẻ vũ phu trên sa trường, tuy được phong là Trấn quốc đại tướng quân mà vẫn phiêu bạt giang hồ như thế, không còn nơi trở về, thật sự rất vất vả. Coi như cha ruột đi tìm đứa con bị thất lạc cũng không khổ sở như ta. Ngươi cứ nói đi, Lâm môn chủ?"
+Đỗ Huỳnh đột nhiên lên tiếng:
 
-Lâm Thù ôm quyền đáp: "Đại tướng quân khổ cực thật đáng trân trọng! Lần này đại tướng quân nhất định sẽ có kế hoạch để triệt tiêu các thế lực giang hồ, ta tin rằng đại tướng quân khi trở về kinh thành..."
+- Ta phụ trách truy tìm dư nghiệt tiền triều hơn mười năm nay, từng thâm nhập hơn một trăm môn phái giang hồ, tự mình quan sát. Cộng thêm kinh nghiệm trong triều, trong giang hồ, thậm chí cả các dòng họ tiên gia, ta đều không bỏ sót. Từ khi nó là đứa trẻ bốn tuổi, ta đã tìm kiếm không ngừng, giờ nó sắp thành thanh niên trưởng thành rồi. Ta là một võ phu trên sa trường, được phong Trấn quốc đại tướng quân mà vẫn phiêu bạt giang hồ, không có nơi về, thật sự rất vất vả. Dù là cha ruột đi tìm đứa con thất lạc cũng không khổ như ta. Ngươi nói có phải không, Lâm môn chủ?
 
-Đỗ Huỳnh vung tay cắt ngang lời Lâm Thù, "Chỉ là lần này cùng Lâm môn chủ hợp tác, mới chợt nhận ra rằng mình đã lâu không tự mình điều tra."
+Lâm Thù ôm quyền đáp:
+
+- Đại tướng quân khổ cực thật đáng trân trọng! Lần này đại tướng quân nhất định sẽ có kế hoạch diệt trừ các thế lực giang hồ, ta tin khi đại tướng quân trở về kinh thành...
+
+Đỗ Huỳnh vung tay cắt lời:
+
+- Chỉ là lần này hợp tác với Lâm môn chủ, ta mới chợt nhận ra đã lâu lắm mình chưa tự tay điều tra ở chỗ của ngươi.
 
 Mồ hôi lập tức toát ra trên trán Lâm Thù.
 
-Đỗ Huỳnh cười nói: "Tất nhiên, việc tất cả nằm ở bên Lâm môn chủ. Trước đây ta đã từng cẩn thận kiểm tra các gián điệp trong triều đình, giữa hai bên không hề có mối liên hệ nào."
+Đỗ Huỳnh cười nói:
 
-Lâm Thù như trút được gánh nặng, nâng cao cánh tay hướng về phía kinh thành ôm quyền, giọng điệu trầm lắng nói: "Đại tướng quân, ta Lâm Thù cùng Tranh Vanh sơn trung thành với đức vua, trời đất chứng giám!"
+- Đương nhiên, việc đó đều do Lâm môn chủ lo liệu. Trước đây ta từng cẩn thận đối chiếu với mật thám của triều đình, giữa hai bên không có gì sai khác.
 
-Đỗ Huỳnh từ từ rút ra một thanh đao, chỉ vào đỉnh núi nhỏ bên kia, "Hiện tại có một cách an toàn, xem xem Lâm môn chủ có đủ quyết tâm và dũng khí để thực hiện hay không. Số liệu trên sổ sách của Tranh Vanh môn tại huyện thành có thể bị giả mạo, vì vậy không bằng giết hết những kẻ ở trong trấn nhỏ, số tuổi từ mười tám đến hai mươi, cùng đánh chết cho gọn gàng. Tất cả đều đại cát."
+Lâm Thù như trút được gánh nặng, nâng tay hướng về phía kinh thành ôm quyền, giọng trầm xuống:
 
-Đỗ Huỳnh cười, "Tất nhiên người không thể chết một cách vô ích. Ta, Đỗ Huỳnh, không có lý do gì để bạc đãi kẻ có công, trở về ta sẽ kiến nghị với đức vua để ban thưởng. Tối nay, tội phạm Tranh Vanh sơn, một đầu lâu sẽ được bồi thường cho Lâm Thù một ngàn lượng bạc trắng. Thế nào? Mỗi kiếm một cái đầu, ta sẽ kéo những kẻ ở mấy vùng hồ đó tặng cho Tranh Vanh môn quản lý."
+- Đại tướng quân, Lâm Thù ta cùng Tranh Vanh sơn trung thành với bệ hạ, trời đất chứng giám!
 
-Lâm Thù khổ sở đáp: "Nhưng trong Tranh Vanh môn có tiểu nhân quấy phá, báo cáo sai lệch cho đại tướng quân? Chúng muốn hãm hại ta, Lâm Thù này sao?"
+Đỗ Huỳnh từ từ rút ra một thanh đao, chỉ vào đỉnh núi nhỏ bên kia:
 
-Đỗ Huỳnh gật đầu: "Quả đúng là tiểu nhân. Có một kẻ đệ tử bất tài không tiếc lòng, cảm thấy trong tình cảnh bình thường thì không thể kế thừa vị trí môn chủ, lại từng bị ngươi đuổi ra khỏi sư môn. Có vẻ hắn mang đầy oán hận, muốn nhờ cơ hội này để chiếm đoạt vị trí chủ nhân. Ta đã đáp ứng hắn rồi. Trở lại lâm cửa Chúa Tể hắn là được. Những kẻ này, đừng nói đến việc quản lý một nửa giang hồ, mà cả một tòa Tranh Vanh môn cũng khó mà kiểm soát, nếu ta thu nạp hắn sẽ có ý nghĩa gì?"
+- Hiện có một cách an toàn, xem Lâm môn chủ có đủ quyết tâm và dũng khí làm hay không. Số liệu trên sổ sách của Tranh Vanh môn ở huyện thành có thể là giả, vậy chi bằng giết hết những kẻ trong trấn nhỏ có tuổi từ mười tám đến hai mươi, đánh chết cho gọn. Thế là đại cát.
 
-Đỗ Huỳnh chỉ tay về phía cổng lớn, chậm rãi nói: "Còn một người nữa, đó là một thanh niên luôn sống nương tựa vào gián điệp triều đình. Kẻ gián điệp này trước đây là thầy dạy ở trấn nhỏ của các ngươi. Hắn, dẫu rằng một hạt giống học trò, nhưng lại có tình cảm với con gái duy nhất của ngươi. Ngươi thấy hắn không có thiên phú võ thuật thì không xứng với con gái. Sau đó, lão gián điệp chết trước khi qua đời đã thấy hắn là một người có triển vọng, nên đã sắp xếp cho hắn kế thừa danh tính thầy dạy, từ đó làm quen với triều đình, thực chất, việc thủ tiêu tất cả các đệ tử Tranh Vanh môn đều có phần ý định của hắn. Ta đã đồng ý, không chỉ là bảo hộ bí mật mà còn sắp xếp cho hắn tiến vào quan trường, chắc chắn sẽ có tên trên bảng vàng. Sau mười đến hai mươi năm nữa, hắn sẽ được phong lại ở một nơi nào đó của Kim Phi quốc."
+Đỗ Huỳnh cười nói tiếp:
 
-Lâm Thù tức giận đến sắc mặt xanh mét, nghiến răng nói: "Bọn người vô ơn này, cha mẹ hắn mất sớm, còn lại là một kẻ thấp hèn, nếu không phải vì Tranh Vanh môn mỗi tháng trợ cấp tiền cho hắn, hắn đã không sống nổi!"
+- Đương nhiên không thể để người ta chết uổng. Đỗ Huỳnh ta không có lý gì bạc đãi người có công, trở về sẽ kiến nghị với bệ hạ ban thưởng. Đêm nay, mỗi cái đầu tội phạm trên Tranh Vanh sơn sẽ đền cho ngươi một ngàn lượng bạc trắng. Thế nào? Một kiếm một cái đầu, địa bàn của bọn trên hồ kia ta sẽ giao cho Tranh Vanh môn quản lý.
 
-Lão hoạn quan ngự mã giám dùng hai ngón tay véo lên cái đầu tóc trắng rối bù, giọng điệu cao ngược: "Những chuyện này đều là việc nhỏ, vấn đề chính là một gián điệp khác. Các ngươi Tranh Vanh môn còn có một cao nhân đã chiếm giữ trong nhiều năm, chính là ẩn giấu rất tốt, cho đến giờ vẫn chưa lộ danh tính, đây mới thật sự là khó giải quyết."
+Lâm Thù khổ sở đáp:
+
+- Hay là trong Tranh Vanh môn có tiểu nhân quấy phá, báo sai với đại tướng quân? Chúng muốn hại Lâm Thù ta sao?
+
+Đỗ Huỳnh gật đầu:
+
+- Quả là có tiểu nhân. Có một tên đệ tử bất tài lòng dạ không yên, thấy theo lẽ thường không thể kế thừa ngôi môn chủ, lại từng bị ngươi đuổi khỏi sư môn. Xem ra hắn đầy oán hận, muốn nhân cơ hội này cướp ghế chủ nhân. Ta đã đáp ứng hắn, nói sau này để hắn làm môn chủ [?]. Hạng người này, đừng nói quản lý nửa giang hồ, một tòa Tranh Vanh môn cũng khó giữ nổi, ta thu nạp hắn thì có ý nghĩa gì?
+
+Đỗ Huỳnh chỉ tay về phía cổng lớn, chậm rãi nói:
+
+- Còn một người nữa, là một thanh niên vẫn nương tựa vào mật thám triều đình. Tên mật thám ấy trước đây là thầy đồ ở trấn nhỏ của các ngươi. Thanh niên kia là một hạt giống đọc sách, có tình cảm với con gái duy nhất của ngươi, nhưng ngươi thấy hắn không có thiên phú võ học nên cho là không xứng. Về sau, trước khi chết, lão mật thám thấy hắn có triển vọng, bèn sắp xếp cho hắn kế thừa thân phận thầy đồ, từ đó hắn bắt mối với triều đình. Thực ra chuyện giết sạch đệ tử Tranh Vanh môn cũng có phần ý của hắn. Ta đã đồng ý với hắn, không chỉ giữ kín bí mật mà còn sắp xếp cho hắn vào quan trường, chắc chắn có tên trên bảng vàng. Mười đến hai mươi năm nữa, hắn sẽ trấn giữ một vùng của Kim Phi quốc.
+
+Lâm Thù tức đến sắc mặt xanh mét, nghiến răng nói:
+
+- Đồ vô ơn! Cha mẹ hắn mất sớm, thân phận thấp hèn, nếu không có Tranh Vanh môn mỗi tháng trợ cấp tiền bạc, hắn đã không sống nổi!
+
+Lão hoạn quan Ngự mã giám dùng hai ngón tay vê nhẹ một lọn tóc trắng, giọng the thé:
+
+- Mấy chuyện này đều là việc nhỏ, vấn đề chính là một tên mật thám khác. Tranh Vanh môn các ngươi còn có một cao nhân đã nằm vùng nhiều năm, giấu rất kỹ, đến giờ vẫn chưa lộ thân phận. Đây mới thật sự là chuyện khó giải quyết.
 
 Lâm Thù sững sờ.
 
-Trịnh Thủy Châu cau mày nói: "Đỗ tướng quân, chúng ta ở nơi này đâu có tổn thất? Tiền triều dư nghiệt có nằm ở đỉnh núi kia không? Chỉ cần thử dùng đao một lần là sẽ biết ngay. Nếu thật sự có Kim Lân cung luyện khí sĩ trốn ở đây, thì khả năng cao chính là hoàng tử hộ đạo nhân. Một mũi tên trúng hai con nhạn, vừa chém giết dư nghiệt, vừa có thể bắt được Kim Lân cung tu sĩ."
+Trịnh Thủy Châu cau mày nói:
 
-Ở giữa đội ngũ có một vị hán tử chất phác đang cầm một chiếc hộp dài.
+- Đỗ tướng quân, chúng ta ở đây có tổn thất gì đâu? Dư nghiệt tiền triều có ở trên đỉnh núi kia hay không, chỉ cần thử đao một lần là biết ngay. Nếu thật sự có luyện khí sĩ Kim Lân cung trốn ở đây, thì nhiều khả năng đó chính là hộ đạo nhân của hoàng tử. Một mũi tên trúng hai con nhạn, vừa giết được dư nghiệt, vừa bắt được tu sĩ Kim Lân cung.
 
-Đỗ Huỳnh cười nói: "Nếu như Kim Lân cung có vị thần tiên cảnh giới cực cao, chúng ta chỉ có khoảng trăm chiến sĩ mặc giáp này, chắc chắn không thể chịu nổi vài chiêu tiên pháp của đối phương. Dù cho địch chỉ có ba người, một khi đối phương dẫn theo người cưỡi gió, ba chúng ta cũng chỉ có thể trơ mắt nhìn họ bỏ đi, không thể nhảy xuống núi được."
+Giữa đội ngũ có một hán tử chất phác đang ôm một chiếc hộp dài.
 
-Trịnh Thủy Châu quay đầu nhìn hán tử nâng hộp, cười nói: "Chúng ta đã có đại đệ tử của hộ quốc chân nhân đến đây, còn sợ một vị luyện khí sĩ trốn gần mười năm ở Tranh Vanh sơn sao?"
+Đỗ Huỳnh cười nói:
 
-Đại Triện vương triều cũng là nơi chịu trách nhiệm hộ giá cho phù long chi thần. Trịnh Thủy Châu, với dòng máu thuần phu, và hộ quốc chân nhân ở xà nhà cầu vồng là những người tu đạo hàng đầu, giữa hai bên luôn tồn tại một sự căng thẳng và xung đột. Đại Triện vương triều tuy đất rộng, nhưng ngoài vùng núi sâu phía bắc này, hoàng đế tùy ý sử dụng nhân tài của hai bên để tranh giành, tự nhiên sẽ không để tâm đến nhau. Trịnh Thủy Châu, một nguyên bản có tư chất tốt, nhưng đã từng bị ba người che giấu thân phận vây công, đã phải cắt đứt đôi chân và hiện giờ chỉ có thể ngồi xe lăn, trở thành nửa phế nhân. Còn về một vị đệ tử đích truyền của hộ quốc chân nhân, dù đã rèn luyện, nhưng đến nay thi thể vẫn chưa tìm thấy.
+- Nếu Kim Lân cung có vị thần tiên cảnh giới rất cao, chỉ trăm chiến sĩ mặc giáp này chắc chắn không chịu nổi vài chiêu tiên pháp của đối phương. Dù địch chỉ có một người, một khi đối phương dẫn theo người ngự gió mà đi, ba chúng ta cũng chỉ có thể trơ mắt nhìn, chứ không thể nhảy xuống núi được.
 
-Hán tử kia với vẻ mặt lạnh lùng liếc nhìn Trịnh Thủy Châu, nghĩ bụng rằng: cô gái nhỏ này luôn tỏ ra kiêu ngạo, ở kinh thành thì không biết an phận, lại còn dựa vào người cưng chiều. Năm vừa rồi, cô ta có giao du với một vị đại triện hoàng tử, thật sự cho rằng mình là khâm định hạ nhiệm Hoàng hậu sao?
+Trịnh Thủy Châu quay đầu nhìn hán tử ôm hộp, cười nói:
 
-Đỗ Huỳnh hỏi: "Lâm môn chủ, ý ngươi thế nào?"
+- Chúng ta đã có đại đệ tử của hộ quốc chân nhân ở đây, còn sợ một tên luyện khí sĩ trốn gần mười năm ở Tranh Vanh sơn sao?
 
-Lâm Thù có chút tức giận nói: "Những nam tử trẻ tuổi trên núi đều đáng chết! Nhưng ta có hai yêu cầu: người đệ tử kia phải chết, và cái tên lấy oán báo ơn cũng phải chết! Ta Tranh Vanh môn xử lý phản đồ thật sự không ao ước gì, nhưng mà dạy cho họ sống không bằng chết là điều không khó."
+Đại Triện vương triều có hai trụ cột phò rồng. Một là sư phụ của Trịnh Thủy Châu, một võ phu thuần túy, hai là hộ quốc chân nhân Lương Hồng Ẩm [?], tu sĩ hàng đầu. Giữa hai bên luôn căng thẳng. Đại Triện tuy đất rộng, nhưng ngoài vùng núi sâu phía bắc này, hoàng đế tùy ý dùng nhân tài hai phe để họ tranh giành, tự nhiên chẳng ai để tâm đến ai. Một vị đồng môn tư chất tốt của Trịnh Thủy Châu từng bị ba kẻ che giấu thân phận vây công, mất đôi chân, giờ chỉ có thể ngồi xe lăn, thành nửa phế nhân [?]. Còn một vị đệ tử đích truyền của hộ quốc chân nhân đi rèn luyện, đến nay thi thể vẫn chưa tìm thấy.
 
-Đỗ Huỳnh lắc đầu nói: "Cái trước thì giết cũng không sao, nhưng tên sau lại đầy tham vọng, hắn tài trí không tầm thường. Những năm qua, hắn luôn gửi mật tín cho triều đình, không chỉ mưu đồ ở giang hồ mà còn nhiều lần trực tiếp vào triều chính. Ta đã cẩn thận đọc qua từng bức thư và thấy rất rõ ràng, Hoàng đế bệ hạ cũng đã xem qua những mật báo đó, và hắn không phải loại người dễ dàng bị xem nhẹ."
+Hán tử kia lạnh lùng liếc Trịnh Thủy Châu, nghĩ thầm: cô gái nhỏ này luôn kiêu ngạo, ở kinh thành đã không biết an phận, lại còn dựa vào người cưng chiều. Năm ngoái còn giao du với một vị hoàng tử Đại Triện, thật sự cho rằng mình là hoàng hậu đời sau được khâm định rồi sao?
 
-Lâm Thù cố gắng kìm nén tức giận, vẻ mặt âm trầm: "Đại tướng quân, người này năm nay khoảng 24-25 tuổi, thật sự đã gần hai mươi!"
+Đỗ Huỳnh hỏi:
 
-Đỗ Huỳnh không nhịn được cười, trầm mặc một chút, rồi lắc đầu: "Tối nay đến nhà, vốn dĩ để đề phòng vạn nhất, giúp Lâm môn chủ thanh lý môn hộ, quét sạch mọi chướng ngại trên con đường giang hồ. Ta không phải là kẻ thích lạm sát."
+- Lâm môn chủ, ý ngươi thế nào?
 
-Ngự mã giám lão hoạn quan cười nhẹ: "Hành sự tùy theo hoàn cảnh, không cần nóng vội, tối nay sẽ có nhiều điều thú vị để xem."
+Lâm Thù có chút tức giận:
 
-Đỗ Huỳnh nhìn sang cầu dây, "Ta sợ rằng nếu Kim Lân cung tu sĩ thực sự ra tay, khi chúng ta đi đến giữa cầu mà nó bị đứt thì sao?"
+- Đám nam tử trẻ tuổi trên núi đều đáng chết! Nhưng ta có hai yêu cầu: tên đệ tử kia phải chết, và cái tên lấy oán báo ơn cũng phải chết! Tranh Vanh môn ta xử lý phản đồ tuy chẳng mong gì hơn [?], nhưng khiến bọn họ sống không bằng chết thì không khó.
 
-Lão hoạn quan gật đầu: "Đúng là một phiền toái lớn."
+Đỗ Huỳnh lắc đầu:
 
-Hán tử chất phác lạnh nhạt nói: "Đỗ tướng quân yên tâm, chỉ cần đối phương có gan ra tay, cầu tuyệt sẽ không bị đứt, người kia chắc chắn sẽ phải chết."
+- Tên trước giết cũng không sao, nhưng tên sau đầy tham vọng, tài trí không tầm thường. Những năm qua hắn luôn gửi mật thư cho triều đình, không chỉ bày mưu chuyện giang hồ mà còn nhiều lần bàn thẳng đến triều chính. Ta đã cẩn thận đọc từng bức, thấy rất rõ ràng. Hoàng đế bệ hạ cũng đã xem những mật báo đó, hắn không phải loại có thể xem nhẹ.
 
-Đỗ Huỳnh cười hỏi: "Tiên sư chắc không?"
+Lâm Thù cố kìm cơn giận, vẻ mặt âm trầm:
 
-Hán tử gật đầu: "Chúng ta Quốc sư phủ sẽ không lừa gạt Đỗ tướng quân."
+- Đại tướng quân, người này năm nay hai mươi tư, hai mươi lăm [?], cũng coi như sát tuổi hai mươi!
 
-Một vị từ nhất phẩm Trấn quốc đại tướng quân lại là hoàng đế nghĩa tử của Kim Phi quốc. Nếu hắn chết thì đương nhiên sẽ gây phiền toái, bởi Kim Phi quốc có tân quân lên ngôi, trong khi đó quốc sư phủ của Đại Triện vương triều đang mưu đồ trật tự. Một võ tướng cầm trọng binh phản loạn không thể so sánh với một vị mặc long bào danh chính ngôn thuận, hai bên thân phận hoàn toàn khác nhau. Người trước có thể dễ dàng mượn dao giết người, còn người sau thì tuyệt đối không thể.
+Đỗ Huỳnh không nhịn được bật cười, trầm mặc một chút rồi lắc đầu:
 
-Đỗ Huỳnh thu đao vào vỏ, vung tay lên: "Qua cầu!"
+- Tối nay đến đây, vốn là để đề phòng vạn nhất, giúp Lâm môn chủ thanh lý môn hộ, quét sạch mọi chướng ngại trên con đường giang hồ. Ta không phải kẻ thích giết bừa.
 
-Ngay lúc đó, trên ngọn núi cao, một lão giả đã bắt được một vị trẻ tuổi, cưỡi gió bay vút mà đi. Lão giả trên người phát ra ánh sáng rực rỡ như cá vàng ở trong suốt, giữa màn đêm cực kỳ thu hút ánh nhìn.
+Lão hoạn quan Ngự mã giám cười nhẹ:
 
-Đỗ Huỳnh ngửa đầu nhìn lại, nói: "Quả nhiên là âm hồn bất tán Kim Lân cung tu sĩ, xem ra họ không thể ngồi yên."
+- Tùy cơ ứng biến, không cần nóng vội, tối nay còn nhiều chuyện thú vị để xem.
 
-Sau lưng Đỗ Huỳnh, hán tử nâng hộp đã một phất tay đi qua, hóa thành một vệt hồng quang, là một vị Kim Đan tu sĩ của Quốc sư phủ Đại Triện, cũng là học trò hàng đầu của hộ quốc chân nhân.
+Đỗ Huỳnh nhìn sang cầu xích:
 
-Đối phương là Kim Lân cung tu sĩ, chắc chắn là một vị Long Môn cảnh tu sĩ. Hắn dẫn theo người cùng chạy xa, trong khi hán tử cầm đao lại mạnh mẽ hơn, binh khí trên tay là một trong những trọng khí quốc gia được người dân kính ngưỡng. Hắn vung đao bổ tới, lão tu sĩ Kim Lân cung nhanh chóng bấm niệm pháp quyết, ánh kim quang từ pháp bào bỗng nhiên bùng lên, lơ lửng ở chỗ cũ, chợt biến lớn như một chiếc lưới vàng, chắn trước ánh đao. Lão giả lập tức tiếp tục đưa người trẻ tuổi rời xa ngọn núi cao.
+- Ta sợ nếu tu sĩ Kim Lân cung thật sự ra tay, đi đến giữa cầu mà nó bị đứt thì sao?
 
-Đại triện quốc sư phủ Kim Đan tu sĩ đánh một đao, chém tan pháp bào, cưỡi gió lao nhanh, trong chớp mắt đã đến gần lão tu sĩ Kim Lân cung. Hắn chém một đao cận thân, lão tu sĩ muốn hết sức ném người trẻ tuổi ra phía ngoài. Người trẻ tuổi này cũng có vài bùa phép Kim Lân cung, giúp hắn tạm thời cưỡi gió như một luyện khí sĩ, nhưng lão tu sĩ biết rõ đây chỉ là vùng vẫy giãy chết mà thôi. Ai có thể nghĩ Kim Phi quốc không chỉ tìm được Tranh Vanh sơn mà còn có một vị Kim Đan tu sĩ của quốc sư phủ Đại Triện?
+Lão hoạn quan gật đầu:
 
-Cổ tay lão giả hơi vặn, đao trong tay đã thay đổi quỹ tích, một đao bổ xuống, chém đứt đầu lão tu sĩ và người trẻ tuổi.
+- Đúng là một phiền toái lớn.
 
-Trước khi chết, lão tu sĩ nổ tung toàn bộ khí linh khí, muốn cùng một vị Kim Đan tu sĩ chôn cùng.
+Hán tử chất phác lạnh nhạt nói:
 
-Hán tử cầm đao sau đó lướt đi, treo lơ lửng giữa không trung, khi hai thi thể của lão già và người trẻ tuổi hòa làm một, biến thành bột mịn, phát ra một cơn gió mạnh, khiến cho sợi dây cầu xa xa cũng rung lên mạnh mẽ, các chiến sĩ mặc giáp trên cầu bị quẳng xuống, sau đó bị Đỗ Huỳnh và Trịnh Thủy Châu sử dụng thiên cân trụy, lúc này mới ổn định lại cầu.
+- Đỗ tướng quân yên tâm, chỉ cần đối phương có gan ra tay, cầu tuyệt đối không đứt, còn kẻ đó chắc chắn phải chết.
 
-Hán tử chất phác cúi đầu nhìn thanh bảo đao, nhẹ gật đầu rồi nhíu mày, cưỡi gió trở về cầu dây, nhẹ nhàng đáp xuống.
+Đỗ Huỳnh cười hỏi:
 
-Đỗ Huỳnh hạ thấp giọng hỏi: "Thế nào? Thật sự là dư nghiệt sao?"
+- Tiên sư chắc chứ?
 
-Hán tử gật đầu: "Vết máu không giả, nhưng khí long chưa đủ, có chút không hoàn hảo, chắc chắn sẽ hao tổn hiệu quả của đao này. Nhưng điều này cũng bình thường, quốc tộ vừa đứt, cho dù là hoàng đế tiền triều thì cũng khó mà giữ được khí long."
+Hán tử gật đầu:
 
-Đỗ Huỳnh hít sâu một hơi, nắm chặt xích sắt, vui vẻ nói: "Ta cuối cùng có thể thẳng tắp cái eo, trở lại kinh thành làm một danh tướng thực thụ rồi!"
+- Quốc sư phủ chúng ta sẽ không lừa gạt Đỗ tướng quân.
 
-Hán tử kia cẩn thận thu đao vào chiếc hộp dài, trên mặt lộ ra một chút vui vẻ, nói: "Đỗ tướng quân không chỉ có công lớn ở bên hoàng đế."
+Một vị Trấn quốc đại tướng quân tòng nhất phẩm lại là nghĩa tử của hoàng đế Kim Phi quốc, nếu hắn chết thì đương nhiên sinh phiền toái, bởi Kim Phi quốc có tân quân lên ngôi, trong khi Quốc sư phủ Đại Triện đang mưu đồ sắp đặt trật tự. Một võ tướng cầm trọng binh phản loạn không thể so với một vị mặc long bào danh chính ngôn thuận, thân phận hai bên khác hẳn nhau. Với người trước có thể dễ dàng mượn dao giết người, còn người sau thì tuyệt đối không thể.
 
-Hán tử trực tiếp đem hộp gỗ vứt cho Trịnh Thủy Châu, ánh mắt trở nên vui vẻ, “Ở bên này của chúng ta, Trịnh nữ hiệp, cũng có không ít hương khói tình cảm đấy.”
+Đỗ Huỳnh thu đao vào vỏ, vung tay lên:
 
-Trịnh Thủy Châu vẻ mặt nghi ngờ, cau mày hỏi: “Phùng Dị, sao ngươi không trực tiếp mang về quốc sư phủ?”
+- Qua cầu!
 
-Nàng rõ ràng lo lắng cho vị Kim Đan tu sĩ này, sợ rằng hắn cầm bảo đao đi đến hoàng đế tranh công.
+Ngay lúc đó, trên ngọn núi cao, một lão giả túm lấy một người trẻ tuổi, ngự gió bay vút đi. Trên người lão giả tỏa ra ánh sáng rực rỡ như cá vàng trong suốt, giữa màn đêm cực kỳ bắt mắt.
 
-Người đàn ông kia không muốn tốn thời gian nói nhảm với người phụ nữ này.
+Đỗ Huỳnh ngửa đầu nhìn, nói:
 
-Hắn đang phải đối phó với những âm mưu đen tối, cố gắng dìm nước để chiếm lấy cả kinh thành, khiến cho toàn bộ kinh thành trở thành nước của hắn, trong khi sư phụ của hắn chỉ là một vị tinh thông nước pháp Nguyên Anh tu sĩ. Hắn không biết làm thế nào để so đấu pháp thuật với một người có xuất thân thủy giao bẩm sinh. Nói cho cùng, hắn cần đến sự trợ giúp của sư phụ nhỏ bé này, dựa vào bảo đao Kim Phi quốc, mới có hy vọng một nhát g**t ch*t kẻ thù, thuận lợi kết liễu đám hung ác, cùng nhiều tu sĩ ở quốc sư phủ. Chỉ cần tránh được cuộc đại chiến sẽ là tốt nhất, giữ cho kinh thành không bị hồng thủy bao phủ. Một khi mất cảnh giác, có thể cả bàn cờ sẽ thua, vận mệnh của cả triều đại Chu thị đều có thể bị hủy hoại. Quốc sư phủ có thể lâm vào tình trạng nguy cấp như thế, sao có thể tranh giành công lao với một cô nương nhỏ bé như vậy? Hơn nữa, khi đại chiến bắt đầu, ai sẽ là người thực sự làm việc? Hẳn như Phùng Dị sẽ chỉ là một chân nhân hộ quốc thượng dẫn, có đáng để từ tay tiểu cô nương đó mà giành lấy bảo đao, rồi lại chạy đến trước mặt bà lão, dâng hai tay, cười khanh khách, cầu khẩn nàng nhận lấy bảo đao để ra ngoài giết kẻ thù không?
+- Quả nhiên là tu sĩ Kim Lân cung âm hồn bất tán, xem ra bọn họ không ngồi yên được nữa.
 
-Lâm Thù cảm thấy hai chân như nhũn ra, một tay phải tựa vào xích sắt.
+Sau lưng Đỗ Huỳnh, hán tử ôm hộp đã phất tay bay đi, hóa thành một vệt hồng quang. Hắn là một vị tu sĩ Kim Đan của Quốc sư phủ Đại Triện, cũng là học trò hàng đầu của hộ quốc chân nhân.
 
-Quả thật kẻ thù đang ẩn mình ngay dưới chân mắt của mình!
+Đối phương là tu sĩ Kim Lân cung, chắc là một vị Long Môn cảnh, lại dẫn theo người nên không chạy xa được, còn hán tử cầm đao mạnh hơn, trong tay lại là một món trọng khí quốc gia được dân chúng kính ngưỡng. Hắn vung đao bổ tới. Lão tu sĩ Kim Lân cung nhanh chóng bấm pháp quyết, kim quang từ pháp bào bỗng bùng lên, lơ lửng tại chỗ, chợt lớn như một tấm lưới vàng chắn trước ánh đao, còn lão giả lập tức tiếp tục đưa người trẻ tuổi rời khỏi ngọn núi cao.
 
-Đỗ Huỳnh cười nói: “Được rồi, Lâm Thù, đã bao năm ngươi cẩn trọng vì hoàng đế bệ hạ, truyền đạt mật báo tới kinh thành. Lần này, ở trên hồ, ngươi lại giúp ta tiêu diệt hai đạo cao thủ chính tà, tối nay còn được biết đến ân oán xưa.”
+Tu sĩ Kim Đan Quốc sư phủ Đại Triện đánh một đao chém tan pháp bào, ngự gió lao nhanh, chớp mắt đã đến gần lão tu sĩ Kim Lân cung. Hắn chém một đao cận thân, lão tu sĩ dốc hết sức ném người trẻ tuổi ra ngoài. Người trẻ tuổi có mấy tấm bùa của Kim Lân cung, tạm thời có thể ngự gió như luyện khí sĩ, nhưng lão tu sĩ biết rõ đây chỉ là vùng vẫy giãy chết mà thôi. Ai ngờ Kim Phi quốc không chỉ tìm ra Tranh Vanh sơn, còn có một vị tu sĩ Kim Đan của Quốc sư phủ Đại Triện đi cùng?
 
-Lâm Thù cười có phần ngại ngùng. Nghe Đỗ Huỳnh nói vậy, nàng cảm thấy nhẹ nhõm, nhưng không dám hoàn toàn yên tâm, chỉ sợ triều đình có chuyện gì thì sẽ quy trách nhiệm cho mình.
+Cổ tay hán tử hơi vặn, thanh đao đổi quỹ đạo, một nhát bổ xuống, chém đứt đầu cả lão tu sĩ lẫn người trẻ tuổi.
 
-Đỗ Huỳnh cũng không muốn nói thêm điều gì, để Lâm Thù chờ đợi trong lo lắng. Lâm Thù và Tranh Vanh Sơn là thế lực giang hồ, giống như bùn nhão trong nước, tuy nhất định phải có, nhưng nếu là người khác, khi thay triều đình làm việc chắc chắn sẽ ra sức, nhưng chưa chắc đã đạt hiệu quả như Lâm Thù. Hơn nữa, với nhiều quyền lực nắm trong tay Đỗ Huỳnh và triều đình, Tranh Vanh Sơn sẽ chỉ càng dễ bị chi phối, và làm việc không còn từ bi.
+Trước khi chết, lão tu sĩ cho nổ tung toàn bộ linh khí, muốn kéo vị tu sĩ Kim Đan kia cùng chôn thân.
 
-Đỗ Huỳnh do dự một chút rồi nói: “Tối nay sẽ đặt chân tại Tranh Vanh Sơn.”
+Hán tử cầm đao lập tức lướt ra, lơ lửng giữa không trung. Hai thi thể già trẻ hòa làm một, hóa thành bột mịn, cuốn lên một cơn gió lớn khiến dây cầu ở xa cũng rung dữ dội, mấy chiến sĩ mặc giáp trên cầu bị hất văng xuống. Đỗ Huỳnh và Trịnh Thủy Châu đồng thời dùng thiên cân trụy, lúc này cây cầu mới ổn định lại.
 
-Lâm Thù nhỏ giọng hỏi: “Những người trẻ tuổi phù hợp thì sao?”
+Hán tử chất phác cúi nhìn thanh bảo đao, khẽ gật đầu rồi lại nhíu mày, ngự gió trở về cầu xích, nhẹ nhàng đáp xuống.
+
+Đỗ Huỳnh hạ thấp giọng hỏi:
+
+- Thế nào? Thật sự là dư nghiệt sao?
+
+Hán tử gật đầu:
+
+- Máu không giả, nhưng long khí chưa đủ, có chút không trọn vẹn, chắc chắn sẽ hao tổn hiệu quả của thanh đao này. Nhưng cũng bình thường thôi, quốc tộ đã đứt, cho dù là hoàng tử tiền triều thì cũng khó giữ được long khí.
+
+Đỗ Huỳnh hít sâu một hơi, nắm chặt xích sắt, vui vẻ nói:
+
+- Cuối cùng ta có thể thẳng lưng, trở về kinh thành làm một danh tướng thực thụ rồi!
+
+Hán tử cẩn thận thu đao vào hộp dài, trên mặt lộ ra chút vui vẻ:
+
+- Đỗ tướng quân không chỉ có công lớn với hoàng đế.
+
+Hắn ném luôn hộp gỗ cho Trịnh Thủy Châu, ánh mắt vui vẻ:
+
+- Bên chúng ta, Trịnh nữ hiệp cũng có không ít phần hương khói tình đấy.
+
+Trịnh Thủy Châu nghi ngờ, cau mày hỏi:
+
+- Phùng Dị, sao ngươi không trực tiếp mang về Quốc sư phủ?
+
+Rõ ràng nàng đề phòng vị tu sĩ Kim Đan này, sợ hắn cầm bảo đao đến chỗ hoàng đế tranh công.
+
+Phùng Dị không muốn tốn thời gian nói nhảm với nữ nhân này.
+
+Con giao long kia đang mưu đồ đen tối, muốn dìm nước để chiếm cả kinh thành, biến toàn bộ kinh thành thành thủy phủ của nó, trong khi sư phụ hắn chỉ là một tu sĩ Nguyên Anh tinh thông thủy pháp, làm sao đấu nổi pháp thuật với kẻ bẩm sinh là thủy giao? Nói cho cùng, vẫn cần đến sư phụ của tiểu cô nương này, dựa vào bảo đao Kim Phi quốc, mới có hy vọng một đao giết được, thuận lợi kết liễu con nghiệt súc cùng nhiều tu sĩ của Quốc sư phủ. Chỉ cần tránh được đại chiến là tốt nhất, giữ cho kinh thành khỏi bị hồng thủy nhấn chìm. Một khi sơ suất, có thể thua cả ván cờ, vận mệnh của triều đại Chu thị cũng bị hủy. Quốc sư phủ đã lâm vào tình cảnh nguy cấp như thế, sao có thể tranh công với một tiểu cô nương? Hơn nữa khi đại chiến bắt đầu, ai sẽ là người thực sự xông pha? Phùng Dị hắn chỉ là một đệ tử dưới trướng hộ quốc chân nhân, có đáng từ tay tiểu cô nương giành lấy bảo đao, rồi chạy tới trước mặt bà lão, hai tay dâng lên, cười khanh khách cầu bà nhận đao ra ngoài giết địch hay không?
+
+Lâm Thù cảm thấy hai chân nhũn ra, tay phải phải tựa vào xích sắt.
+
+Quả thật kẻ thù đã ẩn mình ngay trước mắt mình!
+
+Đỗ Huỳnh cười nói:
+
+- Được rồi, Lâm Thù. Bao năm nay ngươi cẩn trọng vì hoàng đế bệ hạ, truyền mật báo về kinh thành. Lần này trên hồ lại giúp ta diệt hai đạo cao thủ chính tà, tối nay còn dứt được ân oán xưa.
+
+Lâm Thù cười có phần gượng gạo. Nghe Đỗ Huỳnh nói vậy hắn thấy nhẹ nhõm, nhưng không dám hoàn toàn yên tâm, chỉ sợ triều đình có chuyện gì sẽ đổ trách nhiệm lên đầu mình.
+
+Đỗ Huỳnh cũng không muốn nói thêm, để Lâm Thù chờ đợi trong lo lắng. Lâm Thù và Tranh Vanh sơn là thế lực giang hồ, tựa như bùn nhão trong nước, nhất định phải có. Đổi người khác thay triều đình làm việc chắc cũng ra sức, nhưng chưa chắc hiệu quả bằng Lâm Thù. Hơn nữa với thóp nắm trong tay của Đỗ Huỳnh và triều đình, Tranh Vanh sơn chỉ càng dễ bị chi phối, làm việc càng không biết từ bi.
+
+Đỗ Huỳnh do dự một chút rồi nói:
+
+- Tối nay nghỉ lại Tranh Vanh sơn.
+
+Lâm Thù nhỏ giọng hỏi:
+
+- Còn những người trẻ tuổi hợp tuổi thì sao?
 
 Đỗ Huỳnh có chút do dự.
 
-Kim Đan hán tử ở quốc sư phủ chợt giật giật khóe miệng, thuận miệng nói: “Cẩn thận chèo thuyền đi được vạn năm, Lâm đại môn chủ tự xem xét.”
+Hán tử Kim Đan của Quốc sư phủ chợt giật khóe miệng, thuận miệng nói:
 
-Lâm Thù ánh mắt lạnh lẽo đứng dậy.
+- Cẩn thận đi được thuyền vạn năm, Lâm đại môn chủ tự liệu đi.
 
-Một đoàn người đi qua cầu dây, tiến vào ngôi làng đèn đuốc sáng trưng.
+Ánh mắt Lâm Thù lạnh đi, đứng thẳng dậy.
 
-Tại vách núi, Trần Bình An vẫn không hề tổn thương gì.
+Một đoàn người đi qua cầu xích, tiến vào làng núi đèn đuốc sáng trưng.
 
-Trên đỉnh núi cao vút trong ngôi làng, tại hành lang của Tranh Vanh, máu tươi đã nhuộm đỏ cả mặt đất.
+Trên vách núi, Trần Bình An vẫn bất động [?].
+
+Trên đỉnh cao nhất trong làng, tại sảnh đường Tranh Vanh, máu tươi đã nhuộm đỏ mặt đất.
 
 Lâm Thù không biểu cảm ngồi ở vị trí chủ tọa.
 
-Hán tử chất phác từ quốc sư phủ, Trịnh Thủy Châu, tướng quân Đỗ Huỳnh của Kim Phi quốc, và lão hoạn quan ngự mã giám lần lượt ngồi xuống.
+Hán tử chất phác của Quốc sư phủ, Trịnh Thủy Châu, tướng quân Đỗ Huỳnh của Kim Phi quốc và lão hoạn quan Ngự mã giám lần lượt ngồi xuống.
 
-Đối diện là một số vị Lâm thị trưởng bối từ Tranh Vanh, sau đó là Lâm Thù, con gái duy nhất, cùng tất cả đệ tử thân truyền của nàng. Họ cũng không dám nhìn về phía đối diện.
+Đối diện là mấy vị trưởng bối họ Lâm của Tranh Vanh môn, tiếp đó là con gái duy nhất của Lâm Thù cùng toàn bộ đệ tử thân truyền của hắn. Bọn họ không dám nhìn về phía đối diện.
 
-Bởi vì môn chủ Lâm Thù xưa nay không hề muốn ngồi ở vị trí chủ tọa, nhưng cuối cùng vì nữ kiếm khách đó có vẻ không vui, nên Lâm Thù mới vội vàng ngồi xuống.
+Bởi vì xưa nay môn chủ Lâm Thù không hề muốn ngồi ở vị trí chủ tọa, nhưng thấy nữ kiếm khách kia có vẻ không vui, hắn mới vội vàng ngồi xuống.
 
 Trong đại sảnh, những nam tử dưới hai mươi tuổi đã chết hơn nửa.
 
-Trịnh Thủy Châu sắc mặt lạnh lùng, nhìn lại và nói: “Giết những kẻ phế vật này, thú vị sao?!”
+Trịnh Thủy Châu sắc mặt lạnh lùng, nhìn lại mà nói:
 
-Phùng Dị ở quốc sư phủ mỉm cười nói: “Biết đâu còn có thể câu được một con cá lớn từ Kim Lân cung.”
+- Giết mấy kẻ phế vật này, thú vị lắm sao?!
 
-Còn cách đại sảnh Tranh Vanh một đoạn đường,
+Phùng Dị của Quốc sư phủ mỉm cười:
 
-Một vị học trò già tiếp nhận thư đã trở thành thầy giáo trẻ tuổi, cười lạnh không thôi, đứng dậy, một cái đẩy chân, từ dưới nền đất b*n r* một thanh kiếm dài, cầm kiếm đi ra cửa chính của trường, thẳng tiến vào nơi có thị phi.
+- Biết đâu còn câu được một con cá lớn của Kim Lân cung.
 
-Kim Lân cung và đại triện vương triều mối quan hệ căng thẳng, cả hai chỉ là tạm thời nhượng bộ nhau.
+Cách đại sảnh Tranh Vanh một đoạn đường.
 
-Nếu như ở đây kẻ nào chết, hắn sẽ không ngần ngại danh chính ngôn thuận giết một vị Kim Đan luyện khí sĩ của đại triện, nếu như không nhìn nhầm, thì cô nương kiếm khách trẻ tuổi đó chính là đệ tử của bà lão đã mất, mà đã có hai người thiệt mạng, nhất là người đã mất cái bảo đao, lại thêm việc Đỗ Huỳnh sống sót, đủ để khiến Kim Phi quốc hoàng đế phải đau đầu, không cách nào truyền đạt lại với hoàng đế Chu thị.
+Trong trường của thầy giáo trẻ, một lão già trông coi sách vở [?] cười lạnh không thôi, đứng dậy, giậm chân một cái, từ dưới nền đất bắn ra một thanh trường kiếm. Lão cầm kiếm đi ra cổng trường, thẳng tiến vào chốn thị phi.
 
-Ở bên vách núi, Trần Bình An buông tay, bất ngờ rơi nhanh xuống.
+Kim Lân cung và Đại Triện vương triều vốn căng thẳng, hai bên chỉ tạm thời nhượng bộ nhau.
 
-Khi gần chạm đáy vách đá, hắn mới thò tay ra bám vào, hãm lại tốc độ rơi, nhẹ nhàng hạ xuống, chậm rãi đi xa.
+Nếu ở đây có kẻ chết, lão sẽ danh chính ngôn thuận giết một vị luyện khí sĩ Kim Đan của Đại Triện. Nếu không nhìn nhầm, cô nương kiếm khách trẻ tuổi kia chính là đệ tử của bà lão. Hai người bỏ mạng, lại mất bảo đao, cộng thêm việc Đỗ Huỳnh sống sót, đủ khiến hoàng đế Kim Phi quốc đau đầu, không cách nào ăn nói với hoàng đế Chu thị.
+
+Bên vách núi, Trần Bình An buông tay, rơi nhanh xuống.
+
+Khi gần chạm đáy vách đá, hắn mới thò tay bám vào, hãm tốc độ lại, nhẹ nhàng hạ xuống rồi chậm rãi đi xa.
 
 Có thể đây chính là một cái bẫy săn sâu xa.
 
-Tuy người người đều có mục đích riêng,
+Tuy người người đều có mục đích riêng.
 
-Nhưng khi chính thức hiện thân, bước vào trong đó, cảnh giới càng cao, nói không chừng sẽ chết càng nhanh.
+Nhưng khi chính thức hiện thân, bước vào trong đó, cảnh giới càng cao, nói không chừng chết càng nhanh.
 
-Trần Bình An sẽ không thể trốn tránh.
+Trần Bình An không thể không tránh [?].
 
-Chạy trốn khỏi kinh thành, tiền triều dư nghiệt, kim phi quốc soán vị hoàng đế, đảo loạn giang hồ nghĩa tử của Đỗ Huỳnh, tôn thờ triều đình Tranh Vanh môn Lâm Thù, âm thầm bảo vệ hoàng tử Kim Lân cung, đại triện bát cảnh vũ phu, quốc sư phủ Kim Đan tu sĩ, tất cả những điều đó, đều dìm nước đại triện của kinh thành.
+Hoàng tử trốn khỏi kinh thành, dư nghiệt tiền triều, hoàng đế soán vị của Kim Phi quốc, nghĩa tử Đỗ Huỳnh khuấy đảo giang hồ, Lâm Thù của Tranh Vanh môn phụng sự triều đình, Kim Lân cung âm thầm bảo vệ hoàng tử, nữ võ phu cảnh thứ tám của Đại Triện, tu sĩ Kim Đan Quốc sư phủ, tất cả đều dính tới chuyện dìm nước kinh thành Đại Triện.
 
-Một vị mười cảnh vũ phu của đại triện vương triều đã kết thành tử thù với đại kiếm tiên.
+Lại thêm một vị võ phu cảnh thứ mười của Đại Triện vương triều đã kết thành tử thù với một đại kiếm tiên.
 
 Trần Bình An rời đi xa.
 
-Vị cao cấp nhất trong Kim Lân cung, một Kim Đan kiếm tu, bị một mũi xuyên thủng vào mi tâm, hồng quang lóe lên rồi biến mất, trong cơ thể Kim Đan bị xé nát chỉ trong nháy mắt.
+Vị tu sĩ có cảnh giới cao nhất của Kim Lân cung ở đây, một kiếm tu Kim Đan, bị một mũi kiếm xuyên thủng mi tâm. Hồng quang lóe lên rồi biến mất, Kim Đan trong cơ thể bị xé nát chỉ trong nháy mắt.
 
-Trước khi chết, Kim Đan kiếm tu mà ít khi để lộ cảm xúc hoảng sợ trừng mắt, lẩm bẩm: “Kiếm tiên Kê Nhạc…”
+Trước khi chết, vị kiếm tu Kim Đan vốn ít khi lộ cảm xúc hoảng sợ trừng mắt, lẩm bẩm:
 
-Thi thể nhanh chóng tan ra thành một vũng máu loãng.
+- Kiếm tiên Kê Nhạc...
 
-Ở đối diện trên đỉnh núi, một vị lão nhân thấp bé chắp tay sau lưng, “Một kẻ nhỏ bé Kim Đan, cũng dám làm hỏng chuyện của ta? Kiếp sau nếu được đầu thai chuyển thế, ta sẽ học hỏi vị trẻ tuổi đó, để hai lần tránh được tai họa.”
+Thi thể nhanh chóng tan thành một vũng máu loãng.
 
-Chỉ trong nháy mắt,
+Trên đỉnh núi đối diện, một lão nhân thấp bé chắp tay sau lưng:
 
-Lão nhân thấp bé tiến đến bên cạnh người đàn ông trong bộ thanh sam, đi cùng nhau và nói: “Người ở nơi khác, làm sao có thể phát hiện ra điều gì không đúng? Có thể kể ra hay không? Hay chỉ tham gia náo nhiệt thôi? Nhìn ngươi tuổi không lớn mà làm việc rất thận trọng.”
+- Một tên Kim Đan nhỏ bé cũng dám làm hỏng chuyện của ta? Kiếp sau nếu được đầu thai chuyển thế, nên học vị trẻ tuổi kia, biết hai lần tránh được tai họa.
 
-Trần Bình An cầm gậy leo núi trong tay, vẫn bước đi không ngừng, cười nói: “Lão tiên sinh cứ dùng cá lớn để câu cá lớn, vãn bối không dám nhúng tay vào vũng nước đục này.”
+Chỉ trong nháy mắt.
 
-Lão nhân thấp bé vuốt đầu, “Ngươi cảm thấy kẻ tiền triều dư nghiệt đó đã chết chưa?”
+Lão nhân thấp bé đã đến bên cạnh người mặc thanh sam, cùng đi và nói:
 
-Trần Bình An lên tiếng: "Hẳn là tiên gia cổ tay treo đầu dê mà bán thịt chó, trên người chảy xuôi Long huyết, lại không phải chính thức long chủng. Lâm Thù đúng là một nhân vật rắn rỏi của trung tâm tiền triều tiên đế, vô luận thế nào cũng đều muốn che chở cho hạt giống đọc sách kia. Đỗ Huỳnh và những người trong đoàn vẫn bị lừa gạt. Vị lão tu sĩ Kim Lân cung kia thực sự rất quyết đoán, giúp đỡ để lừa dối. Còn về phần người trẻ tuổi kia, càng phải nói là tâm tính kín đáo, nếu không thì chỉ có Lâm Thù, thật khó mà làm được bước này. Nhưng đối với lão tiên sinh mà nói, những trò hề nhỏ bé của họ đều là trò cười. Dù sao, long chủng của Kim Phi quốc tiền triều không chết thì vẫn tốt, cái cửa áp thắng của giao long thuộc bảo đao đó, kém một chút hỏa hầu nhưng vẫn rất tốt. Vì vậy, nguyên bản lão tiên sinh của Tranh Vanh môn chỉ cần đợi bất động là có thể không phải chết dưới phi kiếm của lão tiên sinh."
+- Người xứ khác như ngươi, làm sao phát hiện ra điều gì không đúng? Có thể kể ra không? Hay chỉ đến xem náo nhiệt? Nhìn ngươi tuổi không lớn mà làm việc rất thận trọng.
 
-"Thành thật mà nói, không biết thì đừng nói, biết gì thì nói nấy, như vậy sẽ tránh được một kiếp."
+Trần Bình An cầm gậy leo núi, vẫn bước đi không ngừng, cười nói:
 
-Lão nhân thấp bé nói xong, trầm ngâm một lát, rồi kêu kỳ lạ: "Có ý nghĩa, có chút ý nghĩa. Đáng tiếc, thật sự là đáng tiếc."
+- Lão tiên sinh đang dùng cá lớn câu cá lớn, vãn bối nào dám nhúng tay vào vũng nước đục này.
 
-Người mang mũ rộng vành, mặc thanh sam đứng lại, cười nói: "Lão tiên sinh đừng làm ta sợ, ta chỉ là người gan nhỏ, với lại như vậy đằng đằng sát khí, ta chắc chắn đánh không lại lão tiên sinh, liều mạng cũng không được, ta đây chỉ có thể chuyển lời về tiên sinh cùng sư huynh vì mạng sống của mình, có cách rồi."
+Lão nhân thấp bé vuốt đầu:
 
-Lão nhân thấp bé cười lớn, nhìn người trẻ tuổi kia, gật gật đầu: "Rất nhạy bén, mạng sống của ngươi, giống ta khi còn trẻ, cũng đã từng anh tuấn láu cá, coi như là nửa phần đồng đạo. Nếu ta thực sự đánh chết lão thất phu đó, ngươi sẽ đến Viên Đề sơn tìm ta, nếu có ai cản trở, hãy nói ngươi quen một cái họ Kê lão đầu nhi. Đúng rồi, ngươi thông minh như vậy, cũng đừng nghĩ đến việc đi mật báo cho đại triện Chu thị hoàng đế. Được không hoặc sẽ mất đấy."
+- Ngươi cảm thấy dư nghiệt tiền triều kia đã chết chưa?
+
+Trần Bình An nói:
+
+- Hẳn là thủ đoạn treo đầu dê bán thịt chó của tiên gia. Trên người hắn chảy long huyết, nhưng lại không phải long chủng chính thức. Lâm Thù đúng là một nhân vật cứng cỏi, trung thành với tiên đế tiền triều, dù thế nào cũng muốn che chở cho hạt giống đọc sách kia. Đỗ Huỳnh và cả đoàn vẫn bị lừa. Vị lão tu sĩ Kim Lân cung kia thật sự rất quyết đoán, giúp bọn họ lừa dối. Còn người trẻ tuổi kia, tâm tính càng kín đáo, nếu chỉ có Lâm Thù thì khó mà làm được đến bước này. Nhưng đối với lão tiên sinh mà nói, những trò nhỏ của họ đều là trò cười. Dù sao long chủng tiền triều của Kim Phi quốc có chết hay không cũng được, thanh bảo đao áp thắng giao long tuy kém chút hỏa hầu vẫn dùng rất tốt. Vì vậy vị Kim Đan của Tranh Vanh môn vốn chỉ cần bất động là không phải chết dưới phi kiếm của lão tiên sinh.
+
+- Thành thật mà nói, không biết thì đừng nói, biết gì thì nói nấy, như vậy sẽ tránh được một kiếp.
+
+Lão nhân thấp bé nói xong, trầm ngâm một lát rồi kêu lên kỳ lạ:
+
+- Có ý nghĩa, có chút ý nghĩa. Đáng tiếc, thật sự đáng tiếc.
+
+Người đội mũ rộng vành mặc thanh sam dừng lại, cười nói:
+
+- Lão tiên sinh đừng dọa ta, ta vốn gan nhỏ. Sát khí đằng đằng như vậy, ta chắc chắn đánh không lại lão tiên sinh, liều mạng cũng không được, đành phải báo danh tiên sinh và sư huynh của mình ra để giữ mạng thôi.
+
+Lão nhân thấp bé cười lớn, nhìn người trẻ tuổi, gật đầu:
+
+- Nhạy lắm, cái mạng của ngươi giống ta thời trẻ, cũng từng anh tuấn láu cá, coi như nửa phần đồng đạo. Nếu ta thật sự đánh chết lão thất phu kia, ngươi cứ đến Viên Đề sơn tìm ta, có ai cản thì nói ngươi quen một lão già họ Kê. À phải, ngươi thông minh như vậy, cũng đừng nghĩ đến chuyện đi mật báo cho hoàng đế Chu thị của Đại Triện. Được không bằng mất đấy.
 
 Trần Bình An thở dài.
 
-Quả thật là người trong truyền thuyết, Viên Đề sơn Tiên Nhân cảnh kiếm tu, Kê Nhạc.
+Quả nhiên là nhân vật trong truyền thuyết, kiếm tu Tiên Nhân cảnh của Viên Đề sơn, Kê Nhạc.
 
-Trần Bình An quay đầu nhìn về đỉnh núi đơn độc sáng ngời kia, đột nhiên hỏi: "Lão tiên sinh, nghe nói đại kiếm tiên khi xuất kiếm có thể nhanh chóng chặt đứt một số nhân quả?"
+Trần Bình An quay đầu nhìn về ngọn núi đơn độc sáng rực kia, đột nhiên hỏi:
 
-Lão nhân thấp bé suy nghĩ một chút rồi nói: "Ta vẫn chưa làm được."
+- Lão tiên sinh, nghe nói đại kiếm tiên xuất kiếm có thể chặt đứt một số nhân quả?
+
+Lão nhân thấp bé nghĩ một chút rồi nói:
+
+- Ta vẫn chưa làm được.
 
 Hai người lại rơi vào im lặng.
 
-Bất chợt, lão nhân lắc đầu, nói: "Ngươi tiểu tử này, vận khí cũng quá kém chút ít, mà hai ta lại có thể gặp nhau hai lần, thiếu chút nữa đã chết ba lượt. Thật sự là càng nhìn càng nhớ lại năm xưa."
+Bất chợt lão nhân lắc đầu:
 
-Trần Bình An cười cười: "Thói quen là tốt rồi."
+- Tiểu tử ngươi vận khí cũng kém quá, hai ta gặp nhau hai lần, thiếu chút nữa đã chết ba lượt. Thật là càng nhìn càng nhớ lại năm xưa.
 
-Lão nhân phất tay, "Đi thôi, luyện kiếm nhân cần phải không chịu ác mệnh, vậy là được."
+Trần Bình An cười cười:
 
-Người thanh sam kia tiếp tục bước đi.
+- Quen là được.
 
-Lão nhân thấp bé sờ đầu, nhìn người trẻ tuổi kia, ánh mắt phức tạp, thở dài nhẹ nhõm, rằng những điều trước đây thật sự là đáng tiếc, đó là về những người dám can đảm thực sự nghịch thiên hành sự để đọc sách.
+Lão nhân phất tay:
 
-Hắn vẫn còn chút không thể nén được, vung tay áo tạo nên một phương tiểu thiên địa, sau đó hỏi: "Ngươi có phải là đệ tử của người ở Bảo Bình châu không?"
+- Đi thôi. Người luyện kiếm đừng chịu thua số khổ là được.
 
-Người trẻ tuổi quay đầu nhưng lại không nói gì.
+Người mặc thanh sam tiếp tục bước đi.
 
-Kê Nhạc thần sắc lạnh nhạt, chắp tay sau lưng, trầm giọng: "Đừng để tiên sinh mất mặt."
+Lão nhân thấp bé sờ đầu, nhìn người trẻ tuổi, ánh mắt phức tạp, khẽ thở dài. Những điều đáng tiếc lúc trước chính là nói về vị người đọc sách năm xưa dám thật sự nghịch thiên hành sự [?].
 
-Người nọ vừa muốn nói lại thôi, nhưng chỉ gật đầu.
+Lão vẫn không nén nổi, vung tay áo tạo thành một phương tiểu thiên địa, rồi hỏi:
 
-Kê Nhạc vẫn không triệt hồi cấm chế, đột nhiên cười nói: "Có cơ hội ta sẽ nói cho ngươi về vị Tả sư bá kia, kiếm thuật của hắn... kỳ thật không cao lắm, năm đó ta cũng khinh thường, cảnh giới không cao mới gánh không nổi một kiếm của hắn."
+- Ngươi có phải là đệ tử của vị kia ở Bảo Bình Châu không?
 
-Người trẻ tuổi sắc mặt cổ quái.
+Người trẻ tuổi quay đầu nhưng không nói gì.
 
-Kê Nhạc vung tay nói: "Nhắc nhở ngươi một câu, tốt nhất hãy thu hồi cây trâm đó, giấu kỹ đi, mặc dù ta năm đó gần Thủy Lâu Đài, hơi chút bái kiến phía nam trận biến cố, mới cảm thấy có chút quen mắt, nhưng nếu không lại gần nhìn kỹ, ngay cả ta cũng không phát hiện ra điều kỳ quái, nhưng mà vạn nhất có gì xảy ra? Thì không phải tất cả kiếm tu đều như ta mà khinh thường gây khó dễ cho vãn bối. Hôm nay ở Bắc Câu Lô Châu, chỉ cần bị bọn họ nhận ra ngươi thân phận, hơn phân nửa sẽ không kìm nén nổi mà xuất kiếm, còn về phần làm thịt ngươi, liệu có thể rước ngươi đến gặp vị Tả sư bá ở Bắc Câu Lô Châu, thì với những thứ không biết trời cao đất rộng như Nguyên Anh hay Ngọc Phác, đây chẳng qua chỉ là một chuyện thú vị trong đời, thật không đáng sợ chết tý nào, đó chính là bầu không khí Bắc Câu Lô Châu, tốt hay không tốt."
+Kê Nhạc thần sắc lạnh nhạt, chắp tay sau lưng, trầm giọng:
 
-Người trẻ tuổi quay sang hỏi: "Năm đó ra biển xuất kiếm Bắc Câu Lô Châu là lão tiên sinh sao? Vì sao ta đã đọc rất nhiều sơn thủy công báo, chỉ xuất hiện suy đoán, không có ghi chép rõ ràng?"
+- Đừng để tiên sinh của ngươi mất mặt.
 
-Kê Nhạc bật cười: "Những kẻ đó giống như chuột, dù biết là ta Kê Nhạc, nhưng chúng dám gọi thẳng tên sao? Ngươi nhìn ba vị kiếm tiên phía sau, lại có ai biết được? Đúng rồi, về sau xuống núi luyện tập, vẫn nên cẩn thận một chút, như tối nay vậy. Ngươi sẽ không bao giờ biết một bầy kiến hôi phía sau giật dây mình, cuối cùng là thần thánh nào. Lời nói khó nghe đấy, Đỗ Huỳnh đối đãi Lâm Thù, ngươi xem Đỗ Huỳnh dừng lại, ta xem cách đối đãi của ngươi, lại có ai biết, có thể có người đang theo dõi ta Kê Nhạc không? Bao nhiêu người trên núi tu đạo, đã chết cũng không thể rút được một ít rõ ràng, càng đừng đề cập đến dưới núi. Những điều khó khăn hỗn tạp đều có thể ghi nhận, chỉ có sự ngu xuẩn mới không có thuốc nào cứu chữa."
+Người trẻ tuổi muốn nói lại thôi, chỉ gật đầu.
 
-Người trẻ tuổi ôm quyền, nói: "Lão tiên sinh dạy bảo, vãn bối sẽ nhớ kỹ."
+Kê Nhạc vẫn chưa triệt hồi cấm chế, đột nhiên cười nói:
+
+- Có cơ hội, nói với vị Tả sư bá của ngươi một câu: kiếm thuật của hắn... thật ra không cao lắm, năm đó ta cũng khinh thường, chỉ vì cảnh giới ta không cao mới không đỡ nổi một kiếm của hắn.
+
+Sắc mặt người trẻ tuổi cổ quái.
+
+Kê Nhạc vung tay nói:
+
+- Nhắc ngươi một câu, tốt nhất thu cây trâm kia lại, giấu cho kỹ. Năm đó ta được cái gần nước, từng thấy qua trận biến cố phía nam kia nên mới thấy quen mắt, nhưng nếu không lại gần nhìn kỹ thì ngay cả ta cũng không phát hiện ra điều kỳ lạ. Có điều vạn nhất có chuyện gì thì sao? Không phải kiếm tu nào cũng như ta, khinh thường gây khó dễ cho vãn bối. Bây giờ ở Bắc Câu Lô Châu, chỉ cần bọn họ nhận ra thân phận ngươi, phần nhiều sẽ không kìm nổi mà xuất kiếm. Còn làm thịt ngươi xong có rước vị Tả sư bá kia tới Bắc Câu Lô Châu hay không, thì với đám Nguyên Anh, Ngọc Phác không biết trời cao đất dày, đó chẳng qua chỉ là một chuyện thú vị trong đời, chẳng sợ chết tí nào. Đó chính là bầu không khí của Bắc Câu Lô Châu, tốt hay không tốt thì tùy.
+
+Người trẻ tuổi quay sang hỏi:
+
+- Năm đó ra biển xuất kiếm ở Bắc Câu Lô Châu là lão tiên sinh sao? Vì sao ta đọc rất nhiều sơn thủy công báo, đều chỉ có suy đoán, không có ghi chép rõ ràng?
+
+Kê Nhạc bật cười:
+
+- Đám đó như lũ chuột, dù biết là Kê Nhạc ta, chúng có dám gọi thẳng tên không? Ngươi nhìn ba vị kiếm tiên đi sau kia xem, lại có ai biết được? À phải, về sau xuống núi rèn luyện vẫn nên cẩn thận, như đêm nay vậy. Ngươi sẽ không bao giờ biết kẻ giật dây sau lưng bầy kiến hôi rốt cuộc là thần thánh phương nào. Nói khó nghe một chút: Đỗ Huỳnh đối đãi Lâm Thù, ngươi xem Đỗ Huỳnh, ta xem ngươi, lại có ai biết có người đang theo dõi Kê Nhạc ta không? Biết bao người tu đạo trên núi, chết rồi cũng không rõ nguyên do, càng đừng nói dưới núi. Mọi chứng khó nhằn đều có thể chữa, chỉ có ngu xuẩn là không thuốc nào cứu nổi.
+
+Người trẻ tuổi ôm quyền:
+
+- Lão tiên sinh dạy bảo, vãn bối xin ghi nhớ.
 
 Kê Nhạc vẫy tay, lóe lên rồi biến mất.
 
-Trần Bình An rời xa ngọn núi cao chót vót, tiếp tục mình du hành.
+Trần Bình An rời xa ngọn núi cao chót vót, tiếp tục du hành một mình.
 
-Giang hồ chính là vậy, không biết sẽ gặp được gió mưa nào.
+Giang hồ chính là vậy, không biết sẽ gặp gió mưa nào.
 
-Tiến vào thời tiết mưa dầm.
+Trời vào tiết mưa dầm.
 
-Trần Bình An quyết tâm vượt qua Đại Triện vương triều, hướng về một vùng gần biển thuộc nước.
+Trần Bình An quyết tâm vượt qua Đại Triện vương triều, đi về một nước gần biển.
 
-Trên vách núi, mưa to gió lớn, Trần Bình An nhóm một đống lửa, kinh ngạc nhìn về phía bên ngoài màn mưa. Giữa trời đất, thời tiết nóng nực như thế lại hao gầy đi rất nhiều.
+Trên vách núi mưa to gió lớn, Trần Bình An nhóm một đống lửa, ngẩn người nhìn ra ngoài màn mưa. Giữa trời đất, tiết trời oi nóng, người cũng gầy đi nhiều.
 
 Vũ lâm lâm, thanh thanh mạn, liễu y y, hà viên viên. Sơn thanh thanh, lộ điều điều, niệm khứ khứ, tư du du.

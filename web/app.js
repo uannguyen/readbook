@@ -1,28 +1,29 @@
 'use strict';
 const STORY = 'kiem-lai';
+const STORY_TITLE = 'Kiếm Lai';
 const BASE = `chapters/${STORY}/`;
 
+// Cấu hình giống truyenfull: [giá trị, nhãn]
+const BGS = {
+  '#F4F4F4': ['Xám nhạt', '#F4F4F4'], '#E9EBEE': ['Xanh nhạt', '#E9EBEE'],
+  '#F4F4E4': ['Vàng nhạt', '#F4F4E4'], '#EAE4D3': ['Màu sepia', '#EAE4D3'],
+  '#D5D8DC': ['Xanh đậm', '#D5D8DC'], '#FAFAC8': ['Vàng đậm', '#FAFAC8'],
+  '#EFEFAB': ['Vàng ố', '#EFEFAB'], '#FFF': ['Màu trắng', '#FFFFFF'],
+  hatsan: ['Hạt sạn', '#F2F2F2', 'img/bg_op.png'],
+  sachcu: ['Sách cũ', '#C2B49B', 'img/bg_book_op.png'],
+  '#232323': ['Màu tối', '#232323', 'img/bg_dark.gif', 'rgba(255,255,255,.6)'],
+};
 const FONTS = [
-  ['Georgia', 'Georgia, "Times New Roman", serif'],
-  ['Times New Roman', '"Times New Roman", Times, serif'],
-  ['Noto Serif', '"Noto Serif", Georgia, serif'],
-  ['Palatino', '"Palatino Linotype", Palatino, "Book Antiqua", serif'],
-  ['Arial', 'Arial, Helvetica, sans-serif'],
-  ['Roboto', 'Roboto, "Segoe UI", sans-serif'],
-  ['Tahoma', 'Tahoma, Geneva, sans-serif'],
-  ['Verdana', 'Verdana, Geneva, sans-serif'],
-  ['Mặc định hệ thống', 'system-ui, sans-serif'],
+  ['Palatino Linotype', "'Palatino Linotype', serif"], ['Bookerly', 'Bookerly, serif'],
+  ['Minion', 'Minion, serif'], ['Segoe UI', "'Segoe UI', sans-serif"],
+  ['Roboto', 'Roboto, sans-serif'], ['Roboto Condensed', "'Roboto Condensed', sans-serif"],
+  ['Patrick Hand', "'Patrick Hand', sans-serif"], ['Noticia Text', "'Noticia Text', sans-serif"],
+  ['Times New Roman', "'Times New Roman', serif"], ['Verdana', 'Verdana, sans-serif'],
+  ['Tahoma', 'Tahoma, sans-serif'], ['Arial', 'Arial, sans-serif'],
 ];
-// [tên, nền, chữ]
-const PRESETS = [
-  ['Sáng', '#ffffff', '#222222'],
-  ['Giấy', '#f4ecd8', '#3b3226'],
-  ['Xám', '#e3e3e3', '#222222'],
-  ['Xanh nhạt', '#dff0e4', '#1f3a2a'],
-  ['Tối', '#1c1c1e', '#b8b8b8'],
-  ['Đen', '#000000', '#9a9a9a'],
-];
-const DEFAULTS = { font: FONTS[0][1], size: 20, lh: 1.8, bg: '#f4ecd8', fg: '#3b3226' };
+const SIZES = Array.from({ length: 13 }, (_, i) => 16 + i * 2);   // 16..40
+const LHS = [100, 120, 140, 160, 180, 200];
+const DEFAULTS = { bg: '#232323', font: 'Arial, sans-serif', size: 20, lh: 180, full: 'no' };
 
 const $ = (id) => document.getElementById(id);
 const store = {
@@ -31,37 +32,40 @@ const store = {
 };
 
 // ---------- Cài đặt giao diện ----------
-let cfg = { ...DEFAULTS, ...store.get('cfg', {}) };
+let cfg = { ...DEFAULTS, ...store.get('cfg2', {}) };
 
 function applyCfg() {
+  const [, color, img, fg] = BGS[cfg.bg] || BGS[DEFAULTS.bg];
   const s = document.documentElement.style;
   s.setProperty('--font', cfg.font);
   s.setProperty('--size', cfg.size + 'px');
-  s.setProperty('--lh', cfg.lh);
-  s.setProperty('--bg', cfg.bg);
-  s.setProperty('--fg', cfg.fg);
-  document.querySelector('meta[name=theme-color]').content = cfg.bg;
+  s.setProperty('--lh', cfg.lh / 100);
+  s.setProperty('--bg', color);
+  s.setProperty('--bgimg', img ? `url(${img})` : 'none');
+  s.setProperty('--fg', fg || '#2b2b2b');
+  document.documentElement.classList.toggle('full', cfg.full === 'yes');
+  document.documentElement.classList.toggle('dark', cfg.bg === '#232323');
+  document.querySelector('meta[name=theme-color]').content = color;
+  $('bgSelect').value = cfg.bg;
   $('fontSelect').value = cfg.font;
-  $('size').value = cfg.size; $('sizeVal').textContent = cfg.size + 'px';
-  $('lh').value = cfg.lh; $('lhVal').textContent = cfg.lh;
-  $('bg').value = cfg.bg; $('fg').value = cfg.fg;
-  store.set('cfg', cfg);
+  $('sizeSelect').value = cfg.size;
+  $('lhSelect').value = cfg.lh;
+  document.querySelector(`input[name=full][value=${cfg.full}]`).checked = true;
+  store.set('cfg2', cfg);
 }
 function update(patch) { cfg = { ...cfg, ...patch }; applyCfg(); }
 
 function initSettings() {
-  $('fontSelect').innerHTML = FONTS.map(([n, v]) => `<option value='${v}'>${n}</option>`).join('');
-  $('presets').innerHTML = PRESETS.map(([n, bg, fg], i) =>
-    `<button type="button" data-i="${i}" title="${n}" style="background:${bg};color:${fg}">A</button>`).join('');
-  $('presets').onclick = (e) => {
-    const b = e.target.closest('button'); if (!b) return;
-    const [, bg, fg] = PRESETS[b.dataset.i]; update({ bg, fg });
-  };
+  const opts = (arr) => arr.map(([v, t]) => `<option value="${v}">${t}</option>`).join('');
+  $('bgSelect').innerHTML = opts(Object.entries(BGS).map(([k, v]) => [k, v[0]]));
+  $('fontSelect').innerHTML = opts(FONTS.map(([n, v]) => [v, n]));
+  $('sizeSelect').innerHTML = opts(SIZES.map((n) => [n, n]));
+  $('lhSelect').innerHTML = opts(LHS.map((n) => [n, n + '%']));
+  $('bgSelect').onchange = (e) => update({ bg: e.target.value });
   $('fontSelect').onchange = (e) => update({ font: e.target.value });
-  $('size').oninput = (e) => update({ size: +e.target.value });
-  $('lh').oninput = (e) => update({ lh: +e.target.value });
-  $('bg').oninput = (e) => update({ bg: e.target.value });
-  $('fg').oninput = (e) => update({ fg: e.target.value });
+  $('sizeSelect').onchange = (e) => update({ size: +e.target.value });
+  $('lhSelect').onchange = (e) => update({ lh: +e.target.value });
+  document.querySelectorAll('input[name=full]').forEach((r) => r.onchange = () => update({ full: r.value }));
   $('resetBtn').onclick = () => update(DEFAULTS);
   $('settingsBtn').onclick = () => $('settings').showModal();
   $('settings').addEventListener('click', (e) => { if (e.target === $('settings')) $('settings').close(); });
@@ -93,13 +97,17 @@ async function openChapter(n, scrollY = 0) {
   if (i < 0) return;
   current = n;
   $('chapterSelect').value = n;
-  $('prevBtn').disabled = i === 0;
-  $('nextBtn').disabled = i === chapters.length - 1;
   $('reader').innerHTML = '<div class="msg">Đang tải…</div>';
   try {
     const res = await fetch(`${BASE}chuong-${n}.md`);
     if (!res.ok) throw new Error(res.status);
-    $('reader').innerHTML = renderMd(await res.text());
+    const body = renderMd(await res.text()).replace(/^<h1>.*?<\/h1>\n?/, '');
+    const pager = (cls) => `<nav class="pager ${cls}">
+      <button data-go="-1"${i === 0 ? ' disabled' : ''}>‹ Chương trước</button>
+      <button data-go="1"${i === chapters.length - 1 ? ' disabled' : ''}>Chương tiếp ›</button></nav>`;
+    $('reader').innerHTML = `<a class="truyen-title">${esc(STORY_TITLE)}</a>
+      <h1 class="chapter-title">${esc(chapters[i].title)}</h1><hr class="chapter-start">
+      ${pager('top')}<div class="chapter-c">${body}</div><hr class="chapter-end">${pager('bottom')}`;
     document.title = chapters[i].title;
   } catch {
     $('reader').innerHTML = '<div class="msg">Không tải được chương này (có thể đang offline và chưa đọc lần nào).</div>';
@@ -130,8 +138,7 @@ document.addEventListener('keydown', (e) => {
 async function init() {
   initSettings();
   applyCfg();
-  $('prevBtn').onclick = () => go(-1);
-  $('nextBtn').onclick = () => go(1);
+  $('reader').onclick = (e) => { const b = e.target.closest('[data-go]'); if (b) go(+b.dataset.go); };
   $('chapterSelect').onchange = (e) => openChapter(+e.target.value);
 
   try {

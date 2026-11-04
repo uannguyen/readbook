@@ -1,367 +1,491 @@
 # Chương 578: Cân nhắc
 
-Trần Bình An đi ra khỏi Kinh Trập phủ, trên tay cầm một cây gậy leo núi bằng trúc xanh biếc, lẻ loi tiến về phía rừng trúc.
+Trần Bình An ra khỏi phủ Kinh Trập, tay cầm một cây gậy leo núi bằng trúc xanh biếc, một mình đi về phía rừng trúc.
 
-Do dự một chút, hắn tế ra một cái bùa chú hình thuyền nhỏ, cưỡi gió hướng về phía Ngọc Oánh sườn dốc. Thực ra trong lúc ở Xuân Lộ phố, hắn từng tạm mượn Phù chu bên ngoài, ngôi phủ đệ của thị nữ cũng mỉm cười nói về việc Phù chu đi lại giữa các phủ đệ. Những người trong lão hòe phố đều tốn kém thần tiên tiền, dự trữ khá nhiều tiền thần tiên tại Kinh Trập quý phủ, nhưng Trần Bình An chưa bao giờ mở ra.
+Do dự giây lát, hắn tế ra một lá bùa hình thuyền nhỏ, ngự gió bay về phía sườn dốc Ngọc Oánh. Thật ra lúc ở phố Xuân Lộ, hắn có thể tạm mượn phù chu bên ngoài phủ, thị nữ trong phủ cũng từng mỉm cười nhắc đến việc phù chu đi lại giữa các phủ đệ. Người ở phố Lão Hòe đều phải tốn tiền thần tiên cho khoản này, phủ Kinh Trập cũng dự trữ không ít, chỉ là Trần Bình An chưa bao giờ đụng đến.
 
-Nhập gia tùy tục, tuân theo quy củ cũ là một chuyện, nhưng bản thân hắn cũng có quy củ riêng. Chỉ cần cả hai không mâu thuẫn, những quy tắc ấy trở thành cái giam giữ, biến thành những màn trình diễn cho người xem nơi núi sông Phù chu.
+Nhập gia tùy tục, tuân theo quy củ cũ là một chuyện, nhưng bản thân hắn cũng có quy củ của mình. Chỉ cần hai bên không mâu thuẫn là được, nếu không, quy củ sẽ biến thành xiềng xích, biến thành màn trình diễn cho người ta xem trên phù chu giữa núi sông [?].
 
-Trần Bình An khống chế bùa chú của Đạo gia trong mạch Thái Chân Cung, tiến vào Ngọc Oánh sườn dốc. Kết quả, hắn chứng kiến Liễu Chất Thanh, người đang tháo giày, xắn tay áo và ống quần, đứng giữa một cái đầm thanh trong, cúi xuống nhặt đá cuội. Khi thấy một viên đá cuội vừa mắt, nàng không ngẩng đầu lên mà khẽ ném về phía bờ đầm. Khi Trần Bình An rơi xuống đất và thu bùa chú vào tay áo, Liễu Chất Thanh vẫn không ngẩng đầu, lớn giọng nói: "Câm miệng, không muốn nghe ngươi nói chuyện."
+Trần Bình An điều khiển lá bùa của một mạch Đạo gia Thái Chân cung, đáp xuống sườn dốc Ngọc Oánh. Hắn nhìn thấy Liễu Chất Thanh đã tháo giày, xắn tay áo và ống quần, đứng giữa đầm nước trong, cúi người nhặt đá cuội. Gặp viên nào vừa mắt, Liễu Chất Thanh cũng không ngẩng đầu, chỉ khẽ ném lên bờ đầm. Đến khi Trần Bình An đáp đất, thu lá bùa vào tay áo, Liễu Chất Thanh vẫn không ngẩng đầu, lớn giọng nói:
 
-Có lẽ Liễu Chất Thanh, tiểu sư thúc tổ của Kim Ô cung, không tin rằng cái người tham tiền kia lại có thể ném hàng trăm viên đá cuội xuống cái đầm trong. Phần lớn nguyên nhân là vì nàng quá nghiêm khắc với những điều như ý niệm, cầu toàn. Đáng lẽ nàng đã nên ngự kiếm quay về Kim Ô cung, nhưng giữa đường cảm thấy cái đầm vắng vẻ làm nàng phiền lòng, nên quyết định quay lại Ngọc Oánh sườn dốc. Sau khi chia tay với người họ Trần bên lão hòe phố, nàng không thể cứng nhắc đợi cái người tham tiền kia ném đá cuội, nên đành tự mình làm. Mỗi viên đá cuội nàng nhặt được đều quý giá.
+- Câm miệng, ta không muốn nghe ngươi nói chuyện.
 
-Trần Bình An cũng bỏ giày, tiến vào giữa khe nước, vừa nhặt lên một viên đá cuội óng ánh, định giúp nàng ném vào đầm.
+Vị tiểu sư thúc tổ của Kim Ô cung này chắc là không tin nổi gã tham tiền kia lại có thể ném trả mấy trăm viên đá cuội xuống đầm. Phần lớn là do hắn quá khắt khe với chuyện ý niệm phải trọn vẹn. Đáng lẽ hắn đã ngự kiếm về Kim Ô cung, nhưng đi được nửa đường lại thấy cái đầm trống trơn kia cứ làm mình bực bội, thế là quay về sườn dốc Ngọc Oánh. Từ biệt người họ Trần ở phố Lão Hòe rồi, hắn cũng không thể cứ ngồi đợi gã tham tiền kia đến ném đá, đành phải tự mình làm. Viên đá nào hắn nhặt cũng quý giá vô cùng.
 
-Chưa kịp nghĩ thì Liễu Chất Thanh nói: "Viên này không được, màu sắc quá đẹp rồi."
+Trần Bình An cũng bỏ giày lội xuống khe nước, vừa nhặt lên một viên đá óng ánh định ném giúp vào đầm, Liễu Chất Thanh đã nói:
 
-Trần Bình An vẫn ném đá cuội về phía bờ đầm, kết quả bị Liễu Chất Thanh vung tay áo một cái, viên đá cuội rơi xuống khe nước. Liễu Chất Thanh tức giận nói: "Họ Trần đấy!"
+- Viên này không được, màu sắc đẹp quá.
 
-"Được rồi, thôi đi, xem như lòng lang dạ thú, hai ta tiếp tục làm việc đi."
+Trần Bình An vẫn ném về phía bờ đầm, bị Liễu Chất Thanh vung tay áo một cái, viên đá lại rơi xuống khe nước. Liễu Chất Thanh tức giận nói:
 
-Trần Bình An khéo léo thu hồi viên đá cuội, dùng hai tay lau sạch nước, rồi nhếch môi cười, "Toàn là vàng bạc thật."
+- Họ Trần kia!
 
-Ngọc Oánh, dưới vách đầm, nơi nước suối phát nguồn, là chỗ giao nhau của mạch nước núi, trời ưu ái ban tặng linh khí dạt dào. Những viên đá cuội nơi đây đã trải qua hàng trăm ngàn năm, chịu ảnh hưởng của linh khí thanh tuyền, cho nên chất lượng tuyệt vời. Những viên đá cuội trong khe nước chỉ cần được mài dũa một chút hoặc là trang trí lại, dùng làm thư phòng cho quan to hiển quý, vẫn là thứ hàng đầu, làm đẹp mắt biết bao. Dù có thể không kéo dài tuổi thọ, nhưng đủ để khiến người ta vui vẻ.
+- Được rồi được rồi, coi như lòng tốt đem cho chó ăn. Hai ta làm tiếp đi.
 
-Liễu Chất Thanh chọn lựa rất cẩn thận, ném đi hơn mười viên đá cuội vào đầm.
+Trần Bình An khéo léo thu viên đá lại, lau khô nước bằng hai tay, nhếch miệng cười:
 
-Để có cảm giác so với chọn bạn đời còn tâm huyết hơn.
+- Toàn là vàng thật bạc thật.
 
-Trần Bình An theo sau Liễu Chất Thanh, một đường sửa mái nhà dột. Phần lớn là vì Liễu Chất Thanh cầm tường xem xét, rồi lại thả. Vì vậy, hắn nhìn thấy tới bốn mươi năm mươi viên đá cuội. Đã từ lâu, Trần Bình An đã nghĩ rằng, bên lão hòe phố có một cửa hàng chuyên bán đồ dùng thư phòng lâu đời, nhưng chưởng quỹ già không dễ mời, huống chi người đó cũng chưa chắc thích những viên đá này. Hắn chỉ cần tìm hai viên tiểu nhị trong cửa hàng, dù chỉ cần một nửa khả năng của lão chưởng quỹ, đối phó với những viên này thì cũng đủ. Hãy để họ giúp mài dũa một chút, rồi sau đó đem bán với giá cao, nói rằng chúng được sản xuất từ lão hố Ngọc Oánh sườn dốc và kết hợp với những câu chuyện thú vị của Kim Ô Cung, giá cả sẽ tự động tăng lên.
+Dưới vách đầm Ngọc Oánh là nơi suối nguồn phát ra, cũng là chỗ các mạch nước trong núi giao nhau, linh khí dồi dào hiếm có. Đá cuội ở đây trải qua hàng trăm ngàn năm được linh khí suối trong thấm đẫm, chất đá cực tốt. Chỉ cần mài giũa đôi chút hoặc tô điểm lại, đem bày trong thư phòng của quan to hiển quý vẫn là thứ hạng nhất, nhìn đẹp mắt vô cùng. Tuy không kéo dài được tuổi thọ, nhưng đủ khiến người ta vui lòng.
 
-Còn về việc có nên thả những viên đá cuội trở lại hay không hay chỉ chọn những viên tốt nhất, thì hắn biết làm ăn lâu dài vẫn tốt nhất. Dù sao hắn đã không còn là Bao Phục trai ở Xuân Lộ phố, mà có một cửa hàng của riêng mình. Về phần lý do cửa hàng của Xuân Lộ phố bị tiễn đưa, thực ra rất đơn giản. Đã từ lâu, Thiết Đồng phủ đã khơi mào một lời tiên tri: "Xuân Lộ mùa đông tại," đúng là muốn viết những câu chuyện về "Trần Kiếm tiên". Tuy nhiên, Tống Lan Tiều nói rằng người chấp bút sẽ giao bản thảo cho hắn xem trước khi hắn rời khỏi Xuân Lộ phố. Côi sẽ có thể ghi lại và không thể ghi lại, thực tế Xuân Lộ phố đã tính toán lâu rồi, làm kinh doanh trên núi này không hề nhẹ nhàng.
+Liễu Chất Thanh chọn lựa rất cẩn thận, ném vào đầm hơn mười viên.
 
-Đối với cách thức làm giàu, Trần Bình An rất thích thú mà không cảm thấy chán nản. Hắn đã có cuộc trò chuyện rất say mê với Tống Lan Tiều, với việc lấy ra học hỏi từ núi Lạc Phách cũng có thể sẽ có ích.
+Xem dáng vẻ còn kỹ càng hơn cả chọn vợ.
 
-Liễu Chất Thanh lên bờ, đi đến Ngọc Oánh sườn dốc, thấy người ấy vẫn chưa có ý định lên bờ, có vẻ như nàng muốn vớt thêm đá cuội để không bỏ sót chỗ nào.
+Trần Bình An đi theo sau, dọc đường nhặt của hời. Phần lớn là những viên Liễu Chất Thanh cầm lên xem xét kỹ rồi lại thả xuống, nhờ vậy hắn vừa ý tới bốn năm chục viên. Hắn đã nghĩ từ lâu, bên phố Lão Hòe có một tiệm chuyên bán đồ thư phòng lâu đời, lão chưởng quỹ thì không dễ mời, huống chi chưa chắc đã ưng mấy viên đá này. Hắn chỉ cần tìm hai học đồ trong tiệm, dù chỉ có một nửa bản lĩnh của lão chưởng quỹ thì đối phó với chúng cũng đủ. Nhờ họ mài giũa một chút, sau đó bán giá cao, nói là xuất từ hố cũ sườn dốc Ngọc Oánh, thêm mấy câu chuyện thú vị về Kim Ô cung, giá cả tự nhiên sẽ lên.
 
-Liễu Chất Thanh cười mỉa, "Người tốt ơi, ngươi rơi tiền trong mắt rồi à?"
+Còn nên thả đá về hay chỉ chọn những viên tốt nhất, hắn biết làm ăn phải tính đường dài. Dù sao hắn đã không còn là Bao Phục trai của phố Xuân Lộ, mà có một cửa hàng của riêng mình. Lý do phố Xuân Lộ đem cửa hàng tặng hắn thực ra rất đơn giản. Từ lâu phủ Thiết Đồng đã khơi ra câu "Xuân Lộ mùa đông tại" [?], đúng là muốn viết chuyện về "Trần kiếm tiên". Có điều Tống Lan Tiều nói, trước khi hắn rời phố Xuân Lộ, người chấp bút sẽ đưa bản thảo cho hắn xem trước, chuyện gì được ghi, chuyện gì không được ghi. Thật ra phố Xuân Lộ đã tính toán từ lâu, làm ăn trên núi nào có nhẹ nhàng.
 
-Trần Bình An xoay người nhặt lấy một viên đá cuội nhỏ mịn như ngọc, nhẫn nại nhìn nó một lúc, rồi cười nói: "Khi còn bé nghèo khổ, mà học được cách này."
+Với mấy đường làm giàu này, Trần Bình An rất hứng thú, không hề thấy chán. Hắn từng trò chuyện rất say sưa với Tống Lan Tiều, đem về núi Lạc Phách học theo có khi cũng được việc.
 
-Liễu Chất Thanh không ngự kiếm rời khỏi Xuân Lộ phố, đương nhiên là muốn tận mắt nhìn thấy người kia ném đi hàng trăm viên đá của mình trước khi yên tâm.
+Liễu Chất Thanh lên bờ, đi đến sườn dốc, thấy gã kia vẫn chưa có ý định lên, xem chừng còn muốn vớt thêm đá, không chịu bỏ sót chỗ nào, bèn cười mỉa:
 
-Nhưng mà hiện tại Liễu Chất Thanh cũng tự hỏi liệu tên này có thể một lần nữa thu lại tất cả sau khi nàng rời đi hay không, cảm giác như thế thật điên rồ, kẻ họ Trần ấy, thực sự làm được.
+- Người tốt huynh, ngươi chui vào lỗ đồng tiền rồi à?
 
-Trần Bình An mang vẻ mặt như đang ôm viên ngọc lấp lánh, ánh mắt dao động, chân đi trên đất nhặt tiền. Dù sao, việc này cũng dễ dàng hơn so với việc kiếm tiền từ người khác trong túi quần, cho vào túi của mình. Hắn không cần phải cong lưng hay duỗi tay ra; Trần Bình An cảm thấy như sét đánh ngang tai.
+Trần Bình An khom lưng nhặt một viên đá nhỏ mịn như ngọc, kiên nhẫn ngắm một lúc rồi cười nói:
 
-Bởi vì lý do của Trần Bình An, Liễu Chất Thanh đã phải tốn trọn nửa canh giờ để trở về bờ dốc Ngọc Oánh.
+- Lúc nhỏ nghèo khổ, học được cái này.
 
-Khi hai người đến bên kia cỏ tranh đình, Trần Bình An đứng yên bất động, Liễu Chất Thanh liền theo dõi hắn như vậy.
+Liễu Chất Thanh không ngự kiếm rời khỏi phố Xuân Lộ, đương nhiên là muốn tận mắt thấy gã kia ném mấy trăm viên đá của mình xuống mới yên tâm. Nhưng lúc này hắn lại nghĩ, liệu sau khi mình đi, tên này có vớt lại hết không? Ý nghĩ ấy nghe thật điên rồ, thế mà kẻ họ Trần kia lại thật sự làm được.
 
-Trần Bình An vỗ đầu một cái, la lớn: "Ngươi có thấy trí nhớ của ta không?!" Rồi vung tay áo, mấy trăm viên đá cuội như mưa rơi xuống. Liễu Chất Thanh chăm chú nhìn vào những viên đá đó, ước lượng rằng số lượng không sai biệt lắm. Quan trọng là hơn mười viên đá cuội hắn thích nhất đều còn đủ, vậy nên sắc mặt Liễu Chất Thanh mới chuyển biến tốt đẹp. Nếu thiếu mất một viên, hắn sẽ không còn mong muốn tới đây uống trà nữa. Việc tham tiền hay không là chuyện của nhà họ Trần, có thể kiếm tiền từ cạnh mình, đó chính là bản lãnh của hắn. Nếu không có thiện ý, đó sẽ là hai loại sự tình hoàn toàn khác nhau. Nếu Ngọc Oánh rơi vào tay loại người này, Liễu Chất Thanh sẽ coi như Ngọc Oánh đã bị hủy, và sẽ không còn chút lưu luyến nào.
+Trần Bình An mặt mày như đang ôm viên ngọc sáng, ánh mắt lấp lánh, đi trên đất nhặt tiền. Dù sao chuyện này cũng dễ hơn móc tiền từ túi người khác bỏ vào túi mình nhiều lắm, chỉ cần khom lưng duỗi tay, sấm đánh cũng không bỏ [?].
 
-Trần Bình An vỗ tay áo, nói tiếp: "Ngươi có nghĩ rằng việc nhặt đá bên khe nước cũng là tu tâm không? Tính tình của ngươi, ta hiểu khá rõ, ưa thích sự hoàn hảo không tỳ vết. Tâm cảnh và tính cách như vậy, có thể luyện kiếm là điều tốt, nhưng làm cho tâm nhãn trở nên tẩy tủy cùng Kim Ô cung nhân, ngươi có thể sẽ rất sốt ruột. Do đó, hiện tại ta thật ra có chút hối hận vì đã nói với ngươi chuyện này."
+Vì Trần Bình An mà Liễu Chất Thanh phải mất đúng nửa canh giờ mới quay lại được sườn dốc.
 
-Liễu Chất Thanh lắc đầu: "Càng phiền toái thì càng có thể khẳng định lợi ích thu được từ việc tẩy kiếm sẽ vượt xa những gì ta tưởng tượng."
+Hai người đến bên đình cỏ tranh, Trần Bình An đứng yên bất động, Liễu Chất Thanh cứ nhìn chằm chằm vào hắn.
 
-Trần Bình An cười nói: "Chỉ là tìm cớ để nhắc nhở ngươi thôi."
+Trần Bình An vỗ đầu một cái, kêu lớn:
 
-Liễu Chất Thanh do dự một chút, ngồi xuống, bắt đầu vẽ bùa bằng ngón tay. Thế nhưng, lần này động tác của hắn chậm rãi, và cũng không che giấu sự rung động của linh khí mình nữa. Rất nhanh, có hai quả cầu lửa đỏ tươi bay vòng quanh, hắn hỏi: "Học xong chưa?"
+- Xem cái trí nhớ của ta này!
 
-Trần Bình An lắc đầu: "Thủ pháp thì ta nhớ rõ, quỹ tích vận chuyển linh khí cũng đã hiểu, nhưng hôm nay ta vẫn làm không được."
+Hắn vung tay áo, mấy trăm viên đá cuội như mưa rơi xuống. Liễu Chất Thanh chăm chú nhìn, ước lượng số lượng không sai biệt lắm, quan trọng là hơn mười viên mình thích nhất đều còn đủ, lúc này sắc mặt mới khá hơn. Chỉ cần thiếu một viên, người kia đừng mong đến đây uống trà nữa. Tham tiền hay không là chuyện của họ Trần, kiếm được tiền ngay bên cạnh mình là bản lĩnh của hắn, nhưng nếu tâm địa không tốt thì lại là chuyện khác hẳn. Nếu Ngọc Oánh rơi vào tay loại người đó, Liễu Chất Thanh sẽ coi như nơi này đã bị hủy, chẳng còn chút lưu luyến nào.
 
-Liễu Chất Thanh nhăn mặt: "Nếu ngươi cứ để tâm vào buôn bán, chỉ dồn một nửa vào tu hành, thì sao lại có thể đạt được cảnh giới như vậy?"
+Trần Bình An phủi tay áo, nói tiếp:
 
-Trần Bình An cười khổ: "Liễu Chất Thanh, ngươi đừng ngồi đây nói chuyện dễ dàng, ta là một người tu hành trường sinh đang gặp khó khăn, có thể có được cảnh giới hôm nay đã rất không tệ rồi."
+- Ngươi có nghĩ rằng nhặt đá bên khe nước cũng là tu tâm không? Tính tình của ngươi ta hiểu khá rõ, thích sự hoàn hảo không tì vết. Tâm cảnh và tính cách như vậy, luyện kiếm thì tốt, nhưng đem ra đấu tâm nhãn với người của Kim Ô cung trong lúc tẩy kiếm, e là ngươi sẽ rất sốt ruột [?]. Cho nên bây giờ ta thật ra có chút hối hận vì đã nói với ngươi chuyện này.
 
-Những lần thảo luận trước đó, Trần Bình An đã nắm chắc phẩm hạnh của Liễu Chất Thanh.
+Liễu Chất Thanh lắc đầu:
 
-Họ đã hẹn ở sáng hôm đó tại Ngọc Oánh, nơi Liễu Chất Thanh, một kiếm tu Kim Đan, chỉ sử dụng năm phần sức mạnh. Còn Trần Bình An thì chỉ ra quyền.
+- Càng phiền toái, càng chứng tỏ lợi ích thu được từ việc tẩy kiếm sẽ vượt xa ta tưởng tượng.
 
-Trần Bình An vẽ nên một vòng tròn có bán kính mười trượng, lợi dụng lúc Lão Long gia tăng tu vi để ứng phó với phi kiếm của Liễu Chất Thanh.
+Trần Bình An cười nói:
 
-Liễu Chất Thanh lần đầu tiên điều khiển phi kiếm, nhưng vì khinh thường trình độ của Trần Bình An, nên không quá thích ứng với đối thủ dùng tổn thương để đổi lấy tổn thương. Một quyền quật ngã mà không ra tay hai lần, vì vậy phi kiếm "Thác Nước" của Liễu Chất Thanh lần đầu xuất hiện. Dù nhanh chóng như một trận cuồng phong, nhưng cũng chỉ đâm tới một tấc vào ngực Trần Bình An. Kết quả là hắn bị phi kiếm xuyên qua vai, ngay lập tức đến gần Liễu Chất Thanh, rồi phi kiếm đó lại quay ngược về, đâm vào mắt cá chân của hắn. Liễu Chất Thanh vừa lùi ra vài trượng thì bị động tác đánh ra vòng tròn, may mà đối phương cũng chỉ ra quyền một lần, đã khiến hắn vấp phải lực cản và ngã xuống đất, trượt đi vài trượng, người nhuốm đầy bụi bặm.
+- Chỉ là kiếm cớ nhắc nhở ngươi thôi.
 
-Liễu Chất Thanh chỉ bị chút chật vật, đứng dậy, nhìn thấy vai và mắt cá chân mình bị xuyên thủng, hỏi: "Không đau sao?"
+Liễu Chất Thanh do dự một chút, ngồi xuống, dùng ngón tay vẽ bùa. Lần này động tác của hắn rất chậm, cũng không che giấu sự dao động của linh khí nữa. Chẳng mấy chốc đã có hai quả cầu lửa đỏ tươi bay vòng quanh. Hắn hỏi:
 
-Kiếm tu phi kiếm khó chơi, ngoài việc nhanh ra, một khi xuyên qua đối phương, khí phủ khó khả khép lại. Hơn nữa, sự va chạm của "Đại đạo" tạo ra tác động đáng sợ. Những pháp bảo còn lại cũng có thể gây ra thương tích, nhưng khí kiếm thì lại tạo ra sự tổn thương nặng nề hơn rất nhiều, như cơn lũ cuốn trôi, điên cuồng cuồng loạn xáo trộn linh khí, và trong tình huống sinh tử, một chút linh khí khuấy động cũng có thể gây ra cái chết cho người tu sĩ. Binh gia tu sĩ trên mặt đất còn không thể bằng một người có thể đánh lén, nhưng một đòn đau bất ngờ có thể làm hỏng tâm cảnh.
+- Học được chưa?
 
-Một kiếm vẫn như vậy, thì những đòn tiếp theo từ kiếm tu sẽ ra sao?
+Trần Bình An lắc đầu:
 
-Người nọ chỉ cười nói: "Không sao, ra quyền đi."
+- Thủ pháp thì ta nhớ rồi, đường đi của linh khí cũng hiểu, nhưng hiện tại vẫn chưa làm được.
 
-Trong trận luận bàn thứ hai, Liễu Chất Thanh bắt đầu cẩn thận về khoảng cách hai bên.
+Liễu Chất Thanh nhíu mày:
 
-Phải hiểu rằng, kiếm tu, đặc biệt là địa tiên kiếm tu, đều rất am hiểu trong cả đánh xa lẫn gần.
+- Nếu ngươi chịu bỏ một nửa tâm tư buôn bán vào tu hành, sao lại chỉ có cảnh giới này?
 
-Trần Bình An, giờ đây, dùng tu vi mới lên để ứng phó, tránh né những đòn tấn công bất ngờ từ phi kiếm của Liễu Chất Thanh.
+Trần Bình An cười khổ:
 
-Kết thúc trận đấu, hai người cùng ngồi xếp bằng tại vòng tròn bên ngoài. Trần Bình An toàn thân đầy vết thương, còn Liễu Chất Thanh thì cũng bị bụi bặm bám đầy người.
+- Liễu Chất Thanh, ngươi đừng đứng nói chuyện không đau lưng. Ta là kẻ tu hành trường sinh gặp đủ gian nan, có được cảnh giới hôm nay đã là không tệ rồi.
 
-Lúc đó, Trần Bình An không nhịn được mà hỏi: "Ta đã từng học từ một vị Kim Đan lão kiếm tu phi kiếm, tại sao ngươi chỉ sử dụng bảy phần sức mạnh mà đã nhanh chóng như vậy?"
+Qua mấy lần luận bàn trước đó, Trần Bình An đã nắm chắc phẩm hạnh của Liễu Chất Thanh.
 
-Liễu Chất Thanh lúc đó tâm trạng không tốt: "Cũng chỉ bảy phần, có tin hay không là tùy ngươi."
+Hai người từng hẹn nhau một buổi sáng ở Ngọc Oánh, Liễu Chất Thanh là kiếm tu Kim Đan, chỉ dùng năm phần sức, còn Trần Bình An chỉ ra quyền.
 
-Ngày thứ ba, Liễu Chất Thanh nhìn người như thể không có chút gì bất thường, hỏi: "Không phải là giả bộ sao? Hôm nay xuất kiếm chín phần, mặc dù đã nói rõ không phân biệt sinh tử, nhưng mà..."
+Trần Bình An vẽ một vòng tròn bán kính mười trượng, dùng tu vi tăng lên ở Lão Long thành [?] để đối phó phi kiếm của Liễu Chất Thanh.
 
-Chưa để Liễu Chất Thanh nói hết, Trần Bình An đã cười: "Cứ xuất kiếm đi."
+Đây là lần đầu Liễu Chất Thanh điều khiển phi kiếm như vậy, vì xem thường trình độ của Trần Bình An nên không quen với kiểu đối thủ lấy thương đổi thương, một quyền đánh ngã người không cần ra tay lần hai. Phi kiếm "Thác Nước" lần đầu xuất hiện, nhanh như một trận cuồng phong, nhưng cũng chỉ lệch ngực Trần Bình An một tấc. Kết quả Trần Bình An để phi kiếm xuyên qua vai, lập tức áp sát Liễu Chất Thanh. Phi kiếm quay ngược trở lại, đâm thủng mắt cá chân Trần Bình An. Liễu Chất Thanh vừa lùi ra mấy trượng thì đã bị đánh văng khỏi vòng tròn, may mà đối phương cũng chỉ ra một quyền, ngã xuống đất, trượt đi mấy trượng, người đầy bụi đất.
 
-Trần Bình An lấy khả năng đã luyện được từ mây thiên kiếp để thực hiện tu vi, nhưng chỉ không dùng những đòn ẩn giấu mà thôi, lần nữa đối diện với đối thủ.
+Liễu Chất Thanh chỉ hơi chật vật, đứng dậy nhìn vai và mắt cá chân bị xuyên thủng của đối phương, hỏi:
 
-Cuối cùng, Liễu Chất Thanh đứng bên ngoài vòng tròn, phải lấy tay xoa xoa gương mặt đỏ bừng, linh khí chậm rãi tản ra.
+- Không đau sao?
 
-Trần Bình An đứng trong vòng tròn, nở một nụ cười rạng rỡ, trên cơ thể hắn có vài chỗ rách lớn chứa đầy máu, nhưng không phải là thương tích chí mạng, chỉ cần dưỡng bệnh trong một thời gian ngắn là được.
+Phi kiếm của kiếm tu sở dĩ khó chơi, ngoài chuyện nhanh ra, một khi đã xuyên qua người thì khí phủ khó lành, hơn nữa kiếm ý của đại đạo va chạm tạo ra tổn hại rất đáng sợ. Pháp bảo khác cũng có thể gây thương tích, nhưng kiếm khí lại nặng hơn nhiều, như lũ lớn tràn bờ, điên cuồng quấy loạn linh khí. Giữa lúc sinh tử, chỉ một chút linh khí rối loạn cũng đủ lấy mạng một tu sĩ. Tu sĩ Binh gia trên chiến trường còn chịu nổi đánh lén [?], nhưng một đòn đau bất ngờ vẫn có thể làm hỏng tâm cảnh.
 
-Liễu Chất Thanh không thể không hỏi lần nữa: "Thật không đau sao?"
+Một kiếm đã như vậy, những kiếm sau của kiếm tu sẽ ra sao?
 
-Trần Bình An mở trừng hai mắt: "Ngươi đoán xem?"
+Người kia chỉ cười nói:
 
-Ba trận luận bàn tiếp theo.
+- Không sao, ra quyền đi.
 
-Hai người đã thành bạn.
+Trận luận bàn thứ hai, Liễu Chất Thanh bắt đầu cẩn thận với khoảng cách giữa hai bên. Phải biết kiếm tu, nhất là kiếm tu địa tiên, đánh xa đánh gần đều rất giỏi.
+
+Trần Bình An lúc này dùng tu vi mới lên để ứng phó, tránh những đòn đánh bất ngờ từ phi kiếm của đối phương.
+
+Kết thúc trận đấu, hai người cùng ngồi xếp bằng bên ngoài vòng tròn. Trần Bình An toàn thân đầy vết thương, Liễu Chất Thanh cũng bám đầy bụi đất.
+
+Trần Bình An không nhịn được hỏi:
+
+- Ta từng lĩnh giáo phi kiếm của một vị lão kiếm tu Kim Đan, tại sao ngươi chỉ dùng bảy phần sức mà đã nhanh như vậy?
+
+Tâm tình Liễu Chất Thanh lúc đó không tốt:
+
+- Đúng là bảy phần, tin hay không tùy ngươi.
+
+Ngày thứ ba, Liễu Chất Thanh thấy người kia như chẳng có chuyện gì, hỏi:
+
+- Không phải giả vờ đấy chứ? Hôm nay ta xuất kiếm chín phần, tuy đã nói rõ không phân sinh tử, nhưng mà...
+
+Liễu Chất Thanh chưa nói hết, Trần Bình An đã cười:
+
+- Cứ xuất kiếm đi.
+
+Trần Bình An dùng tu vi tôi luyện được trong biển mây thiên kiếp [?], chỉ không dùng đến những chiêu giấu kín, lần nữa đối mặt với đối thủ.
+
+Cuối cùng Liễu Chất Thanh đứng ngoài vòng tròn, đưa tay xoa khuôn mặt đỏ bừng, linh khí chậm rãi tản ra.
+
+Trần Bình An đứng trong vòng tròn, cười rất tươi. Trên người hắn có mấy vết rách lớn đầy máu, nhưng không phải thương tích trí mạng, chỉ cần dưỡng ít lâu là khỏi.
+
+Liễu Chất Thanh không nhịn được hỏi lần nữa:
+
+- Thật sự không đau sao?
+
+Trần Bình An trợn mắt:
+
+- Ngươi đoán xem?
+
+Sau ba trận luận bàn, hai người trở thành bằng hữu.
 
 Trần Bình An và Liễu Chất Thanh đều thấu hiểu lòng dạ của nhau, chỉ là không ai muốn nói ra mà thôi.
 
-Bằng không, Liễu Chất Thanh giữa lúc thanh cao, có thể đồng ý đi giúp Trần Bình An trong công việc cổ động, và còn phải cố gắng, ngạo mạn thủy ngược trôi trên con đường của chính mình?
+Bằng không với sự thanh cao của Liễu Chất Thanh, sao có thể đồng ý giúp Trần Bình An chào hàng, còn phải cố gồng mình đi ngược với con đường của chính mình [?]?
 
-Lúc này, Ngọc Oánh bên dưới lại hiện lên cảnh tượng trong suốt, vừa mất lại được, càng thêm động lòng người, tâm trạng của Liễu Chất Thanh khá hơn.
+Lúc này đầm nước dưới sườn dốc Ngọc Oánh lại trong suốt như cũ, vừa mất lại được, càng thêm động lòng người, tâm tình Liễu Chất Thanh cũng khá hơn.
 
-Còn về việc Trần Bình An trường sinh cầu đã bị cắt đứt, ai mà biết được?
+Còn chuyện trường sinh kiều của Trần Bình An từng bị chặt đứt, ai mà biết được?
 
-Liễu Chất Thanh tuy trong lòng cảm thấy sợ hãi, không rõ rốt cuộc điều gì đã giúp hắn xây dựng lại Trường Sinh Cầu, nhưng hắn cũng không hỏi thêm.
+Liễu Chất Thanh trong lòng kinh hãi, không rõ rốt cuộc nhờ đâu đối phương xây lại được trường sinh kiều, nhưng cũng không hỏi thêm.
 
-Hắn vừa xua tay tán đi hai cái bảng phù chú thuật ngữ trên bàn, trở thành một lễ vật hỏa giao nhỏ nhắn, vừa hỏi: "Thương thế của ngươi như thế nào?"
+Hắn vừa xua tay tán đi hai đạo phù thuật trên bàn, hóa thành một con hỏa giao nhỏ nhắn [?], vừa hỏi:
 
-Trần Bình An cười đáp: "Không sao cả, thời gian qua ta chỉ dưỡng thương và kiếm tiền ở lão hòe phố bên kia thôi."
+- Thương thế của ngươi thế nào rồi?
 
-Liễu Chất Thanh tiếp tục hỏi: "Ngươi đã từng nói quyền pháp của mình cơ bản có nguồn gốc từ Đông Nam Bắc Câu Lô Châu, có liên quan đến những manh mối và kiến thức đặt chân vào nước. Ngươi có thu hoạch gì từ đó không?"
+Trần Bình An cười đáp:
 
-Trần Bình An lắc đầu: "Trước đây vì kiếm tiền, ta đã tiết chế sức lực, tuyên bố cửa hàng bên kia sẽ không đánh gãy. Điều đó khiến ta bỏ lỡ rất nhiều cơ hội giao tiếp, thật đáng tiếc."
+- Không sao, thời gian qua ta chỉ dưỡng thương và kiếm tiền ở bên phố Lão Hòe thôi.
 
-Liễu Chất Thanh gật đầu: "Đáng đời."
+Liễu Chất Thanh lại hỏi:
 
-Trần Bình An chỉ bất đắc dĩ cười.
+- Ngươi từng nói quyền pháp của mình có nguồn gốc từ phía đông nam Bắc Câu Lô Châu, đặt chân đến đây cũng có liên quan đến manh mối đó. Có thu hoạch gì không?
 
-Ngoài bộ Hám Sơn quyền phổ, thực chất còn có một sự việc khác.
+Trần Bình An lắc đầu:
 
-Đó là thảm kịch xảy ra ở Bảo Bình Châu khi chiếc thuyền vượt châu độ bị diệt vào năm ấy. Tuy nhiên, Trần Bình An không cần phải hỏi han gì, vì đã lâu lắm cái nơi đó đã bị phong tỏa. Trên thuyền, hắn từng mua một tệp sơn thủy công báo về núi Đả Tiếu, nhưng thông tin chỉ là những lời đồn đãi không chính xác. Hơn nữa, do Trần Bình An là người nơi khác, nếu hắn đột ngột hỏi về tình hình núi Đả Tiếu, sẽ có nhiều rắc rối không đáng có. Do đó, hắn hết sức thận trọng.
+- Trước đây vì kiếm tiền, ta còn tuyên bố cửa hàng không giảm giá, thành ra bỏ lỡ rất nhiều cơ hội trò chuyện với khách, thật đáng tiếc.
 
-Vì vậy, Trần Bình An định hướng Bắc Câu Lô Châu trung bộ, phải vượt qua những đồ vật vắt chéo châu bồng bềnh trên biển cả.
+Liễu Chất Thanh gật đầu:
 
-Hắn cần tránh né cẩn thận, và rõ ràng rằng đó là khu vực của Đại Nguyên Vương triều Sùng Huyền, nơi có Vân Tiêu cung.
+- Đáng đời.
 
-Dương Ngưng Tính không chỉ đơn thuần đổi hình thành "Thư sinh," mà thực sự lại là một người tu đạo có khí chất rất đáng nể.
+Trần Bình An chỉ biết cười bất đắc dĩ.
 
-Song Đại Nguyên Vương triều Sùng Huyền tại Bắc Câu Lô Châu thì danh tiếng lại khá mơ hồ, vừa khen vừa chê, hơn nữa họ rất cứng rắn và bá đạo trong công việc, điều đó tạo nên phiền toái rất lớn.
+Ngoài bộ quyền phổ Hám Sơn, thật ra còn có một việc khác, chính là thảm kịch năm ấy ở Bảo Bình Châu, khi chiếc thuyền vượt châu bị diệt. Có điều Trần Bình An không cần phải hỏi han, vì nơi đó đã bị phong tỏa từ lâu. Trên thuyền hắn từng mua một xấp sơn thủy công báo nói về núi Đả Tiếu, nhưng tin tức chỉ toàn lời đồn không chính xác. Hơn nữa hắn là người nơi khác, đột nhiên hỏi thăm tình hình núi Đả Tiếu sẽ sinh ra nhiều rắc rối không đáng có, cho nên hắn hết sức thận trọng.
 
-Vì thế, trên chặng đường xa xôi này, khám phá khắp các quốc gia, sơn thủy, thần chích từ miếu, và thế lực tiên gia, Trần Bình An cần phải cực kỳ cẩn trọng.
+Vì vậy Trần Bình An định đi về phía trung bộ Bắc Câu Lô Châu, phải vượt qua những thứ vắt ngang châu lục trôi nổi trên biển cả [?]. Hắn cần cẩn thận tránh né, rõ ràng đó là địa bàn của Sùng Huyền thự Vân Tiêu cung thuộc vương triều Đại Nguyên.
 
-Dù sao thì, bên cạnh việc không đề cập đến tính toán của Lục Trầm, nếu như việc của mình và áo xanh tiểu đồng trong tương lai liên quan đến cơ duyên chứng đạo, Trần Bình An đã cùng Thôi Đông Sơn và Ngụy Bách thảo luận rất nhiều lần. Họ đều cho rằng nếu đã đến thời điểm này, có thể tiến hành. Vì vậy, Trần Bình An cũng sẽ hết lòng thực hiện công việc này.
+Dương Ngưng Tính không chỉ đơn thuần đổi thành hình dạng "thư sinh", mà thật sự là một người tu đạo có khí chất rất đáng nể [?]. Song vương triều Đại Nguyên và Sùng Huyền thự ở Bắc Câu Lô Châu tiếng tăm lại rất mơ hồ, vừa có người khen vừa có kẻ chê, hơn nữa làm việc cứng rắn bá đạo, gây phiền toái rất lớn.
 
-Nhớ lại một chuyện, Trần Bình An vỗ nhẹ vào hồ lô dưỡng kiếm, và Mùng Một Mười Lăm bay ra.
+Vì thế, trên chặng đường xa xôi này, đi qua các nước, các miếu sơn thần thủy thần và thế lực tiên gia, Trần Bình An phải cực kỳ cẩn trọng.
 
-Liễu Chất Thanh liếc nhìn, tức giận nói: "Phí của trời."
+Dù sao đi nữa, chưa nói đến tính toán của Lục Trầm, chuyện của hắn và tiểu đồng áo xanh sau này có liên quan đến cơ duyên chứng đạo hay không, Trần Bình An đã bàn với Thôi Đông Sơn và Ngụy Bách rất nhiều lần. Họ đều cho rằng nếu đã đến lúc này thì có thể làm. Vì vậy Trần Bình An cũng sẽ dốc lòng làm cho xong.
 
-Thực tế, hắn sớm đã nhận ra bình rượu son đỏ là một cái hồ lô dưỡng kiếm, nửa do cảm nhận khí chất, nửa do đoán mò.
+Nhớ ra một chuyện, Trần Bình An vỗ nhẹ hồ lô dưỡng kiếm, Mùng Một và Mười Lăm bay ra.
 
-Còn về hai thanh “phi kiếm” không nhìn ra phẩm chất cụ thể đến đâu, khi vào tay Trần Bình An, việc phí của trời cũng không phải là oan uổng cho vị “Người tốt huynh” này.
+Liễu Chất Thanh liếc nhìn, tức giận nói:
 
-Liễu Chất Thanh chậm rãi nói: "Hai thanh phi kiếm này, nếu như là kiếm tu chính thức luyện hóa, tốc độ sẽ rất nhanh. Đáng tiếc ngươi không phải là bẩm sinh kiếm phôi, chúng cũng không phải là bổn mạng vật của ngươi. Ta không biết lực sát thương của vị Kim Đan lão kiếm tu ấy ra sao, nhưng nói về tốc độ, thật sự là chậm. Nếu ngươi nghĩ rằng kiếm tu Bắc Câu Lô Châu đều như nhau và ta là ngoại lệ, thì sau này ngươi sẽ gặp rất nhiều khó khăn. Địa tiên kiếm tu và con người vẫn còn phải chém giết nhau, cũng không thể ngừng lại, nếu họ không tiếc hao tổn bản nguyên thần thông thuật pháp, hoàn toàn có thể.”
+- Phí của trời.
 
-Trần Bình An đưa tay ra, nhẹ nhàng lật hai thanh phi kiếm xanh đen trắng, treo giữa lòng bàn tay, rồi nhìn về phía thanh phi kiếm tên là Tiểu Phong Đô. "Sớm muộn gì, ta cũng sẽ luyện hóa được thanh kiếm này. Với tư cách là bổn mạng vật của ngũ hành bên ngoài, nếu may mắn thành công thì cho dù không thể so với kiếm tu có vật bổn mạng tốt như vậy, nhưng vào thời điểm này, tự nhiên sẽ mạnh hơn nhiều. Bởi vì đã tặng cho người khác, nên ta không có bất kỳ nghi ngờ nào. Chỉ có điều phi kiếm này không phải là nguyện ý đi theo ta, chỉ muốn ở lại trong hồ lô dưỡng kiếm chờ đợi, ta không thể cưỡng cầu, huống chi cưỡng cầu cũng không được."
+Thật ra từ sớm hắn đã nhận ra bầu rượu màu son đỏ kia là hồ lô dưỡng kiếm, nửa do cảm nhận được khí tức, nửa do đoán. Còn hai thanh "phi kiếm" không nhìn ra phẩm chất này, rơi vào tay Trần Bình An, nói phí của trời cũng không oan cho vị "người tốt huynh".
 
-Trần Bình An ánh mắt chuyển sang phi kiếm Mười Lăm, "Cái thanh này, ta rất thích, không phải là không tin người, mà chỉ sợ những điều không may sẽ đến. Vì vậy ta vẫn thấy rất áy náy với nó."
+Liễu Chất Thanh chậm rãi nói:
 
-Liễu Chất Thanh trầm giọng nói: "Luyện hóa cái kia phi kiếm còn lại, phẩm cấp càng cao, mạo hiểm càng lớn. Ta chỉ muốn hỏi một điều, ngươi có chăm sóc nó, phát triển các mấu chốt huyệt cho nó hay không? Nếu không làm được điều này, mọi thứ sẽ không thành công. Điều này không liên quan đến việc ngươi có bao nhiêu thần tiên tiền hay bao nhiêu thiên tài địa bảo. Tại sao các kiếm tu được coi trọng nhất không phải không có lý do đâu."
+- Hai thanh phi kiếm này, nếu do kiếm tu chính thức luyện hóa, tốc độ sẽ rất nhanh. Đáng tiếc ngươi không phải kiếm phôi bẩm sinh, chúng cũng không phải bổn mạng vật của ngươi. Ta không biết lực sát thương của vị lão kiếm tu Kim Đan kia ra sao, nhưng nói về tốc độ thì thật sự là chậm. Nếu ngươi nghĩ kiếm tu Bắc Câu Lô Châu đều như vậy, chỉ có ta là ngoại lệ, sau này sẽ gặp rất nhiều khó khăn. Kiếm tu địa tiên chém giết với người ta cũng không thể dừng lại, nếu họ không tiếc hao tổn bản nguyên thần thông thuật pháp thì hoàn toàn có thể làm được.
 
-Trần Bình An cười gật đầu, "Có, còn ba chỗ."
+Trần Bình An đưa tay, nhẹ nhàng lật hai thanh phi kiếm một xanh đen một trắng, để chúng treo trên lòng bàn tay, rồi nhìn về thanh phi kiếm tên Tiểu Phong Đô:
 
-Liễu Chất Thanh đột nhiên nói: "Họ Trần, ngươi dạy ta vài câu mắng chửi người đi!"
+- Sớm muộn gì ta cũng sẽ luyện hóa thanh kiếm này, xem như bổn mạng vật ngoài ngũ hành. Nếu may mắn thành công, cho dù không bằng kiếm tu có bổn mạng vật tốt, đến lúc đó cũng sẽ mạnh hơn nhiều. Vì đã được người ta tặng, nên ta không có nghi ngờ gì [?]. Chỉ có điều thanh phi kiếm này không muốn đi theo ta, chỉ muốn ở lại trong hồ lô dưỡng kiếm chờ đợi. Ta không thể cưỡng cầu, huống chi cưỡng cầu cũng không được.
 
-Trần Bình An vẫy tay, "Ta là người, nắm đấm có chút nặng, lại không... nhất định sẽ làm tổn thương người khác."
+Ánh mắt hắn chuyển sang phi kiếm Mười Lăm:
 
-Liễu Chất Thanh đứng dậy: "Không còn lời nào nữa, ta đi đây."
+- Thanh này ta rất thích, không phải ta không tin nó, chỉ là sợ điều không may sẽ đến, nên vẫn thấy rất áy náy với nó.
 
-Trần Bình An cùng đứng dậy, thu lại cảm xúc vui vẻ, hỏi: "Liễu Chất Thanh, ngươi có trở về Kim Ô cung để tẩy kiếm, ta cũng muốn hỏi ngươi một câu cuối cùng."
+Liễu Chất Thanh trầm giọng nói:
 
-Liễu Chất Thanh hỏi lại: "Cứ nói đi, không ngại đâu."
+- Luyện hóa thanh phi kiếm còn lại, phẩm cấp càng cao thì mạo hiểm càng lớn. Ta chỉ hỏi một câu, ngươi có khai mở và nuôi dưỡng những khiếu huyệt then chốt cho nó không? Nếu không làm được chuyện này, mọi thứ đều vô ích, không liên quan gì đến việc ngươi có bao nhiêu tiền thần tiên hay thiên tài địa bảo. Kiếm tu được coi trọng nhất đâu phải không có lý do.
 
-Trần Bình An chậm rãi nói: "Ngươi dựa vào cái gì để muốn một tòa Kim Ô cung, mọi chuyện có hợp ý ngươi không?"
+Trần Bình An cười gật đầu:
+
+- Có, còn ba chỗ.
+
+Liễu Chất Thanh đột nhiên nói:
+
+- Họ Trần, ngươi dạy ta vài câu mắng người đi!
+
+Trần Bình An xua tay:
+
+- Ta là người nắm đấm hơi nặng, lại không... nhất định sẽ làm người khác bị thương [?].
+
+Liễu Chất Thanh đứng dậy:
+
+- Hết lời rồi, ta đi đây.
+
+Trần Bình An cũng đứng dậy, thu lại nét cười, nói:
+
+- Liễu Chất Thanh, ngươi về Kim Ô cung tẩy kiếm, ta cũng muốn hỏi ngươi một câu cuối cùng.
+
+Liễu Chất Thanh đáp:
+
+- Cứ nói đi, không ngại.
+
+Trần Bình An chậm rãi nói:
+
+- Ngươi dựa vào cái gì mà muốn cả tòa Kim Ô cung chuyện gì cũng hợp ý mình?
 
 Liễu Chất Thanh lặng im không nói.
 
-Trần Bình An tiếp tục: "Trong việc tẩy kiếm trước đó, hay là trước tiên phải hiểu rõ ràng mọi chuyện."
+Trần Bình An tiếp tục:
 
-Liễu Chất Thanh cười cười: "Đơn giản thôi, ta chỉ muốn tẩy kiếm thành công. Kim Ô cung chính là nơi có thể có thêm một vị Nguyên Anh kiếm tu. Lúc trước ta chịu đựng nỗi khổ trong việc tẩy kiếm, năm sau thì sẽ được Nguyên Anh che chở."
+- Trước khi tẩy kiếm, tốt nhất nên nghĩ cho rõ chuyện này.
 
-Trần Bình An bĩu môi: "Kiếm tu làm việc, thật sự rất sảng khoái."
+Liễu Chất Thanh cười cười:
 
-Liễu Chất Thanh mỉm cười: "Nếu không thì học ngươi, đứng ở cửa hàng mà phơi nắng, hay mò mẫm dưới khe nước?"
+- Đơn giản thôi, ta chỉ muốn tẩy kiếm thành công, Kim Ô cung sẽ có thêm một vị kiếm tu Nguyên Anh. Bây giờ chịu nỗi khổ tẩy kiếm, ngày sau sẽ được một vị Nguyên Anh che chở.
 
-Trần Bình An vẫy tay: "Cút đi cút đi, nhìn ngươi đã thấy phiền. Nghĩ đến việc ngươi có thể trở thành Nguyên Anh kiếm tu, càng thêm phiền. Về sau nếu có luận bàn, chắc chắn ta sẽ không để ngươi dễ dàng ăn đất đâu."
+Trần Bình An bĩu môi:
 
-Liễu Chất Thanh cười nhạo: "Ngươi sẽ thấy phiền à? Ngọc Oánh sườn dốc trong nước đá cuội, một mớ đá nguyên bản trị giá mấy trăm lượng bạc, sao ngươi không bán từng viên một với giá trên trời? Ta thấy ngươi cũng tính toán rồi đấy, bốn mươi chín viên đá cuội trước không nóng nảy bán, chắc là chờ ta ra tay."
+- Kiếm tu làm việc, thật là sảng khoái.
 
-Trần Bình An cười lớn: "Nếu ngươi không học ta buôn bán, thật sự là đáng tiếc. Có thể tạo ra vật liệu ư, có thể tạo ra vật liệu."
+Liễu Chất Thanh mỉm cười:
 
-Liễu Chất Thanh chuẩn bị ngự kiếm bay đi, Trần Bình An đột nhiên nói: "Ta cho ngươi một lời khuyên miễn phí. Đến Kim Ô cung, đừng vội tẩy kiếm, trước tiên có thể làm cái... phòng thu chi, ghi chép lại gia phả của tổ sư, để ở trong tay, sau đó quan sát Kim Ô cung trong một năm nửa năm, xem toàn bộ tu sĩ từng hành động, ai nói gì, làm cái gì, đều ghi nhớ lại, rồi so sánh với họ ở thời điểm xuất thân, cảnh giới hiện tại, thật ra có những điều gì đối lập. Suy nghĩ kỹ lưỡng một lượt, xem tại sao họ lại hành động như thế. Ngươi càng quan sát lâu, càng rõ ràng về tâm lý của họ, như vị thần quản lý sông núi trong lòng bàn tay, thì khi ra tay tẩy kiếm sẽ phải thuận buồm xuôi gió hơn."
+- Chứ không lẽ học ngươi, ngồi trước cửa hàng phơi nắng, hay mò mẫm dưới khe nước?
 
-Liễu Chất Thanh gật đầu: "Có thể thực hiện."
+Trần Bình An xua tay:
 
-Trần Bình An phất tay từ biệt: "Chúc ngươi tẩy ra một thanh kiếm tốt."
+- Cút đi cút đi, nhìn ngươi đã thấy phiền. Nghĩ đến chuyện ngươi có thể thành kiếm tu Nguyên Anh lại càng phiền. Sau này nếu luận bàn, chắc chắn ta không để ngươi chỉ ăn đất đơn giản như vậy đâu.
 
-Liễu Chất Thanh hỏi: "Ngươi đi rồi, lão hòe phố này cửa hàng làm sao bây giờ?"
+Liễu Chất Thanh cười nhạo:
 
-Trần Bình An cười nói: "Giao cho Tống Lan Tiều, một vị đệ tử hoặc một tu sĩ Chiếu Dạ Thảo Đường là được. Chín phần thành, ta đã để lại vài món pháp bảo trong cửa hàng, có đôi có cặp hai ngọn kim quan lớn nhỏ, còn có Thương Quân hồ một vị hồ quân, một chiếc ngai vàng. Dù sao giá cả đã định, sau khi trở về cửa hàng, sẽ biết cần kiếm bao nhiêu thần tiên tiền. Nếu ta không ở đây, cửa hàng mà không cẩn thận mất mát hoặc gặp trộm cướp, chắc chắn Xuân Lộ phố sẽ đền bù dựa trên giá gốc. Tóm lại, ta không lo, đảm bảo thu hoạch, kể cả hạn hay lụt."
+- Ngươi mà biết phiền à? Đá cuội trong nước sườn dốc Ngọc Oánh, một mớ đá nguyên bản chỉ đáng mấy trăm lượng bạc, sao ngươi không bán từng viên với giá trên trời? Ta thấy ngươi cũng tính xong rồi, bốn mươi chín viên trước đó chưa vội bán, chắc là chờ ta ra tay [?].
 
-Về phần xá tím pháp bảo và những vật này, Trần Bình An sẽ không bán.
+Trần Bình An cười lớn:
 
-Cái đồ vật này của tiên gia tương đối đặc thù, ta vô cùng yêu thích. Cùng loại với binh gia giáp viên, thường thường giá cả đắt đỏ, trước đây có tiền mà không thể mua được. Về sau, ở trong núi Lạc Phách, những thứ như thế này trên đỉnh núi, nhiều người dần dần chỉ biết ngao ngán vì không có.
+- Ngươi không học ta buôn bán thật là đáng tiếc. Đúng là khối liệu tốt, đúng là khối liệu tốt.
 
-Liễu Chất Thanh đột nhiên do dự trước mặt.
+Liễu Chất Thanh chuẩn bị ngự kiếm bay đi, Trần Bình An đột nhiên nói:
 
-Trần Bình An lên tiếng: "Ngươi chọn được món nào thì nhất định phải mua. Bằng hữu là một chuyện, nhưng mua bán vẫn phải phân định rõ. Ta có thể phá lệ, giảm giá cho ngươi... giảm giá sáu phần thôi, không thể thấp hơn nữa."
+- Ta tặng ngươi một lời khuyên miễn phí. Đến Kim Ô cung đừng vội tẩy kiếm, trước tiên có thể làm cái... sổ sách, chép lại gia phả tổ sư để trong tay, sau đó quan sát Kim Ô cung một năm nửa năm, xem từng tu sĩ hành động ra sao, ai nói gì, làm gì, đều ghi nhớ lại, rồi đối chiếu với xuất thân và cảnh giới hiện tại của họ, xem có chỗ nào mâu thuẫn. Suy nghĩ kỹ một lượt, vì sao họ lại làm như thế. Ngươi quan sát càng lâu, càng hiểu rõ lòng dạ của họ, như thần linh nắm sông núi trong lòng bàn tay, đến lúc ra tay tẩy kiếm sẽ thuận buồm xuôi gió hơn.
 
-Liễu Chất Thanh cười đáp: "Nhưng mà số lượng đồ vật như vậy ở bộ Hài Cốt ghềnh Bích Họa, ngươi ở bên cửa hàng cũng không thiếu hàng, sao lại cứ phải giảm giá cho ta? Nói tiền thương tình, giảm giá sáu phần cũng không có nghĩa lý gì với ta. Ta không mua, tiễn đưa ta là được."
+Liễu Chất Thanh gật đầu:
 
-Trần Bình An liếc qua hướng lão hòe phố, nói: "Từ đây xa lắm."
+- Làm được.
 
-Liễu Chất Thanh cười nhạo: "Ta có thể tự mình đi đến cửa hàng khác, khi trở về, ngươi nhớ đổi khóa lại."
+Trần Bình An phất tay từ biệt:
 
-Trần Bình An thở dài, lấy ra một bộ lang điền bản thần nữ đồ cùng hộp gỗ, đưa cho Liễu Chất Thanh.
+- Chúc ngươi tẩy ra một thanh kiếm tốt.
 
-Liễu Chất Thanh cẩn thận nhận lấy, cảm thấy mỹ mãn.
+Liễu Chất Thanh hỏi:
 
-Cảnh đẹp, rượu ngon, trà ngon, hắn vẫn rất thích. Hắn ở Kim Ô Cung đã thấy dăm ba tỳ nữ, họ đều có dung mạo xuất sắc, nhưng chỉ đẹp mắt mà thôi. Hơn nữa, nếu như không tụ họp lại tất cả, chỉ tính sắc đẹp của họ cũng đã tương đương với tay môn sinh của cung chủ, thật sự chẳng khác nào mây dông bão tố mà thôi.
+- Ngươi đi rồi, cửa hàng ở phố Lão Hòe tính sao?
 
-Trần Bình An đột nhiên nói: "Thật ra ta có hai bộ Bàng Sơn Lĩnh đắc ý nhất, so với những món này tốt hơn nhiều, khác nhau một trời một vực."
+Trần Bình An cười nói:
 
-Liễu Chất Thanh lắc đầu: "Ngươi giữ lấy đi, quân tử không chiếm thứ tốt của người khác."
+- Giao cho Tống Lan Tiều, một đệ tử của hắn, hoặc một tu sĩ Chiếu Dạ thảo đường là được. Ta chín, họ một. Ta đã để lại trong cửa hàng vài món pháp bảo, có đôi kim quan một lớn một nhỏ, còn có một chiếc ngai của vị hồ quân hồ Thương Quân. Dù sao giá cả đã định, sau này về cửa hàng là biết kiếm được bao nhiêu tiền thần tiên. Dù ta không ở đây, cửa hàng có mất mát hay gặp trộm cướp, phố Xuân Lộ chắc chắn sẽ đền theo giá gốc. Tóm lại ta không lo, hạn hay lụt đều có thu.
 
-Trần Bình An nhẫn nại, khẽ v**t v*.
+Còn những món pháp bảo như xá tím [?], Trần Bình An sẽ không bán.
 
-Liễu Chất Thanh cáu kỉnh nói: "Không có tiền!"
+Loại đồ vật này của tiên gia tương đối đặc biệt, hắn rất thích, cũng giống như giáp hoàn của Binh gia, thường có giá rất cao, có tiền cũng chưa chắc mua được. Về sau ở trên núi Lạc Phách, những thứ này nhiều người chỉ có thể ngao ngán vì không có.
 
-Trần Bình An thu tay lại, cười nói: "Hai bộ thần nữ đồ không thể cho ngươi. Nhưng mà đợi ta trở về Phi Ma Tông, có thể sẽ tâm sự với lão tiên sinh Bàng, xem có thể mời ông ấy viết thêm. Nếu thành công, ta sẽ gửi về Kim Ô Cung. Không thành công, ngươi coi như không có chuyện gì."
+Liễu Chất Thanh đột nhiên do dự.
 
-Liễu Chất Thanh ngự kiếm rời khỏi Ngọc Oánh sườn dốc.
+Trần Bình An lên tiếng:
 
-Trần Bình An cũng lấy bùa chú, quay về trúc biển.
+- Ngươi chọn được món nào thì nhất định phải mua. Bằng hữu là một chuyện, mua bán phải phân minh. Ta có thể phá lệ giảm giá cho ngươi... giảm sáu phần thôi, không thể thấp hơn nữa.
 
-Cả đêm, hắn điềm tĩnh tu hành, làm nhiều việc một lúc, không vì cái này mà chậm trễ.
+Liễu Chất Thanh cười đáp:
 
-Khi đêm khuya buông xuống, Trần Bình An bỏ hồ lô dưỡng kiếm lên bàn, từ rương trúc lấy ra thanh kiếm tiên, rồi từ phi kiếm Mười lăm lấy ra một vật. Hắn nhanh chóng rút kiếm ra khỏi vỏ, chém xuống một nhát, từ mảnh đá mài kiếm vừa bổ thành hai, Mùng một và Mười lăm lơ lửng bên cạnh, bị kích động. Trần Bình An cầm kiếm điều chỉnh lại tay, tay bắt đầu run lên, tạm thời rơi vào trạng thái không còn tri giác, nhưng vẫn cố gắng giữ cho thanh kiếm, nhìn thật kỹ ở mũi kiếm, không để bất kỳ khuyết điểm nào có thể bị bỏ qua. Lúc này mới nhẹ nhàng thở ra.
+- Loại này ở thành Bích Họa ghềnh Hài Cốt có đầy, cửa hàng của ngươi cũng không thiếu, sao lại phải giảm giá cho ta? Nói chuyện tiền bạc thì tổn thương tình cảm, giảm sáu phần với ta cũng chẳng có nghĩa lý gì. Ta không mua, ngươi tặng ta là được.
 
-Trần Bình An ngồi xếp bằng, bắt đầu nhỏ luyện hai khối trảm long đài, ý định thu nhận hai tòa huyệt vị giữa, lại để cho Mùng một và Mười lăm ra khỏi hồ lô dưỡng kiếm. Hắn dùng cái này để mài mũi kiếm, từng chút từng chút một ăn tươi hai tòa trảm long đài.
+Trần Bình An liếc về hướng phố Lão Hòe, nói:
 
-Khối trảm long đài này là do kiếm linh tỷ tỷ tại Lão Long thành hiện thân đưa tặng ba khối mài kiếm đá lớn nhất.
+- Từ đây xa lắm.
 
-Hắn vẫn chưa bỏ ra cho Mùng một Mười lăm.
+Liễu Chất Thanh cười nhạo:
 
-Nếu như chính thức đi trên con đường tu hành, đặc biệt là quyết định luyện hóa Mùng một Mười lăm thành vật đồng sinh đồng tử với mình, hắn sẽ không cần chút do dự nào nữa.
+- Ta tự đến cửa hàng lấy cũng được, ngươi về nhớ thay khóa đấy.
 
-Thông qua cuộc thảo luận cùng Liễu Chất Thanh – một người Kim Đan bình cảnh kiếm tu, Trần Bình An cảm thấy mình còn thiếu sót, chưa đủ, còn xa mới đủ.
+Trần Bình An thở dài, lấy ra một bộ thần nữ đồ bản Lang Điền cùng hộp gỗ, đưa cho Liễu Chất Thanh.
 
-Khả năng nhiều mà chưa áp dụng được.
+Liễu Chất Thanh cẩn thận nhận lấy, thỏa mãn vô cùng.
 
-Cái bùa chú ấy, cũng có thể đem ra làm trò che mắt một lần.
+Cảnh đẹp, rượu ngon, trà ngon, hắn đều rất thích. Ở Kim Ô cung hắn từng gặp vài tỳ nữ, dung mạo đều xuất sắc, nhưng cũng chỉ là đẹp mắt mà thôi. Hơn nữa nếu không tụ họp lại, chỉ tính nhan sắc của họ thì cũng ngang môn sinh của cung chủ, chẳng khác gì mây giông bão tố [?].
 
-Trong áo pháp bào, hắn giấu một đống lớn bùa chú, giả làm một sĩ đồ bùa chú đông đảo.
+Trần Bình An đột nhiên nói:
 
-Sau lưng chính là một người thuần túy vũ phu.
+- Thật ra ta có hai bộ của Bàng Sơn Lĩnh đắc ý nhất, so với bộ này tốt hơn nhiều, khác nhau một trời một vực.
 
-Giữa hai bên chém giết, xem xét thời thế, tìm cơ hội biến thành kiếm tu, làm cho đối phương phải trốn khỏi Mùng một, không tránh được Mười lăm.
+Liễu Chất Thanh lắc đầu:
 
-Cuối cùng mới chính là thanh kiếm tiên kia.
+- Ngươi giữ lấy đi, quân tử không chiếm thứ người khác yêu thích.
 
-Trần Bình An vào sáng sớm đi ra lão hòe phố, nhưng không phải để buôn bán, mà tới một cửa hàng chuyên bán thư phòng lâu đời, tìm cơ hội kết bạn với một học đồ. Sau khi thỏa thuận về việc mua bán bút, vị học đồ trẻ tuổi cảm thấy không có vấn đề gì lớn, nhưng chỉ kiên định một việc: bốn mươi chín khối đá cuội từ Ngọc Oánh sườn dốc, từ hắn mài dũa thành các loại dụng cụ lịch sự. Hắn cho biết chỉ trong vòng ba ngày, tối đa là mười ngày, có thể cho ra mười khối Tuyết hoa tiền, nhưng không thể bán tại cửa hàng kiến càng, nếu không hắn cũng sẽ không có chỗ nào để làm ăn ở lão hòe phố nữa. Trần Bình An đồng ý, sau đó hai người hẹn gặp lại sau khi cửa hàng đóng cửa, trở về để thảo luận cặn kẽ hơn.
+Trần Bình An kiên nhẫn, khẽ xoa xoa ngón tay [?].
 
-Trần Bình An tiếp tục đi một chuyến đến Chiếu Dạ thảo đường, gặp một vị đường tiên sư nổi tiếng ở Xuân Lộ phố, người này cũng là một thiên tài trong giới tu sĩ, trước kia chưa có tài năng xuất sắc, không nằm trong đệ tử dòng chính, nhưng cuối cùng trở thành một thương nhân lão luyện, dựa vào sự giàu có mà từng bước gia tăng thực lực, cuối cùng thăng tiến đến Kim Đan cảnh.
+Liễu Chất Thanh cáu kỉnh nói:
 
-Đường Thanh Thanh tự nhiên có mặt ở đây.
+- Không có tiền!
 
-Chỉ có điều Thiết Đồng Phủ Ngụy Bạch và vị lão ma ma đó đã phản hồi về Đại Quan Vương Triều.
+Trần Bình An thu tay lại, cười nói:
 
-Đường Thanh Thanh tự tay pha trà, ngồi đối diện trò chuyện. Vị đường tiên sư đó biết được dự định của kiếm tiên trẻ tuổi đang muốn mở một cửa hàng mới, ngay lập tức chủ động đề nghị phái một tu sĩ nhanh nhẹn sang hỗ trợ cho kiến càng cửa hàng.
+- Hai bộ thần nữ đồ đó không thể cho ngươi. Nhưng đợi ta về Phi Ma tông, có thể tâm sự với lão tiên sinh Bàng, xem có mời ông ấy vẽ thêm được không. Nếu thành, ta sẽ gửi về Kim Ô cung. Không thành, ngươi coi như không có chuyện gì.
 
-Trần Bình An nói chín một thành, vị đường tiên sư cười bảo không có chuyện tốt như vậy, một phần chia hoa hồng. Hắn cho rằng, việc đơn giản như ngồi đó lấy tiền mỗi ngày còn không bằng trả lương cố định. Một năm, Chiếu Dạ thảo đường phái ra một tu sĩ trên cửa hàng chỉ cần thu ba mươi khối Tuyết hoa tiền là đủ. Tuy nhiên, Trần Bình An vẫn cảm thấy chín một thành là hợp lý, vị đường tiên sư đồng ý với điều đó, lại cẩn thận hỏi một chút, nếu như ở bên lão hòe phố không bị tổn hại đến khách hàng quen và danh tiếng cửa hàng, xem dựa vào kho bãi và năng lực để bán, thì làm thế nào tính toán. Trần Bình An cho biết sẽ chia một nửa phần hoa hồng thu được từ việc tăng giá. Vị đường tiên sư gật đầu, rồi thăm dò hỏi liệu có cho phép Chiếu Dạ thảo đường phái một tiểu nhị, vào ngày sau trở lại kiến càng cửa hàng, để điều chỉnh giá lên một hai phần, cũng cho phép khách hàng mặc cả, mà mức giá thỏa thuận nhưng đương nhiên không thể thấp hơn giá ban đầu mà Trần Bình An đưa ra. Trần Bình An cười nói, như vậy thì tốt, mình làm buôn bán còn non kinh nghiệm, quả nhiên giao cho Chiếu Dạ thảo đường quản lý là lựa chọn tốt nhất.
+Liễu Chất Thanh ngự kiếm rời khỏi sườn dốc Ngọc Oánh.
 
-Sau khi uống trà và nói chuyện xã giao, Trần Bình An cáo từ rời đi.
+Trần Bình An cũng lấy bùa, quay về biển trúc.
 
-Đường Thanh Thanh cùng cha nàng đứng trước cổng lớn, nàng nghi ngờ nói: "Cha, chuyện trên thuyền bên cạnh, ta đã nói rõ với ngươi từ đầu đến cuối rồi. Hôm nay chúng ta ở Xuân Lộ phố lại coi trọng hắn như vậy, mà hắn lại là người có thể khiến Liễu Kiếm Tiên rời khỏi Ngọc Oánh sườn dốc để tự mình đến Kinh Trập phủ mời trà. Hôm nay người ta đã tìm tới tận cửa, uống trà tại nhà chúng ta, thật là một vinh dự lớn. Sao cha còn phải tính toán chi li như vậy? Nếu thật sự muốn giao hảo với hắn, nhà chúng ta không thiếu tiền thần tiên, mua toàn bộ hàng tồn kho không phải sẽ tốt hơn sao? Hắn buôn bán lời nhiều, mà nhà chúng ta chỉ thiếu một chút, cũng không phải lỗ vốn, có phải không tốt hơn nhiều?"
+Cả đêm hắn yên tĩnh tu hành, làm nhiều việc một lúc, không vì việc này mà chậm trễ việc kia.
 
-Người cha lắc đầu đáp: "Thế gian này không có cách buôn bán như vậy. Nếu vị kiếm tiên trẻ tuổi kia đến cửa đòi tiền, cha không chỉ sẽ cho hắn, mà còn có thể cho thêm một khoản nữa, ngươi cũng đừng nhăn mặt. Có thể xem như là phá tài tiêu tai. Nhưng nếu hắn đến để buôn bán với chúng ta, thì cần phải tuân thủ quy củ, như vậy mới có thể lâu dài, không biến chuyện tốt thành chuyện xấu."
+Khi đêm đã khuya, Trần Bình An đặt hồ lô dưỡng kiếm lên bàn, lấy kiếm tiên từ rương trúc ra, lại từ phi kiếm Mười Lăm lấy ra một vật. Hắn nhanh chóng rút kiếm khỏi vỏ, chém xuống một nhát, bổ đôi khối đá mài kiếm. Mùng Một và Mười Lăm lơ lửng bên cạnh, bị kích động không yên. Trần Bình An cầm kiếm, cổ tay bắt đầu run lên, trong chốc lát mất cả tri giác, nhưng vẫn cố giữ chặt thanh kiếm, nhìn kỹ mũi kiếm, không để sót khuyết điểm nào, lúc này mới nhẹ nhàng thở ra.
 
-Người cha nhận thấy con gái còn chưa hoàn toàn suy nghĩ thấu đáo, ông cười nói: "Ngoài trường hợp bỗng dưng phú quý, mọi giao dịch lâu dài trên đời này đều có quy tắc, và có nhiều loại người kinh doanh, đủ kiểu đường phát tài."
+Trần Bình An ngồi xếp bằng, bắt đầu luyện nhỏ hai khối trảm long đài, định đưa vào hai tòa huyệt vị ở giữa [?], lại để Mùng Một và Mười Lăm ra khỏi hồ lô dưỡng kiếm, dùng chúng để mài mũi kiếm, từng chút từng chút ăn hết hai tòa trảm long đài.
 
-Người cha từ trong tay áo lấy ra một đồng tiền đồng bình thường nhất dưới núi, đã được bảo quản nhiều năm. Ông nhẹ nhàng đặt nó vào lòng bàn tay mình và nói: "Hãy tôn trọng vật này."
+Khối trảm long đài này do kiếm linh tỷ tỷ hiện thân ở Lão Long thành tặng, ba khối mài kiếm lớn nhất.
 
-Sau đó, Trần Bình An đến bái phỏng một vị bà lão, là Kim Đan chủ thuyền Tống Lan Tiều ân sư. Bà lão cũng là một tu sĩ Kim Đan, nhưng tại Xuân Lộ phố, bà đã có một vị trí nhất định. Tống Lan Tiều thì lại không được như vậy. Nói cách khác, trong cuộc họp của tổ sư đường Xuân Lộ phố, bà lão có ghế ngồi bên cạnh lão tổ Đàm Lăng, tổng cộng có tám người, mà cha của Đường Thanh Thanh cũng có một ghế, nhưng chỉ ngồi ở phía sau, còn Tống Lan Tiều chỉ có thể đứng.
+Trước nay hắn vẫn chưa nỡ bỏ ra cho Mùng Một và Mười Lăm.
 
-Khi bà lão gặp được kiếm tiên trẻ tuổi, gương mặt bà rạng rỡ, và đã kéo Trần Bình An lại để hàn huyên khách sáo suốt hơn nửa canh giờ. Trần Bình An vẫn giữ thái độ bình tĩnh, cho đến khi bà lão mở lời không muốn làm phiền Trần Kiếm Tiên tu hành, lúc này Trần Bình An mới đứng dậy cáo từ.
+Nếu đã chính thức đi trên con đường tu hành, nhất là đã quyết định luyện hóa Mùng Một và Mười Lăm thành vật đồng sinh cộng tử với mình, hắn không cần do dự nữa.
 
-Đến nhà bà lão, lễ vật của Trần Bình An là một kiện linh khí không quá quý giá nhưng lại rất thích hợp cho việc sử dụng.
+Qua mấy trận luận bàn với Liễu Chất Thanh, một kiếm tu bình cảnh Kim Đan, Trần Bình An cảm thấy mình vẫn còn thiếu sót, còn xa mới đủ.
 
-Bà lão muốn đáp lễ, nhưng Trần Bình An đã từ chối một cách nhã nhặn, nói rằng nếu tiền bối làm vậy, lần sau sẽ không dám đến tay không nữa. Bà lão thoải mái cười lớn, lúc này mới thôi.
+Bản lĩnh nhiều mà chưa dùng được.
 
-Khi Trần Bình An trở về lão hòe phố, vừa qua buổi trưa, ông mở cửa chính cửa hàng, vẫn ngồi trên ghế trúc phơi nắng.
+Bùa chú cũng có thể đem ra làm trò che mắt một lần.
 
-Kinh doanh có phần ảm đạm.
+Trong pháp bào giấu một đống lớn bùa chú, giả làm một phù sư gia tài dồi dào.
 
-Một canh giờ trôi qua, ông mới thực hiện được một giao dịch, nhập vào bốn khối Tuyết Hoa tiền, có một vị nữ tu trẻ tuổi đã mua một đồ vật trong phòng khuê. Khi nàng đưa tiền thần tiên cho quầy hàng và bước ra cửa, bước chân dường như hơi vội vàng.
+Sau đó mới lộ ra là một võ phu thuần túy.
 
-Trần Bình An không dám nói rằng nàng sẽ quay lại.
+Giữa lúc hai bên chém giết, xem xét thời thế, tìm cơ hội biến thành kiếm tu, khiến đối phương tránh được Mùng Một, không tránh được Mười Lăm.
 
-Ông cảm thấy hối tiếc khi không kéo Liễu Chất Thanh tới làm tiểu nhị.
+Cuối cùng mới là thanh kiếm tiên kia.
 
-Liễu Đại kiếm tiên thật không biết xấu hổ khi lấy không một bộ lang điền bản thần nữ đồ, sao hắn có thể không xấu hổ mà đề nghị hắn giúp đỡ cửa hàng mời chào khách hàng?
+Sáng sớm Trần Bình An đi ra phố Lão Hòe, không phải để buôn bán, mà tới tiệm đồ thư phòng lâu đời kia, tìm cơ hội kết giao với một học đồ. Sau khi bàn chuyện mua bán, người học đồ trẻ tuổi thấy không có vấn đề gì lớn, chỉ kiên định một việc: bốn mươi chín viên đá cuội từ sườn dốc Ngọc Oánh do hắn mài giũa thành các món đồ văn nhã. Hắn nói chỉ trong vòng ba ngày, nhiều nhất là mười ngày, có thể làm ra được món đáng mười đồng tiền tuyết hoa, nhưng không thể bán ở cửa hàng Kiến Càng, nếu không hắn sẽ chẳng còn chỗ nào làm ăn ở phố Lão Hòe nữa. Trần Bình An đồng ý, hai người hẹn sau khi tiệm đóng cửa sẽ gặp lại bàn cặn kẽ hơn.
+
+Trần Bình An lại đi một chuyến đến Chiếu Dạ thảo đường, gặp Đường tiên sư có tiếng ở phố Xuân Lộ. Người này cũng là một kỳ tài trong giới tu sĩ, trước kia không có tài năng gì xuất sắc, không phải đệ tử dòng chính, nhưng cuối cùng trở thành thương nhân lão luyện, dựa vào của cải từng bước tăng thực lực, rốt cuộc thăng lên Kim Đan cảnh.
+
+Đường Thanh Thanh tự nhiên có mặt ở đây, chỉ có điều Ngụy Bạch của phủ Thiết Đồng và vị lão ma ma kia đã về vương triều Đại Quan.
+
+Đường Thanh Thanh tự tay pha trà, ngồi đối diện trò chuyện. Đường tiên sư biết vị kiếm tiên trẻ tuổi muốn tìm người trông cửa hàng, liền chủ động đề nghị phái một tu sĩ nhanh nhẹn sang cửa hàng Kiến Càng giúp đỡ.
+
+Trần Bình An nói chia chín một, Đường tiên sư cười bảo làm gì có chuyện tốt như vậy, chia hoa hồng một phần, ngồi không lấy tiền mỗi ngày còn không bằng trả lương cố định. Mỗi năm Chiếu Dạ thảo đường phái một tu sĩ đến cửa hàng, chỉ cần thu ba mươi đồng tiền tuyết hoa là đủ. Có điều Trần Bình An vẫn thấy chia chín một là hợp lý, Đường tiên sư liền đồng ý, lại cẩn thận hỏi thêm, nếu không làm tổn hại đến khách quen và danh tiếng của cửa hàng bên phố Lão Hòe, dựa vào hàng tồn và năng lực mà bán được giá hơn thì tính thế nào. Trần Bình An nói phần tăng thêm sẽ chia đôi. Đường tiên sư gật đầu, rồi thăm dò hỏi có cho phép Chiếu Dạ thảo đường phái một tiểu nhị, sau này về cửa hàng Kiến Càng nâng giá lên một hai phần, đồng thời cho phép khách mặc cả, đương nhiên giá chốt không thể thấp hơn giá ban đầu Trần Bình An đưa ra hay không. Trần Bình An cười nói như vậy thì tốt quá, mình buôn bán còn non kinh nghiệm, quả nhiên giao cho Chiếu Dạ thảo đường là lựa chọn tốt nhất.
+
+Uống trà, nói chuyện xã giao xong, Trần Bình An cáo từ rời đi.
+
+Đường Thanh Thanh và cha đứng trước cổng lớn, nàng nghi hoặc nói:
+
+- Cha, chuyện trên thuyền con đã kể rõ đầu đuôi với cha rồi. Hiện giờ phố Xuân Lộ chúng ta coi trọng hắn như vậy, hắn lại là người khiến Liễu kiếm tiên rời khỏi sườn dốc Ngọc Oánh, đích thân đến phủ Kinh Trập uống trà. Hôm nay người ta tìm tới tận cửa, uống trà tại nhà chúng ta, thật là vinh dự lớn. Sao cha còn phải tính toán chi li như vậy? Nếu thật sự muốn giao hảo với hắn, nhà chúng ta không thiếu tiền thần tiên, mua hết hàng tồn của hắn không phải tốt hơn sao? Hắn lời nhiều, nhà chúng ta chỉ thiệt một chút, cũng chẳng đến nỗi lỗ vốn, chẳng phải tốt hơn nhiều sao?
+
+Người cha lắc đầu đáp:
+
+- Trên đời không có cách buôn bán như vậy. Nếu vị kiếm tiên trẻ tuổi kia đến cửa đòi tiền, cha không chỉ cho hắn, mà còn có thể cho thêm một khoản, con cũng đừng nhăn mặt, coi như phá tài tiêu tai. Nhưng nếu hắn đến để buôn bán với chúng ta thì phải theo quy củ, như vậy mới lâu dài, không biến chuyện tốt thành chuyện xấu.
+
+Thấy con gái vẫn chưa nghĩ thông suốt, ông cười nói:
+
+- Ngoài chuyện bỗng dưng phú quý, mọi cuộc làm ăn lâu dài trên đời đều có quy tắc. Người làm ăn có nhiều loại, đường phát tài cũng có đủ kiểu.
+
+Người cha lấy từ trong tay áo ra một đồng tiền đồng bình thường nhất dưới núi, đã giữ nhiều năm, nhẹ nhàng đặt vào lòng bàn tay, nói:
+
+- Phải tôn trọng vật này.
+
+Sau đó Trần Bình An đến bái phỏng một vị lão bà, là ân sư của chủ thuyền Kim Đan Tống Lan Tiều. Bà cũng là tu sĩ Kim Đan, nhưng ở phố Xuân Lộ đã có vị trí nhất định, còn Tống Lan Tiều thì không được như vậy. Nói cách khác, trong nghị sự ở tổ sư đường phố Xuân Lộ, bà có ghế ngồi bên cạnh lão tổ Đàm Lăng, tổng cộng tám người. Cha của Đường Thanh Thanh cũng có một ghế, nhưng chỉ ngồi phía sau, còn Tống Lan Tiều chỉ có thể đứng.
+
+Lão bà gặp vị kiếm tiên trẻ tuổi thì mặt mày rạng rỡ, kéo Trần Bình An hàn huyên khách sáo hơn nửa canh giờ. Trần Bình An vẫn giữ thái độ bình tĩnh, đến khi bà mở lời không muốn làm phiền Trần kiếm tiên tu hành, hắn mới đứng dậy cáo từ.
+
+Lễ vật Trần Bình An mang đến là một món linh khí không quá quý giá nhưng rất hợp để dùng.
+
+Lão bà muốn đáp lễ, Trần Bình An nhã nhặn từ chối, nói nếu tiền bối làm vậy, lần sau vãn bối không dám đến tay không nữa. Lão bà cười lớn sảng khoái, lúc này mới thôi.
+
+Trần Bình An trở về phố Lão Hòe thì vừa qua trưa, hắn mở cửa hàng, vẫn ngồi trên ghế trúc phơi nắng.
+
+Buôn bán khá ế ẩm.
+
+Một canh giờ trôi qua mới có một giao dịch, thu vào bốn đồng tiền tuyết hoa, một nữ tu trẻ tuổi mua một món đồ dùng trong khuê phòng. Nàng đưa tiền thần tiên lên quầy, bước ra cửa, bước chân hình như hơi vội.
+
+Trần Bình An không dám nói nàng sẽ quay lại.
+
+Hắn hối tiếc vì đã không kéo Liễu Chất Thanh đến làm tiểu nhị.
+
+Liễu đại kiếm tiên lấy không một bộ thần nữ đồ bản Lang Điền mà chẳng biết xấu hổ, vậy thì có gì phải xấu hổ khi nhờ người ta giúp cửa hàng mời chào khách?
 
 Đây là giúp Liễu Chất Thanh tu tâm.
 
-Hoàng hôn buông xuống, một vị chưởng quầy cửa hàng học đồ bước nhanh vào. Trần Bình An đeo lên một cái bảng gỗ đóng cửa, từ giữa một bao ra bốn mươi chín khối đá cuội, chất đầy quầy hàng.
+Hoàng hôn buông xuống, người học đồ kia bước nhanh vào. Trần Bình An treo tấm bảng gỗ đóng cửa, từ một cái bọc lấy ra bốn mươi chín viên đá cuội, chất đầy quầy hàng.
 
-Người trẻ tuổi kia không thể kiềm chế nuốt nước bọt, lo lắng hỏi: "Thật sự là Ngọc Oánh sườn dốc chi vật sao?"
+Người trẻ tuổi không kìm được nuốt nước bọt, lo lắng hỏi:
 
-Trần Bình An cười nói: "Yên tâm đi, không phải là hàng phỏng tay! Còn việc nó đến từ đâu, ngươi đừng quan tâm. Chỉ cần biết rằng tôi là người có cửa hàng không lớn ở lão hòe phố này, mà trong đó lại có nhiều vật quý như vậy, ngươi nghĩ rằng tôi lại vì một chút tiền thần tiên mà thử nghiệm xem liệu Liễu Đại kiếm tiên có nhanh không?"
+- Thật sự là vật của sườn dốc Ngọc Oánh sao?
 
-Người trẻ tuổi nhẹ nhõm thở phào.
+Trần Bình An cười nói:
 
-Hắn cầm lên một viên đá cuội, nghĩ một chút, rồi thận trọng kiểm tra, cười nói: "Không hổ là Ngọc Oánh sườn dốc, đá ở đây thực sự rất tốt, đá trong suốt và êm dịu, khác hẳn với những viên đá trong núi ngọc thạch rất khó loại bỏ được lửa, quả thực là hàng tốt. Đặt vào mắt thợ chế tác dưới núi, chỉ sợ cũng sẽ là một viên đá không tệ. Chưởng quầy ơi, lần giao dịch này tôi chắn chắn sẽ làm, nhiều năm nay khổ luyện cùng sư phụ, chỉ có điều vật tốt ở trên núi rất khó tìm. Chúng ta ở cửa hàng có chút kén chọn, sư phụ không muốn chà đạp những thứ tốt, nên tự mình động thủ, chỉ để chúng tôi có thể quan sát, mà mấy đồ đệ như chúng tôi lại không có cơ hội, vậy nên vừa vặn luyện tay một chút..."
+- Yên tâm đi, không phải hàng phỏng tay! Còn nó từ đâu đến thì ngươi đừng quan tâm. Ngươi chỉ cần biết ta mở một cửa hàng không lớn ở phố Lão Hòe này, trong đó lại có nhiều vật quý như vậy. Ngươi nghĩ ta sẽ vì chút tiền thần tiên mà đi thử xem kiếm của Liễu đại kiếm tiên có nhanh không à?
+
+Người trẻ tuổi thở phào nhẹ nhõm. Hắn cầm lên một viên đá, nghĩ một chút rồi thận trọng xem xét, cười nói:
+
+- Không hổ là sườn dốc Ngọc Oánh, đá ở đây quả thật rất tốt, trong trẻo êm dịu, khác hẳn đá trong núi ngọc rất khó khử hỏa khí, đúng là hàng tốt. Đặt vào mắt thợ chế tác dưới núi, chắc cũng là viên đá không tệ. Chưởng quầy, vụ này ta chắc chắn làm. Bao năm khổ luyện với sư phụ, chỉ có điều vật tốt trên núi rất khó tìm. Tiệm của chúng ta có chút kén chọn, sư phụ không muốn chà đạp đồ tốt nên tự mình động thủ, chỉ cho chúng ta đứng xem, mấy đồ đệ như chúng ta chẳng có cơ hội, vừa hay luyện tay một chút...
 
 Nói đến đây, người trẻ tuổi có vẻ ngại ngùng.
 
-Trần Bình An cười nói: "Không sao, nói thật khó nghe, nhưng lại là sự thật. Chỉ mong ngươi luyện tập có thể, hãy ra sức một chút. Dù sao Ngọc Oánh sườn dốc này, số lượng có hạn, nếu ngươi khắc hỏng một viên thì sẽ mất đi một viên."
+Trần Bình An cười nói:
 
-Người trẻ tuổi khép hai ngón tay lại, cổ tay siết chặt, trên mặt tràn đầy vẻ tự tin, hắn gõ vào ngực vị chưởng quầy trẻ tuổi và hứa: "Đây chính là những đường khắc đầu tiên của tôi, sẽ không qua loa đâu!"
+- Không sao, lời thật khó nghe nhưng vẫn là lời thật. Chỉ mong ngươi luyện tay cũng được, hãy dốc sức một chút. Dù sao đá sườn dốc Ngọc Oánh số lượng có hạn, ngươi khắc hỏng một viên là mất một viên.
 
-Trần Bình An ghé vào quầy, cười nói: "Vậy tôi sẽ đưa viên đá cuội đầu tiên cho ngươi, coi như là chúc mừng ngươi ra tay đầu tiên."
+Người trẻ tuổi khép hai ngón tay, cổ tay siết chặt, mặt đầy tự tin, gõ vào ngực mình, hứa với vị chưởng quầy trẻ tuổi:
 
-Người trẻ tuổi có chút thẹn thùng, "Điều này không phải quá tốt sao."
+- Đây chính là những đường khắc đầu tiên của ta, tuyệt đối không qua loa!
 
-Trần Bình An chỉ vào viên đá cuội, cười nói: "Tùy ý chọn một khối, nhưng ngươi phải hứa với ta rằng viên đá cuội đầu tiên khắc xong sẽ thuộc về ngươi, còn lại, sau khi xuống đao, cũng phải cẩn trọng."
+Trần Bình An chống tay lên quầy, cười nói:
 
-Người trẻ tuổi mặt đỏ lên, "Chưởng quầy ơi, cứ yên tâm! Tôi cam đoan mỗi viên đá đều sẽ được tôi cố gắng thực hiện tới mức cao nhất! Có thể còn có vài phép khắc từ bút do Đao Thần mang tới nữa, tóm lại tôi sẽ không để chưởng quầy thất vọng!"
+- Vậy viên đá đầu tiên ta tặng ngươi, coi như chúc mừng ngươi lần đầu ra tay.
+
+Người trẻ tuổi có chút thẹn thùng:
+
+- Vậy thì không hay lắm.
+
+Trần Bình An chỉ vào đống đá, cười nói:
+
+- Tùy ý chọn một viên, nhưng ngươi phải hứa với ta, viên đầu tiên khắc xong thuộc về ngươi, những viên còn lại, khi xuống đao cũng phải cẩn thận.
+
+Người trẻ tuổi đỏ mặt:
+
+- Chưởng quầy cứ yên tâm! Ta cam đoan viên nào cũng dốc hết sức! Có thể còn có vài nhát như thần xui quỷ khiến [?], tóm lại sẽ không để chưởng quầy thất vọng!
 
 Trần Bình An cười gật đầu.
 
-Khắc đá như đang đốt gốm sứ, cần chú ý đến cảm giác và kinh nghiệm.
+Khắc đá cũng như nung sứ, chú trọng cảm giác và kinh nghiệm.
 
-Viên đá cuội đầu tiên sẽ thuộc về người trẻ tuổi, hắn chỉ cần dành thời gian tập trung, như vậy sau khi khắc, sẽ tạo ra một loại cảm xúc như dòng nước chảy, dù chỉ lơ là một chút, chất lượng tổng thể của viên đá cũng sẽ tốt hơn so với trước kia, tự nhiên sẽ bán được giá cao hơn, và cửa hàng sẽ dễ dàng thu hồi một viên Ngọc Oánh sườn dốc đã mất.
+Viên đá đầu tiên thuộc về người trẻ tuổi, hắn chỉ cần dồn tâm sức vào đó, khắc xong sẽ có một loại cảm giác trôi chảy như dòng nước, về sau dù có lơ là một chút, chất lượng tổng thể của các viên đá cũng vẫn tốt hơn trước, tự nhiên bán được giá cao hơn, cửa hàng dễ dàng thu lại phần một viên đá Ngọc Oánh đã mất.
 
-Thế sự không bao giờ đơn giản, chỉ cần xem có người có suy nghĩ hay không.
+Chuyện thế gian đâu có gì đơn giản, chỉ xem người ta có chịu nghĩ hay không.
 
-Còn về việc liệu người trẻ tuổi này có hỏng việc ở phía sư phụ do sự tiếp xúc tại cửa hàng này hay không, thì Xuân Lộ phố vẫn còn nhiều người thông minh.
+Còn việc người trẻ tuổi này có vì qua lại với cửa hàng mà hỏng việc bên sư phụ hay không, phố Xuân Lộ vẫn còn nhiều người thông minh.
 
-Trần Bình An đã để cho người học trò trẻ tuổi mang theo những viên đá cuội đó, kể cả cái bao bọc, để sau này mỗi lần mài dũa sẽ thành một kiện vật phẩm. Chỉ cần hắn hoặc để bạn bè mang tới cửa hàng là được, đã nói mình là bạn của lão chưởng quỹ, đến lúc đó chưởng quầy sẽ không gặp phải khó khăn gì. Hoặc có thể khắc một kiện rồi lấy đi một kiện, người trẻ tuổi suy nghĩ nhiều hơn về lợi hại, cảm thấy phương pháp này an toàn hơn. Cuối cùng hắn đã cam kết với vị chưởng quầy trẻ tuổi, nếu bất cẩn làm hỏng một viên đá cuội, hắn sẽ tự bỏ tiền túi bồi thường một viên Tuyết Hoa tiền.
+Trần Bình An để người học đồ mang đá đi, cả cái bọc cũng mang theo, sau này mỗi lần mài giũa xong một món thì hắn hoặc nhờ bằng hữu mang tới cửa hàng là được, cứ nói mình là bằng hữu của chưởng quầy, đến lúc đó chưởng quầy sẽ không làm khó. Hoặc có thể khắc xong một viên lại lấy một viên. Người trẻ tuổi cân nhắc lợi hại, thấy cách này an toàn hơn. Cuối cùng hắn cam kết với vị chưởng quầy trẻ tuổi, nếu bất cẩn làm hỏng một viên, hắn sẽ tự bỏ tiền túi đền một đồng tiền tuyết hoa.
 
-Không ngờ vị chưởng quầy trẻ tuổi kia còn nói, nếu bất kì viên đá cuội nào bị ném đi, cũng không thành vấn đề, chỉ cần tay nghề vẫn còn, bên cửa hàng vẫn có thể bàn bạc.
+Không ngờ vị chưởng quầy trẻ tuổi lại nói, có hỏng viên nào cũng không thành vấn đề, chỉ cần tay nghề còn đó, bên cửa hàng vẫn có thể bàn bạc.
 
 Người trẻ tuổi cười rời đi.
 
-Trần Bình An đứng ở cửa hàng, nhìn người nọ rời đi.
+Trần Bình An đứng ở cửa hàng nhìn theo.
 
-Ông lờ mờ thấy một bóng dáng thiếu niên mang giày rơm đang đi đưa tin.
+Hắn lờ mờ thấy bóng dáng một thiếu niên giày cỏ đang đi đưa thư.
 
-Một ngày sau, cửa hàng kiến càng gắn biển đóng cửa hai ngày, mở cửa trở lại thì đã có một vị chưởng quầy mới, có nhãn lực tốt, biết người này đến từ đường tiên sư Chiếu Dạ thảo đường. Khuôn mặt tươi cười ân cần, đón tiếp chu đáo và cẩn thận, đồng thời hàng hóa trong cửa hàng cuối cùng cũng có thể trả giá.
+Một ngày sau, cửa hàng Kiến Càng treo biển đóng cửa hai ngày. Khi mở lại đã có một vị chưởng quầy mới, người có nhãn lực đều nhận ra đó là tiên sư Chiếu Dạ thảo đường. Vị này tươi cười ân cần, đón tiếp chu đáo cẩn thận, hàng hóa trong cửa hàng cuối cùng cũng có thể trả giá.
 
-Hôm nay, Trần Bình An vẫn mặc bộ thanh sam bình thường, mang theo rương trúc, đội mũ rộng vành, cầm gậy leo núi, nói với hai thị nữ trong dinh thự rằng hôm nay sẽ phải rời khỏi Xuân Lộ phố.
+Hôm nay Trần Bình An vẫn mặc bộ thanh sam bình thường, đeo rương trúc, đội mũ rộng vành, cầm gậy leo núi, nói với hai thị nữ trong phủ rằng hôm nay sẽ rời khỏi phố Xuân Lộ.
 
-Vị trẻ tuổi đệ tử Kim Đan tu sĩ đã truyền dạy nói rằng tổ tiên đã gửi lời nhắn tới dinh thự, Phù chu tặng cho Trần Kiếm Tiên rồi, không cần khách khí.
+Vị đệ tử trẻ tuổi của tu sĩ Kim Đan truyền lời, nói lão tổ đã nhắn đến phủ rằng phù chu xin tặng Trần kiếm tiên, không cần khách khí.
 
-Sau khi Trần Bình An cảm ơn, ông cũng không khách khí.
+Trần Bình An cảm tạ, cũng không khách khí nữa.
 
-Ông tế bùa phi chu, đi một chuyến tới lão hòe phố, cuối phố chính là nơi có cây hòe lớn.
+Hắn tế phù chu, đi một chuyến tới phố Lão Hòe, cuối phố chính là nơi có cây hòe lớn.
 
-Người thanh sam trẻ tuổi đứng dưới gốc hòe, ngẩng đầu nhìn lên, đứng hồi lâu.
+Người trẻ tuổi áo xanh đứng dưới gốc hòe, ngẩng đầu nhìn lên, đứng rất lâu.
 
-Rất nhiều chuyện xảy ra không thể tưởng tượng nổi, lại không thể thực hiện.
+Rất nhiều chuyện xảy ra ngoài tưởng tượng, lại không thể làm được [?].

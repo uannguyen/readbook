@@ -1,69 +1,124 @@
+/* Giao diện sao chép từ truyenfull (trang chương). */
 :root {
-  --bg: #f4ecd8;
-  --fg: #3b3226;
-  --font: Georgia, "Times New Roman", serif;
+  --bg: #f4f4f4;
+  --fg: #2b2b2b;
+  --font: Arial, sans-serif;
   --size: 20px;
   --lh: 1.8;
-  --bar: color-mix(in srgb, var(--bg) 88%, var(--fg));
-  --line: color-mix(in srgb, var(--fg) 25%, transparent);
+  --bgimg: none;
+  /* thanh trên + khung cài đặt */
+  --navbar: #14425d;
+  --nav-fg: #f2f2f2;
+  --field-bg: #fff;
+  --field-fg: #555;
+  --field-border: #ccc;
+  /* tiêu đề + nút */
+  --story: #690;
+  --chapter-title: gray;
+  --btn-bg: #5cb85c;
+  --btn-fg: #fff;
+  --btn-border: #4cae4c;
+  --line: rgb(0 0 0 / .15);
+}
+html.dark {
+  --navbar: #242f39;
+  --nav-fg: #f2f2f2;
+  --field-bg: #1c242d;
+  --field-fg: #fff;
+  --field-border: #192128;
+  --story: #82a82d;
+  --chapter-title: gray;
+  --btn-bg: #121212;
+  --btn-fg: #82a82d;
+  --btn-border: #82a82d;
+  --line: rgb(255 255 255 / .15);
 }
 * { box-sizing: border-box; }
 html { -webkit-text-size-adjust: 100%; }
 body {
   margin: 0;
-  background: var(--bg);
+  background: var(--bg) var(--bgimg) repeat;
   color: var(--fg);
   font-family: var(--font);
   font-size: var(--size);
   line-height: var(--lh);
 }
 button, select, input { font: inherit; color: inherit; }
-button, select {
-  background: var(--bar);
-  border: 1px solid var(--line);
-  border-radius: 8px;
-  padding: 8px 12px;
-  font-size: 16px;
-  font-family: system-ui, sans-serif;
+select {
+  background: var(--field-bg); color: var(--field-fg);
+  border: 1px solid var(--field-border); border-radius: 4px;
+  padding: 6px 10px; font-size: 16px; font-family: system-ui, sans-serif;
 }
 
+/* thanh trên */
 .bar {
   position: sticky; top: 0; z-index: 5;
   display: flex; gap: 8px;
   padding: 8px 12px; padding-top: max(8px, env(safe-area-inset-top));
-  background: var(--bar);
-  border-bottom: 1px solid var(--line);
+  background: var(--navbar);
+  box-shadow: 0 0 6px rgb(0 0 0 / .3);
 }
 .bar select { flex: 1; min-width: 0; }
-
-#reader { max-width: 720px; margin: 0 auto; padding: 16px 16px 8px; }
-#reader h1 { font-size: 1.3em; line-height: 1.35; margin: .6em 0 1em; text-align: center; }
-#reader h2, #reader h3 { line-height: 1.35; }
-#reader p { margin: 0 0 1em; }
-#reader hr { border: 0; border-top: 1px solid var(--line); margin: 1.5em 0; }
-#reader .msg { text-align: center; opacity: .7; padding: 3em 0; }
-
-.pager {
-  max-width: 720px; margin: 0 auto;
-  display: flex; gap: 12px;
-  padding: 8px 16px calc(24px + env(safe-area-inset-bottom));
+.bar button {
+  background: var(--field-bg); color: var(--field-fg);
+  border: 1px solid var(--field-border); border-radius: 4px;
+  padding: 6px 14px; font-size: 16px; font-family: system-ui, sans-serif;
 }
-.pager button { flex: 1; padding: 12px; }
-.pager button:disabled { opacity: .35; }
 
+/* khung đọc: container của bootstrap (750/970/1170), full khung thì tràn */
+#reader { margin: 20px auto 0; padding: 0 15px; text-align: center; }
+@media (min-width: 768px) { #reader { width: 750px; } }
+@media (min-width: 992px) { #reader { width: 970px; } }
+@media (min-width: 1200px) { #reader { width: 1170px; } }
+html.full #reader { width: auto; }
+@media (max-width: 480px) { #reader { padding: 0; margin-top: 10px; } }
+
+.truyen-title {
+  display: table; margin: 0 auto 5px;
+  font: 24px "Roboto Condensed", "Arial Narrow", Tahoma, sans-serif;
+  text-transform: uppercase; color: var(--story);
+}
+html.dark .truyen-title { text-shadow: 0 0 1px #000; }
+.chapter-title { margin: 0; font-size: 16px; font-weight: 500; line-height: 1.1; color: var(--chapter-title); }
+hr.chapter-start, hr.chapter-end {
+  border: 0; margin: 10px auto; display: table;
+  background: url(img/spriteimg_new_white_op.png) no-repeat;
+}
+hr.chapter-start { background-position: -200px -27px; width: 59px; height: 20px; }
+hr.chapter-end { background-position: 0 -51px; width: 277px; height: 35px; }
+
+.chapter-c { text-align: left; overflow-wrap: break-word; }
+.chapter-c p { margin: 0 0 calc(var(--size) * var(--lh)); }
+.chapter-c h2, .chapter-c h3 { font-size: 120%; line-height: 1.35; }
+.chapter-c hr { border: 0; border-top: 2px solid #a2a2a2; margin: 1.5em 0; }
+@media (max-width: 480px) { .chapter-c { padding: 0 5px; } }
+.msg { text-align: center; opacity: .7; padding: 3em 0; }
+
+/* nút chương trước / tiếp */
+.pager { display: flex; justify-content: center; gap: 8px; margin: 15px 0 10px; padding: 0 5px; }
+.pager button {
+  width: 170px; max-width: 45%; padding: 6px 12px;
+  background: var(--btn-bg); color: var(--btn-fg);
+  border: 1px solid var(--btn-border); border-radius: 4px;
+  font-size: 14px; font-family: "Helvetica Neue", Helvetica, Arial, sans-serif; line-height: 1.43;
+}
+.pager button:disabled { opacity: .65; cursor: not-allowed; }
+.pager.bottom { padding-bottom: calc(24px + env(safe-area-inset-bottom)); }
+
+/* khung cài đặt */
 dialog {
-  background: var(--bg); color: var(--fg);
-  border: 1px solid var(--line); border-radius: 12px;
-  width: min(92vw, 420px); padding: 16px;
-  font-family: system-ui, sans-serif; font-size: 16px; line-height: 1.4;
+  background: var(--navbar); color: #f9f9f9;
+  border: 0; border-radius: 4px; box-shadow: 0 6px 12px rgb(0 0 0 / .4);
+  width: min(92vw, 320px); padding: 14px;
+  font-family: "Helvetica Neue", Helvetica, Arial, sans-serif; font-size: 14px; line-height: 1.4;
 }
 dialog::backdrop { background: rgb(0 0 0 / .45); }
-dialog label, dialog .field { display: block; margin-bottom: 14px; }
-dialog select { width: 100%; margin-top: 4px; }
-dialog input[type=range] { width: 100%; }
-.presets { display: flex; gap: 8px; margin-top: 6px; flex-wrap: wrap; }
-.presets button { width: 48px; height: 48px; padding: 0; border-radius: 50%; font-size: 18px; }
-.colors { display: flex; gap: 16px; margin-bottom: 14px; }
-.colors label { flex: 1; margin: 0; }
-.colors input { width: 100%; height: 40px; padding: 0; border: 1px solid var(--line); border-radius: 8px; background: none; }
+dialog label, dialog .field { display: flex; align-items: center; justify-content: space-between; gap: 10px; margin-bottom: 12px; }
+dialog select { width: 55%; }
+dialog .radio { margin: 0 0 0 12px; gap: 6px; }
+dialog .field > .radio:first-of-type { margin-left: auto; }
 .actions { display: flex; justify-content: space-between; }
+.actions button {
+  background: var(--field-bg); color: var(--field-fg);
+  border: 1px solid var(--field-border); border-radius: 4px; padding: 6px 12px;
+}

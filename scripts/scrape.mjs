@@ -11,13 +11,14 @@ const outDir = path.join(import.meta.dirname, '..', 'web', 'chapters', slug);
 const sleep = (ms) => new Promise((r) => setTimeout(r, ms));
 const exists = (p) => access(p).then(() => true, () => false);
 
-async function fetchRetry(url, tries = 3) {
+async function fetchRetry(url, tries = 5) {
   for (let i = 1; ; i++) {
     try {
-      return await fetch(url, {
+      const res = await fetch(url, {
         headers: { 'User-Agent': UA, 'Accept-Language': 'vi,en;q=0.8' },
-        signal: AbortSignal.timeout(20000),
+        signal: AbortSignal.timeout(30000),
       });
+      return { ok: res.ok, status: res.status, html: res.ok ? await res.text() : '' };
     } catch (e) {
       if (i >= tries) throw e;
       console.log(`  thử lại ${i}/${tries - 1}: ${e.cause?.code || e.message}`);
@@ -63,7 +64,7 @@ for (let n = +from; n <= +to; n++) {
   const url = `https://truyenfull.live/${slug}/chuong-${n}/`;
   const res = await fetchRetry(url);
   if (!res.ok) { console.log(`LỖI ${n}: HTTP ${res.status}`); break; }
-  const { title, text } = parse(await res.text());
+  const { title, text } = parse(res.html);
   await writeFile(file, `# ${title || `Chương ${n}`}\n\n${text}\n`);
   console.log(`ok ${n}: "${title}" — ${text.length} ký tự, ${text.split('\n\n').length} đoạn`);
   await sleep(DELAY_MS);
