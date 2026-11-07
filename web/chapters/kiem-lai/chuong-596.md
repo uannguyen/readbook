@@ -1,269 +1,284 @@
 # Chương 596: Tên kia dám đến Chính Dương sơn không
 
-Trần Bình An đã chờ đợi tại đỉnh núi bên kia suốt hai ngày. Suốt thời gian đó, hắn chỉ lảo đảo luyện tập tẩu thung.
+Trần Bình An ở trên đỉnh núi ấy chờ suốt hai ngày, chỉ lảo đảo luyện tẩu thung.
 
-Hôm nay, vào lúc tảng sáng, có một vị nho sĩ áo xanh, trẻ tuổi và cưỡi gió mà đến. Khi phát hiện một khe rãnh trên bình nguyên phía sau, hắn bỗng dừng lại lơ lửng, rồi nhanh chóng hạ xuống đất bên cạnh Trần Bình An. Tề Cảnh Long xuất hiện với vẻ phong trần mệt mỏi, có thể thấy rằng, một Nguyên Anh bình cảnh kiếm tu lại gặp phải tình trạng chật vật như thế, chắc hẳn là hắn đã chạy rất vội vàng.
+Rạng sáng hôm nay, một nho sĩ trẻ tuổi thanh y ngự phong tới. Thấy khe rãnh trên đồng bằng phía sau, người ấy bỗng dừng lại giữa không trung, rồi mau chóng đáp xuống bên Trần Bình An. Tề Cảnh Long phong trần mệt mỏi. Có thể khiến một kiếm tu Nguyên Anh cảnh đã tới bình cảnh chật vật đến thế, hẳn hắn đã chạy rất gấp.
 
-Tề Cảnh Long luôn im lặng, cho đến khi hắn nhẹ nhàng vỗ áo, làm cho bùa chú và linh quang tan biến, thân hình của hắn mới lộ ra.
+Hắn vẫn không lên tiếng. Đợi khẽ phất áo, linh quang bùa chú tan đi, thân hình mới hoàn toàn hiện rõ.
 
-Trần Bình An mỉm cười. Hắn cảm thấy tâm trạng mình đã phần nào thư giãn khi nhìn thấy Tề Cảnh Long xuất hiện. Hắn không còn cảm thấy lo lắng nữa.
+Trần Bình An mỉm cười. Nhìn thấy Tề Cảnh Long, lòng hắn nhẹ đi một phần, không còn lo lắng nữa.
 
-Trước đây, tại cuộc chia tay ở Long Đầu, Trần Bình An đã tặng cho Tề Cảnh Long một hộp kiếm chứa hai thanh phi kiếm truyền tin. Hắn đã cho Tề Cảnh Long một thanh để tiện liên lạc. Tuy nhiên, Trần Bình An không nghĩ rằng công dụng của nó lại được sử dụng sớm như vậy. Hắn tự hỏi tại sao đám thích khách của Cát Lộc sơn lại sẵn sàng đập nát chiêu bài của mình chỉ để nhằm vào hắn.
+Lần chia tay trước ở Long Đầu, Trần Bình An có một hộp kiếm chứa đôi phi kiếm truyền tin, bèn đưa cho Tề Cảnh Long một thanh để tiện liên lạc. Không ngờ lại dùng đến sớm như vậy. Hắn không hiểu vì sao đám thích khách Cát Lộc sơn lại sẵn lòng đập vỡ chiêu bài của mình, nhất quyết nhắm vào hắn.[?]
 
-Cả hai chỉ đơn giản là trao đổi một thanh phi kiếm truyền tin.
+Hai người chỉ đơn giản trao đổi tin tức qua phi kiếm truyền tin.[?]
 
-Tề Cảnh Long hồi âm ngắn gọn: "Chờ một chút, đừng chết."
+Tề Cảnh Long hồi âm rất ngắn: “Chờ một chút, đừng chết.”
 
-Hắn nhìn quanh, cẩn thận quan sát bốn phía rồi hỏi: "Xảy ra chuyện gì vậy? Có phải có hai nhóm người không?"
+Lúc này, hắn nhìn quanh, cẩn thận quan sát rồi hỏi: “Có chuyện gì? Hai nhóm người sao?”
 
-Trần Bình An ngồi trên rương trúc, lấy ra hồ lô dưỡng kiếm và thoáng hơi dao động.
+Trần Bình An ngồi trên rương trúc, lấy hồ lô dưỡng kiếm ra, khẽ lắc.
 
-"Miễn đi," Tề Cảnh Long nói, sau đó tiếp tục, "Gần đây ngươi rất an ổn. Nếu vị tiền bối kia ra tay, thì gần như sẽ không để lộ chút thông tin nào ra ngoài. Điều này có nghĩa là Cát Lộc sơn gần đây cũng đang chờ đợi kết quả. Họ sẽ không thể điều thêm thích khách đến nhằm vào ngươi, nên ngươi cứ tiếp tục đi xa là được. Ta sẽ thay ngươi tìm một người để thu dọn cục diện rối rắm này."
+“Miễn đi.” Tề Cảnh Long nói tiếp: “Mấy ngày tới ngươi sẽ yên ổn. Vị tiền bối kia đã ra tay, hẳn gần như không để lọt tin tức ra ngoài. Nghĩa là Cát Lộc sơn vẫn đang đợi kết quả, sẽ không điều thêm thích khách đến. Ngươi cứ đi tiếp là được. Ta tìm một người, thay ngươi thu xếp cục diện này.”
 
-Trần Bình An ôm ngực, nói: "Hành tẩu giang hồ, ta có nhiều kinh nghiệm hơn ngươi."
+Trần Bình An ôm ngực: “Nói chuyện hành tẩu giang hồ, ta có kinh nghiệm hơn ngươi.”
 
-Tề Cảnh Long hỏi: "Ngươi định ở đây chờ bao lâu?"
+Tề Cảnh Long hỏi: “Ngươi định chờ ở đây bao lâu?”
 
-Trần Bình An trả lời: "Còn ba ngày nữa, ta sẽ đợi cho đến khi thể phách khôi phục một chút lại chạy đi."
+Trần Bình An đáp: “Ba ngày nữa. Đợi thể phách khôi phục đôi chút, ta sẽ lên đường.”
 
-Sau khi Tề Cảnh Long rời đi, hắn bắt đầu vẽ bùa. Mỗi khi hắn hoàn thành một phù chú, hắn lại lướt đi hơn mười trượng, nước chảy mây trôi, không hề có chút ngưng trệ.
+Tề Cảnh Long đi ra ngoài, bắt đầu vẽ bùa. Vẽ xong một đạo, hắn lại lướt hơn mười trượng. Động tác như nước chảy mây trôi, không chút ngưng trệ.
 
-Sau một nén nhang, Tề Cảnh Long trở lại đỉnh núi và thông báo rằng: "Có thể chịu đựng ba lượt công kích bình thường từ Nguyên Anh tu sĩ, điều kiện tiên quyết là không phải kiếm tu và không có bán tiên binh."
+Sau một nén hương, hắn trở lại đỉnh núi, nói: “Chịu được ba đợt công kích thông thường của tu sĩ Nguyên Anh. Với điều kiện đối phương không phải kiếm tu, cũng không có bán tiên binh.”
 
-Trần Bình An khen ngợi: "Chỉ là xem ta vẽ một bức tường Tuyết Nê phù thôi. Hắn đúng là một tài năng trẻ tuổi đầy hứa hẹn!"
+Trần Bình An khen: “Mới nhìn ta vẽ một đạo Tuyết Nê phù trên tường thôi mà. Đúng là tài tuấn trẻ tuổi, tương lai rộng mở!”[?]
 
-Tề Cảnh Long không muốn tranh cãi thêm, chuẩn bị rời đi. Càng đi sớm, hắn càng có thể tìm được thông tin về Cát Lộc sơn.
+Tề Cảnh Long chẳng buồn tranh cãi, chuẩn bị rời đi. Đi sớm một chút, hắn có thể sớm tìm được tin tức Cát Lộc sơn.
 
-Nhưng khi vừa nhìn Trần Bình An, hắn bất ngờ thấy pháp bào ngoài của hắn đã bị rách, lộ cả phần xương ra. Tề Cảnh Long nhíu mày hỏi: "Ngươi không cảm thấy đau sao?"
+Nhưng vừa nhìn sang, thấy pháp bào ngoài người Trần Bình An rách toạc, vết thương lộ cả xương, hắn nhíu mày: “Không đau sao?”
 
-Trần Bình An cười ha hả: "Chúng ta là vũ phu, một chút thương tích nào có là gì…”
+Trần Bình An cười ha hả: “Võ phu chúng ta, chút thương tích này có là gì...”
 
-Tề Cảnh Long ngay lập tức xuất hiện bên cạnh hắn, đè nhẹ lên vai hắn.
+Tề Cảnh Long lập tức đến bên cạnh, khẽ ấn vai hắn.
 
-Trần Bình An thoáng khuôn mặt nhăn nhó, nghiêng mình tránh khỏi. "Thôi mà!"
+Mặt Trần Bình An nhăn tít, vội nghiêng người tránh: “Thôi, thôi!”
 
-Tề Cảnh Long cười nói: "Khá tốt, cuối cùng ngươi cũng vẫn là một người."
+Tề Cảnh Long cười: “Cũng tốt, cuối cùng ngươi vẫn còn là người.”
 
-Tề Cảnh Long quan sát xung quanh, với tay một cái và thu một vài đạo kim quang vào trong tay áo, đảm bảo rằng không có sát cơ nào che giấu xung quanh.
+Hắn nhìn bốn phía, vươn tay thu mấy đạo kim quang vào tay áo, xác nhận quanh đây không giấu sát cơ.
 
-Trần Bình An cười hỏi: "Thật không uống một chút rượu ư?"
+Trần Bình An cười hỏi: “Thật không uống chút rượu?”
 
-Tề Cảnh Long lắc đầu cười nói: "Uống rượu chỉ để mất một ít máu, sao có thể dựa vào rượu mà hồi phục? Các ngươi là vũ phu mà lại có thể phóng khoáng như vậy sao?"
+Tề Cảnh Long lắc đầu cười: “Mất ít máu, uống rượu thì bù lại được sao? Võ phu các ngươi đều phóng khoáng thế à?”[?]
 
-Trần Bình An nghiêm mặt đáp: "Thật không dám giấu giếm, sau khi bị vị tiền bối kia đánh ba quyền, hôm nay ta đã tăng trưởng rất nhiều. Ngươi sẽ không nắm chặt phá cảnh, sau này cũng sẽ không thấy được ta."
+Trần Bình An nghiêm mặt: “Không dám giấu ngươi, chịu ba quyền của vị tiền bối kia, hôm nay ta đã tiến bộ nhiều lắm. Ngươi không mau phá cảnh, về sau sẽ chẳng trông thấy bóng ta đâu.”
 
-Tề Cảnh Long hỏi: "Ngươi đã đạt được Kim thân cảnh hay Viễn Du cảnh rồi?"
+Tề Cảnh Long hỏi: “Ngươi đã thành Kim Thân cảnh hay Viễn Du cảnh rồi?”
 
-Trần Bình An cười đáp: "Nói chuyện với ngươi thật không có tí sức lực nào."
+Trần Bình An cười đáp: “Nói chuyện với ngươi thật chẳng có hứng.”
 
-Tề Cảnh Long không nói thêm gì, liền cưỡi gió rời đi, thân hình hắn hòa vào không khí và biến mất.
+Tề Cảnh Long không nói nữa, ngự phong đi xa, thân hình hòa vào hư không, biến mất.
 
-Trần Bình An không cảm thấy áy náy, thậm chí cũng không cần nói lời cảm tạ. Hắn hiểu rằng trong tương lai, khi Tề Cảnh Long cần sự giúp đỡ, cũng sẽ như vậy.
+Trần Bình An không thấy áy náy, cũng chẳng cần cảm tạ. Hắn biết sau này, khi Tề Cảnh Long cần mình giúp, cũng sẽ như thế.
 
-Hắn mong thời gian để cải thiện kỹ năng kiếm thuật của mình càng lâu càng tốt, để xuất kiếm nhanh hơn và có cả một nắm đấm cứng hơn. Hắn thích càng muộn càng tốt.
+Chỉ mong ngày phải giúp ấy đến càng muộn càng tốt, để hắn có thêm thời gian trau dồi kiếm thuật, xuất kiếm nhanh hơn, nắm đấm cứng hơn. Càng muộn, hắn càng thích.[?]
 
-Bởi vì những ngày này, việc đối mặt với "bình an" thật sự rất quan trọng với hắn.
+Bởi những ngày được “bình an” ấy, đối với hắn thật sự rất quan trọng.[?]
 
-Sau khi Tề Cảnh Long rời đi, Trần Bình An bắt đầu tu dưỡng cơ thể, nhất là thể phách, cũng không cần phải gấp.
+Tề Cảnh Long đi rồi, Trần Bình An bắt đầu dưỡng thương. Nhất là thể phách, càng không thể nóng vội.
 
-Hắn do dự một chút, rồi bắt đầu điên đảo, dùng đầu cố chống đỡ, thử kết hợp thiên địa thung cùng tam thung lại với nhau.
+Do dự một lúc, hắn bèn lộn ngược người, dùng đầu chống đất, thử gộp thiên địa thung vào tam thung cùng luyện.
 
-“Chậm rãi mà đi,” hắn tự nhủ.
+“Cứ chậm rãi mà đi.” Hắn tự nhủ.
 
-Lần thử nghiệm này kéo dài khoảng nửa nén nhang, Trần Bình An vỗ tay một cái, cố gắng giữ thăng bằng và đứng vững, nhưng lại rơi vào trạng thái không ổn.
+Thử chừng nửa nén hương, Trần Bình An vỗ tay một cái, gắng lấy lại thăng bằng để đứng vững, nhưng thân hình vẫn chưa ổn.
 
-Khi quay lại, hắn nhìn thấy Tề Cảnh Long đã trở lại. Trần Bình An thốt lên: "Sao lại giống cái quỷ thế này? Giữa ban ngày mà hù dọa người?"
+Ngoảnh lại, thấy Tề Cảnh Long đã quay về, hắn buột miệng: “Sao cứ như quỷ vậy? Ban ngày ban mặt còn dọa người?”
 
-Tề Cảnh Long ngạc nhiên hỏi: "Ngươi đang làm cái gì vậy?"
+Tề Cảnh Long ngạc nhiên: “Ngươi đang làm gì?”
 
-Trần Bình An tiếp tục vỗ mạnh vào đầu, trịnh trọng nói: "Luyện tập tẩu thung a, độc môn bí thuật, ngươi có muốn học hay không? Người bình thường muốn học, ta cũng sẽ không dạy hắn."
+Trần Bình An tiếp tục vỗ mạnh đầu, trịnh trọng nói: “Luyện tẩu thung. Bí thuật độc môn đấy, muốn học không? Người thường có xin, ta cũng chẳng dạy đâu.”
 
-Tề Cảnh Long run rẩy tay áo, đem hai ấm rượu tiên gia mà hắn mua được từ Hài Cốt ghềnh bên kia đặt lên rương trúc. "Vậy ngươi cứ tiếp tục đi."
+Tề Cảnh Long giũ tay áo, đặt hai ấm rượu tiên gia mua ở ghềnh Hài Cốt lên rương trúc: “Vậy ngươi cứ luyện tiếp.”
 
-Tề Cảnh Long lại hóa thành cầu vồng bay lên không trung, thân hình bỗng nhiên tiêu tan không để lại dấu vết.
+Hắn lại hóa thành cầu vồng bay lên, thân hình bỗng tan đi, không để lại dấu vết.
 
-Trần Bình An ngồi trên rương trúc, cầm lấy cái bầu rượu, đúng là hàng thật giá thật rượu tiên gia, không giống như rượu cất trên phố gạo nếp.
+Trần Bình An ngồi trên rương trúc, cầm bầu rượu lên. Rượu tiên gia hàng thật giá thật, chẳng phải rượu nếp bán ngoài phố.
 
-Gia hỏa này có vẻ muốn phúc hậu hơn so với chính mình.
+Tên này hình như còn phúc hậu hơn mình.
 
-Chính Dương sơn vừa tổ chức một buổi tiệc thịnh soạn, để ăn mừng việc Đào Tử, cháu đích tôn của Đào gia, đã bước vào cảnh giới Động Phủ.
+Chính Dương sơn vừa mở một bữa tiệc lớn, mừng cháu đích tôn Đào gia là Đào Tử bước vào Động Phủ cảnh.
 
-Động Phủ cảnh là một phương diện chính yếu trong tu luyện.
+Động Phủ cảnh là một cửa ải quan trọng trên đường tu luyện.
 
-Bước vào Động Phủ cảnh là một trong những cảnh giới giữa tiên nhân.
+Bước qua cửa ấy, chính là vào hàng thần tiên trung ngũ cảnh.[?]
 
-Ngoài việc nhiều thế lực từ khắp nơi đến chúc mừng và bái sơn, Chính Dương sơn cũng đã hạ lễ rất nặng. Họ đã đem một tòa núi từ nơi khác đến làm của hồi môn cho Đào Tử. Mặc dù không đến mức mở núi, vì thiếu nữ này chưa đạt Kim Đan, nhưng sau khi Đào Tử ra đời, nàng đã có một ngọn núi riêng. Khi Tô Giá rời khỏi Chính Dương sơn, ngọn núi này đã thuộc về Đào Tử. Hiện giờ, nàng nắm trong tay ba tòa linh khí phong thủy dồi dào, có thể nói của hồi môn rất phong phú. Ai có thể trở thành đạo lữ của nàng đúng là phúc khí kiếp trước đã tu luyện rất lớn.
+Ngoài hạ lễ của các thế lực khắp nơi đến bái sơn chúc mừng, Chính Dương sơn cũng tặng một phần lễ rất nặng: chuyển từ nơi khác về cả một ngọn núi, thêm vào của hồi môn cho Đào Tử. Chưa đến mức cho nàng khai phong, bởi thiếu nữ còn chưa kết Kim Đan. Nhưng ngay từ khi ra đời, nàng đã có riêng một ngọn núi; khi Tô Giá rời Chính Dương sơn, ngọn núi của nàng ấy lại thuộc về Đào Tử. Đến nay, trong tay nàng đã có ba tòa linh phong linh khí dồi dào, phong thủy tốt đẹp. Của hồi môn phong hậu như thế, ai được kết đạo lữ cùng nàng, hẳn kiếp trước đã tu không ít phúc.
 
-Tòa núi mà Chính Dương sơn coi là hạ lễ, lại là một tòa quốc gia đã không còn tồn tại!
+Ngọn núi dùng làm hạ lễ ấy vốn thuộc một nước đã diệt vong!
 
-Có một tiểu quốc dựa vào những nơi hiểm yếu để chống cự, nhưng đã bị quân Đại Ly hoàn toàn bao phủ. Ngọn núi chính là nơi phát sinh chiến sự. Khi núi cao trở thành nơi không có chủ, Chính Dương sơn đã tương đương hóa các chiến công cùng triều đình Đại Ly, mua lại tiểu quốc Bắc Nhạc. Sau đó, họ giao cho một lão viên hộ pháp của Chính Dương sơn để vận chuyển, chặt đứt chân núi, lưng đeo một ngọn núi khổng lồ mà đi. Vì Bắc Nhạc không quá nguy nga, lão viên chỉ cần xuất hiện mà không cần hiện nguyên hình; hắn chỉ cao hơn mười trượng mà thôi. Lưng vác một tòa núi giống như một thanh niên vạm vỡ mang theo cự thạch, sau đó leo lên thuyền của mình và trở về Chính Dương sơn, sinh căn nơi đây, có thể mở rộng sơn thủy.
+Tiểu quốc kia từng dựa vào địa thế hiểm yếu chống cự, cuối cùng vẫn bị quân Đại Ly vây kín. Ngọn núi cũng là nơi từng có chiến sự. Đến khi thành núi vô chủ, Chính Dương sơn dùng chiến công quy đổi với triều đình Đại Ly, mua lại Bắc Nhạc của tiểu quốc, rồi giao cho lão viên hộ pháp chuyển đi. Lão chặt đứt chân núi, cõng cả ngọn núi khổng lồ lên lưng. Vì Bắc Nhạc này không quá hùng vĩ, lão viên cũng chẳng cần hiện nguyên hình, chỉ hóa thân cao hơn mười trượng. Vác ngọn núi như tráng hán cõng đá lớn, lão lên thuyền của mình, đưa núi về Chính Dương sơn cho cắm rễ, mở rộng cương vực sơn thủy nơi đây.
 
-Đào Tử từ nhỏ đã là niềm vui của những lão kiếm tiên ở Chính Dương sơn. Ngoài thân phận tôn quý ra, nàng còn có tư chất vô cùng tốt. Đây chính là điều rất hiếm có trong vòng năm trăm năm qua, tư chất tốt, căn cốt, thiên phú, tính cách, cơ duyên đều rất yên tĩnh. Điều này có nghĩa là Đào Tử sẽ không tiến giai quá nhanh, nhưng bình cảnh sẽ rất nhỏ. Bước vào cảnh giới Kim Đan không cần lo lắng, sẽ có khả năng trở thành một trong những tu sĩ Nguyên Anh cấp cao trong tương lai.
+Từ nhỏ, Đào Tử đã được các lão kiếm tiên Chính Dương sơn yêu chiều. Ngoài thân phận tôn quý, tư chất nàng cũng cực tốt. Suốt năm trăm năm hiếm có người như vậy: tư chất, căn cốt, thiên phú, tính tình, cơ duyên đều có một vẻ trầm tĩnh.[?] Nghĩa là nàng sẽ không phá cảnh quá mau, nhưng bình cảnh cũng rất nhỏ. Kim Đan chẳng có gì phải lo, tương lai còn có hy vọng đứng vào hàng tu sĩ Nguyên Anh thượng thừa.
 
-Đối với những người tận tâm khởi lập phái tiên gia, một thiên tài như Phong Tuyết Ngụy Tấn rõ ràng rất được ngưỡng mộ. Tuy nhiên, Đào Tử lại là kiểu tu đạo phôi tử rất quan trọng. Thậm chí ở một mức độ nào đó, việc một người không vội không chậm tiến đến đỉnh Nguyên Anh sẽ ổn định hơn so với những thiên tài trẻ tuổi khác. Bởi vì những cây cao sẽ chịu gió lớn.
+Với các môn phái tiên gia dốc lòng gây dựng căn cơ, thiên tài như Ngụy Tấn miếu Phong Tuyết đương nhiên khiến người ta ngưỡng mộ, nhưng phôi tử tu đạo như Đào Tử cũng vô cùng quan trọng. Thậm chí, xét ở một mặt nào đó, người không nhanh không chậm đi đến đỉnh Nguyên Anh còn vững vàng hơn thiên tài trẻ tuổi khác. Bởi cây cao thường hứng gió lớn.
 
-Tuy nhiên, trong khi hạ lễ diễn ra, có một điều khiến mọi người chú ý.
+Trong số hạ lễ, có một phần khiến ai nấy chú ý.
 
-Dù người tặng lễ không xuất hiện, nhưng mọi người ở Chính Dương sơn đều cảm thấy rất vinh quang.
+Người tặng không đích thân đến, nhưng cả Chính Dương sơn đều thấy vẻ vang.
 
-Bởi vì phần hạ lễ đó đến từ gia đình phiên vương Lão Long, người tặng chính là Tịnh Kiên vương, Tống Mục của Đại Ly.
+Bởi phần lễ ấy đến từ phủ phiên vương ở Lão Long, người tặng chính là Tịnh Kiên vương Tống Mục của Đại Ly.
 
-Trước đây có chút thông tin cho biết, khi Đào Tử còn trẻ, đã từng đến một lần động thiên ở Ly Châu và lúc đó nàng đã quen biết hoàng tử Tống Mục, người lúc ấy chưa lộ diện.
+Trước kia từng có tin, Đào Tử thuở nhỏ đến động thiên Ly Châu một lần, quen biết hoàng tử Tống Mục khi thân phận hắn còn chưa lộ.
 
-Trên đỉnh núi, Bắc Nhạc từ một miếu rách nát cần khá nhiều công sức và tài lực để tu sửa.
+Trên đỉnh núi, ngôi miếu Bắc Nhạc đổ nát còn cần tốn nhiều công sức, tiền của để tu sửa.
 
-Tiệc yến dần dần tản đi.
+Tiệc dần tan.
 
-Một thiếu nữ xinh đẹp đứng ở cửa lớn của miếu, bên hông buộc một chiếc hồ lô nhỏ sáng bóng xanh biếc, chính là món quà mà ca ca nàng đã tặng cho nàng năm nào. Trên thực tế, không ai nhận ra chiếc hồ lô xanh biếc này lại là một pháp bảo quý giá, đến khi Đào gia lão tổ trực tiếp tìm cao nhân kiểm tra thì mới xác nhận được giá trị của nó.
+Một thiếu nữ xinh đẹp đứng trước cổng miếu, bên hông đeo chiếc hồ lô nhỏ xanh biếc sáng bóng, là quà ca ca tặng năm xưa. Thật ra ban đầu không ai nhận ra hồ lô ấy là pháp bảo quý giá; mãi đến khi lão tổ Đào gia đích thân mời cao nhân xem xét, mới xác định được giá trị.
 
-Bên cạnh Đào Tử có một lão viên khôi ngô, chính là hộ pháp của Chính Dương sơn.
+Bên cạnh Đào Tử là lão viên khôi ngô, hộ pháp Chính Dương sơn.
 
-Đào Tử từ miếu lớn thu hồi ánh mắt, quay đầu cười hỏi: "Khỉ trắng ông nội, Tô tỷ tỷ thật sự không có cơ hội trở lại Chính Dương sơn sao?"
+Nàng thu mắt khỏi ngôi miếu, quay sang cười hỏi: “Bạch Viên gia gia, Tô tỷ tỷ thật sự không còn cơ hội về Chính Dương sơn sao?”
 
-Lão viên lắc đầu trả lời: "Đã là phế vật, ở lại Chính Dương sơn chỉ gây chê cười thôi."
+Lão viên lắc đầu: “Đã là phế vật, ở lại Chính Dương sơn chỉ để người ta cười chê.”
 
-Đào Tử thở dài: "Phong Lôi viên kia, vườn chủ trẻ tuổi đó thiệt là, sớm không bế quan thì sao không bế quan, hết lần này tới lần khác lại chọn cách trốn tránh như vậy, đúng là trộm gà."
+Đào Tử thở dài: “Vị viên chủ trẻ tuổi Phong Lôi viên kia thật là. Sớm không bế quan, muộn không bế quan, cứ chọn lúc này trốn đi. Đúng là gian như trộm.”
 
-Lão viên nhếch môi cười: "Lý Đoàn Cảnh đã chết, Phong Lôi viên liền suy yếu hơn phân nửa. Dù Hoàng Hà có thiên tư tốt, cũng không thể chống vững được một ngôi nhà. Về phần Lưu Bá Kiều, vì tình mà bọn hèn nhát, bây giờ còn tỏ ra phong quang, nhưng thực tế càng về sau, con đường lại càng xa vời. Khi Hoàng Hà xuất quan, Chính Dương sơn sẽ đến hỏi kiếm một cách chính đáng, đến lúc đó là ngày Phong Lôi viên bị xóa tên."
+Lão viên nhếch miệng: “Lý Đoàn Cảnh chết rồi, Phong Lôi viên đã suy hơn nửa. Hoàng Hà dù thiên tư tốt cũng chẳng chống nổi cả nhà. Còn Lưu Bá Kiều, vì tình mà thành kẻ hèn nhát. Bây giờ trông còn vẻ vang, nhưng càng về sau đường càng khó đi. Đợi Hoàng Hà xuất quan, Chính Dương sơn sẽ đường đường chính chính đến hỏi kiếm. Đó cũng là ngày Phong Lôi viên bị xóa tên.”
 
-Lão viên nhìn về phía chỗ tổ sư đường của Chính Dương sơn.
+Lão nhìn về phía tổ sư đường Chính Dương sơn.
 
-Hắn cười nói: "Chúng ta ở Chính Dương sơn khác với mảnh lực lượng kiếm đạo, một khi tại nhân gian tụ lại, rất có khả năng không chỉ là khai phái đầu tiên trong gia đình mà còn có thể xuất hiện những kiếm tiên ở ngũ cảnh. Khi đó, các tu sĩ trên một châu này sẽ phải quỳ bái chúng ta, cường giả mạnh mẽ dẫn dắt, sau một trăm năm hay nghìn năm, Chính Dương sơn sẽ không ngừng phát triển. So với cái miếu Phong Tuyết gần như đã mục nát, rõ ràng sẽ cao hơn rất nhiều."
+Lão cười: “Mạch kiếm đạo Chính Dương sơn chúng ta, một khi khí vận nhân gian tụ lại, rất có thể chẳng những lần đầu khai tông lập phái, mà còn xuất hiện kiếm tiên thượng ngũ cảnh. Khi ấy tu sĩ cả châu đều phải cúi đầu, có cường giả dẫn dắt, trăm năm, nghìn năm sau, Chính Dương sơn chỉ càng hưng thịnh. So với miếu Phong Tuyết mục nát kia, đương nhiên cao hơn nhiều.”[?]
 
-Đào Tử thở dài: "Khỉ trắng ông nội, những thứ này ngươi nói, ta đều không cảm thấy hứng thú."
+Đào Tử thở dài: “Bạch Viên gia gia, mấy chuyện ấy cháu chẳng có hứng.”
 
-Bất ngờ lão viên nói: "Có người Hứa thị từ Thanh Phong thành đến."
+Lão viên bỗng nói: “Người Hứa thị thành Thanh Phong đến.”
 
-Đào Tử liếc mắt: "Cái đó thật đáng ghét."
+Đào Tử liếc mắt: “Tên đáng ghét ấy.”
 
 Lão viên chỉ cười.
 
-Gia chủ Hứa thị Thanh Phong thành, sau khi có được một hầu tử giáp, đã trắng trợn thanh trừng nội bộ của Hứa gia. Rất nhanh chóng, hắn đã thanh lý sạch sẽ những thế lực ngầm bên trong, ngoài việc đã dời bỏ Chu Sa sơn ở bên ngoài, trong triều đình Đại Ly thì không còn được chú ý đến nữa, ấn tượng cũng không tốt. Hơn nữa, sau này Hứa thị đem con gái gả cho Viên thị, leo lên một vị trí quyền lực trong câu truyện thượng trụ quốc. Hiện tại cũng coi như có một vị trí kiên cố trên núi, nhưng vẫn thua kém Chính Dương sơn. Những năm gần đây, người Hứa thị đã âm thầm quyến rũ phụ nữ, mong muốn con trai trưởng có thể trở thành đạo lữ với Đào Tử, nhưng đến giờ vẫn chưa có phản hồi từ Đào gia. Thực tế, nếu Đào gia kết thông gia với Hứa thị, đó sẽ là một chuyện không nhỏ và là điều tốt cho Chính Dương sơn, hai bên có thể tương hỗ lẫn nhau.
+Gia chủ Hứa thị thành Thanh Phong, sau khi có được một bộ hầu tử giáp,[?] đã thẳng tay thanh trừng nội bộ Hứa gia. Chẳng bao lâu các thế lực ngầm đều bị dọn sạch. Ngoài chuyện dời khỏi núi Chu Sa, hắn cũng không còn được triều đình Đại Ly để mắt, ấn tượng để lại chẳng tốt đẹp.[?] Về sau, Hứa thị gả con gái cho Viên thị, bám được vào nhà thượng trụ quốc quyền thế, nay cũng có chỗ đứng vững trên núi, nhưng vẫn thua Chính Dương sơn. Mấy năm gần đây, Hứa thị âm thầm tìm cách se duyên, mong con trai trưởng kết đạo lữ với Đào Tử, mà Đào gia vẫn chưa đáp lời.[?] Thật ra nếu hai nhà kết thân, ấy là chuyện lớn, cũng có lợi cho Chính Dương sơn, đôi bên nâng đỡ lẫn nhau.
 
-Một người phụ nữ đứng thẳng, khí thế ung dung, cùng một thiếu niên tuấn mỹ mặc áo choàng đỏ, tay nắm tay cưỡi gió mà đến.
+Một phụ nhân dáng đứng thẳng, khí độ ung dung, nắm tay thiếu niên tuấn tú mặc hồng bào, cùng ngự phong tới.
 
-Đào Tử mỉm cười nói: "Bái kiến phu nhân."
+Đào Tử mỉm cười: “Bái kiến phu nhân.”
 
-Thiếu niên ngay lập tức cúi đầu chào lão viên: "Bái kiến viên ông nội."
+Thiếu niên vội cúi người chào lão viên: “Bái kiến Viên gia gia.”
 
-Lão viên chỉ nhẹ gật đầu, hình như là hồi phục lại thiếu niên.
+Lão viên chỉ khẽ gật đầu, coi như đáp lại.
 
-Người phụ nữ liền mềm mại, nắm lấy tay của Đào Tử, biểu hiện thân mật, mỉm cười nói: "Mới vài năm không gặp, Đào nha đầu nhà ta đã trổ mã xinh đẹp như vậy rồi."
+Phụ nhân dịu dàng nắm tay Đào Tử, tỏ vẻ thân thiết, cười nói: “Mới mấy năm không gặp, Đào nha đầu nhà ta đã xinh đẹp thế này rồi.”
 
-Sau khi tán gẫu xã giao, người phụ nữ cùng lão viên rất có ăn ý, để mặc cho thiếu niên và thiếu nữ ở lại bên nhau.
+Xã giao vài câu, phụ nhân và lão viên ăn ý để đôi thiếu niên, thiếu nữ ở lại với nhau.
 
-Hai vị trưởng bối ngay lập tức hướng về phía tòa núi cũ từ miếu mà đi.
+Hai vị trưởng bối đi về phía ngôi miếu cũ trên núi.
 
-Từ bên ngoài miếu, Đào Tử nhìn chằm chằm, đưa tay nói: "Đáng ghét tinh, cái lễ vật ngươi đâu rồi?"
+Ngoài miếu, Đào Tử nhìn thiếu niên chằm chằm, chìa tay: “Tên đáng ghét, lễ vật đâu?”
 
-Thiếu niên tuấn mỹ trong bộ áo choàng màu đỏ thò tay ra, sau đó bỗng nhiên buông ra, không có gì cả, vỗ nhẹ vào lòng bàn tay của thiếu nữ: "Cất kỹ."
+Thiếu niên tuấn tú mặc hồng bào đưa tay ra rồi bỗng xòe tay không, vỗ nhẹ vào lòng bàn tay nàng: “Cất cho kỹ.”
 
 Đào Tử nhíu mày.
 
-Thiếu niên giơ hai tay lên, cười đùa nói: "Đừng nóng vội, chúng ta đang ở Thanh Phong thành bên kia hồ nước, sắp có điều kinh hỉ. Ta chỉ cần chờ thêm chút thời gian để bổ khuyết lễ vật thôi."
+Hắn giơ hai tay, cười đùa: “Đừng vội. Bên hồ nước thành Thanh Phong chúng ta sắp có chuyện bất ngờ đáng mừng. Cho ta thêm chút thời gian, rồi ta bù lễ vật.”[?]
 
-Đào Tử hừ lạnh một tiếng.
+Đào Tử hừ lạnh.
 
-Hai người đi trên quảng trường, nơi có dòng nước khác và những ngọn núi cao, đi dọc theo lan can một cách chậm rãi. Chính Dương sơn quần phong bát ngát, làm người ta liên tưởng đến Bảo Bình châu nổi tiếng với địa thế thuận lợi và cảnh đẹp.
+Hai người đến quảng trường, chậm rãi men theo lan can. Núi cao nước lạ nơi này, quần phong Chính Dương sơn trải rộng, quả xứng là thắng địa nổi tiếng ở Bảo Bình châu, địa thế tốt, phong cảnh đẹp.
 
-Thiếu niên nhìn vào cái hồ lô xanh biếc bên hông Đào Tử và hỏi: "Ngươi có biết cái tên chuyển củi ca ca ấy sao không? Sao hắn vẫn không tới chúc mừng?"
+Thiếu niên nhìn chiếc hồ lô xanh bên hông nàng, hỏi: “Vị ca ca chuyển củi kia của ngươi là sao? Sao vẫn chưa đến chúc mừng?”[?]
 
-Đào Tử cười lạnh đáp: "Ngươi nghĩ rằng loại người như hắn chỉ biết chơi bời lêu lổng sao? Hôm nay hắn là Đại Ly phiên vương, đứng đầu nửa châu giang sơn đó."
+Đào Tử cười lạnh: “Ngươi tưởng người ta cũng chỉ biết lêu lổng sao? Bây giờ người ta là phiên vương Đại Ly, coi quản nửa châu giang sơn đấy.”
 
-Thiếu niên cười nói: "Đừng nói những điều đó lung tung."
+Thiếu niên cười: “Mấy lời ấy đừng nói bừa.”
 
-Đào Tử mỉa mai: "Ta đứng ở đây nói lung tung, hậu quả sẽ ra sao? So với việc ngươi nói lung tung sau khi đến thì cái nào nặng hơn?"
+Đào Tử mỉa mai: “Ta đứng đây nói bừa thì có hậu quả gì? So với những lời ngươi vừa đến đã nói bừa, bên nào nặng hơn?”
 
-Thiếu niên không biết phải làm sao, đúng là cô nàng này cũng nói đúng.
+Thiếu niên hết cách. Nha đầu này nói cũng đúng.
 
-Hắn tựa vào lan can, nói: "Mã Khổ Huyền thật lợi hại, quân thiết kỵ hải triều của hắn đã không còn nữa. Nghe nói năm đó, Mã Khổ Huyền bị một nữ tử chọc giận, cùng gia gia của nàng quỳ xuống cầu xin tha thứ mà vẫn không thể thay đổi quyết định của hắn."
+Hắn tựa lan can: “Mã Khổ Huyền thật lợi hại, thiết kỵ hải triều đã bị hắn diệt sạch. Nghe nói năm ấy hắn bị một nữ tử chọc giận, nàng cùng ông nội quỳ xuống xin tha cũng không khiến hắn đổi ý.”[?]
 
-Đào Tử ồ một tiếng, "Là Hạnh Hoa động thiên hẻm mà Ly Châu nhắc đến chứ? Đi núi Chân Vũ sau đó, đã trở nên điên cuồng giống như vậy. Loại người này, đừng để ý tới hắn là được rồi."
+Đào Tử ồ lên: “Là kẻ ở ngõ Hạnh Hoa, động thiên Ly Châu ấy à? Lên Chân Vũ sơn rồi vẫn điên cuồng như vậy. Hạng người ấy, đừng để ý là được.”
 
-Thiếu niên trầm mặc một lát, sắc mặt trở nên âm trầm.
+Thiếu niên im lặng một lát, mặt dần sa sầm.
 
-Hắn nhớ lại những điều không vui mà hắn không thích nhất là những người hắn đã gặp lần đầu tiên năm đó.
+Hắn nhớ đến chuyện không vui, đến kẻ mình ghét nhất trong số những người gặp lần đầu năm ấy.
 
-Điều làm tâm trạng hắn tốt hơn chỉ là, hắn không thích tên nhà quê kia, chỉ là người thù riêng, mà thiếu nữ bên cạnh hắn và cả Chính Dương sơn, đều trở thành một vấn đề khó giải quyết. Hắn cảm thấy rất ghét, nhưng người kia lại không biết rằng, qua vài năm, từ một kẻ bịp bợm, một người chú trọng vào trường sinh cầu, giờ lại chuyển sang học võ, thích chạy nhảy nơi khác, quanh năm không ở nhà hưởng phúc. Hôm nay không những có gia sản, mà còn lớn, giữa núi Lạc Phách, nhiều ngọn núi như vậy, nhà hắn ở Chu Sa sơn khiến mọi người phải ghen tị. Nghĩ đến đó, tâm trạng của hắn lại trở nên tệ hại.
+Chỉ có một chuyện khiến lòng hắn dễ chịu hơn: hắn ghét tên nhà quê kia là vì thù riêng, còn thiếu nữ bên cạnh cùng cả Chính Dương sơn đều có món nợ khó giải với người ấy.[?] Nghĩ vậy vốn nên hả dạ, nhưng không hiểu tên kia làm cách nào, chỉ mấy năm đã từ một kẻ lừa đảo, đứt đường cầu trường sinh, chuyển sang học võ, thích chạy khắp nơi, quanh năm chẳng ở nhà hưởng phúc.[?] Nay chẳng những có gia sản, mà gia sản còn rất lớn. Núi Lạc Phách cùng bao nhiêu ngọn núi xung quanh, so ra cả núi Chu Sa nhà hắn cũng phải ghen tị.[?] Nghĩ đến đó, lòng hắn lại tệ đi.
 
-Thật tiếc rằng bên kia Long Tuyền quận, thông tin bị phong tỏa vô cùng nghiêm ngặt, lại thêm thánh nhân Nguyễn Cung ngự trị, Hứa gia ở Thanh Phong thành không dám tự tiện điều tra thông tin. Rất nhiều chuyện mờ ám vẫn chỉ nghe truyền miệng qua tỷ tỷ của hắn, đã không mang lại hiệu quả lớn.
+Tiếc rằng tin tức bên quận Long Tuyền bị phong tỏa rất chặt. Lại có thánh nhân Nguyễn Cung tọa trấn, Hứa gia thành Thanh Phong không dám tùy tiện dò xét. Bao nhiêu chuyện kín chỉ có thể nghe tỷ tỷ truyền lại, cũng chẳng giúp được nhiều.
 
-Chỉ cần người kia không chết, hắn sẽ trở thành một cái gai trong lòng thiếu niên tương lai của Thanh Phong thành.
+Chỉ cần người ấy chưa chết, hắn sẽ mãi là cái gai trong lòng vị chủ nhân tương lai của thành Thanh Phong.
 
-Dĩ nhiên, người đó còn là một cái đinh trong mắt Chính Dương sơn, khiến mọi người không thể không kiêng kị.
+Đương nhiên, người ấy cũng là cái đinh trong mắt Chính Dương sơn, khiến bọn họ không thể không kiêng dè.
 
-Hắn tin rằng hôm nay Chính Dương sơn đã kiêng kị vị thiếu niên này không phải vì tài sản của hắn mà là sợ rằng hắn sẽ leo lên Long Tuyền Kiếm Tông, đặc biệt là khi có mối quan hệ không rõ ràng với nữ tử áo xanh tóc bím. Sau cùng, nàng là con gái duy nhất của Nguyễn Cung.
+Hắn tin, hôm nay Chính Dương sơn kiêng dè người trẻ tuổi ấy không phải vì gia sản, mà vì sợ người ấy dựa được vào Long Tuyền Kiếm Tông. Nhất là quan hệ không rõ ràng với nữ tử thanh y tóc tết kia. Dù sao nàng cũng là con gái duy nhất của Nguyễn Cung.
 
-Long Tuyền quận là nơi mà triều đình Đại Ly và những người trên núi dưới núi hiểu lẫn nhau đã tồn tại lâu, không ai dám tự ý tìm hiểu.
+Chuyện quận Long Tuyền từ lâu đã là điều triều đình Đại Ly cùng người trên núi, dưới núi ngầm hiểu với nhau, chẳng ai dám tùy tiện dò xét.
 
-Cũng vì thánh nhân Nguyễn Cung là một trong những người được coi trọng nhất của triều đình Đại Ly.
+Cũng bởi thánh nhân Nguyễn Cung là một trong những người được triều đình Đại Ly coi trọng nhất.
 
-Đại Ly Tống thị đã có hai đời hoàng đế, luôn tôn kính vị này, người xuất thân từ nghề đúc kiếm.
+Hai đời hoàng đế Đại Ly Tống thị đều kính trọng vị thánh nhân xuất thân thợ đúc kiếm này.
 
 Thiếu niên đảo mắt nhìn.
 
-Ngọn núi cũ cao từ giữa miếu di chỉ.
+Ngôi miếu cũ sừng sững trên ngọn núi dời về.
 
-Người phụ nữ và lão viên đã tán gẫu về tình thế Bảo Bình châu, sau đó chuyển sang chủ đề quan trọng: "Tên Lưu Tiện Dương kia, một khi từ tông trần nho trở về Long Tuyền Kiếm Tông, sẽ gây ra rất nhiều phiền toái đấy."
+Phụ nhân và lão viên đã nói qua tình thế Bảo Bình châu, rồi mới vào chuyện chính. Nàng nói: “Tên Lưu Tiện Dương ấy, một khi từ chỗ Trần thị Nho gia trở về Long Tuyền Kiếm Tông, sẽ phiền phức lắm.”[?]
 
-Lão viên cười khẩy: "So với Chính Dương sơn của chúng ta, tương lai phiền toái của nhà Hứa các ngươi chẳng là gì cả."
+Lão viên cười khẩy: “So với Chính Dương sơn chúng ta, chút phiền phức về sau của Hứa gia các ngươi có là gì.”
 
-Người phụ nữ trông có vẻ lo lắng: "Trên núi tu hành, hai ba mươi năm trôi qua, công phu bỗng chốc tiêu tan, chúng ta ở Thanh Phong thành và Chính Dương sơn đều ở trong tình thế khó khăn. Đặc biệt là cái họ Trần đó, nhất định phải chết."
+Phụ nhân tỏ vẻ lo lắng: “Tu hành trên núi, hai ba mươi năm thoáng cái đã qua, công phu có thể bỗng chốc tiêu tan. Thành Thanh Phong và Chính Dương sơn chúng ta đều khó xử. Nhất là tên họ Trần kia, nhất định phải chết.”
 
-Lão viên lạnh nhạt nói: "Đừng để ta tìm thấy cơ hội, nếu không một quyền đè xuống, sẽ trời đất thanh minh."
+Lão viên lạnh nhạt: “Đừng để ta tìm được cơ hội. Một quyền đè xuống, trời đất sẽ sạch sẽ.”
 
-Người phụ nữ tức giận nói: "Có đơn giản như vậy sao?!"
+Phụ nhân bực bội: “Đơn giản thế sao?!”
 
-Lão viên hỏi ngược lại: "Ta không tìm hắn gây phiền toái, tiểu tử kia nên thắp nhang cầu nguyện rồi, hắn chẳng lẽ còn dám tới Chính Dương sơn để trả thù?"
+Lão viên hỏi ngược: “Ta không đi gây phiền phức, tiểu tử kia đã nên thắp hương rồi. Chẳng lẽ hắn còn dám đến Chính Dương sơn báo thù?”
 
-Người phụ nữ thở dài, nàng cũng hiểu rõ, dù cho Lưu Tiện Dương vào Long Tuyền Kiếm Tông, trở thành đệ tử đích truyền của Nguyễn Cung, cũng không gây ra sóng gió gì lớn. Còn về tên nhà quê ấy tại hẻm Nê Bình, mặc dù giờ đã tích lũy được một gia sản không tồi, nhưng khi đối mặt với Chính Dương sơn, vẫn là hạt kiến lay cây. Dù có bỏ qua Đại Ly mà không nói, cũng không cần nhắc đến những kiếm tu lão tổ của Chính Dương sơn, chỉ riêng cái đầu Bàn Sơn vượn này thôi, thì hắn chẳng thể nào chống lại một ngọn núi Lạc Phách trẻ tuổi và vũ phu đó.
+Phụ nhân thở dài. Nàng cũng hiểu, dù Lưu Tiện Dương gia nhập Long Tuyền Kiếm Tông, thành đệ tử đích truyền Nguyễn Cung, cũng chẳng gây nổi sóng lớn. Tên nhà quê ngõ Nê Bình kia, nay tích được gia sản khá thật, nhưng đứng trước Chính Dương sơn vẫn chỉ là kiến lay cây. Chưa cần nói Đại Ly, chưa cần nhắc những lão tổ kiếm tu Chính Dương sơn, riêng Bàn Sơn vượn trước mắt đã không phải núi Lạc Phách còn non trẻ cùng võ phu kia có thể chống lại.
 
-Có điều không biết tại sao, những năm qua, người phụ nữ vẫn luôn cảm thấy có chút bất an.
+Nhưng chẳng hiểu vì sao, mấy năm nay lòng nàng vẫn có chút bất an.
 
-Lão viên khẽ nhếch môi, biểu cảm tràn đầy mỉa mai: "Phu nhân, ngươi cảm thấy miếu Phong Tuyết kiếm tiên Ngụy Tấn như thế nào?"
+Lão viên nhếch miệng, đầy vẻ mỉa mai: “Phu nhân thấy kiếm tiên Ngụy Tấn của miếu Phong Tuyết thế nào?”
 
-Người phụ nữ không biết vì sao lão đầu này lại hỏi như vậy, nhưng vẫn đáp: "Ông ta là Lý Đoàn Cảnh, trước đó là thiên tài số một của Mã Khổ Huyền."
+Không hiểu vì sao lão lại hỏi, phụ nhân vẫn đáp: “Sau Lý Đoàn Cảnh, trước Mã Khổ Huyền, hắn là thiên tài số một.”[?]
 
-Lão viên nói: "Vậy Ngụy Tấn mà hỏi xem chúng ta ở Chính Dương sơn có dám không? Có thể một kiếm khiến chúng ta phải cúi đầu cúi xuống không?"
+Lão viên nói: “Vậy Ngụy Tấn có dám hỏi kiếm Chính Dương sơn không? Một kiếm có khiến chúng ta cúi đầu được không?”
 
-Người phụ nữ cười: "Tự nhiên là dám, nhưng không thể."
+Phụ nhân cười: “Dám thì đương nhiên dám, nhưng không thể khiến các ngươi cúi đầu.”
 
-Lão viên cuối cùng nói: "Một kẻ nhà quê ở hẻm Nê Bình, cầu trường sinh còn bị gãy đứt, ta mà cho hắn mượn can đảm thì hắn có dám tới Chính Dương sơn sao?!"
+Cuối cùng lão nói: “Một tên nhà quê ngõ Nê Bình, cầu trường sinh còn đứt đường, dù ta cho mượn lá gan, hắn có dám đến Chính Dương sơn không?!”
 
-"Ngươi nói vậy có vẻ không được đâu."
+“Nói thế e là không ổn.”
 
-Người phụ nữ ngừng lại một chút, rồi từ từ nói: "Ta cảm thấy người đó, dám đến."
+Phụ nhân ngừng một lát, chậm rãi nói: “Ta thấy người kia dám đến.”
 
-Tên đầu Bàn Sơn vượn bật cười to, gật đầu: "Cũng đúng, năm đó hắn dám cùng ta chém giết, gan thật không nhỏ. Nhưng hiện tại, không ai sẽ che chở cho hắn, nếu hắn dám tới Chính Dương sơn, ta bảo đảm hắn sẽ phải nhìn xem Chính Dương sơn tổ sư đường ra sao, rồi sẽ chết ở chân núi thôi!"
+Bàn Sơn vượn cười lớn, gật đầu: “Cũng phải. Năm ấy đã dám liều mạng với ta, lá gan đúng là không nhỏ. Nhưng bây giờ chẳng ai che chở hắn nữa. Dám đến Chính Dương sơn, ta bảo đảm ngay cả tổ sư đường hắn còn chưa được thấy đã chết dưới chân núi!”[?]
 
-Rời xa Bảo Bình châu bao nhiêu vạn dặm, tại Bắc Câu Lô Châu, một tòa bùa chú lôi trì được Tề Cảnh Long vẽ ra trên đỉnh núi.
+Cách Bảo Bình châu không biết bao nhiêu vạn dặm, trên một đỉnh núi Bắc Câu Lô Châu, Tề Cảnh Long đã dùng bùa chú vạch nên một tòa lôi trì.
 
-Người trẻ tuổi mặc bộ pháp bào màu đen, đã ngao du trên núi trọn vẹn hai ngày, hoặc luyện võ, hoặc thỉnh thoảng đi tới chân núi để thưởng thức tài nghệ vẽ bùa của Tề Cảnh Long.
+Người trẻ tuổi mặc pháp bào đen đi lại trên núi đã tròn hai ngày. Khi thì luyện võ, khi lại xuống chân núi thưởng thức thủ pháp vẽ bùa của Tề Cảnh Long.
 
-Trần Bình An đã hoàn toàn từ bỏ việc luyện tập thiên địa thung trong đầu.
+Trần Bình An đã hoàn toàn bỏ ý định luyện thiên địa thung.
 
-Không phải tư thế quá mức mất mặt, mà thực sự là bốn cái cọc đã bị ép lại với nhau, chỉ biết quyền ý tin tưởng sai lệch, mất đi ý nghĩa này.
+Không phải vì tư thế quá mất mặt, mà vì ép cả bốn loại thung vào một chỗ, quyền ý sẽ lệch lạc, mất đi ý nghĩa vốn có.[?]
 
-Dù trong thời gian này hắn đã luyện tập nhiều, nhưng giờ thể chất của hắn quá yếu, nếu tẩu thung nhiều quá sẽ gây hại căn bản. Thật sự, ba quyền Sơn Điên tấn công vào người hắn mà đổi thành một người bình thường có Kim thân cảnh thì đã chết ba lần, còn người có Viễn Du cảnh thì cũng đã chết. Về phần Trần Bình An, dĩ nhiên không thể so sánh với tám cảnh vũ phu mạnh mẽ hơn, thực tế hắn giống như đã chết một lần.
+Thời gian này hắn đã luyện khá nhiều, nhưng thể phách còn quá yếu, tẩu thung quá sức sẽ tổn thương căn bản. Ba quyền Sơn Điên cảnh đánh lên người ấy, đổi lại võ phu Kim Thân cảnh bình thường đã chết ba lần, Viễn Du cảnh cũng chết rồi. Trần Bình An đương nhiên không thể sánh với võ phu bát cảnh mạnh hơn; thật ra chính hắn cũng như đã chết một lần.
 
-Hôm nay, khi hoàng hôn buông xuống, Trần Bình An ngồi cạnh rương trúc, lại vẽ một số bùa chú bình thường.
+Hoàng hôn hôm nay, Trần Bình An ngồi bên rương trúc, lại vẽ mấy loại bùa thông thường.
 
-Liên tiếp, hắn đã vẽ lên bảy tám trăm cái phù lục, những bí thuật mà Tùy Cảnh Rừng tìm được từ thi thể nhóm thích khách Cát Lộc sơn. Trong đó có ba loại bùa chú có uy lực sát phạt tốt, Trần Bình An có thể học và sử dụng ngay, bao gồm loại bùa trời bộ đình ty, xuất phát từ bàng môn lôi pháp bùa chú, dĩ nhiên không phải chính tông lôi phù, nhưng cũng không thể xem thường số lượng mà Trần Bình An đã tạo ra. Còn có một loại bùa sông lớn, là bùa nước, và cuối cùng là bùa dúm đất, thuộc về nhóm đất phù.
+Hắn đã liên tiếp vẽ bảy tám trăm đạo phù lục, theo những bí thuật Tùy Cảnh Rừng tìm được trên thi thể đám thích khách Cát Lộc sơn. Trong đó có ba loại uy lực sát phạt khá tốt, hắn học xong dùng được ngay. Một loại là bùa Thiên Bộ Đình Ty, thuộc bàng môn lôi pháp, đương nhiên không phải lôi phù chính tông, nhưng số lượng hắn vẽ ra cũng chẳng thể xem thường.[?] Một loại nữa là bùa sông lớn, thuộc thủy phù; cuối cùng là bùa dúm đất, thuộc thổ phù.[?]
 
-Chất liệu giấy vàng không đắt đỏ, có thể dễ dàng mua ở thị trấn, so với việc tiêu hao thần tiên tiền hay tiên gia đan sa cũng không tính là gì, huống chi Trần Bình An ở gần Xuân Lộ phố, còn mua rất nhiều đồ trên núi chu sa, đương nhiên là có thể vẽ một nghìn tờ bùa chú mà vẫn đủ.
+Giấy vàng không đắt, ở trấn nhỏ cũng dễ mua. So với số tiền thần tiên hay đan sa tiên gia phải tiêu hao, giá giấy chẳng đáng bao nhiêu. Huống chi lúc ở gần phố Xuân Lộ, hắn còn mua rất nhiều chu sa trên núi, vẽ một nghìn đạo phù cũng vẫn đủ dùng.
 
-Trần Bình An sắp xếp đống bùa chú theo từng loại rồi đặt chúng lên rương trúc.
+Trần Bình An phân bùa theo từng loại, xếp lên rương trúc.
 
-Có thể trận tiếp theo sẽ là bùa mưa lớn.
+Trận sau, có lẽ sẽ có một cơn mưa bùa lớn.
 
-Sau khi thưởng thức một lúc, Trần Bình An cảm thấy hài lòng, thu hồi chúng vào tay áo, cảm giác nặng trịch như có rất nhiều tiền trong tay.
+Ngắm một lúc, hắn hài lòng thu vào tay áo. Nặng trĩu, cảm giác hệt như cầm rất nhiều tiền.
 
-Cuối cùng, Trần Bình An dựa lưng vào rương trúc, ngồi dưới đất, nắm lấy một nhánh cỏ, phủi đi bụi bẩn rồi cho vào miệng từ từ nhấm nháp, sau đó hai tay ôm lấy đầu.
+Cuối cùng, hắn ngồi bệt xuống đất, tựa lưng vào rương trúc, ngắt một nhánh cỏ, phủi sạch bụi rồi ngậm vào miệng, chậm rãi nhấm nháp. Hai tay gối sau đầu.
 
-Dưới đời này, thứ nhanh nhất không phải là phi kiếm, mà là ý niệm trong đầu.
+Thứ nhanh nhất trên đời chẳng phải phi kiếm, mà là ý nghĩ trong đầu.
 
-Ví dụ như, hắn bất chợt cảm thấy đã đến Long Tuyền quận, hẻm Nê Bình và núi Lạc Phách, lại nhìn về Đảo Huyền sơn với bậc thang này.
+Chẳng hạn lúc này, ý nghĩ hắn đã đến quận Long Tuyền, ngõ Nê Bình, núi Lạc Phách, rồi lại nhìn về những bậc thềm ở Đảo Huyền sơn.
 
-Trần Bình An nhắm mắt lại, tâm hồn đắm chìm, dần dần ngủ say.
+Trần Bình An nhắm mắt, tâm thần chìm xuống, dần dần ngủ say.
 
-Không biết đã bao lâu trôi qua, khi vừa mở mắt, hắn đã thấy ánh sáng.
+Chẳng biết qua bao lâu, hắn vừa mở mắt đã thấy ánh sáng.
+
+---
+
+Ghi chú biên tập: Chương này được viết lại từ bản Việt, chưa đối chiếu nguyên tác. Các dấu [?] lưu những điểm nguồn còn mơ hồ:
+
+- Chuyện trao hộp kiếm và phi kiếm truyền tin lẫn giữa “tặng... một hộp kiếm”, “cho... một thanh” và “trao đổi một thanh”; bản viết lại giữ đôi kiếm trong hộp, một thanh giao cho Tề Cảnh Long, chưa thể xác nhận toàn bộ cách giao nhận.
+- Câu khen vẽ bùa có cụm “một bức tường Tuyết Nê phù”; câu về rượu và máu lẫn quan hệ mất máu, hồi phục. Đoạn mong “càng muộn càng tốt” thiếu đối tượng, tạm hiểu là ngày bằng hữu cần hắn giúp; ý “đối mặt với bình an” cũng chưa rõ.
+- Cụm “cảnh giới giữa tiên nhân” được tạm diễn đạt theo hệ thống trung ngũ cảnh. Tư chất, cơ duyên của Đào Tử đều bị gọi là “rất yên tĩnh”. Đoạn dự đoán Chính Dương sơn khai phái và có kiếm tiên lẫn “khai phái đầu tiên trong gia đình”, “kiếm tiên ở ngũ cảnh”; bản viết lại chưa được xác minh thuật ngữ.
+- Tên “hầu tử giáp” giữ theo nguồn. Đoạn nói Hứa thị với triều đình lẫn các vế dời núi Chu Sa, không còn được chú ý và ấn tượng không tốt. “Âm thầm quyến rũ phụ nữ” được tạm hiểu theo câu sau là tìm cách kết thông gia.
+- Lời hẹn lễ vật có cụm “bên kia hồ nước”; biệt xưng “chuyển củi ca ca” được giữ nghĩa chữ, chưa xác minh tên gọi.
+- Chuyện Mã Khổ Huyền chưa rõ “thiết kỵ hải triều” là danh xưng hay mô tả. Câu người quỳ xin tha thiếu chủ thể, tạm hiểu là nữ tử cùng ông nội nàng.
+- Đoạn thiếu niên nghĩ về Trần Bình An lẫn quan hệ thù riêng, thù với Chính Dương sơn; có cụm “một người chú trọng vào trường sinh cầu”, cùng câu so sánh núi Chu Sa chưa rõ. Bản viết lại giữ mạch suy nghĩ nhưng chưa xác minh các vế này.
+- Nơi Lưu Tiện Dương trở về có cụm “tông trần nho”, tạm hiểu là Trần thị Nho gia. Lời đánh giá Ngụy Tấn lẫn thứ tự Lý Đoàn Cảnh và Mã Khổ Huyền, tạm hiểu là thiên tài số một giữa hai thời ấy.
+- Lời dọa của Bàn Sơn vượn lẫn việc được thấy tổ sư đường rồi chết dưới núi; bản viết lại tạm hiểu là chưa đến được tổ sư đường đã chết. Câu bốn loại thung phối hợp có cụm “quyền ý tin tưởng sai lệch”, chưa rõ thuật ngữ.
+- Tên bùa “trời bộ đình ty”, “sông lớn”, “dúm đất” chưa được đối chiếu nguyên tác; chỉ giữ sự phân loại lôi phù bàng môn, thủy phù, thổ phù theo nguồn, không tự đặt tên khác.

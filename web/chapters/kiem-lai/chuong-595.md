@@ -1,387 +1,401 @@
 # Chương 595: Mười cảnh võ phu ra quyền phong thái
 
-Trần Bình An mở mắt ra trong giây lát, nhíu mày, xuất hiện trong tâm trí cảm giác muốn chửi.
+Trần Bình An vừa mở mắt đã nhíu mày, trong đầu nảy ra ý muốn chửi người.
 
-Đêm đã khuya, ánh trăng sáng chiếu lên cao.
+Đêm đã khuya, trăng sáng treo cao.
 
-Cảm giác như vừa trải qua một giấc ngủ say.
+Cảm giác như vừa ngủ một giấc thật say.
 
-Hơn nữa, cơn đau từ cơ thể khiến Trần Bình An thực sự muốn chửi.
+Nhưng cơn đau khắp người lại khiến hắn thật sự muốn mắng chửi.
 
-Máu tươi trên người hắn đã khô cạn, dính chặt vào hố bùn đất lớn. Mỗi khi cử động, cảm giác tê tái giống như thể xác và linh hồn bị tách rời khiến hắn cảm nhận rõ ràng.
+Máu trên người đã khô, dính chặt hắn với bùn đất trong hố lớn. Mỗi lần cử động, cơn đau như xé lìa hồn phách khỏi thể xác lại rõ mồn một.
 
-Dù vậy, Trần Bình An vẫn hít một hơi thật sâu, cố gắng xác định tình trạng của bản thân, rồi bất ngờ ngồi dậy.
+Dẫu vậy, Trần Bình An vẫn hít sâu, dò xét tình trạng thân thể, rồi bất ngờ ngồi bật dậy.
 
-Xung quanh không có gì bất thường.
+Bốn phía không có gì khác lạ.
 
-Người ít nhất cũng là một vũ phu thuộc Sơn Điên cảnh, sao lại không ra tay giết hắn? Trần Bình An không cách nào lý giải được.
+Lão nhân ít nhất cũng là võ phu Sơn Điên cảnh kia, vì sao không giết hắn? Trần Bình An không nghĩ ra.
 
-Có lẽ phong tục Bắc Câu Lô Châu cho phép điều này, chỉ vì không vừa mắt với việc hắn trốn khỏi hố, mà không hiểu sao lại chỉ đánh có vài quyền thôi?
+Chẳng lẽ phong tục Bắc Câu Lô Châu là vậy, thấy hắn ra khỏi hố không thuận mắt nên vô cớ đánh vài quyền thôi sao?
 
-Từ trên miệng hố lớn, vang lên một giọng nói: "Cuối cùng cũng ngủ đủ rồi hả?"
+Trên miệng hố vang xuống một giọng nói: “Cuối cùng cũng ngủ đủ rồi?”
 
-Trần Bình An chỉ chầm chậm đứng dậy.
+Trần Bình An chậm rãi đứng lên.
 
-Hắn vẫn không kéo quyền khung ra, nhưng trên người, ý quyền lại càng thuần túy và nội liễm hơn.
+Hắn không bày quyền giá, nhưng quyền ý trên người càng thêm thuần túy, kín đáo.
 
-Tại bờ hố lớn, áo khoác xanh dài và giày vải xuất hiện. Đó chính là vị lão vũ phu.
+Bên miệng hố xuất hiện trường bào xanh cùng đôi giày vải. Chính là lão võ phu kia.
 
-Đó là Ngô Phùng Giáp, lão quản gia mai danh ẩn tích của Sái Tảo sơn trang nhiều năm. Bỏ qua Lý Nhị có thể ra ngoài trời đi, ông ta là một trong ba vị vũ phu bản thổ của Bắc Câu Lô Châu, chính là Cố Hữu của Đại Triện vương triều.
+Đó là Ngô Phùng Giáp, lão quản gia mai danh ẩn tích nhiều năm ở Sái Tảo sơn trang. Không kể Lý Nhị, người từ nơi khác đến, lão là một trong ba võ phu bản thổ Bắc Câu Lô Châu: Cố Hữu của Đại Triện vương triều.[?]
 
-Tại sao lại chỉ có một tòa Nguyên Anh yếu ớt trấn giữ Kim Lân cung giữa vài nước xung quanh, trong khi Kim Lân cung lại yếu ớt đến nỗi bị Phù Bình kiếm hồ Vinh Sướng xem như một phế vật?
+Vì sao mấy nước quanh đây chỉ có Kim Lân cung do một Nguyên Anh yếu ớt tọa trấn, mà Kim Lân cung lại yếu đến mức bị Vinh Sướng của Phù Bình kiếm hồ coi là phế vật?
 
-Cố Hữu, một vũ phu mạnh mẽ, đã đánh tan hơn mười nước trên núi thần tiên, gần như toàn bộ đều bị ông ta trục xuất.
+Bởi Cố Hữu đã đánh khắp tiên gia trên núi của hơn mười nước, gần như đuổi sạch bọn họ đi.
 
-Cố Hữu từng nói rằng, trời đất bao la, thần tiên cũng di chuyển.
+Lão từng nói, trời đất bao la, thần tiên cũng phải chuyển nhà.
 
-Tuy mạnh miệng nhưng hành động vĩ đại mới thực sự là anh hùng.
+Lời nói cứng cỏi, việc làm lớn lao, như thế mới thật là anh hùng.
 
-Lão nhân cười nói: "Tuy thân pháp của ngươi cũng tạm được, nhưng Lục bộ tẩu thung thì phải hơn trăm vạn quyền."
+Lão nhân cười nói: “Thân pháp cũng tạm được. Lục bộ tẩu thung của ngươi hẳn đã luyện hơn trăm vạn quyền rồi?”
 
-Trần Bình An gật đầu: "Gần một trăm sáu mươi vạn quyền."
+Trần Bình An gật đầu: “Gần một trăm sáu mươi vạn quyền.”
 
-Lão nhân hỏi: "Ngươi xuất thân từ gia đình nghèo khó, lúc nhỏ gặp bản quyền mà luyện tập không? Đó là một bảo bối đấy."
+Lão nhân hỏi: “Xuất thân nghèo khó, từ nhỏ nhặt được quyền phổ đã luyện sao? Đối với ngươi, đó là bảo bối nhỉ?”[?]
 
-Hơn nữa, người trẻ tuổi không dễ gì hắn lại đi luyện Hám Sơn quyền.
+Bằng không, người trẻ tuổi đâu dễ gì chịu đi luyện Hám Sơn quyền.
 
-Trần Bình An lắc đầu: "Mười bốn tuổi tôi mới bắt đầu luyện quyền."
+Trần Bình An lắc đầu: “Mười bốn tuổi ta mới bắt đầu luyện quyền.”
 
-Lão nhân có chút vui mừng: "Khá là không khó, ra quyền là chén cơm, chỉ cần có nghị lực, trăm vạn quyền đều có thể thành tựu, nhưng khó nhất là ở chỗ kiên trì luyện tập."
+Lão nhân hơi vui mừng: “Ra quyền như ăn cơm, có nghị lực thì trăm vạn quyền cũng luyện được. Nhưng khó nhất vẫn là bền lòng luyện mãi.”[?]
 
-Trần Bình An vẫn không hiểu ra sao, mà lão nhân hình như không có ý định sát hại hắn, điều này không thể nghi ngờ là một điều tốt.
+Trần Bình An vẫn chưa rõ đầu đuôi. Có điều lão nhân dường như không định giết hắn, đương nhiên là chuyện tốt.
 
-Thậm chí sau khi hạ quyền, sự lợi ích mang lại lớn đến nỗi không thể tưởng tượng nổi.
+Thậm chí mấy quyền vừa rồi còn mang đến lợi ích lớn ngoài sức tưởng tượng.
 
-Lúc này, Trần Bình An khẽ nắm quyền rồi lại buông ra, cảm thấy sức mạnh của cấp độ mạnh nhất cũng trong tay mình, điều này đối với hắn thật sự không đơn giản.
+Hắn khẽ nắm tay rồi buông ra. Cảm giác sức mạnh của cảnh giới mạnh nhất đã nằm trong tay mình, đối với hắn quả thật không dễ có.
 
-Lão nhân nói: "Ta là Cố Hữu."
+Lão nhân nói: “Ta là Cố Hữu.”
 
-Trần Bình An lập tức hiểu rõ, quyền pháp của hắn chính là do Cố Hữu tặng lúc trước, vì thế hắn hỏi: "Cái bộ Hám Sơn quyền phổ ấy?"
+Trần Bình An lập tức hiểu. Thì ra quyền pháp mình luyện có nguồn gốc từ lão, bèn hỏi: “Bộ Hám Sơn quyền phổ ấy?”
 
-Lão nhân gật đầu: "Hẳn là các đệ tử Cố gia đem tới quê hương ngươi. Trước kia, gia tộc gặp tai họa lớn, rồi cũng sụp đổ, chim thú tản mát."
+Lão nhân gật đầu: “Hẳn là con cháu Cố gia đã mang đến quê ngươi. Năm xưa gia tộc gặp đại nạn, cuối cùng tan tác, người tản đi như chim thú.”
 
-Lão nhân thở dài: "Tuổi thọ đoạn dài, cũng không dễ để gia tộc có nhiều hoài niệm, con cháu đều có sung sướng. Nếu không thì sẽ ra sao? Nhắm mắt làm ngơ, hầu như ai cũng sẽ chết trong sự đau đớn."
+Lão thở dài: “Sống quá lâu cũng chẳng dễ chịu. Chuyện gia tộc có thể để lại nhiều thương nhớ, con cháu ai cũng sống vui vẻ thì tốt. Bằng không còn biết làm sao? Đành nhắm mắt làm ngơ, chứ gần như ai cũng phải chết trong đau khổ.”[?]
 
-Trần Bình An ôm quyền nói: "Bảo Bình châu Trần Bình An, bái kiến Cố lão tiền bối."
+Trần Bình An ôm quyền: “Trần Bình An ở Bảo Bình châu, bái kiến Cố lão tiền bối.”
 
-Cố Hữu cười nói: "Khi để cho một vị mười cảnh vũ phu che chở ngươi ngủ say, tiểu tử ngươi cái giá không hề nhỏ nha."
+Cố Hữu cười nói: “Để một võ phu thập cảnh hộ pháp cho mình ngủ ngon, tiểu tử ngươi lên mặt cũng lớn lắm.”
 
 Trần Bình An nở nụ cười.
 
-Cố Hữu vẫy tay: "Ta sẽ đi cùng ngươi một đoạn đường, nhưng còn có việc phải làm, không thể dành quá nhiều thời gian tán gẫu với ngươi."
+Cố Hữu vẫy tay: “Ta đi với ngươi một đoạn. Còn có việc phải làm, không thể dành nhiều thời gian tán gẫu.”
 
-Trần Bình An lung lay, đi về phía sườn dốc, đi bên cạnh vị lão vũ phu.
+Trần Bình An lảo đảo men theo dốc đi lên, đến bên cạnh lão võ phu.
 
-Cố Hữu tiếp tục: "Thế nào, đã cầm qua tay cờ vũ phu mạnh nhất bao nhiêu lần rồi?"
+Cố Hữu hỏi tiếp: “Thế nào, đã giành danh võ phu mạnh nhất được mấy lần?”
 
-Trần Bình An bảo: "Hai lần, đó là tam cảnh và năm cảnh."
+Trần Bình An đáp: “Hai lần, tam cảnh và ngũ cảnh.”
 
-Cố Hữu lắc đầu: "Như vậy thì so với trung thổ bạn cùng lứa tuổi Tào Từ còn kém xa. Hắn từng cầm đầu mạnh nhất, hơn nữa chưa từng có ai mạnh mẽ hơn hắn."
+Cố Hữu lắc đầu: “Vậy còn kém xa Tào Từ cùng lứa ở Trung Thổ. Hắn luôn đứng đầu, chưa từng có ai mạnh hơn.”
 
-Trần Bình An đáp: "Từ từ sẽ đến, chín cảnh hay mười cảnh cũng còn có cơ hội."
+Trần Bình An nói: “Cứ từ từ. Cửu cảnh, thập cảnh, vẫn còn cơ hội.”
 
-Cố Hữu quay đầu, nghi ngờ hỏi: "Người dạy ngươi quyền pháp có phải là Thôi Thành từ Bảo Bình châu không? Nếu không thì điều này thật đáng ngờ."
+Cố Hữu quay sang, ngờ vực hỏi: “Người dạy quyền cho ngươi là Thôi Thành ở Bảo Bình châu? Nếu không, chuyện này thật khó hiểu.”
 
-Trần Bình An do dự một chút rồi gật đầu.
+Trần Bình An do dự một lát rồi gật đầu.
 
-Cố Hữu vỡ lẽ: "Thảo nào. Nhưng tiểu tử ngươi trước đây chắc chắn đã chịu không ít đau khổ nhỉ? Đúng vậy, nếu không có điều này, hôm nay ngươi cũng không thể đứng ở đây."
+Cố Hữu hiểu ra: “Thảo nào. Nhưng trước kia ngươi chắc đã chịu không ít khổ? Cũng đúng, bằng không hôm nay đâu còn đứng được ở đây.”
 
-Đột nhiên, Cố Hữu hỏi: "Thôi Thành có ý kiến gì về bộ Hám Sơn quyền phổ không?"
+Lão bỗng hỏi: “Thôi Thành đánh giá bộ Hám Sơn quyền phổ thế nào?”
 
-Trần Bình An chỉ dám nói một nửa, từ từ đáp: "Quyền ý tôn chỉ, cực cao."
+Trần Bình An chỉ dám nói một nửa, chậm rãi đáp: “Tôn chỉ quyền ý, cực cao.”
 
-Thôi lão đầu không có ở đây, nên hắn không lý do gì để giúp ông ấy chịu một quyền miễn phí.
+Thôi lão đầu không ở đây, hắn chẳng có lý gì lại thay lão chịu không một quyền.
 
-Hố lớn, dù là một phần vũ phu gần Sơn Điên cảnh ra quyền, cũng không phải là điều nào nặng nề với hắn, một vũ phu nhỏ bé sáu cảnh.
+Cái hố lớn còn đó. Dẫu chỉ dùng một phần sức lực Sơn Điên cảnh ra quyền, đối với võ phu lục cảnh nhỏ bé như hắn, cũng đã nặng lắm rồi.[?]
 
-Cố Hữu gật đầu: "Không hổ là Thôi lão tiền bối, mắt nhìn thật tốt."
+Cố Hữu gật đầu: “Không hổ là Thôi lão tiền bối, nhãn lực tốt lắm.”
 
-Thôi Thành từ Bảo Bình châu, đã từng một mình du lịch qua Trung Thổ thần châu. Dù được biết rằng kết cục rất thê thảm, nhưng ngay cả Cố Hữu nổi tiếng trên châu khác cũng phải thừa nhận tài năng của ông ta.
+Thôi Thành ở Bảo Bình châu từng một mình du lịch Trung Thổ Thần Châu. Dẫu nghe nói kết cục rất thê thảm, ngay Cố Hữu vốn nổi danh ở châu khác cũng phải thừa nhận bản lĩnh của lão.
 
-Hai bên quyền pháp có cao thấp gì đó không cần bàn cãi. Nếu không có đánh nhau, Cố Hữu cũng không có bất kỳ sự tôn trọng nào với Thôi Thành, ngoài việc gọi ông ta là Thôi tiền bối cũng không vấn đề gì.
+Quyền pháp hai bên ai cao ai thấp, chưa đánh thì chẳng cần bàn. Cố Hữu vốn không nhất thiết phải kính trọng Thôi Thành, nhưng gọi một tiếng Thôi tiền bối cũng chẳng có gì không ổn.[?]
 
-Dĩ nhiên, nếu không có "cực cao" hai từ hình dung, Cố Hữu vẫn sẽ không đổi cách xưng hô thành tiền bối.
+Đương nhiên, nếu thiếu hai chữ “cực cao” kia, lão cũng sẽ không đổi giọng gọi tiền bối.
 
-Trần Bình An không biết nên nói gì hơn.
+Trần Bình An không biết nên nói thêm gì.
 
-Cố Hữu thúc giục: "Ngươi cứ nói đừng ngại."
+Cố Hữu giục: “Cứ nói đi, đừng ngại.”
 
-Trần Bình An hỏi: "Cố lão tiền bối cùng Viên Đề sơn kê kiếm tiên có thù hằn gì không?"
+Trần Bình An hỏi: “Cố lão tiền bối có thù với Kê kiếm tiên ở Viên Đề sơn sao?”
 
-Cố Hữu trả lời: "Có thù, hai bên đều muốn tiêu diệt đối phương."
+Cố Hữu đáp: “Có thù. Cả hai đều muốn giết đối phương.”
 
-Trần Bình An không nói thêm lời nào.
+Trần Bình An không nói nữa.
 
 Thế sự phức tạp.
 
-Người xấu giết người tốt, người tốt cũng giết người xấu, và người xấu cũng có thể giết người xấu.
+Người xấu giết người tốt, người tốt giết người xấu, người xấu cũng giết người xấu.
 
-Ở đây, người tốt cũng có thể giết người tốt.
+Ngay cả người tốt cũng có thể giết người tốt.
 
-Rất nhiều chuyện không liên quan đến đúng sai rõ ràng, mà lại không thể hiểu hết tình hình, nếu thêm những bình luận, đôi khi sẽ chỉ là một vấn đề không cần thiết, nhưng lại không cần thiết phải cảm thấy những điều đó là đúng hay sai rõ ràng, thiện ác nhau.
+Rất nhiều chuyện không thể phân rõ đúng sai. Chưa hiểu hết đầu đuôi mà đã lên tiếng bình phẩm, đôi khi chỉ thành thừa thãi. Nhưng cũng không vì vậy mà phải nhất quyết cho rằng mọi chuyện đều đúng sai rành rọt, thiện ác phân minh.[?]
 
-Cố Hữu mỉm cười, nói: "Tiểu tử, ngươi chắc hẳn đã nghe nói về dị tượng ở kinh thành của Đại Triện vương triều, về cái gì Ngọc Tỳ giang một giao long xuất hiện, định bẫy nước kinh thành, gây ra tình thế điên cuồng của Long cung. Tuy nhiên ta biết rõ đây là Kê Nhạc muốn cố buộc ta xuất hiện, vì nếu ta không tìm hắn, hắn cũng sẽ tìm ta. Haha, một người từng thiếu chút nữa khiến ta mất mạng trên núi kiếm tu, thật sự rất lợi hại phải không?"
+Cố Hữu mỉm cười: “Tiểu tử, hẳn ngươi đã nghe chuyện dị tượng ở kinh thành Đại Triện vương triều. Giao long Ngọc Tỳ giang xuất hiện, định dìm kinh thành trong nước, Long cung làm loạn điên cuồng gì đó. Ta biết rõ, ấy là Kê Nhạc muốn ép ta ra mặt. Ta không đi tìm hắn, hắn cũng sẽ tìm ta. Ha ha, một kiếm tu trên núi từng suýt lấy mạng ta, lợi hại lắm phải không?”
 
-Cố Hữu dừng lại một lát, lẩm bẩm nói: "Đương nhiên là lợi hại rồi. Chính vì vậy mà năm đó ta bị thương nặng, né tránh nhiều năm như vậy, cuối cùng vẫn là do bản thân quyền pháp chưa đủ cao. Chỗ tận cùng của tam trọng cảnh giới, khí thịnh, quy chân, thần đến. Ta ở mười cảnh phía dưới, mỗi bước đi đều không kém, có thể tiến đến chỗ tận cùng, nhưng cuối cùng lại không thể kiên nhẫn, quá mức mong đợi vào việc vươn lên trước để tiến vào truyền thuyết giữa cảnh giới. Dù lúc đó ta không cảm thấy tâm cảnh có sơ suất, nhưng thực tế vẫn là do muốn nhanh chóng mà luyện quyền, vì vậy mà thiếu rất nhiều ý nghĩa. Tiểu tử, ngươi phải nhớ kĩ, với những người bạn như Tào Từ cùng lứa tuổi, sống cùng một thời đại, là một chuyện rất bình thường khiến người ta tuyệt vọng. Nhưng thực ra, đó lại là một chuyện tuyệt vời, có cơ hội thì có thể lẫn nhau rèn giũa. Đương nhiên, điều kiện tiên quyết là đừng để người ngoài như hắn đánh bại, hoặc đánh nát niềm tin, người tập võ mà lòng dạ rơi xuống thì mọi sự sẽ trở nên khó khăn. Điều này, ngươi phải nhớ cho thật kỹ."
+Lão dừng một lát, lẩm bẩm: “Đương nhiên là lợi hại. Năm ấy ta bị thương nặng, trốn tránh bao năm, rốt cuộc vẫn vì quyền pháp chưa đủ cao. Chỉ Cảnh có ba tầng: Khí Thịnh, Quy Chân, Thần Đáo. Trước thập cảnh, mỗi bước ta đều đi không tệ, có thể đến tận cùng. Nhưng cuối cùng vẫn không giữ được kiên nhẫn, quá mong sớm bước vào cảnh giới trong truyền thuyết. Bấy giờ tự thấy tâm cảnh không sơ hở, thật ra vẫn là nóng lòng cầu nhanh mà luyện quyền, nên thiếu mất rất nhiều ý vị. Tiểu tử, ngươi nhớ kỹ: cùng sống một thời với người đồng lứa như Tào Từ, khiến người ta tuyệt vọng là chuyện thường. Nhưng thật ra cũng là chuyện rất tốt, có cơ hội rèn giũa lẫn nhau. Đương nhiên, trước hết đừng để hắn đánh bại cả con người, đánh nát lòng tin. Người tập võ mà đánh mất khí phách trong lòng, chuyện gì cũng khó. Nhất định phải nhớ.”[?]
 
-Trần Bình An gật đầu nói: "Ta sẽ nhớ."
+Trần Bình An gật đầu: “Ta nhớ rồi.”
 
-Cố Hữu như vô tình hỏi: "Nếu sợ chết, sao lại muốn học quyền?"
+Cố Hữu như thuận miệng hỏi: “Sợ chết, sao còn học quyền?”
 
-Đây là một câu hỏi rất lạ lùng.
+Câu hỏi rất lạ.
 
-Sợ chết mà học quyền, như vậy mới hợp lý.
+Sợ chết mới học quyền, như thế chẳng phải hợp lẽ sao?
 
-Trần Bình An đáp: "Không phải là thật sự sợ chết, mà là không thể chết nên mới sợ chết. Chúng khác nhau."
+Trần Bình An đáp: “Không phải thật sự sợ chết. Vì không thể chết nên mới sợ chết. Hai chuyện ấy khác nhau.”
 
-Cố Hữu trầm mặc một lát, "Rất có lý."
+Cố Hữu im lặng một lát: “Rất có lý.”
 
-Trên thực tế, đây chính là điều khiến Cố Hữu cảm thấy khó hiểu nhất.
+Thật ra, đó chính là chỗ lão khó hiểu nhất.
 
-Đối với một thiếu niên võ sư, nếu như biết mình có thể sẽ chết, nhất là khi hắn còn có thể nói "Đã chết", thì đó lại chính là lúc quyền ý của hắn đang mạnh mẽ nhất.
+Võ phu trẻ tuổi này, khi biết mình có thể chết, thậm chí đã có thể nói là “chết rồi”, quyền ý lại đạt đến lúc mạnh nhất.
 
-Điều này không phải là kiểu "sợ chết" bình thường.
+Đó chẳng phải kiểu “sợ chết” thông thường.
 
-Vì vậy, Cố Hữu có thể khẳng định một điều, nếu người thanh niên này chết thật, thì linh hồn hắn sẽ không bị bỏ rơi.
+Bởi vậy, Cố Hữu có thể khẳng định, nếu người trẻ tuổi này thật sự chết, hồn phách hắn sẽ không tan đi.
 
-Trong trời đất này, sẽ lập tức xuất hiện một linh hồn quỷ vật cực kỳ mạnh mẽ, không những không bị cuốn trôi, mà còn có thể sống lại giữa cái chết.
+Trong trời đất sẽ lập tức xuất hiện một quỷ vật cực kỳ mạnh mẽ. Chẳng những không bị cuốn trôi, hắn còn có thể từ cõi chết mà sống lại.
 
-Một tình trạng sợ chết đến mức cực đoan như vậy, trong lòng thiếu niên này mang theo bao nhiêu chấp niệm?
+Sợ chết đến mức ấy, rốt cuộc trong lòng người trẻ tuổi cất giữ bao nhiêu chấp niệm?
 
-Dẫu sao những điều này cũng chỉ là nói thừa.
+Nhưng nghĩ những chuyện ấy rốt cuộc cũng chỉ thừa.
 
-Lần này, hắn xuất hiện chỉ muốn gặp gỡ một thiếu niên võ sư đã từng đi qua Sái Tảo sơn trang nhỏ.
+Lần này lão xuất hiện, chỉ muốn gặp người trẻ tuổi từng đi qua Sái Tảo sơn trang nhỏ bé kia.
 
-Chỉ có chính thức trải qua sinh tử, mới có thể khiến cho gần như bình cảnh quyền ý trở nên thuần túy hơn.
+Chỉ khi thật sự trải qua sinh tử, quyền ý gần đến chỗ bế tắc mới có thể trở nên thuần túy hơn.
 
-Cố Hữu nói một cách sâu sắc: "Khi đến phía Bắc, ngươi phải cẩn thận một chút. Không nói đến lão quái vật ở phương Bắc, còn có một Sơn Điên cảnh võ sư, đều không phải người tốt, giết người không chớp mắt. Ngươi lại là người nơi khác, có thể chết đi mà mang theo võ vận ở Bắc Câu Lô Châu, nếu như bọn họ muốn giết ngươi, chỉ cần vài quyền là có thể giải quyết. Ngươi không thể chờ đến khi nước tới chân mới nhảy, học một môn thượng thừa trên núi để có thể chạy thoát, hoặc cũng đừng đơn giản tiết lộ cảnh giới võ sư thật sự của mình. Không còn cách nào khác, người tốt hay xấu, đều không làm chậm việc tu luyện, vươn đến đỉnh cao, võ sư là như thế, còn người tu đạo thì càng phải như vậy. Một cái truy cầu quyền ý thuần túy, một cái đạo tâm truy cầu thực, quy tắc ràng buộc tự nhiên là cần thiết, nhưng từng người một khi lên đến vị trí cao, thì không ai ngu ngốc cả, đều biết cách tránh đi quy tắc."
+Cố Hữu trầm giọng dặn: “Đi về phía bắc, ngươi phải cẩn thận. Chưa nói lão quái vật phương bắc, ngay một tên võ phu Sơn Điên cảnh ở đó cũng chẳng phải người tốt, giết người không chớp mắt. Ngươi lại từ nơi khác đến, chết đi có thể để lại võ vận cho Bắc Câu Lô Châu.[?] Bọn họ muốn giết ngươi, vài quyền là xong. Đừng chờ nước đến chân mới nhảy. Hoặc học một môn tiên pháp thượng thừa để chạy thoát, hoặc đừng dễ dàng lộ cảnh giới võ đạo thật sự. Không có cách nào khác. Người tốt hay xấu cũng chẳng ảnh hưởng việc tu luyện, lên đến đỉnh cao. Võ phu như vậy, tu sĩ càng như vậy. Một bên cầu quyền ý thuần túy, một bên cầu đạo tâm chân thực. Đương nhiên vẫn cần quy củ trói buộc, nhưng đã lên được cao, chẳng ai ngu cả, đều biết cách lách qua quy củ.”
 
-Trần Bình An thở dài: "Ta sẽ cẩn thận, không chút lơ là."
+Trần Bình An thở dài: “Ta sẽ cẩn thận, không dám lơ là.”
 
-Cố Hữu dừng bước lại, nhìn về phía chân trời xa xôi, "Thật mừng, Hám Sơn quyền có thể được ngươi học, hơn nữa có hi vọng phát dương quang đại. Nói thật lòng, dù ta là người sáng tạo quyền phổ, cũng phải thừa nhận rằng, bộ quyền phổ này thật sự không được đánh giá cao, bội thực mà chết cũng chỉ có như vậy."
+Cố Hữu dừng chân, nhìn về chân trời xa: “Mừng lắm. Hám Sơn quyền được ngươi học, còn có hy vọng phát dương quang đại. Nói thật, dù chính ta sáng tạo quyền phổ, cũng phải thừa nhận nó chẳng được đánh giá cao. Có cố đến chết, cũng chỉ đến thế thôi.”[?]
 
-Trần Bình An trầm giọng nói: "Cố lão tiền bối, ta thật sự cảm thấy Hám Sơn quyền có ý nghĩa rất lớn!"
+Trần Bình An trầm giọng nói: “Cố lão tiền bối, ta thật sự thấy Hám Sơn quyền có ý nghĩa rất lớn!”
 
-Dù là năm đó ở núi Lạc Phách, đối mặt với Thôi Thành, Trần Bình An vẫn luôn rất tôn kính bộ quyền phổ này, sự sống và cái chết đều có mối liên hệ sâu sắc.
+Ngay năm xưa ở núi Lạc Phách, đứng trước Thôi Thành, hắn vẫn luôn kính trọng bộ quyền phổ gắn liền với sinh tử của mình này.
 
-Cố Hữu quay đầu cười nói: "Dù ngươi nói kiểu gì thì ta, một kẻ võ sư, cũng không có tiên gia pháp bảo để tặng cho ngươi."
+Cố Hữu quay đầu cười: “Ngươi nói gì thì nói, ta là võ phu, chẳng có pháp bảo tiên gia để tặng đâu.”
 
-Trần Bình An cười khổ: "Ba quyền là đủ, nhiều hơn cũng không gánh nổi."
+Trần Bình An cười khổ: “Ba quyền đã đủ rồi. Nhiều nữa, ta không gánh nổi.”
 
-Cố Hữu vỗ vai Trần Bình An: "Cố Hữu ở cảnh giới chín quyền, sức nặng dĩ nhiên là không tồi."
+Cố Hữu vỗ vai hắn: “Quyền cửu cảnh của Cố Hữu ta, đương nhiên sức nặng không tồi.”
 
-Bỗng nhiên Cố Hữu nói: "Ngươi có biết không, ta, người sáng lập Hám Sơn quyền, thực ra không biết rằng tẩu thung, lập thung và thụy thung có thể hợp nhất mà luyện tập."
+Lão bỗng nói: “Ngươi có biết, chính người sáng tạo Hám Sơn quyền như ta cũng không biết có thể gộp tẩu thung, lập thung, thụy thung lại mà luyện không?”
 
-Trần Bình An không biết phản bác như thế nào.
+Trần Bình An không biết đáp thế nào.
 
-Cố Hữu suy nghĩ một lát: "Thực ra còn có thể thêm thiên địa thung."
+Cố Hữu ngẫm nghĩ: “Thật ra còn thêm được thiên địa thung nữa.”
 
-Trần Bình An bất đắc dĩ nói: "Lấy đầu chỉa xuống đất mà đi sao?"
+Trần Bình An bất đắc dĩ hỏi: “Dùng đầu chúc xuống đất mà đi sao?”
 
-Cố Hữu thấy người trẻ tuổi kia có vẻ như thật sự đang suy nghĩ về khả năng này, liền vỗ trán Trần Bình An, cười to: "Tiểu tử, ngươi đừng luyện quyền choáng váng! Chúng ta võ sư hành tẩu giang hồ, yếu điểm mặt không thể để người khác thấy! Ngươi luyện Hám Sơn quyền, há không phải để các cô nương trong giang hồ ngưỡng mộ sao!"
+Thấy hắn dường như thật sự đang cân nhắc cách luyện ấy, Cố Hữu vỗ trán hắn, cười lớn: “Tiểu tử, đừng luyện quyền đến ngốc cả người! Võ phu chúng ta hành tẩu giang hồ, cũng phải giữ chút thể diện! Ngươi luyện Hám Sơn quyền, chẳng lẽ không muốn được các cô nương giang hồ ngưỡng mộ sao!”[?]
 
-Sau khi nói xong, Cố Hữu chắp tay sau lưng, ngửa đầu nhìn lên, dường như có chút hoài niệm.
+Nói xong, lão chắp tay sau lưng, ngẩng đầu nhìn trời, có chút hoài niệm.
 
-Có lẽ mỗi một người hành tẩu giang hồ đều có những tiếc nuối và hồi tưởng như vậy.
+Có lẽ ai từng hành tẩu giang hồ cũng đều có những nỗi tiếc nuối, những chuyện cũ để nhớ như vậy.
 
-Trần Bình An bị một cái tát vào vai ngã nghiêng ra, thiếu chút nữa đã ngã xuống đất.
+Trần Bình An bị lão vỗ vai một cái, nghiêng ngả, suýt ngã xuống đất.
 
-Khi Trần Bình An đứng thẳng lại, bộ áo xanh dài của hắn đã im lặng bay lên từ mặt đất, mờ mịt rời xa.
+Đợi hắn đứng vững, bóng trường bào xanh đã lặng lẽ rời mặt đất, mờ dần phía xa.
 
-Trần Bình An nhìn theo thật lâu không rời mắt.
+Trần Bình An nhìn theo rất lâu.
 
 Hắn biết rõ.
 
-Chuyến đi này của Cố Hữu, là để chờ chết.
+Chuyến này Cố Hữu đi, là đi chờ chết.
 
-Nhưng có lẽ, Viên Đề sơn sẽ không còn một vị kiếm tiên Kê Nhạc nữa.
+Nhưng có lẽ Viên Đề sơn cũng sẽ mất một vị kiếm tiên Kê Nhạc.
 
-Đó chính là cuộc sống.
+Thế sự là vậy.
 
-Trần Bình An lấy ra chiếc rương trúc, đặt trên mặt đất, ngồi xuống, rót chút rượu từ hồ lô dưỡng kiếm và từ từ uống.
+Trần Bình An lấy rương trúc ra, đặt xuống đất rồi ngồi lên, rót chút rượu từ hồ lô dưỡng kiếm, chậm rãi uống.
 
-Hắn không vội vàng lên đường. Hơi lấy lại sức lực rồi hãy nói.
+Hắn không vội đi. Cứ hồi sức đôi chút rồi tính.
 
-Ba quyền xuống, một tháng có thể phục hồi lại sáu cảnh tu vi, cũng coi như là vạn hạnh rồi.
+Chịu ba quyền ấy, nếu một tháng có thể khôi phục tu vi lục cảnh thì đã là may mắn lắm rồi.
 
-Dù sao trong chốc lát cũng không khởi hành, Trần Bình An liền bắt đầu suy nghĩ về một số điều.
+Tạm thời chưa lên đường được, hắn bắt đầu nghĩ vài chuyện.
 
-Về thuần túy võ sư, Thôi tiền bối đã từng đề cập đến một học thuyết mơ hồ.
+Về võ phu thuần túy, Thôi tiền bối từng nhắc đến một cách nói khá mơ hồ.
 
-Bảy cảnh, tám cảnh chết nơi quê hương, Sơn Điên cảnh chết ở đất nước mình. Mười cảnh chỗ tận cùng chết ở châu bản.
+Thất cảnh, bát cảnh chết ở quê nhà; Sơn Điên cảnh chết trong nước mình; thập cảnh Chỉ Cảnh chết ở châu mình.
 
-Trên con đường tu hành, duy tình duy thực.
+Trên đường tu hành, chỉ cầu tình, chỉ cầu thực.[?]
 
-Giống như Cố Hữu đã nói, rất nhiều điều phân tâm, bản thân chỉ biết hồn nhiên mà chưa nhận ra.
+Như Cố Hữu đã nói, rất nhiều tạp niệm phân tâm, người trong cuộc cứ hồn nhiên mang theo mà chẳng hay biết.
 
-Đó thực sự là một chuyện rất đáng sợ.
+Đó quả thật là chuyện đáng sợ.
 
-Cuối cùng, Trần Bình An nâng chiếc hồ lô dưỡng kiếm, ngẫm nghĩ thẫn thờ.
+Cuối cùng, Trần Bình An nâng hồ lô dưỡng kiếm, ngồi ngẩn ngơ.
 
-Còn sống, đều muốn đi xa, còn đang rất xa chờ đợi mình, thật tốt.
+Còn sống, còn muốn đi xa, phía xa vẫn còn những điều chờ mình. Tốt biết bao.
 
-Chỉ có điều có vài nơi ít người, năm sau gặp lại mình, đoán chừng sẽ không quá cao hứng.
+Chỉ có điều, vài người ở vài nơi, sang năm gặp lại hắn, e rằng chẳng mấy vui vẻ.
 
-Gần chút nữa, hẻm Hạnh Hoa Mã gia, Đại Ly thái hậu.
+Gần thì có Mã gia ở ngõ Hạnh Hoa, thái hậu Đại Ly.
 
-Xa hơn một chút, Chính Dương sơn Bàn Sơn vượn, Thanh Phong thành Hứa thị.
+Xa hơn có Bàn Sơn vượn của Chính Dương sơn, Hứa thị thành Thanh Phong.
 
-Còn có một số việc cần nhìn nhận lại.
+Còn một số chuyện phải xem lại.
 
-Càng có nhiều điều ẩn giấu sau những màn che khuất.
+Càng nhiều chuyện vẫn giấu sau màn.
 
-Từng món từng kiện, từng cái một.
+Từng việc, từng người.
 
-Cho nên nói, Bùi Tiễn, cái đệ tử khai sơn đại đệ tử, thích ghi sổ mà thật ra giống sư phụ nàng.
+Cho nên mới nói, khai sơn đại đệ tử Bùi Tiễn thích ghi sổ, thật ra là giống sư phụ nàng.
 
-Chỉ có điều một người dùng bút giấy mà nhớ, một người thì chỉ dùng trái tim mà nhớ.
+Chỉ khác một người ghi bằng giấy bút, một người ghi trong lòng.
 
-Trên một bình nguyên rộng lớn, cuối cùng cũng gặp núi.
+Qua đồng bằng mênh mông, cuối cùng cũng thấy núi.
 
-Cố Hữu rơi xuống một ngọn núi.
+Cố Hữu đáp xuống một ngọn núi.
 
-Sáu người trước mặt, mặt nạ trắng như tuyết, mặc áo đen, chỉ một người đứng ở đó, năm người còn lại nhanh chóng tứ tán chạy xa.
+Trước mặt có sáu người hắc y, đeo mặt nạ trắng như tuyết. Chỉ một người đứng lại, năm người kia mau chóng tản ra chạy xa.
 
-May mà vị lão giả mặc áo xanh dài, hình như không có ý định truy đuổi.
+May mà lão nhân trường bào xanh dường như không định đuổi theo.
 
-Người ở Cát Lộc sơn, cúi người ôm quyền nói: "Bái kiến Cố tiền bối."
+Người Cát Lộc sơn kia khom mình ôm quyền: “Bái kiến Cố tiền bối.”
 
-Cố Hữu hỏi: "Làm gì phô trương như vậy, có phải để giết người không? Đừng nói là một vị sắp bước vào Kim thân cảnh võ sư, cho dù là Viễn Du cảnh võ sư, cũng không đủ để các ngươi giết đâu. Cát Lộc sơn lúc nào cũng không tuân quy tắc vậy sao? Hay là thực tế, các ngươi chưa từng tuân quy tắc, chỉ là làm việc tương đối sạch sẽ?"
+Cố Hữu hỏi: “Bày trận lớn như vậy, định giết người sao? Đừng nói một võ phu sắp vào Kim Thân cảnh, ngay Viễn Du cảnh cũng chẳng đủ cho các ngươi giết. Cát Lộc sơn từ bao giờ không còn giữ quy củ? Hay vốn chưa từng giữ, chỉ là làm việc sạch sẽ hơn thôi?”
 
-Đám người này, những thích khách từ Cát Lộc sơn, thân là Nguyên Anh tu sĩ, nghe thấy Cố Hữu, mặt nạ của họ ra mồ hôi ròng ròng.
+Vị thích khách Cát Lộc sơn có tu vi Nguyên Anh ấy nghe lão nói, sau lớp mặt nạ đã mồ hôi như tắm.
 
-Bởi vì, năm đó Đại Triện vương triều có Cố Hữu, một võ sư rất nghiêm khắc với quy tắc. Nếu như hắn lựa chọn ra quyền giết người, chắc chắn sẽ không tha cho bất cứ ai.
+Bởi Cố Hữu ở Đại Triện vương triều năm xưa là võ phu rất coi trọng quy củ. Nếu lão đã quyết ra quyền giết người, nhất định chẳng tha một ai.
 
-Một khi Cát Lộc sơn chọc giận Cố Hữu, thì cái giá phải trả sẽ không chỉ là cái chết của sáu người đơn giản.
+Chọc giận lão, cái giá Cát Lộc sơn phải trả sẽ không chỉ là sáu mạng người.
 
-Vị thích khách Cát Lộc sơn lắc đầu nói: "Quy tắc của Cát Lộc sơn, từ ngày tổ sư sáng lập đến nay, chưa từng phá vỡ..."
+Thích khách lắc đầu: “Quy củ Cát Lộc sơn, từ ngày tổ sư lập phái đến nay, chưa từng bị phá...”
 
-Chưa nói hết, Cố Hữu đã đưa tay ra sau lưng, một tay nắm lấy cổ vị Nguyên Anh tu sĩ, trong nháy mắt nhấc bổng lên, không nhìn, chỉ nhìn thẳng vào khoảng không xa, "Người nào cản trở, người đó chết."
+Chưa dứt lời, Cố Hữu đã rút một tay từ sau lưng ra, bóp cổ vị tu sĩ Nguyên Anh, chớp mắt nhấc bổng. Lão không nhìn hắn, chỉ nhìn thẳng về khoảng không phía xa: “Kẻ nào cản trở, kẻ ấy chết.”
 
-Cả năm người còn lại ở trên đỉnh núi xa xa lập tức không còn tiếng động, không dám nhúc nhích.
+Năm người trên những đỉnh núi xa lập tức im bặt, không dám nhúc nhích.
 
-Cố Hữu chậm rãi nói: "Nếu như ta ra tay trước, các ngươi vây bắt người này, thì cũng chỉ vậy, quy tắc của Cát Lộc sơn có giá trị gì? Nhưng mà sau khi ta Cố Hữu ra tay, các ngươi không mau chóng rời đi, còn dám tồn tại trong lòng ý định sửa nhà dột, có phải coi ta như người mù? Khó khăn lắm mới đến được Nguyên Anh cảnh, sao lại không biết quý trọng một chút?"
+Cố Hữu chậm rãi nói: “Nếu các ngươi vây giết người này trước khi ta ra tay, cũng đành thôi.[?] Quy củ Cát Lộc sơn có đáng gì? Nhưng ta đã ra tay rồi, các ngươi không mau cút đi, còn dám ôm ý nhặt của hời,[?] coi Cố Hữu ta mù sao? Khó khăn lắm mới đến Nguyên Anh cảnh, sao không biết quý mạng?”
 
-Cố Hữu nhíu mày, tuy cầm lấy cổ người Nguyên Anh tu sĩ mà không có ý định lập tức hạ sát thủ, có vẻ như người yên bình này đã sống nhiều năm, tự hỏi có nên giữ lại một mạng để Cát Lộc sơn mật báo. Nếu thực sự muốn giữ lại, thì nên giữ lại ai là thích hợp nhất. Cố Hữu không hề che giấu sát khí mãnh liệt trong cơ thể mình, cảm giác nặng nề như thực chất, khí tức nồng nặc, phạm vi trong vòng mười trượng, cỏ cây bùn đất đều bị nghiền nát, bụi bay mù mịt.
+Lão nhíu mày, tay vẫn bóp cổ tu sĩ Nguyên Anh, chưa vội giết. Dường như sống yên ổn đã nhiều năm, lão còn cân nhắc có nên chừa một mạng về báo tin cho Cát Lộc sơn; nếu chừa thì giữ ai mới hợp. Sát khí trên người lão không hề che giấu, nặng nề như có hình. Trong vòng mười trượng, cây cỏ, bùn đất đều bị nghiền nát, bụi tung mù mịt.
 
-Lão nhân trong tay vị Nguyên Anh tu sĩ đang mặc pháp bào, phát ra từng đợt âm thanh xé rách nặng nề.
+Pháp bào của tu sĩ Nguyên Anh trong tay lão vang lên từng tiếng xé rách nặng nề.
 
 Cố Hữu tiện tay búng ngón tay.
 
-Chỗ trán của một thích khách thuộc Cát Lộc sơn bị cương khí xuyên thủng, và hắn đã mất mạng ngay tại chỗ.
+Một thích khách Cát Lộc sơn bị cương khí xuyên trán, chết ngay tại chỗ.
 
-Một vũ phu Kim thân cảnh như vậy, lại chết một cách dễ dàng.
+Một võ phu Kim Thân cảnh, cứ thế dễ dàng mất mạng.
 
-Cố Hữu lạnh nhạt nói: "Động tâm cũng là động. Động tĩnh lớn lao, trong tai lão phu vang như trống, có chút ầm ĩ quá mức."
+Cố Hữu lạnh nhạt nói: “Động tâm cũng là động. Động tĩnh ấy vào tai lão phu như đánh trống, ồn quá.”
 
-Vị Nguyên Anh tu sĩ kia không thể mở miệng nói chuyện, đành phải dùng tâm như hồ nước gợn sóng để truyền tải lời nói: "Cố tiền bối, một khi ngài giết chúng ta sáu người, mặc cho ngài có quyền pháp tuyệt diệu đến đâu, bảo vệ người trẻ tuổi kia trong chốc lát cũng không thể bảo vệ hắn cả đời. Cát Lộc sơn của chúng ta không chỉ có một đỉnh núi, khắp nơi đều là tu sĩ phiêu bạt không ngừng, lão phu tất nhiên có thể tùy ý đuổi giết, không ai có thể ngăn cản quyền của ngài. Nếu bị ngài gặp gỡ, sẽ chết chắc! Nhưng trong thời gian này, chỉ cần người trẻ tuổi kia không ở bên cạnh ngài, dù chỉ trong vài ngày, hắn nhất định sẽ chết! Ta có thể cam đoan điều đó!"
+Không thể mở miệng, tu sĩ Nguyên Anh đành truyền lời bằng tiếng lòng: “Cố tiền bối, dù quyền pháp ngài cao đến đâu, giết cả sáu người chúng ta rồi, ngài cũng chỉ bảo vệ được người trẻ tuổi ấy nhất thời, không bảo vệ được cả đời. Cát Lộc sơn chúng ta chẳng chỉ có một ngọn núi. Tu sĩ phiêu bạt khắp nơi, ngài đương nhiên có thể tùy ý truy sát, chẳng ai ngăn nổi quyền của ngài. Gặp phải ngài, chắc chắn phải chết! Nhưng trong lúc ấy, người trẻ tuổi chỉ cần rời ngài vài ngày, nhất định sẽ mất mạng. Ta dám bảo đảm!”
 
-Cố Hữu hỏi: "Chẳng lẽ chỉ vì một con chuột chạy qua đường Cát Lộc sơn mà lão phu bị uy h**p sao? Ai cho ngươi cái gan ấy? Là Viên Đề sơn Kê Nhạc chắc?"
+Cố Hữu hỏi: “Chỉ dựa vào đám chuột chạy qua đường ở Cát Lộc sơn mà cũng dám uy hiếp lão phu? Ai cho ngươi lá gan ấy? Kê Nhạc ở Viên Đề sơn sao?”
 
-Nguyên Anh tu sĩ cười khổ: "Cố tiền bối, ta chỉ đang nói lên một sự thật thôi."
+Tu sĩ Nguyên Anh cười khổ: “Cố tiền bối, ta chỉ nói sự thật.”
 
-Cố Hữu suy nghĩ một lát, "Rất đơn giản, ta sẽ tuyên bố rằng sẽ gặp Kê Nhạc tại Chỉ Lệ sơn để quyết chiến. Trước đó, Kê Nhạc phải tiêu diệt Cát Lộc sơn, cho hắn một năm thời hạn rõ ràng. Đám đồ tử đồ tôn của Kê Nhạc ở Viên Đề sơn chắc chắn sẽ rất vui mừng, cùng các ngươi chơi trò mèo vờn chuột."
+Cố Hữu nghĩ một lát: “Dễ thôi. Ta sẽ tuyên bố hẹn Kê Nhạc quyết chiến ở Chỉ Lệ sơn. Trước đó, hắn phải diệt Cát Lộc sơn. Cho hẳn một năm làm hạn. Đám đồ tử đồ tôn của hắn ở Viên Đề sơn chắc hẳn rất vui được chơi mèo vờn chuột với các ngươi.”
 
-Nguyên Anh tu sĩ sắc mặt biến đổi, "Cố tiền bối, lần này chúng ta tụ hội nơi đây, đúng là không phá quy củ. Lần ám sát trước kia không thành công cũng đã là chuyện cũ, Cát Lộc sơn tuyệt đối không thể vi phạm quy củ. Về lý do chúng ta đến đây, rất tiếc, ta không thể tiết lộ bí mật, điều này càng là quy củ của Cát Lộc sơn, mong rằng tiền bối hiểu."
+Sắc mặt tu sĩ Nguyên Anh đổi hẳn: “Cố tiền bối, lần này chúng ta tụ họp ở đây, thật sự không phá quy củ. Lần ám sát trước không thành đã là chuyện cũ, Cát Lộc sơn tuyệt đối không thể trái quy củ. Vì sao đến đây, xin thứ lỗi, ta không thể tiết lộ. Giữ bí mật càng là quy củ Cát Lộc sơn, mong tiền bối hiểu cho.”
 
-Cố Hữu lại hỏi: "Nếu ta gặp các ngươi trên đường, có thể một quyền đánh chết ngươi không?"
+Cố Hữu lại hỏi: “Nếu gặp các ngươi giữa đường, ta có thể tùy tiện đánh chết ngươi một quyền không?”
 
-Nguyên Anh tu sĩ không hiểu vì sao vị vũ phu mười cảnh này lại hỏi, đành phải thành thực đáp: "Đương nhiên là không."
+Tu sĩ Nguyên Anh không hiểu vì sao võ phu thập cảnh này lại hỏi vậy, đành thành thật đáp: “Đương nhiên không thể.”
 
-Cố Hữu tiếp tục hỏi: "Ngươi cứ luôn miệng nói về quy củ của Cát Lộc sơn, mong ta tuân thủ, vậy tại sao quy củ của ta lại không được để vào mắt? Đối phương là kẻ mà ta ra tay rồi biến mất, các ngươi biết rõ thân phận của ta, sao lại ẩn nhẫn nhiều ngày như vậy? Chẳng lẽ bắt buộc ta phải đứng ở đây, cùng các ngươi nói ra quy củ, mới có thể hiểu được quy củ của các ngươi sao?"
+Cố Hữu hỏi tiếp: “Ngươi cứ luôn miệng nói quy củ Cát Lộc sơn, mong ta tuân theo. Vậy vì sao quy củ của ta, ngươi lại chẳng để vào mắt? Người kia đã bị ta ra tay, rồi ta rời đi, các ngươi biết rõ thân phận ta, sao vẫn nấn ná nhiều ngày? Chẳng lẽ phải chờ ta đứng đây, nói chuyện quy củ với các ngươi, mới hiểu được quy củ các ngươi sao?”[?]
 
-Cố Hữu cười nhạt, "Thú vị thật, khi nào mà lão phu phải tuân theo quy củ của các ngươi, những đứa nhóc như các ngươi lại chẳng có chút quy củ nào?"
+Lão cười nhạt: “Thú vị thật. Từ bao giờ lão phu phải theo quy củ các ngươi, còn đám nhóc các ngươi lại chẳng cần giữ chút quy củ nào?”
 
-Nói xong, đầu của Nguyên Anh tu sĩ đã bị bẻ gãy, lăn trên mặt đất.
+Dứt lời, lão vặn đứt đầu tu sĩ Nguyên Anh, để mặc lăn xuống đất.
 
-Đồng thời, một quyền khác được tung ra, đánh cho Kim Đan và Nguyên Anh nổ tan tành, không còn một chút cơ hội sống sót.
+Cùng lúc, một quyền khác đánh tới, nghiền nát cả Kim Đan lẫn Nguyên Anh, không chừa chút đường sống.
 
-Một vị Nguyên Anh tu sĩ Kim Đan, trong lúc không kịp phản ứng đã bị đánh nát bấy. Không gian căng thẳng bỗng chốc được giải tỏa.
+Kim Đan của một tu sĩ Nguyên Anh chưa kịp phản ứng đã nát vụn. Không khí căng như dây đàn bỗng chùng xuống.[?]
 
-Một vị tu sĩ Cát Lộc sơn triển khai độn thổ chi thuật, nhưng cùng lắm cũng chỉ chịu đựng được một cú đập từ Cố Hữu trước khi chết, âm thanh nặng nề vang lên và không còn động tĩnh gì nữa.
+Một tu sĩ Cát Lộc sơn thi triển thuật độn thổ, nhưng cũng chỉ kịp chịu một cú đánh của Cố Hữu. Dưới đất vang lên tiếng trầm đục, rồi chẳng còn động tĩnh.
 
-Ba vị thích khách của Cát Lộc sơn còn lại hoảng sợ, bị đẩy ra xa, không dám thở gấp.
+Ba thích khách còn lại sợ đến cứng người, lùi ra xa, thở mạnh cũng không dám.
 
-Cố Hữu chắp tay sau lưng, quay đầu nhìn về một hướng, thở dài.
+Cố Hữu chắp tay sau lưng, ngoảnh về một hướng, thở dài.
 
-Tiểu tử kia không bị trọng thương sao, sao lại còn nhạy cảm như vậy.
+Tiểu tử kia chẳng phải bị thương nặng sao, sao vẫn nhạy bén đến thế?
 
-Hám Sơn quyền có dạy cái này không? Sao ta không hiểu được sáng tác quyền pháp này?
+Hám Sơn quyền còn dạy chuyện này à? Sao người sáng tạo quyền pháp là ta lại không biết?
 
-Một bộ áo xanh dài lướt đến, đến bên đỉnh núi, khom lưng, há mồm th* d*c, hai tay ôm đầu gối. Khi hắn ngừng, máu tươi nhỏ xuống mặt đất.
+Bóng thanh y lướt tới đỉnh núi. Trần Bình An khom lưng, hai tay chống gối, há miệng thở dốc. Vừa dừng lại, máu tươi đã nhỏ xuống đất.
 
-Cố Hữu mỉm cười: "Thật là một kẻ không biết đau."
+Cố Hữu mỉm cười: “Đúng là không biết đau.”
 
-Trần Bình An cố gượng dậy, sắc mặt trắng bệch, lẫn máu đen, nhanh chóng ngồi xuống, lau mặt một cái, "Tiền bối đây là?"
+Hắn cố gượng người lên, mặt trắng bệch, lẫn cả máu đen. Mau chóng ngồi xuống, đưa tay lau mặt, hắn hỏi: “Tiền bối làm gì vậy?”
 
-Cố Hữu hỏi: "Ngươi còn dám hỏi ta sao?"
+Cố Hữu hỏi lại: “Ngươi còn dám hỏi ta?”
 
-Trần Bình An bất đắc dĩ nói: "Đám thích khách Cát Lộc sơn, ta đã sớm phát hiện, thực ra đã phái phi kiếm báo tin cho một người bạn, nhưng kéo dài vài ngày, mới có thể đám mồi đón bọ ngựa."
+Trần Bình An bất đắc dĩ nói: “Đám thích khách Cát Lộc sơn, ta đã phát hiện từ lâu, cũng đã sai phi kiếm đi báo tin cho một bằng hữu. Chỉ cần kéo thêm vài ngày là có thể dụ bọ ngựa đến ăn mồi.”[?]
 
-Cố Hữu hỏi: "Bạn hữu ngươi ở trên núi à? Thật sự không sợ đám thích khách Cát Lộc sơn này dính vào người sao?"
+Cố Hữu hỏi: “Bằng hữu trên núi của ngươi? Thật không sợ bị đám thích khách này bám riết sao?”
 
-Trần Bình An cười trả lời: "Dù sao là một người bạn thân, kiên nhẫn còn tốt hơn cả ta, không sợ nhất những người hóa sắc này. Hắn giúp ta, ta không có gì để cảm ơn."
+Trần Bình An cười đáp: “Dù sao cũng là bằng hữu thân thiết. Hắn còn kiên nhẫn hơn ta, chẳng ngại nhất là hạng người này. Hắn giúp ta, ta cũng chẳng có gì để cảm tạ.”[?]
 
-Cố Hữu nhẹ gật đầu.
+Cố Hữu khẽ gật đầu.
 
-Ông nói: "Lần này ta thật sự muốn đi, ba kẻ còn lại, lưu lại cho ngươi xử lý?"
+Lão nói: “Lần này ta thật sự phải đi. Ba tên còn lại để ngươi xử lý?”
 
-Trần Bình An cười khổ: "Cố tiền bối, thật không được."
+Trần Bình An cười khổ: “Cố tiền bối, thật không được đâu.”
 
-Cố Hữu cười hỏi: "Vậy làm sao nói?"
+Cố Hữu cười hỏi: “Vậy tính sao?”
 
-Trần Bình An ngồi xếp bằng, hai tay chống trên đầu gối, "Vậy vãn bối muốn học hỏi Cố tiền bối một chút về Hám Sơn quyền trong đời này!"
+Trần Bình An ngồi xếp bằng, hai tay chống gối: “Vậy vãn bối xin được học Hám Sơn quyền một đời của Cố tiền bối!”
 
-Những thích khách Cát Lộc sơn sẽ chết cũng không chịu tiết lộ bí mật, điều này, Trần Bình An đã lĩnh giáo qua.
+Thích khách Cát Lộc sơn đến chết cũng không chịu để lộ bí mật, chuyện này hắn đã lĩnh giáo.
 
-Cố Hữu trầm giọng nói: "Ngồi học quyền? Còn không mau đứng dậy!"
+Cố Hữu trầm giọng: “Ngồi mà học quyền? Còn không đứng lên!”
 
-Trần Bình An hơi nghiêng ngả, nhưng vẫn vững vàng đứng dậy, trong lòng lại rất chính trực.
+Trần Bình An hơi lảo đảo, nhưng vẫn đứng vững, tâm ý ngay ngắn.
 
-Như là đọc sách biết chữ, sau đó bắt chước viết chữ.
+Cũng như đọc sách biết chữ, rồi mới tập viết theo.
 
-Lão nhân trong áo xanh dài, hai đầu gối hơi cong, cổ tay nhéo một cái, bàn tay nắm chặt rồi từ từ đưa ra phía trước. Một tay nắm chặt, nhưng lại co lại. "Ta Hám Sơn quyền, nhấn mạnh vào một quyền đối địch, một quyền thể hiện tâm ý, nên dù là đối mặt với bất kỳ ai, chỉ cần quyền ý không tiêu tan, người chết vẫn còn có thể ra một quyền! Mặc cho ngươi có thuật pháp thần thông đến đâu, ta Hám Sơn quyền, vẫn có thể khai sơn! Đây là cảm ngộ của ta Cố Hữu ở thời điểm bảy cảnh, mới có thể viết ra bộ quyền phổ này. Ngươi Trần Bình An nếu muốn tương lai vượt qua ta, thì cần phải có sự ngộ ra chứ không thể chỉ dựa vào ý niệm hời hợt!"
+Lão nhân thanh y hơi chùng gối, vặn cổ tay, nắm chặt bàn tay rồi chậm rãi đưa ra trước. Tay còn lại cũng nắm quyền, thu về bên người. “Hám Sơn quyền của ta, một quyền đối địch, một quyền bày tỏ tâm ý. Bởi vậy gặp bất kỳ ai, chỉ cần quyền ý chưa tan, người chết rồi vẫn có thể ra thêm một quyền! Mặc ngươi thuật pháp thần thông, Hám Sơn quyền của ta vẫn khai sơn được! Đó là cảm ngộ của Cố Hữu ta thuở thất cảnh, nhờ thế mới viết ra bộ quyền phổ này. Trần Bình An ngươi muốn sau này vượt qua ta thì phải thật sự lĩnh ngộ, đừng chỉ nghĩ hời hợt trong đầu!”
 
-Ba vị thích khách Cát Lộc sơn bắt đầu điên cuồng trốn chạy, một người cưỡi gió bay xa, một người thì sát đất phóng nhanh, một người thì thi triển thần thông, hóa thành khói xanh.
+Ba thích khách Cát Lộc sơn điên cuồng bỏ chạy. Một người ngự phong bay xa, một người lướt sát mặt đất, một người thi triển thần thông hóa thành khói xanh.
 
-Lão nhân giày vải tự tách ra, rồi áp dụng tốc độ nhanh chóng, một quyền giáng xuống.
+Lão nhân tách đôi chân đi giày vải, chợt tăng tốc, giáng xuống một quyền.[?]
 
-Rồi lại đổi chiều, một quyền đánh ra một đòn khác, và một lần nữa, một quyền chỉ lên trời.
+Lại đổi hướng, lão đánh ra quyền nữa, rồi tung thêm một quyền lên trời.
 
-Trần Bình An mở to mắt, đuổi theo thân hình lão nhân trong áo xanh.
+Trần Bình An mở to mắt, dõi theo bóng thanh y.
 
-Hóa ra đây mới thực sự là Hám Sơn quyền.
+Thì ra đây mới thật là Hám Sơn quyền.
 
-Không đơn thuần là Cố Hữu dùng mười cảnh vũ phu mà thi triển ba quyền mà thôi.
+Không chỉ đơn giản là Cố Hữu dùng tu vi võ phu thập cảnh đánh ba quyền.
 
-Mà lại là Hám Sơn quyền, quyền ý thực sự có thể... vĩ đại như vậy!
+Mà là quyền ý Hám Sơn quyền thật sự có thể... lớn lao đến vậy!
 
-Điểm yếu và kết quả của quyền cương nằm ở đâu, Trần Bình An căn bản không cần hay không muốn nhìn.
+Quyền cương đánh vào đâu, kết quả ra sao, Trần Bình An căn bản chẳng cần, cũng không muốn nhìn.[?]
 
-Cố Hữu thu quyền, đứng lại, hỏi: "Thế nào?"
+Cố Hữu thu quyền, đứng lại, hỏi: “Thế nào?”
 
-Trần Bình An chậm rãi nói: "Dường như thấy quyền như luyện kiếm vậy."
+Trần Bình An chậm rãi đáp: “Dường như thấy luyện quyền cũng giống luyện kiếm.”
 
-Cố Hữu cười nhạo: "Luyện kiếm? Luyện được kiếm tiên thì sao, ta chuyến này đến Đại Triện giết đúng là một vị kiếm tiên."
+Cố Hữu cười nhạo: “Luyện kiếm? Luyện thành kiếm tiên thì sao? Chuyến này ta đến Đại Triện là giết một kiếm tiên đấy.”
 
-Trần Bình An gãi đầu, nói: "Có người từng nói qua, luyện quyền tức là luyện kiếm."
+Trần Bình An gãi đầu: “Từng có người nói, luyện quyền chính là luyện kiếm.”
 
-Cố Hữu gật đầu: "Cũng có lý, hơn nữa cách nghĩ vẫn tương tự. Chết vạn quyền pháp, sống ra một loại quyền ý, mới thật sự gọi là luyện quyền."
+Cố Hữu gật đầu: “Cũng có lý, cách nghĩ vẫn giống nhau. Từ muôn vạn quyền pháp chết, luyện ra một quyền ý sống, mới thật sự gọi là luyện quyền.”
 
-Trần Bình An ánh mắt sáng rực, "Đúng rồi!"
+Mắt Trần Bình An sáng rực: “Đúng vậy!”
 
-Cố Hữu bỗng nhiên nói: "Thôi Thành quyền pháp cao thấp khó mà nói, uy lực thực sự chỉ bình thường. Nếu là ta Cố Hữu, bảo đảm ngươi Trần Bình An sẽ trở thành cảnh mạnh nhất!"
+Cố Hữu bỗng nói: “Quyền pháp Thôi Thành cao thấp thế nào còn khó nói, nhưng uy lực thật cũng chỉ thường. Đổi lại là Cố Hữu ta, bảo đảm Trần Bình An ngươi trở thành người mạnh nhất cảnh giới!”
 
-Trần Bình An không thể trả lời.
+Trần Bình An không đáp được.
 
-Đôi môi Trần Bình An mấp máy, tuy nhiên vẫn không thể thốt lên lời.
+Môi hắn mấp máy, vẫn không thốt nên lời.
 
-Cố Hữu lắc đầu, ý bảo người trẻ tuổi không cần nói nhiều.
+Cố Hữu lắc đầu, ra hiệu người trẻ tuổi không cần nói thêm.
 
-Cuối cùng, Trần Bình An chỉ có thể ôm quyền lịch sự đưa tiễn.
+Cuối cùng, Trần Bình An chỉ có thể ôm quyền, cung kính tiễn biệt.
 
-Cố Hữu cũng ôm quyền cáo biệt.
+Cố Hữu cũng ôm quyền cáo từ.
 
-Không quan trọng cảnh giới, không quan trọng tuổi tác.
+Không kể cảnh giới, không kể tuổi tác.
 
-Trong thế gian Hám Sơn quyền, trước có Cố Hữu, sau có Trần Bình An.
+Hám Sơn quyền trong thiên hạ, trước có Cố Hữu, sau có Trần Bình An.
+
+---
+
+Ghi chú biên tập: Chương này được viết lại từ bản Việt, chưa đối chiếu nguyên tác. Dấu [?] chỉ các chỗ nguồn cần kiểm tra:
+
+- Phần loại Lý Nhị ra khỏi ba võ phu bản thổ có cụm “có thể ra ngoài trời đi”; chưa rõ chính xác tiêu chí so sánh.
+- Câu hỏi thuở nhỏ luyện quyền, câu “khá là không khó, ra quyền là chén cơm”, và lời nói về tuổi thọ, gia tộc, con cháu đều có vế lủng nghĩa.
+- Câu nhắc sức nặng của quyền trong hố có phủ định “không phải là điều nào nặng nề”; đoạn đánh giá sự kính trọng dành cho Thôi Thành và đoạn phân biệt đúng sai cũng lẫn các tầng phủ định. Bản viết lại chỉ tạm nối theo mạch kể.
+- Tên ba tầng cảnh giới được chuyển từ “khí thịnh, quy chân, thần đến”; quan hệ giữa cảnh giới tận cùng và “truyền thuyết giữa cảnh giới” còn thiếu rõ ràng. Lời cảnh báo võ vận có cụm “chết đi mà mang theo võ vận ở Bắc Câu Lô Châu”, chưa chắc chiều chuyển võ vận.
+- Lời tự đánh giá quyền phổ có hình ảnh “bội thực mà chết”; câu giữ thể diện có cụm “yếu điểm mặt”; câu “duy tình duy thực” chưa được kiểm chứng nguyên văn.
+- Câu điều kiện ở đoạn trách thích khách ghi “Nếu như ta ra tay trước, các ngươi vây bắt người này”, nhưng câu sau lại đối lập với việc bọn họ tiếp tục ở lại sau khi Cố Hữu ra tay. Bản viết lại tạm hiểu lần vây bắt đầu là trước khi lão ra tay. Cụm “sửa nhà dột” được tạm diễn đạt là nhặt của hời. Lời chất vấn quy củ sau đó vẫn lẫn chủ thể “biến mất” và bên phải hiểu quy củ bên kia.
+- Câu sau khi giết tu sĩ Nguyên Anh có cụm “một vị Nguyên Anh tu sĩ Kim Đan” và “không gian căng thẳng... giải tỏa”; chưa rõ chính xác đối tượng bị đánh và sắc thái chuyển cảnh.
+- Mưu dụ thích khách có cụm “đám mồi đón bọ ngựa”; lời nói về bằng hữu có cụm “những người hóa sắc”. Bản viết lại giữ ý mồi nhử và bằng hữu giúp đối phó thích khách theo ngữ cảnh.
+- Động tác đầu của Cố Hữu có cụm “giày vải tự tách ra”; câu cuối về nơi quyền cương đánh tới lại dùng “điểm yếu và kết quả”. Chưa xác minh được động tác và thuật ngữ chính xác.

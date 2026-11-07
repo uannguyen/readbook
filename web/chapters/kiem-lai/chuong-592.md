@@ -1,609 +1,609 @@
 # Chương 592: Núi Lạc Phách của cải
 
-Trần Bình An, sau khi thu chân về từ khe nước, liên tiếp phun ra một luồng khí trọc. Tay phải của hắn run nhẹ, cổ tay chấn động, khiến một ít tro tàn rơi lả tả xuống.
+Trần Bình An rút chân khỏi khe nước, chậm rãi thở ra một hơi trọc khí. Tay phải hắn run nhẹ, cổ tay khẽ chấn động, một ít tro tàn liền rơi lả tả.
 
-Trước đó, cánh tay phải của Trần Bình An đã bị Cát Lộc Sơn thích khách giam cầm bằng Phật môn thần thông, và giờ đây nhân quả đó đã bị triệt để đánh xơ xác, chỉ còn lại tro tàn.
+Trước kia, thích khách núi Cát Lộc dùng thần thông Phật môn giam giữ cánh tay phải của hắn. Đến giờ, mối nhân quả ấy mới bị đánh tan hoàn toàn, chỉ còn chút tro tàn.
 
-Tề Cảnh Long, với tư cách là người sắp phá cảnh Nguyên Anh kiếm tu, sau khi bình phẩm trận ám sát sông, cũng đã sử dụng câu "Hung hiểm muôn phần". Điều này cho thấy Phật gia thần thông có thể chiếm được một nửa sức mạnh.
+Ngay cả Tề Cảnh Long, vị kiếm tu Nguyên Anh sắp phá cảnh, khi nói tới trận ám sát trên sông cũng dùng bốn chữ “hung hiểm muôn phần”. Có thể thấy, thần thông Phật gia kia chiếm tới một nửa phần hung hiểm.
 
-Trần Bình An ngồi xổm xuống, dùng hai tay vốc nước rửa mặt. Hắn ngắm nhìn hình bóng mình trong nước, nghiêng đầu, và lấy tay vuốt phần râu cằm rậm rạp, bận tâm không biết mình có biến thành một người như Từ Viễn Hà, với bộ râu dày đặc hay không.
+Trần Bình An ngồi xổm xuống, vốc nước bằng hai tay rửa mặt. Nhìn bóng mình dưới nước, hắn nghiêng đầu, đưa tay vuốt đám râu cằm đã khá rậm, hơi lo sau này mình cũng sẽ thành một hán tử râu ria xồm xoàm như Từ Viễn Hà.
 
-Trần Bình An thò tay vào nước, mở rộng bàn tay, nhẹ nhàng chúi xuống. Khi đó, dòng nước ở khe đã bỗng nhiên ngừng lại, rồi lại tiếp tục chảy như thường.
+Hắn thò tay xuống nước, xòe bàn tay, nhẹ nhàng ấn xuống. Nước trong khe chợt ngừng lại, rồi lại chảy như cũ.
 
-Hắn chuyển đổi thủ thế, vẽ những vòng tròn bằng bàn tay, khiến cho dòng nước tại chân suối tạo thành vòng xoáy ngày càng lớn. Tuy nhiên, Trần Bình An rất nhanh đã dừng lại động tác, làm cho dòng suối lần nữa trở nên tĩnh lặng.
+Đổi thế tay, hắn vẽ từng vòng tròn, khiến một xoáy nước dưới chân mỗi lúc một lớn. Nhưng chẳng mấy chốc hắn đã thu tay, dòng khe lại êm đềm.
 
-Trước đây, khi cùng Trương Sơn Phong du lịch, hắn thường ngắm nhìn các đạo sĩ trẻ tuổi phối hợp khoa tay múa chân, tuy vừa là quyền vừa là chưởng nhưng ý tứ thì rất cổ quái. Trần Bình An đã học được chút ít tư thế, nhưng cảm thấy không đúng. Thực ra, điều này khá kỳ quái. Nếu nói về sức mạnh quyền pháp, Trương Sơn Phong không phải là đối thủ của Trần Bình An. Hơn nữa, Trần Bình An đã học quyền rất nhanh, giống như khi ở Ngẫu Hoa phúc địa, Chủng Thu phô diễn quyền khung giáo đại long, và hắn cũng có thể thi triển tương tự. Tuy vậy, vẫn chưa thể học được quyền pháp của Trương Sơn Phong.
+Trước kia đi cùng Trương Sơn Phong, hắn thường thấy vị đạo sĩ trẻ tuổi vừa đi vừa khoa tay múa chân. Quyền chẳng hẳn quyền, chưởng chẳng hẳn chưởng, ý vị rất lạ. Trần Bình An học được vài tư thế mà vẫn thấy không đúng. Nghĩ cũng kỳ, nếu so quyền cước, Trương Sơn Phong vốn không phải đối thủ của hắn. Hắn học quyền lại rất nhanh. Năm đó ở Ngẫu Hoa phúc địa, Chủng Thu diễn bộ quyền giá “giáo đại long”, hắn xem rồi cũng có thể đánh ra gần giống. Vậy mà quyền pháp của Trương Sơn Phong, hắn vẫn không học nổi.
 
-Lúc này, Trần Bình An không suy nghĩ quá sâu, chỉ cho rằng quyền pháp của Trương Sơn Phong là một loại độc môn dưỡng khí công phu từ các đạo nhân tu hành. Tầng dưới cùng giang hồ vũ phu thường bị coi là võ kỹ năng, là vì họ chỉ biết cách đánh mà không hiểu chân ý thực sự, cuối cùng mới chú trọng vào môn đạo. Chỗ sâu xa hơn chính là thần ý, một loại cảnh giới huyền diệu khó giải thích. Cùng một quyền pháp, nhưng quyền ý có thể có rất nhiều độ lệch.
+Bấy giờ Trần Bình An không nghĩ sâu, chỉ cho rằng đó là công phu dưỡng khí riêng của đạo sĩ. Võ phu ở tầng thấp nhất giang hồ chỉ biết đánh, không hiểu chân ý, cho nên võ nghệ mới bị coi là kỹ xảo. Lên cao hơn mới bắt đầu coi trọng môn đạo. Sâu hơn nữa là thần ý, một cảnh giới huyền diệu khó nói thành lời. Cùng một bộ quyền pháp, quyền ý lại có thể khác nhau rất xa.
 
-Trần Bình An đứng dậy, đi đến một chỗ trống, chậm rãi giãn gân cốt.
+Trần Bình An đứng dậy, tìm chỗ trống, chậm rãi giãn gân cốt.
 
-Luyện ra một viên anh hùng gan, là điều chốt lõi của sáu cảnh.
+Luyện thành một lá gan anh hùng, đó là then chốt của lục cảnh.
 
-Cái gọi là anh hùng gan không phải là một vật dụng thực tế, mà là một phần chân khí tinh khiết cùng với tu dưỡng vũ phu. Ý nghĩa của nó rất lớn, giống như những người tu đạo Kim Đan.
+Cái gọi là gan anh hùng chẳng phải một vật có hình có dạng, mà thuộc về luồng chân khí thuần túy cùng căn cơ của võ phu. Với võ phu, nó có ý nghĩa lớn lao chẳng khác nào Kim Đan đối với tu sĩ.
 
-Trần Bình An trước đó nói mình chỉ còn thiếu hai điểm ý tứ để phá cảnh, hôm nay đã có một viên anh hùng gan, chỉ còn lại một chút ý tứ cuối cùng. Trên thực tế, hắn đã đạt đến trình độ bền bỉ hơn cả Kim thân cảnh từ lâu. Thôi Thành và Chu Liễm đã luận bàn tận thuộc, rèn luyện giữa thiên kiếp lôi vân và những lần chiến đấu trên con đường dài. Hơn nữa, việc siêng năng luyện quyền đã giúp hắn tích lũy từng ly từng tý, đều nằm trong hành trình tu hành thuần túy của vũ phu.
+Trước đó Trần Bình An nói mình còn thiếu hai phần ý vị mới phá cảnh được. Hôm nay đã có gan anh hùng, chỉ còn thiếu phần cuối cùng. Thật ra, thân thể hắn từ lâu đã bền bỉ hơn cả võ phu Kim Thân cảnh. Những lần Thôi Thành, Chu Liễm luận bàn, mài giũa hắn, những phen rèn thân giữa lôi vân thiên kiếp cùng các trận chém giết dọc đường, rồi từng chút tích lũy nhờ ngày ngày luyện quyền, tất cả đều nằm trên con đường tu hành của võ phu thuần túy.
 
-Nhưng điểm này rất có thể chính là đại bình cảnh. Khoảng cách đến Kim thân cảnh chỉ là một bước ngăn cách trời cao.
+Nhưng phần ý vị cuối cùng ấy rất có thể chính là một bình cảnh lớn. Chỉ một bước tới Kim Thân cảnh, mà cũng có thể xa như trời với đất.
 
-Trần Bình An không nóng vội, bình cảnh càng lớn càng tốt, cơ hội giành được mạnh nhất của sáu cảnh sẽ lớn hơn.
+Trần Bình An không vội. Bình cảnh càng lớn càng tốt, cơ hội giành danh lục cảnh mạnh nhất càng cao.
 
-"Hai chữ mạnh nhất" mà hắn trước đây hầu như chưa bao giờ nghĩ tới, năm đó khi đạt mạnh nhất tam cảnh tại núi Lạc Phách lầu trúc, là nhờ vào sự rèn luyện khắt khe của lão nhân từng quyền từng quyền. Điều này không liên quan gì đến hắn, Trần Bình An không thể không từ chối, chọn là không muốn.
+Hai chữ “mạnh nhất”, trước đây hắn gần như chẳng nghĩ tới. Năm đó thành võ phu tam cảnh mạnh nhất trong lầu trúc núi Lạc Phách, đều là lão nhân từng quyền từng quyền ép ra. Bản thân hắn chẳng có bao nhiêu lựa chọn, muốn từ chối, muốn không nhận cũng không được.[?]
 
-Trần Bình An nhanh chóng nhận ra chính mình: "Phải biết cái gì là của mình thì phải cố gắng lấy cho tốt. Những thứ không phải của mình thì đừng nghĩ tới". Điều này giống như tấm biển của Phật gia trong Bàng Giải phường: "Mạc hướng ngoại cầu", nói rằng mệnh trong tám thước, đừng cầu một trượng. Điều này trở thành đạo lý hiển nhiên trong hắn, là nước chảy thành sông, và vì vậy Trần Bình An trong suốt năm tháng qua mọi hành động nói chuyện đều đã bị ảnh hưởng một cách vô thức.
+Trần Bình An sớm tự nhủ: thứ thuộc về mình thì phải cố sức giữ lấy; thứ không thuộc về mình, đừng nghĩ tới. Cũng như tấm biển Phật gia ở phường Bàng Giải khắc câu “Mạc hướng ngoại cầu”, hay lời nói số mệnh chỉ có tám thước thì đừng cầu một trượng. Những ý nghĩ ấy dần thành đạo lý hiển nhiên trong lòng hắn, tựa nước chảy thành sông, âm thầm ảnh hưởng tới lời nói, việc làm của hắn suốt bao năm.
 
-Tương tự như Lão Long, đã từng bị Trần Bình An đánh lui liên tục hai lần. Hơn nữa, Trần Bình An gần như không muốn chủ động vào động thiên phúc địa để tìm kiếm cơ duyên, mà thích "nhặt ve chai kiếm tiền lẻ".
+Chẳng hạn con lão long từng bị Trần Bình An liên tiếp đánh lui hai lần. Cũng vì vậy, hắn gần như chẳng bao giờ chủ động vào động thiên phúc địa tranh cơ duyên, mà thích “nhặt ve chai kiếm tiền lẻ” hơn.[?]
 
-Như con người thấy khe nước, thường chỉ thấy nước chảy róc rách, nhưng không thấy dòng sông sâu bên dưới.
+Người ta nhìn một khe nước, thường chỉ thấy nước róc rách bên trên, chẳng thấy dòng chảy sâu ở phía dưới.
 
-Trần Bình An cũng từng không ngoại lệ, đó là chuyến du lịch của hắn tại Bắc Câu Lô Châu. Không ngừng quan sát người tu hành và tự vấn lương tâm, từ từ hắn đã bắt đầu suy nghĩ thông suốt những điều đạo lý.
+Trần Bình An trước kia cũng vậy. Trong chuyến đi Bắc Câu Lô Châu, nhờ không ngừng quan sát người tu hành, lại tự vấn lòng mình, hắn mới dần nghĩ thông những đạo lý ấy.
 
-Biết người người trí. Tự biết người minh.
+Biết người là trí, biết mình là minh.
 
-Điều này thật khó khăn.
+Thật chẳng dễ dàng.
 
-Tất cả những điều nhận biết đó lần lượt được cân nhắc, cuối cùng làm rõ những nét chính của vấn đề học vấn, mới thực sự thuộc về cái đạo lý của riêng Trần Bình An.
+Từng nhận thức ấy phải được cân nhắc cho rõ, gỡ ra đường nét của học vấn bên trong, cuối cùng mới thật sự trở thành đạo lý thuộc về Trần Bình An.
 
-Lần nữa, hắn ngồi bên cạnh khe nước, nhìn về phía nam, không biết nhớ ra điều gì đó, rồi nở nụ cười và làm một cái gõ gõ đầu thủ thế. Hắn tự hỏi không biết hôm nay Bùi Tiễn bên kia trường tư đọc sách như thế nào.
+Hắn lại ngồi bên khe nước, nhìn về phương nam. Không biết nghĩ tới điều gì, hắn mỉm cười, đưa tay làm động tác gõ đầu. Chẳng biết bây giờ Bùi Tiễn đọc sách ở tư thục ra sao rồi.
 
-Một chiếc thuyền từ Hài Cốt ghềnh Phi Ma tông vượt biển, chầm chậm cập bờ tại Long Tuyền quận, dưới núi Ngưu Giác.
+Một chiếc đò của Phi Ma tông, từ bãi Hài Cốt vượt biển tới, chậm rãi ghé bến núi Ngưu Giác ở quận Long Tuyền.
 
-Một nữ tử dáng người thướt tha, đội mũ có vải che mặt, trong tay cầm gậy leo núi, bên cạnh đi theo một người toả ra khí tức Kim Đan hộ đạo.
+Một nữ tử dáng người thướt tha, đội mũ che mặt, tay cầm gậy leo núi bước xuống. Đi bên cạnh nàng là người hộ đạo đang để lộ khí tức Kim Đan.
 
-Đó chính là Tùy Cảnh Rừng, kiếm tu Nguyên Anh từ Phù Bình đang xuôi nam.
+Đó là Tùy Cảnh Rừng, người theo vị kiếm tu Nguyên Anh xuất thân Phù Bình xuôi nam.[?]
 
-Sau khi chiếc thuyền vào khu vực Bảo Bình châu, Tùy Cảnh Rừng thường rời khỏi phòng, đến đầu thuyền để quan sát các dãy núi sông khác.
+Từ khi đò vào địa phận Bảo Bình châu, nàng thường rời phòng lên mũi đò, ngắm cảnh sơn hà khác lạ.
 
-Dưới chân hắn chính là Đại Ly vương triều.
+Dưới chân chính là vương triều Đại Ly.
 
-Vinh Sướng, trước đây đã vào động thiên làm phúc địa Long châu, nhìn xa thấy núi Phi Vân, khẽ cảm khái: "Sơn thủy khí tượng kinh người, thật không hổ là Bắc Nhạc."
+Vinh Sướng từng vào động thiên Ly Châu, nay đã hóa thành phúc địa Long châu. Hắn nhìn núi Phi Vân phía xa, khẽ cảm khái: “Khí tượng sơn thủy kinh người, quả không hổ là Bắc Nhạc.”
 
-Bắc Câu Lô Châu cũng có nhiều núi Ngũ Nhạc, nhưng so với nơi này với núi Phi Vân sừng sững thì vẫn kém xa.
+Bắc Câu Lô Châu có không ít núi thuộc Ngũ Nhạc các nước, nhưng so với ngọn Phi Vân sừng sững trước mắt vẫn thua xa.
 
-Nghe nói thần núi Bắc Nhạc, Ngụy Bách sắp bước vào cảnh giới Ngọc Phác, khiến Vinh Sướng không khỏi cảm thán. Núi cao thần chích tọa trấn nhà mình, tương đương với thánh nhân trấn giữ bố cục tiểu thiên địa, cần có người dốc lên một cấp độ để đối đãi. Ngụy Bách một khi đạt đến tu vi Ngọc Phác cảnh, Đại Ly sẽ có được một vị Tiên Nhân cảnh Kim Thân chích, chiến lực thật ra không quan trọng lắm, quan trọng là vận mệnh quốc gia Đại Ly, toàn bộ khu vực Bắc Nhạc sơn thủy linh khí, văn võ số mệnh, vì vậy mà càng củng cố.
+Nghe nói sơn thần Bắc Nhạc Ngụy Bách sắp bước vào Ngọc Phác, Vinh Sướng càng cảm thán. Sơn thần tọa trấn chính ngọn núi của mình cũng như thánh nhân ở trong tiểu thiên địa, phải tính cao thêm một cảnh giới mới đúng. Một khi Ngụy Bách thành Ngọc Phác, Đại Ly chẳng khác nào có thêm một vị thần linh kim thân Tiên Nhân cảnh. Chiến lực vẫn chưa phải chuyện quan trọng nhất. Quốc vận Đại Ly, linh khí sơn thủy cùng văn vận, võ vận của cả vùng Bắc Nhạc nhờ đó càng được củng cố, mới là chỗ đáng nói.
 
-Theo lời Tùy Cảnh Rừng, mối quan hệ giữa Ngụy Bách và vị tiền bối kia rất tâm đầu ý hợp.
+Theo lời Tùy Cảnh Rừng, Ngụy Bách và vị tiền bối kia giao tình rất tốt.
 
-Màn đêm nặng nề, số lượng thuyền tại núi Ngưu Giác không nhiều, do đó chiếc Phi Ma tông thuyền bị nhiều ánh mắt chú ý.
+Đêm đã sâu, đò ở núi Ngưu Giác không nhiều, chiếc đò Phi Ma tông vừa tới liền thu hút không ít ánh mắt.
 
-Thuyền tối nay sẽ lưu lại nơi này một ngày, đêm mai mới tiếp tục lên đường, đồng thời giúp hành khách Bắc Câu Lô Châu du lãm nơi này nghiền ngẫm về cũ động thiên. Nghe nói tại núi Ngưu Giác có một cửa hàng tiên gia mới khai trương, nhưng liệu có thể sửa mái nhà dột hay không còn phụ thuộc vào tài lực và nhãn lực của các bằng hữu. Tuy nhiên, người phụ trách thuyền Phi Ma tông cũng biết rằng hành khách đến Bảo Bình châu Bắc Nhạc sẽ không giống như ở Bắc Câu Lô Châu, mà tại Long Tuyền quận còn có miếu Phong Tuyết, nơi thánh nhân Nguyễn Cung tọa trấn. Quy củ rất nghiêm ngặt, không thể tùy ý cưỡi gió ngự kiếm. Bất kỳ ai sau khi hạ thuyền gây ra phiền toái đều không thể trách Phi Ma tông đứng ngoài quan sát.
+Đò sẽ ở đây một ngày, tới đêm mai mới tiếp tục lên đường, để khách từ Bắc Câu Lô Châu có dịp thăm thú vùng đất vốn là động thiên này. Nghe nói trên núi Ngưu Giác vừa mở một cửa hàng tiên gia, có nhặt được món hời hay không phải xem túi tiền cùng nhãn lực của mỗi người. Người quản sự đò Phi Ma tông cũng nhắc khách, Bắc Nhạc Bảo Bình châu chẳng giống Bắc Câu Lô Châu. Ở quận Long Tuyền có thánh nhân Nguyễn Cung xuất thân miếu Phong Tuyết tọa trấn, quy củ nghiêm ngặt, không thể tùy ý ngự phong, ngự kiếm. Ai xuống đò gây chuyện thì đừng trách Phi Ma tông khoanh tay đứng nhìn.
 
-Bến đò xuất hiện một vị phu tử áo trắng mang phong thái như thần, với một chiếc khuyên tai màu vàng lấp lánh bên tai. Gương mặt hắn tươi cười, nhìn về phía Tùy Cảnh Rừng và Vinh Sướng.
+Một nam tử bạch y phong thái như thần tiên đã đợi ở bến, bên tai đeo khuyên vàng lấp lánh. Hắn mỉm cười nhìn Tùy Cảnh Rừng và Vinh Sướng.
 
-Bên cạnh hắn, những linh tước bay lượn quanh quẩn, mờ ảo trong ánh chiều tà.
+Vài con linh tước bay lượn bên người hắn, thấp thoáng trong ánh sáng mờ.
 
-Vinh Sướng không thể đoán được đối phương có thực lực ra sao, nhưng thân phận của hắn rất hiển nhiên. Nguyên nhân là vì hắn là vị sơn thần cao nhất của Bảo Bình Châu, Ngụy Bách.
+Vinh Sướng chẳng dò nổi sâu cạn của đối phương, nhưng thân phận thì rõ ràng: vị sơn thần có địa vị cao nhất Bảo Bình châu, Ngụy Bách.
 
-Tùy Cảnh Rừng bước nhanh về phía trước, nhẹ giọng hỏi: "Ngươi có phải là Ngụy sơn thần không?"
+Tùy Cảnh Rừng bước nhanh tới, khẽ hỏi: “Ngài là Ngụy sơn thần phải không?”
 
-Ngụy Bách nhìn chiếc gậy leo núi trong tay Tùy Cảnh Rừng, vẫy tay để những linh tước bay đi. Sau đó, hắn mỉm cười gật đầu, nói: "Ta đã nhận được phi kiếm đưa tin, đã đến đây để nghênh đón các ngươi."
+Ngụy Bách nhìn chiếc gậy leo núi trong tay nàng, phất tay cho đám linh tước bay đi, rồi mỉm cười gật đầu: “Ta nhận được phi kiếm truyền tin, nên tới đây đón hai người.”
 
-Vinh Sướng có chút ngạc nhiên. Ai có thể ngờ được rằng sơn thần trên cao lại thân thiện như vậy? Dù sao thì họ cũng chỉ là những người lạ từ một nơi xa đến.
+Vinh Sướng hơi ngạc nhiên. Sơn thần cao cao tại thượng lại hòa nhã đến vậy, trong khi bọn họ chỉ là khách lạ từ xa tới.
 
-Trước đây ở Bảo Bình Châu, khi Vinh Sướng còn là một Nguyên Anh kiếm tu, hắn cũng nhận được sự đãi ngộ tương tự, nhưng tại Đại Ly núi Phi Vân, hắn không cảm thấy mình có được vinh dự lớn đến thế.
+Trước kia, với thân phận kiếm tu Nguyên Anh tới Bảo Bình châu, hắn cũng từng được tiếp đãi như thế. Nhưng đứng ở núi Phi Vân Đại Ly, hắn không cho rằng mình có thể diện lớn tới vậy.
 
-Nơi đây năm xưa vốn là động thiên địa bàn của Ly Châu, không phải chỉ có thiên tài, đây còn là nơi có rất nhiều bậc thần tiên.
+Nơi này vốn là động thiên Ly Châu, chẳng những lắm kỳ tài mà còn là nơi thần tiên nối nhau xuất thế.
 
-Bắc Câu Lô Châu có thiên quân Tạ Thực, Nam Bà Sa Châu có kiếm tiên Tào Hi, hai người đều xuất thân từ những nơi khiêm tốn.
+Thiên quân Tạ Thực ở Bắc Câu Lô Châu, kiếm tiên Tào Hi ở Nam Bà Sa Châu đều xuất thân từ những nhà hàn vi nơi đây.
 
-Vì vậy, khi đến nơi này, ai cũng đừng nên tự mãn với cảnh giới của mình, chỉ là một trò cười mà thôi.
+Cho nên tới chỗ này, ai cũng đừng lấy cảnh giới của mình ra tự đắc, chỉ tổ làm trò cười.
 
-Tùy Cảnh Rừng có chút lo lắng, nói: "Xin lỗi, đã làm phiền Ngụy sơn thần rồi."
+Tùy Cảnh Rừng hơi ngại: “Làm phiền Ngụy sơn thần rồi.”
 
-Ngụy Bách vẫy tay, với nụ cười hiền hòa: "Tùy cô nương không cần khách khí như thế. Tiếp theo, ngươi muốn đi dạo quanh núi Ngưu Giác Bao Phục hay là trực tiếp đi lên núi Lạc Phách?"
+Ngụy Bách khoát tay, cười ôn hòa: “Tùy cô nương đừng khách khí. Tiếp theo, muốn dạo Bao Phục Trai trên núi Ngưu Giác trước, hay tới thẳng núi Lạc Phách?”
 
-Tùy Cảnh Rừng đáp: "Chúng ta sẽ đi lên núi Lạc Phách trước."
+Tùy Cảnh Rừng đáp: “Xin tới núi Lạc Phách trước.”
 
-Ngụy Bách nhẹ gật đầu, thi triển thần thông, đưa Tùy Cảnh Rừng và Vinh Sướng đến chân núi Lạc Phách.
+Ngụy Bách khẽ gật đầu, thi triển thần thông, đưa hai người tới chân núi Lạc Phách.
 
-Vinh Sướng trong lòng cảm thấy chấn động. Vị sơn thần của Đại Ly Bắc Nhạc này, tải một thân trên năm cảnh, chẳng có vấn đề gì. Thiên nhiên sơn thủy hài hòa làm cho hắn cực kỳ ấn tượng.
+Trong lòng Vinh Sướng chấn động. Vị sơn thần Bắc Nhạc Đại Ly này chắc chắn đã có tu vi thượng ngũ cảnh. Khí tức sơn thủy hòa hợp với tự nhiên ấy khiến hắn khắc sâu ấn tượng.
 
-Dù đã bay qua hàng ngàn dặm núi sông, Vinh Sướng nhận ra chiếc phi kiếm bổn mạng của mình không hề có bất kỳ phản ứng nào.
+Chỉ thoáng qua nghìn dặm sơn hà mà thanh phi kiếm bản mệnh của hắn không hề có phản ứng.
 
-Ngụy Bách xin lỗi, nói: "Dù sao cũng là Trần Bình An tại đỉnh núi, ta không thể trực tiếp dẫn các ngươi vào giữa sườn núi. Xin mời Tùy cô nương và Vinh kiếm tiên tự mình bước lên núi."
+Ngụy Bách áy náy nói: “Dù sao đây cũng là đỉnh núi của Trần Bình An, ta không tiện đưa hai người tới thẳng lưng chừng núi. Mời Tùy cô nương và Vinh kiếm tiên đi bộ lên vậy.”
 
-Khi đến cửa chính sơn môn, một hán tử lưng còng, không mang giày, vừa tháo chân ra đã vội vàng chạy ra, nhìn thấy vị nữ tử có chiếc mũ che mặt ấy thì không muốn nhìn thêm về phía nam nhân nữa.
+Vừa tới sơn môn, một hán tử lưng còng đã vội tháo giày chạy ra. Thấy nữ tử đội mũ che mặt, hắn chẳng buồn nhìn nam tử đi cùng thêm lần nào.
 
-Ngụy Bách giới thiệu: "Vị này là Trịnh Đại Phong, người trông giữ cửa núi Lạc Phách."
+Ngụy Bách giới thiệu: “Đây là Trịnh Đại Phong, người giữ sơn môn núi Lạc Phách.”
 
-Trịnh Đại Phong đứng bên Ngụy Bách, cầm tay cười nói: "Ngươi là Tùy cô nương phải không? Có muốn vào nhà ta ngồi một chút không? Ta cùng Ngụy Bách có thể chuẩn bị bữa ăn khuya, coi như đãi khách từ phương xa tới. Sau khi ăn uống no đủ, nghỉ ngơi một đêm cũng không sao cả. Nhà ta có nhiều phòng lớn, không chỉ có Tùy cô nương đâu, mà nếu cô còn đem theo mấy người bạn, cũng không phải vấn đề gì lớn đâu. À, ta tên là Trịnh, Tùy cô nương có thể gọi ta là Trịnh đại ca, không cần khách khí đâu."
+Trịnh Đại Phong đứng cạnh Ngụy Bách, xoa tay cười: “Là Tùy cô nương phải không? Có muốn vào nhà ta ngồi một lát không? Ta với Ngụy Bách làm bữa khuya, coi như đón khách phương xa. Ăn uống no rồi nghỉ lại một đêm cũng được. Nhà ta nhiều phòng rộng lắm, đừng nói một mình cô nương, dẫu dẫn theo vài bằng hữu cũng chẳng sao. À, ta họ Trịnh, cứ gọi Trịnh đại ca là được, không cần khách sáo.”
 
-Tùy Cảnh Rừng có chút lúng túng không kịp phản ứng.
+Tùy Cảnh Rừng lúng túng, nhất thời chẳng biết đáp thế nào.
 
-Ngụy Bách bất đắc dĩ nói: "Tùy cô nương cùng Vinh kiếm tiên, ngừng lại ăn một bữa khuya, hoặc là lập tức lên núi cũng không vấn đề gì."
+Ngụy Bách bất đắc dĩ nói: “Tùy cô nương và Vinh kiếm tiên có thể nghỉ lại ăn khuya, cũng có thể lên núi ngay, đều được cả.”
 
-Kết quả, Tùy Cảnh Rừng và Vinh Sướng chứng kiến hán tử còng lưng đó giẫm lên chân Ngụy Bách, vẻ tươi cười không thay đổi, "Chỉ là một bữa khuya thôi mà, có gì mà phiền phức."
+Hai người liền thấy hán tử lưng còng giẫm lên chân Ngụy Bách, nụ cười chẳng đổi: “Ăn một bữa khuya thôi, có gì phiền phức đâu.”
 
-Tùy Cảnh Rừng cẩn thận nói: "Vậy thì đi lên núi đi, có một số việc ta còn muốn cùng Ngụy sơn thần nói kĩ hơn, phi kiếm thì bí mật, không tiện bàn bạc công khai."
+Tùy Cảnh Rừng dè dặt đáp: “Vẫn xin lên núi trước. Ta còn vài chuyện muốn thưa kỹ với Ngụy sơn thần, có những việc bí mật, trong phi kiếm không tiện nói rõ.”[?]
 
-Trịnh Đại Phong thở dài, ngón chân nhấn vào giày Ngụy Bách, Ngụy Bách vẫn giữ vẻ mặt tự nhiên, đáp lại Tùy Cảnh Rừng: "Tốt."
+Trịnh Đại Phong thở dài, ngón chân ấn thêm lên giày Ngụy Bách. Ngụy Bách vẫn thản nhiên, đáp nàng: “Được.”
 
-Vinh Sướng thấy vậy thì toát mồ hôi lạnh, tim đập không ngừng.
+Vinh Sướng nhìn mà mồ hôi lạnh túa ra, tim đập thình thịch.
 
-Bốn người cùng nhau chậm rãi đi lên núi.
+Bốn người chậm rãi lên núi.
 
-Trịnh Đại Phong nhẹ giọng than vãn: "Không có nghĩa khí gì cả."
+Trịnh Đại Phong khẽ oán: “Chẳng có nghĩa khí gì cả.”
 
-Ngụy Bách cười nói: "Chuyện chính là chính sự."
+Ngụy Bách cười: “Việc công phải lo trước.”
 
-Trịnh Đại Phong không vui: "Chuyện chung thân đại sự của huynh đệ, sao không phải chuyện chính sự lớn? Mẹ hắn chết vì lũ lụt, chịu ảnh hưởng bởi hạn hán..."
+Trịnh Đại Phong bực bội: “Chuyện chung thân của huynh đệ chẳng phải đại sự sao? Mẹ nó, kẻ chết ngập, người chết khát...”
 
-Ngụy Bách mỉm cười, "Trong sách nói, vẻ mặt như ngọc, vẽ lên mỹ nhân cũng lắm tình."
+Ngụy Bách mỉm cười: “Sách có câu, người đẹp như ngọc, tranh vẽ mỹ nhân cũng đa tình.”[?]
 
-Trịnh Đại Phong lại thở dài, "Cuối cùng vẫn kém một chút ý tứ."
+Trịnh Đại Phong lại thở dài: “Rốt cuộc vẫn thiếu chút ý vị.”
 
-Ngụy Bách vỗ vỗ vai Trịnh Đại Phong, an ủi: "Tuấn tú lịch sự, sợ gì không tìm được vợ?"
+Ngụy Bách vỗ vai an ủi: “Tuấn tú lịch sự thế này, lo gì không lấy được vợ?”
 
-Trịnh Đại Phong chọc ghẹo: "Nếu những lời này là Trần Bình An nói, ta cảm giác mình sẽ mạnh mẽ hơn, ngươi thì sao?"
+Trịnh Đại Phong cợt nhả: “Trần Bình An nói câu này, ta còn thấy có sức nặng. Ngươi nói thì được mấy phần?”
 
-Khi Tùy Cảnh Rừng lên núi, nàng nhìn quanh, tâm tư chìm đắm nơi đây chính là nơi của tiền bối.
+Tùy Cảnh Rừng vừa lên núi vừa ngắm xung quanh, trong lòng nghĩ, đây chính là chỗ của tiền bối.
 
-Vinh Sướng bỗng cảm thấy khó hiểu, không thể đoán được lai lịch của hán tử còng lưng ấy, rõ ràng là một người phế nhân, tại sao lại thân thiết với Ngụy Bách? Quan trọng là cả hai đều không cảm thấy bất thường gì.
+Vinh Sướng lại khó hiểu. Hắn không đoán nổi lai lịch hán tử lưng còng này. Rõ ràng đã là phế nhân, sao lại thân thiết với Ngụy Bách đến vậy? Quan trọng hơn, cả hai đều coi đó là chuyện hết sức tự nhiên.
 
-Tùy Cảnh Rừng chậm bước, đột nhiên nhìn thấy một nữ tử trẻ tuổi từ trên núi luyện quyền đi xuống, động tác múa quyền quen thuộc, Tùy Cảnh Rừng liền bắt đầu cẩn thận đánh giá dung mạo của đối phương, không tệ, xinh đẹp nhưng không quá nổi bật.
+Tùy Cảnh Rừng đi chậm lại, chợt thấy một nữ tử trẻ tuổi đang luyện quyền từ trên núi đi xuống. Quyền thế quen thuộc khiến nàng chú ý, bèn nhìn kỹ dung mạo đối phương. Cũng đẹp, nhưng không quá nổi bật.
 
-Trịnh Đại Phong mỉm cười chào hỏi: "Sầm muội tử, muộn thế này còn luyện quyền làm gì? Thật là khổ cực, Trịnh đại ca thấy cô gầy đi nhiều."
+Trịnh Đại Phong cười chào: “Sầm muội tử, muộn thế này còn luyện quyền làm gì? Vất vả quá, Trịnh đại ca thấy muội gầy đi nhiều rồi.”
 
-Sầm Uyên Ky chỉ luyện quyền, không thèm để ý đến họ.
+Sầm Uyên Ky cứ luyện quyền, chẳng để ý tới bọn họ.
 
-Đoàn người tiếp tục đi xuống núi.
+Nàng tiếp tục đi xuống núi.
 
-Trịnh Đại Phong khích lệ: "Đừng lo, nếu không có Trịnh đại ca trong mắt ngươi thì đúng là rất tốt, luyện quyền cần chuyên tâm, trong lòng chỉ cần có Trịnh đại ca là đủ."
+Trịnh Đại Phong cổ vũ: “Đừng lo, trong mắt không có Trịnh đại ca mới tốt. Luyện quyền phải chuyên tâm, trong lòng có Trịnh đại ca là đủ rồi.”
 
-Ngụy Bách bất đắc dĩ, "Ngươi đừng làm phiền Sầm Uyên Ky luyện quyền nữa."
+Ngụy Bách bất đắc dĩ: “Đừng quấy rầy Sầm Uyên Ky luyện quyền nữa.”
 
-Trịnh Đại Phong cười cợt: "Ta chỉ đang giúp nàng rèn luyện tâm cảnh, ngươi không hiểu cái gì. Kỳ thực, nữ tử giống như nàng mỗi lần lên núi đều không thể bỏ qua quyền luyện, chỉ cần tránh xa cửa lớn nhà ta là được."
+Trịnh Đại Phong cười hì hì: “Ta đang giúp nàng rèn tâm cảnh, ngươi biết gì. Nữ tử như nàng, lần nào lên xuống núi cũng không quên luyện quyền, chỉ cần vòng qua cổng nhà ta là được.”[?]
 
-Ngụy Bách bừng tỉnh, gật đầu nói: "Đúng, đúng, đúng, ngươi nói rất đúng."
+Ngụy Bách làm bộ bừng tỉnh, gật đầu: “Đúng, đúng, ngươi nói chí phải.”
 
-Vinh Sướng không khỏi cảm thấy buồn bực, hán tử này chỉ bằng những lời nói và ánh mắt của mình, nếu sinh ra ở nơi trấn nhỏ thì đã bị người ta đánh chết từ lâu rồi?
+Vinh Sướng không khỏi băn khoăn. Với ánh mắt cùng những lời lẽ này, nếu hán tử ấy sống ở một trấn nhỏ bình thường, chẳng phải đã bị người ta đánh chết từ lâu rồi sao?
 
-Hay là đã gặp phải không ít thương tổn, con đường võ đạo lại gặp phải sự sụp đổ, vì nơi đây mà lâm vào thân phận giữ cửa? Không thể không dựa vào Trần Bình An, sống nhờ người khác sao?
+Hay hắn thật sự từng chịu thương tích nặng, võ đạo sụp đổ, nên mới lưu lạc tới đây giữ cửa? Đành nương nhờ Trần Bình An, sống dưới mái hiên người khác?
 
-Hay là có lý do nào khác, người ta không thể chỉ nhìn bề ngoài?
+Hay còn nguyên do nào khác, không thể trông mặt mà bắt hình dong?
 
-Trịnh Đại Phong thoải mái cười: "Đừng tin, vị tiểu thư họ Ly kia không phải tầm thường. Rốt cuộc có một ngày, Sầm Uyên Ky phải cảm ơn Trịnh đại ca vì đã tận tâm giúp đỡ, đến lúc đó nhất định sẽ không thiếu nước mắt nước mũi đầy người ta. Cảnh tượng ấy nghĩ thôi đã cảm động lòng người."
+Trịnh Đại Phong cười thoải mái: “Không tin à? Vị tiểu thư họ Ly kia đâu phải người tầm thường.[?] Rồi sẽ có ngày Sầm Uyên Ky biết cảm ơn Trịnh đại ca đã tận tâm giúp đỡ. Đến lúc ấy, thế nào cũng khóc lóc, nước mắt nước mũi trét đầy người ta. Nghĩ thôi đã cảm động rồi.”
 
-Ngụy Bách đành không muốn nói thêm gì nữa.
+Ngụy Bách chẳng muốn tiếp lời nữa.
 
-Vinh Sướng lần này tâm trạng không ổn, có chút gì đó rõ ràng.
+Tâm cảnh Vinh Sướng khẽ xao động, có lẽ để lộ hơi rõ.
 
-Trịnh Đại Phong hơi ngạc nhiên, chuyển hướng ánh mắt, nghi ngờ nói: "Vinh kiếm tiên, ngươi cũng có chút hiểu biết về đại đạo? Điều này thật không hợp lý, con đường của ta thường chỉ nhắm đến nữ nhân mà thôi."
+Trịnh Đại Phong hơi ngạc nhiên, quay sang nhìn hắn: “Vinh kiếm tiên cũng hiểu đôi chút về đại đạo này sao? Vô lý nhỉ, con đường ấy của ta xưa nay chỉ hướng về nữ nhân thôi mà.”[?]
 
-Vinh Sướng cười cười, "Không có gì, chỉ là rời quê hương nghìn dặm, vừa mới có một chút cảm khái mà thôi."
+Vinh Sướng cười: “Không có gì, chỉ là xa quê nghìn dặm, vừa chợt có chút cảm khái.”
 
-Vinh Sướng chẳng qua không dám xem thường người lưng còng kia là người bình thường.
+Hắn không còn dám coi hán tử lưng còng là người tầm thường.
 
-Nguyên Anh kiếm tu bổn mạng phi kiếm nhỏ bé rung động mãnh liệt trong tâm như mặt hồ, làm sao một võ học tông sư có thể trong nháy mắt cảm nhận được mọi thứ?
+Phi kiếm bản mệnh của một kiếm tu Nguyên Anh rung động mãnh liệt giữa hồ tâm, một tông sư võ học làm sao thoáng chốc đã nhận ra?
 
-Đến giữa sườn núi, Chu Liễm đã đứng chờ ở đó với khuôn mặt tươi cười.
+Tới lưng chừng núi, Chu Liễm đã mỉm cười đợi sẵn.
 
-Khi cùng nhau tiến vào dinh thự của Chu Liễm, Vinh Sướng cáo từ rời đi, còn Trịnh Đại Phong thì dẫn hắn đến một nơi khác để ở.
+Cả đoàn vào chỗ ở của Chu Liễm. Vinh Sướng liền cáo từ, theo Trịnh Đại Phong tới nơi khác nghỉ ngơi.
 
-Vinh Sướng không hề lo lắng rằng Tùy Cảnh Rừng sẽ gặp phải nguy hiểm.
+Hắn chẳng lo Tùy Cảnh Rừng gặp nguy hiểm.
 
-Sơn thần, thủy thần đều sẵn có khí tượng, xem cảnh vật xung quanh ngập tràn sơn thủy thật lý tưởng.
+Sơn thần, thủy thần đều có khí tượng riêng, nhìn cảnh sơn thủy quanh người cũng biết được phần nào.
 
-Ngụy Bách có lẽ sẽ tồn tại lâu dài.
+Ngụy Bách có lẽ còn trường tồn rất lâu.
 
-Như vậy, một người đã có thể kết giao với Lưu Cảnh Long và "Tiền bối", lại có quan hệ rất tốt với Ngụy Bách, một sơn chủ trẻ tuổi, không khó để biết môn phong là tốt hay xấu.
+Một sơn chủ trẻ tuổi kết giao được với Lưu Cảnh Long và vị “tiền bối” kia, lại có giao tình tốt với Ngụy Bách, môn phong ra sao cũng chẳng khó đoán.
 
-Vinh Sướng và Trịnh Đại Phong gặp một cô đồng nữ mặc váy phấn ở giữa đường.
+Giữa đường, Vinh Sướng và Trịnh Đại Phong gặp một đồng nữ váy hồng.
 
-Trịnh Đại Phong cười nói: "Trần nha đầu, không cần phải cố gắng đứng dậy bận việc đâu. Tòa nhà này phải bảo quản cho sạch sẽ. À, đây là khách nhân đến từ Bắc Câu Lô Châu, Vinh đại kiếm tiên."
+Trịnh Đại Phong cười: “Trần nha đầu, không cần vất vả dậy lo việc đâu. Tòa nhà ấy cứ giữ sạch sẽ là được. À, đây là khách từ Bắc Câu Lô Châu, Vinh đại kiếm tiên.”
 
-Trần Như Sơ vội vàng chắp tay chào, "Tiểu nha hoàn Trần Như Sơ, xin bái kiến Vinh kiếm tiên."
+Trần Như Sơ vội chắp tay: “Tiểu nha hoàn Trần Như Sơ bái kiến Vinh kiếm tiên.”
 
-Vinh Sướng nở nụ cười.
+Vinh Sướng mỉm cười.
 
-Một tiểu nha đầu có văn vận nồng đậm?
+Một tiểu nha đầu mang văn vận nồng đậm đến thế?
 
-Quả là điều hiếm thấy.
+Hiếm có thật.
 
-Trần Như Sơ móc ra một chùm chìa khóa lớn, nhanh chóng lấy ra một số chiếc, mở cửa xong, đưa chùm chìa khóa cho Vinh Sướng, rồi cẩn thận hướng dẫn từng chìa khóa tương ứng với cánh cửa nào. Cô còn nói rằng sau khi vào ở, mọi cửa phòng lớn nhỏ đều không khóa cũng không sao cả, hơn nữa mỗi ngày, cô sẽ quét dọn phòng hai lần. Nếu Vinh kiếm tiên không muốn bị quấy rầy, cũng không quan trọng, cần có người bưng trà dâng nước, cô sẽ ở gần đó, chỉ cần nói một tiếng là được. Sau khi dứt lời, cô im lặng đi theo hai người tiến vào tòa nhà, nơi đây quả thật sạch sẽ, nhẹ nhàng và thoải mái, tuy nói không có khí tức thần tiên nhưng nhìn chung rất thư thái.
+Trần Như Sơ lấy ra chùm chìa khóa lớn, nhanh tay chọn mấy chiếc, mở cửa rồi giao chìa khóa cho Vinh Sướng. Nàng cẩn thận chỉ rõ từng chiếc mở cửa nào, lại thưa, vào ở rồi thì các phòng lớn nhỏ không khóa cũng được. Mỗi ngày nàng sẽ quét dọn hai lần; nếu Vinh kiếm tiên không muốn ai quấy rầy, nàng cũng sẽ tránh. Cần trà nước, nàng ở ngay gần đó, cứ gọi một tiếng là được. Nói xong, nàng lặng lẽ theo hai người vào nhà. Bên trong quả nhiên sạch sẽ, thoáng đãng. Tuy chẳng có vẻ thần tiên gì, ở vẫn rất dễ chịu.
 
-Vinh Sướng hoàn toàn không có gì không hài lòng.
+Vinh Sướng chẳng có gì không hài lòng.
 
-Trịnh Đại Phong cười và nói: "Chu Liễm là đại quản gia của núi Lạc Phách, Trần nha đầu là tiểu quản gia. Thỉnh thoảng, Chu Liễm cũng muốn giao việc cho nàng, ta thì đặc biệt thích Trần nha đầu."
+Trịnh Đại Phong cười nói: “Chu Liễm là đại quản gia núi Lạc Phách, Trần nha đầu là tiểu quản gia. Thỉnh thoảng Chu Liễm cũng phải giao việc cho nàng. Ta thì đặc biệt quý Trần nha đầu.”
 
-Trần Như Sơ thẹn thùng cười.
+Trần Như Sơ ngượng ngùng cười.
 
-Vinh Sướng nghĩ một chút, định từ trong túi lấy ra một món quà nhỏ để tặng cho tiểu nha đầu xinh xắn này.
+Vinh Sướng nghĩ một lát, định lấy món quà nhỏ tặng tiểu nha đầu thanh tú này.
 
-Nhưng Trần Như Sơ đã cáo từ rời đi.
+Nhưng nàng đã xin cáo từ.
 
-Lại bị Trịnh Đại Phong cười và nhẹ nhàng giữ lại, cô buộc phải dừng bước.
+Trịnh Đại Phong cười giữ lại, nàng đành dừng bước.
 
-Vinh Sướng lấy ra một món linh khí nhỏ xinh xắn, là một chiếc lư hương bằng kim loại, không đắt, chỉ giá trị khoảng mấy viên tiền nhỏ thôi.
+Vinh Sướng lấy ra một chiếc lư hương kim loại, là món linh khí nhỏ nhắn, chẳng quá đắt, chỉ đáng mấy đồng tiền nhỏ.[?]
 
-Trần Như Sơ cảm thấy khó xử, có chút cảm thấy món quà này quá quý giá, những đồ vật của tiên gia thường chứa đựng linh khí, cô đương nhiên có thể cảm nhận.
+Trần Như Sơ khó xử. Nàng thấy món quà quý quá; linh khí trong đồ vật tiên gia, đương nhiên nàng cảm nhận được.
 
-Trịnh Đại Phong lại cười nói: "Còn sững sờ cái gì, mau nhận lấy đi."
+Trịnh Đại Phong cười giục: “Còn ngây ra làm gì, mau nhận đi.”
 
-Trần Như Sơ nâng chiếc lư hương nhỏ lên, sau đó xoay người chắp tay thi lễ để cảm ơn.
+Nàng nâng chiếc lư hương nhỏ, rồi xoay người chắp tay cảm tạ.
 
-Vinh Sướng ở lại phía sau.
+Vinh Sướng ở lại trong nhà.
 
-Trịnh Đại Phong rời khỏi tòa nhà, phát hiện tiểu nha đầu còn đứng ở ngoài cửa không xa.
+Trịnh Đại Phong bước ra, thấy tiểu nha đầu vẫn đứng đợi cách cửa không xa.
 
-Trịnh Đại Phong cười hỏi: "Trần Linh Quân đâu rồi? Sao gần đây không thấy hắn, lại đi đâu lông bông rồi?"
+Hắn cười hỏi: “Trần Linh Quân đâu? Dạo này chẳng thấy mặt, lại lêu lổng ở đâu rồi?”
 
-Trần Như Sơ nhẹ giọng nói: "Gần đây hắn làm ồn ở Ngao Ngư bối đó, tâm trạng không ổn định."
+Trần Như Sơ khẽ đáp: “Gần đây hắn cứ làm ầm ở Ngao Ngư bối, tâm tình không tốt.”
 
-Hôm nay danh nghĩa của nhà lão gia có thể không ít.
+Bây giờ, đỉnh núi đứng tên lão gia nhà nàng đã không ít.
 
-Ngoại trừ thuê Long Tuyền Kiếm Tông ba trăm năm núi Bảo Lục, đỉnh Thải Vân cùng núi Tiên Thảo không nói.
+Chưa kể núi Bảo Lục, đỉnh Thải Vân và núi Tiên Thảo cho Long Tuyền Kiếm Tông thuê ba trăm năm.
 
-Còn có núi Lạc Phách và núi Chân Châu.
+Còn có núi Lạc Phách cùng núi Chân Châu.
 
-Sau này lại mua thêm một khoảng diện tích lớn gần núi Lạc Phách, chỉ định Hôi Mông Sơn, sau khi Bao Phục trai rời khỏi núi Ngưu Giác, còn thuận đường đến Chu Sa Sơn, cùng với Ngao Ngư bối và Úy Hà phong, cùng với dãy núi phía tây Bái Kiếm Đài, hiện tại sáu ngọn núi này đều thuộc về khu vực của nhà mình. Ngoài Tú Tú tỷ tỷ ra, Long Tuyền quận chính là ngọn núi quý giá của nhà lão gia.
+Về sau lại mua Hôi Mông Sơn, một vùng núi rộng lớn gần Lạc Phách. Bao Phục Trai rời núi Ngưu Giác, nơi ấy cũng được mua lại, cùng núi Chu Sa, Ngao Ngư bối, đỉnh Úy Hà và Bái Kiếm Đài trong dãy núi phía tây. Sáu nơi này giờ đều thuộc nhà mình.[?] Ngoại trừ Tú Tú tỷ tỷ, ở quận Long Tuyền chẳng ai có nhiều đỉnh núi quý như lão gia.
 
-Trịnh Đại Phong xem xét và nói: "Hắn à, không thể chịu được việc gặp Bùi Tiễn luyện quyền, cộng thêm sự so sánh như vậy, càng cảm thấy bản thân lại không làm việc gì ra hồn, trong tâm có chút khó chịu, liền quyết định không thấy không nghe, đi ra ngoài mà quên đi."
+Trịnh Đại Phong nghĩ rồi nói: “Hắn không chịu nổi khi thấy Bùi Tiễn luyện quyền đấy. Đem ra so, lại thấy mình chẳng làm nên chuyện gì, trong lòng khó chịu, nên quyết định mắt không thấy tai không nghe, ra ngoài trốn cho nhẹ.”
 
-Trần Như Sơ sắc mặt ảm đạm.
+Sắc mặt Trần Như Sơ buồn hẳn.
 
-Việc luyện quyền của Bùi Tiễn khá khổ sở.
+Bùi Tiễn luyện quyền khổ lắm.
 
-So với năm đó lão gia luyện quyền hoàn toàn không có ích gì.
+So với lão gia năm xưa, cũng chẳng kém chút nào.[?]
 
-Sau khi chuẩn bị nước thuốc tốt, mỗi lần khi Bùi Tiễn rời khỏi lầu trúc tầng hai, cô đều phải mang theo thùng nước lên tầng hai để lau dọn vết máu.
+Mỗi lần chuẩn bị nước thuốc xong, đợi Bùi Tiễn rời tầng hai lầu trúc, nàng đều phải xách thùng nước lên lau vết máu.
 
-Trên sàn nhà, trên tường đều có dấu vết.
+Trên sàn, trên tường, chỗ nào cũng có.
 
-Thấy nước mắt của cô rơi lã chã, nhiều lần vừa quét dọn vết máu, vừa nhìn về phía lão tiền bối đang ngồi khoanh chân, nhắm mắt dưỡng thần.
+Nàng nhìn mà nước mắt cứ rơi. Nhiều lần vừa lau máu, nàng vừa ngoảnh nhìn lão tiền bối đang khoanh chân, nhắm mắt dưỡng thần.
 
-Thật đáng tiếc, lão tiền bối chỉ pretend ngốc nghếch.
+Tiếc rằng lão tiền bối chỉ giả ngây giả điếc.
 
-Trịnh Đại Phong vỗ nhẹ đầu tiểu nha đầu, "Sớm nghỉ ngơi một chút đi, suốt ngày vất vả với những công việc như vậy, cảm thấy làm như vậy sẽ kéo dài mấy trăm năm không có kết thúc, ngươi cũng không thấy chán hay sao, ta cũng phải ngả mũ kính phục ngươi. Nếu Trần Linh Quân có một nửa kiên nhẫn và tấm lòng như ngươi, có lẽ đã có thể phô diễn tài năng, để người khác ngưỡng mộ, đâu cần phải mỗi ngày cọ mặt ở Trần Bình An hay bên cạnh Ngụy Bách."
+Trịnh Đại Phong vỗ nhẹ đầu nàng: “Nghỉ sớm đi. Suốt ngày làm từng ấy việc, nghĩ tới còn phải làm mấy trăm năm, chẳng thấy ngày hết, mà ngươi cũng không chán. Ta thật phục ngươi. Trần Linh Quân có được nửa phần kiên nhẫn, nửa phần tấm lòng của ngươi, e đã có thể ra dáng cho người khác ngưỡng mộ, đâu cần ngày nào cũng tới cọ thể diện của Trần Bình An với Ngụy Bách.”
 
-Trần Như Sơ áy náy nói: "Nhưng mà ta tu hành quá chậm, không giúp ích được gì."
+Trần Như Sơ áy náy: “Nhưng ta tu hành chậm quá, chẳng giúp được gì.”
 
-Trịnh Đại Phong thở dài, "Đừng nghĩ thế, núi Lạc Phách nếu không có Trần nha đầu, thì thiếu đi một phần quan trọng."
+Trịnh Đại Phong thở dài: “Đừng nghĩ vậy. Núi Lạc Phách thiếu Trần nha đầu thì chẳng còn trọn vẹn đâu.”
 
-Trần Như Sơ mở to mắt, vẻ mặt phấn khởi, "Thật vậy sao?"
+Nàng mở to mắt, vui hẳn lên: “Thật sao?”
 
-Trịnh Đại Phong cười lớn: "Không được kiêu ngạo, cần phải không ngừng cố gắng."
+Trịnh Đại Phong cười lớn: “Không được kiêu ngạo, phải tiếp tục cố gắng.”
 
-Tiểu nha đồng gật đầu mạnh.
+Tiểu nha đầu gật đầu thật mạnh.
 
-Trên đỉnh núi Lạc Phách, mỗi ngày cô chạy qua chạy lại, có lẽ chính là tiểu nha đầu này, một mình làm những việc vặt vãnh mà chẳng ai để ý đến.
+Trên núi Lạc Phách, người ngày ngày chạy tới chạy lui, một mình làm bao việc vụn vặt chẳng ai để ý, có lẽ chính là nàng.
 
-Dẫu vậy, mọi người từ sâu trong lòng vẫn đều quan tâm đến cô.
+Nhưng từ đáy lòng, mọi người đều thương nàng.
 
-Tại núi Lạc Phách, nếu như Lô Bạch Tượng bị tổn hại nặng nề ở bên ngoài, Trần Bình An sau khi biết được, có thể với tâm tính ngang ngược của hắn, còn muốn cùng người khác rao giảng một chút lý luận.
+Nếu Lô Bạch Tượng chịu thiệt lớn bên ngoài, Trần Bình An biết chuyện, với tính tình bướng bỉnh ấy, có lẽ vẫn muốn nói lý với đối phương đôi câu.
 
-Nhưng nếu tiểu nha đồng gặp phải sự ức h**p nào đó, ngươi xem Trần Bình An liệu có còn muốn rao giảng lý luận không?
+Nhưng thử để tiểu nha đầu bị ức hiếp xem, Trần Bình An liệu còn chịu nói lý nữa không?
 
-Trịnh Đại Phong ôm chặt đầu ngón tay, chậm rãi đi, không muốn lẫn vào sân nhỏ của Chu Liễm. Chu Liễm làm việc, Trần Bình An đã có một cái tâm trí như vậy, hắn hoàn toàn yên tâm, Trịnh Đại Phong tự mình, không cần lo lắng gì cả.
+Trịnh Đại Phong nắm các ngón tay, thong thả đi, chẳng định xen vào chuyện trong sân Chu Liễm. Chu Liễm làm việc, ngay Trần Bình An cũng yên tâm, hắn lại càng chẳng cần lo.
 
-Còn về người mời thăm núi Lạc Phách, mỹ nhân che mặt với chiếc mũ, Trịnh Đại Phong đã nhìn qua cũng chỉ quay đi mà thôi.
+Còn mỹ nhân đội mũ che mặt tới thăm núi Lạc Phách kia, Trịnh Đại Phong nhìn rồi cũng chỉ quay đi.
 
-Điều này như cảnh tượng năm đó ở tiệm thuốc Hôi Trần.
+Giống như năm xưa ở tiệm thuốc Hôi Trần.
 
-Đêm thu trăng càng thêm sáng.
+Trăng đêm thu càng sáng.
 
 Trịnh Đại Phong chậm rãi xuống núi.
 
-Hắn mong đợi về tương lai Trần Bình An sẽ xuống núi và cùng người khác giảng đạo lý.
+Hắn mong tới ngày Trần Bình An xuống núi nói lý với người ta.
 
-Chẳng hạn như ở Chính Dương Sơn hay Đại Ly kinh thành.
+Chẳng hạn Chính Dương sơn, hay kinh thành Đại Ly.
 
-Những nơi thú vị như vậy, sẽ là thời điểm để Trần Bình An quyết định rao giảng lý luận, không kém thì đối phương cũng phải lắng nghe sau này.
+Tới những chỗ thú vị ấy, nếu Trần Bình An quyết định nói lý, ít ra đối phương cũng phải chịu nghe trước đã.
 
-Dẫu vậy, Trịnh Đại Phong cũng rất chờ đợi những đỉnh núi xung quanh núi Lạc Phách, tương lai sẽ có những ai đến trú ngụ nơi đó.
+Hắn cũng mong xem những đỉnh núi quanh Lạc Phách sau này sẽ có ai tới ở.
 
-Nhưng điều đáng chờ mong hơn cả, vẫn là nếu một ngày núi Lạc Phách có thể khai tông lập phái, sẽ mang tên gì.
+Nhưng điều đáng mong nhất vẫn là, nếu có ngày núi Lạc Phách khai tông lập phái, sẽ lấy tên gì?
 
-Trước đó nói chuyện về điều này, hắn và Chu Liễm, Ngụy Bách đã cùng nhau nhìn nhau, mỉm cười.
+Trước kia nhắc tới chuyện ấy, hắn, Chu Liễm và Ngụy Bách chỉ nhìn nhau mỉm cười.
 
-Tại tiểu viện bên núi.
+Trong tiểu viện bên sườn núi.
 
-Chu Liễm cùng Ngụy Bách nghe Tùy Cảnh Rừng trình bày kỹ càng, phần lớn đề cập đến hành trình của Trần Bình An trải qua và tìm hiểu.
+Chu Liễm cùng Ngụy Bách nghe Tùy Cảnh Rừng kể tỉ mỉ. Phần lớn là những việc Trần Bình An trải qua, chứng kiến dọc đường.
 
-Ngụy Bách nhận lấy một chiếc gậy leo núi, chuẩn bị từ núi Phi Vân gửi cho Thôi Đông Sơn. Việc này so với việc Chu Liễm gửi từ núi Lạc Phách có thể phù hợp hơn.
+Ngụy Bách nhận chiếc gậy leo núi, định mang về núi Phi Vân gửi cho Thôi Đông Sơn. Gửi từ bên ấy thích hợp hơn để Chu Liễm gửi từ núi Lạc Phách.
 
-Ngoài chiếc gậy leo núi, Tùy Cảnh Rừng còn tự tay viết một bức thư mật, Trần Bình An đã giải thích rõ ràng cho nàng về ngôn ngữ dùng cho vị Thôi tiền bối, Tùy Cảnh Rừng không muốn ở trước mặt nói cho Chu Liễm và Ngụy Bách.
+Ngoài chiếc gậy, Tùy Cảnh Rừng còn tự tay viết một phong mật thư. Trần Bình An đã dặn rõ những lời cần nhắn với Thôi tiền bối, nàng không muốn nói ra trước mặt Chu Liễm, Ngụy Bách.
 
-Cũng không phải là không tin tưởng vào Chu Liễm và Ngụy Bách, chỉ là tính cách của nàng không cho phép mà thôi.
+Chẳng phải nàng không tin hai người, chỉ là tính nàng như vậy.
 
-Điều này, nàng và Trần Bình An thực sự rất giống nhau.
+Ở điểm này, nàng rất giống Trần Bình An.
 
-Ngụy Bách lại nhận lấy bức thư.
+Ngụy Bách nhận cả lá thư.
 
-Tùy Cảnh Rừng như trút được gánh nặng.
+Tùy Cảnh Rừng nhẹ nhõm hẳn.
 
-Sau khi nhìn thấy vị tiền bối Thôi tiên sinh nói ra những điều kỳ diệu, nàng cảm thấy yên tâm khi chỉ cần có một vị Nguyên Anh kiếm tiên đại sư huynh hộ tống tại Bảo Bình châu để “du lịch ngắm cảnh”.
+Được thấy chỗ thần kỳ của vị Thôi tiên sinh mà tiền bối nhắc tới, nàng cũng yên lòng để đại sư huynh kiếm tiên Nguyên Anh hộ tống mình “du sơn ngoạn thủy” ở Bảo Bình châu.[?]
 
-Tuy nhiên, nàng vẫn có ý định dừng lại một chút tại núi Lạc Phách và Long Tuyền quận.
+Nhưng nàng vẫn muốn ở lại núi Lạc Phách và quận Long Tuyền một thời gian.
 
-Dù sao lý do thì rất nhiều, ví dụ như gặp một lần tiền bối khai sơn đại đệ tử Bùi Tiễn, đi dạo một vòng quanh núi Ngưu Giác bến đò tiên gia cửa hàng, hay tại sao không thăm Ngụy sơn thần núi Phi Vân? Nơi đây ngày trước từng là một trong ba mươi sáu tiểu động thiên của Ly Châu, sao không thể từ từ thưởng thức mà đi? Thậm chí có thể đầu tiên đi về phía bắc Đại Ly kinh thành tham quan một lần, rồi quay lại núi Ngưu Giác bến đò, sau đó nghỉ ngơi một chút nơi đây.
+Lý do có rất nhiều. Chẳng hạn gặp Bùi Tiễn, đại đệ tử khai sơn của tiền bối; dạo cửa hàng tiên gia ở bến núi Ngưu Giác; hoặc tới núi Phi Vân thăm Ngụy sơn thần. Nơi này vốn là động thiên Ly Châu, một trong ba mươi sáu tiểu động thiên, sao không thong thả thưởng ngoạn? Thậm chí nàng có thể lên phía bắc thăm kinh thành Đại Ly trước, rồi quay lại bến Ngưu Giác, ở đây nghỉ thêm ít lâu.
 
-Trong lúc đó, Cảnh Rừng được một cô bé đáng yêu với gương mặt phấn khắc dẫn đi vào tòa nhà.
+Sau đó, một tiểu nha đầu mặt mày xinh xắn như ngọc tạc dẫn Tùy Cảnh Rừng tới chỗ ở.
 
-Ngụy Bách trước tiên đi vào núi Phi Vân, gửi đi tín vật cùng mật tín, rồi sau đó trở về sân nhỏ của Chu Liễm.
+Ngụy Bách về núi Phi Vân, gửi tín vật cùng mật thư đi, rồi lại quay về tiểu viện Chu Liễm.
 
-Chu Liễm đi dạo một cách chậm rãi, vừa suy nghĩ về những việc đã xảy ra.
+Chu Liễm đang thong thả đi lại, suy ngẫm những chuyện vừa nghe.
 
-Ngụy Bách không quấy rầy, tự rót cho mình một chén trà.
+Ngụy Bách không quấy rầy, tự rót một chén trà.
 
-Về mặt khác, tu vi của sơn thần và thủy thần có thể được trực quan hiển thị qua Kim Thân, và tu sĩ cũng có thể đo lường thông qua lượng khí phủ tích lũy linh khí.
+Tu vi của sơn thần, thủy thần có thể nhìn thẳng từ kim thân; tu sĩ thì có thể đo qua lượng linh khí tích trong khí phủ.
 
-Theo quan sát của Ngụy Bách, Ngẫu Hoa phúc địa có bốn nhân vật như Nam Uyển quốc khai quốc hoàng đế Ngụy Tiện, giáo chủ Ma giáo Lô Bạch Tượng, nữ kiếm tiên Tùy Hữu Biên, tất cả đều có những khát vọng lớn lao trong đời. Họ đều đứng ở đỉnh cao của nhân gian tại Ngẫu Hoa phúc địa. Tuy nhiên, nếu chỉ xét về tâm cảnh, thực chất họ còn thua xa Chu Liễm với tâm cảnh “Viên mãn không tỳ vết”, “Cô đọng chu đáo chặt chẽ”. Xuất thân từ một gia đình phú quý, hắn vừa lặng lẽ học võ vừa mải mê đọc sách, trở thành thiên tài trẻ tuổi, sớm tham gia khoa cử và đoạt giải nhất. Sau một thời gian yên lặng trong quan trường, hắn chính thức gia nhập triều đình, con đường làm quan của hắn rất thuận lợi, nhưng rất nhanh lại rời bỏ để du hành giang hồ, sống một cuộc đời tự do. Cuối cùng, sau khi trở về triều đình, hắn tiếp tục gặp nguy hiểm trong chiến trường, từ bỏ võ học vô địch của mình để giữ vai trò như một nho tướng, chống lại sự nổi loạn, cuối cùng lại trở về giang hồ, từ một quý công tử biến thành một người quyết đoán và bướng bỉnh.
+Theo Ngụy Bách quan sát, bốn người từ Ngẫu Hoa phúc địa tới đây, như hoàng đế khai quốc Nam Uyển quốc Ngụy Tiện, giáo chủ Ma giáo Lô Bạch Tượng, nữ kiếm tiên Tùy Hữu Biên, đều từng đứng trên đỉnh nhân gian, mang chí hướng lớn. Nhưng chỉ xét tâm cảnh, ba người vẫn kém xa Chu Liễm, kẻ đã gần như “tròn đầy không tì vết”, “cô đọng kín kẽ”. Hắn xuất thân phú quý, vừa âm thầm học võ, vừa chăm chỉ đọc sách, còn trẻ đã thành kỳ tài, dự khoa cử sớm, đoạt ngôi đầu. Sau một quãng lặng ở chốn quan trường, hắn chính thức vào triều, quan lộ thuận buồm xuôi gió, nhưng mau chóng bỏ đi, ngao du giang hồ. Rồi hắn lại về triều, dấn thân giữa chiến trận hiểm nguy, gác võ học vô địch sang bên để làm một nho tướng dẹp loạn. Cuối cùng hắn quay lại giang hồ, từ quý công tử trở thành một kẻ quyết liệt, ngang bướng.
 
-Đó chính là lý do tại sao Chu Liễm, dù đến Hạo Nhiên thiên hạ, vẫn không mấy hứng thú với bất cứ điều gì. Đối với hắn, thiên hạ cũng chỉ là một phiên bản lớn hơn của Ngẫu Hoa phúc địa, và những con người trong thiên hạ kia, thực chất cũng chỉ như những người mà hắn đã gặp, không có quá nhiều điều bất ngờ.
+Cho nên tới Hạo Nhiên thiên hạ, Chu Liễm vẫn chẳng hứng thú bao nhiêu với mọi thứ. Trong mắt hắn, thiên hạ này chỉ là Ngẫu Hoa phúc địa lớn hơn, người trong đó cũng chẳng khác mấy những kẻ hắn đã gặp, không có bao nhiêu điều bất ngờ.
 
-Tóm lại, Chu Liễm mãi mãi sẽ không chính thức nói đến những sức lực của hắn.
+Rốt cuộc, Chu Liễm sẽ chẳng bao giờ thật sự dốc hết sức mình.[?]
 
-Tùy Hữu Biên chắc chắn mong mỏi về một thân phận kiếm tu, để một lần nữa phi thăng.
+Tùy Hữu Biên nhất định muốn lấy thân phận kiếm tu, phi thăng thêm lần nữa.
 
-Ngụy Tiện thì mang trong mình hoài bão làm vua, ý chí muốn quật khởi lại hơn bao giờ hết, và tất nhiên hắn muốn có được nhiều binh mã quyền thế hơn một vị quân vương phúc địa.
+Ngụy Tiện mang chí đế vương, ý muốn quật khởi còn mạnh hơn xưa. Dĩ nhiên hắn mong có binh mã, quyền thế lớn hơn một quân vương phúc địa.
 
-Lô Bạch Tượng hy vọng từ Tân Giang hồ bắt đầu lại, từng bước tích góp nội tình, cuối cùng mở ra môn phái của riêng mình, thoát khỏi núi Lạc Phách, tự lập môn hộ, với thân phận một phàm nhân, coi thường cõi thần tiên.
+Lô Bạch Tượng muốn bắt đầu lại ở chốn giang hồ mới, từng bước tích lũy căn cơ, rồi mở môn phái riêng, rời núi Lạc Phách tự lập môn hộ, lấy thân phàm nhân mà ngạo thị thần tiên.
 
-Cả ba người đều có những khát vọng riêng, tại một thiên hạ mới, đều tìm kiếm cho mình con đường lớn.
+Ba người đều có điều mong cầu, đều tìm đại đạo riêng trong thiên hạ mới.
 
-Còn Chu Liễm thì hoàn toàn khác.
+Chu Liễm lại khác hẳn.
 
-Hắn chẳng có d*c v*ng hay mong cầu nào.
+Hắn chẳng có dục vọng, cũng chẳng mong cầu.
 
-Tâm cảnh của Chu Liễm thực chất đã đạt được sự tự tại, không còn ràng buộc bởi điều gì.
+Tâm cảnh hắn thật sự đã tự tại, không gì trói buộc.
 
-Có thể nói một cách thẳng thừng, bây giờ Chu Liễm có thể sống khá thoải mái với gương mặt này mà hắn sở hữu. Huống chi, hắn chưa bao giờ đặt tâm tư vào cầm kỳ thư họa, nhưng giờ đây hắn lại tinh thông.
+Nói thẳng ra, chỉ cần mang gương mặt hiện giờ, hắn đã có thể sống rất thảnh thơi. Huống chi những thứ cầm kỳ thư họa hắn chưa từng đặt hết tâm tư vào, nay cũng đều tinh thông.[?]
 
-Nếu nói rất khéo léo, có thể nói Chu Liễm là một người tài ba xuất sắc, hắn tiếp thu những gì Tùy Hữu Biên truyền lại và cũng đạt được những tiến bộ đáng kể trong tu hành, rất nhanh chóng phá vỡ các cảnh giới.
+Nói khéo hơn, Chu Liễm vốn là người tài cao tuyệt đỉnh. Tiếp nhận những gì Tùy Hữu Biên truyền lại, hắn tu hành cũng tiến bộ đáng kể, liên tiếp phá cảnh rất nhanh.[?]
 
-Khi lấy lại tinh thần, dừng bước lại, hắn cười nói: "Xin lỗi, ta lại nghĩ linh tinh một chút."
+Chu Liễm hoàn hồn, dừng bước, cười nói: “Thất lễ, ta lại nghĩ lan man rồi.”
 
-Ngụy Bách rót cho hắn một chén trà, sau khi ngồi xuống, Chu Liễm nhẹ nhàng xoay chén sứ, từ tốn hỏi: "Về bí mật liên quan đến việc thu mua mảnh vỡ Kim Thân, chuyện đã nói với Thôi Đông Sơn thế nào rồi?"
+Ngụy Bách rót cho hắn chén trà. Chu Liễm ngồi xuống, nhẹ xoay chén sứ, thong thả hỏi: “Chuyện bí mật thu mua mảnh vỡ kim thân, nói với Thôi Đông Sơn thế nào rồi?”
 
-Đây là một điều mà Chu Liễm, Ngụy Bách và Trịnh Đại Phong đã cùng nhau trao đổi và thống nhất, bởi vì một khi Liên Ngẫu phúc địa trở thành tài sản riêng của núi Lạc Phách, điều đó đòi hỏi số lượng lớn sơn thần thủy thần từ bên ngoài, càng nhiều càng tốt, vì hương khói nơi nhân gian là rất quan trọng với núi Lạc Phách mà không cần tiêu tốn bất cứ khoản tiền nào. Nhưng mảnh vỡ Kim Thân lại liên quan trực tiếp đến triều đình Đại Ly, cho nên, cho dù Ngụy Bách có mở cửa giao dịch công khai, thì điều đó cũng không phải là tốt. Vì vậy, cần gặp Thôi Đông Sơn để thảo luận và bàn bạc một cách thận trọng, thực hiện những giao dịch dưới bàn với các tiên gia phía nam ở Bảo Bình châu, để nếu triều đình Đại Ly biết chuyện, thì chỉ mở một mắt nhắm một mắt cho qua, điều này đã đủ cho núi Lạc Phách.
+Đó là việc Chu Liễm, Ngụy Bách và Trịnh Đại Phong đã bàn bạc, thống nhất với nhau. Một khi Liên Ngẫu phúc địa trở thành sản nghiệp riêng của núi Lạc Phách, sẽ cần rất nhiều sơn thần, thủy thần từ ngoài vào, càng nhiều càng tốt. Hương khói nhân gian vì thế vô cùng quan trọng, lại không cần núi Lạc Phách bỏ thêm tiền. Nhưng mảnh vỡ kim thân trực tiếp liên quan tới triều đình Đại Ly. Ngay cả Ngụy Bách ra mặt thu mua công khai cũng không ổn. Bởi vậy phải thận trọng bàn với Thôi Đông Sơn, kín đáo giao dịch với tiên gia phía nam Bảo Bình châu. Chỉ cần triều đình Đại Ly biết mà chịu nhắm một mắt, mở một mắt, đối với núi Lạc Phách đã đủ rồi.
 
-Ngụy Bách nói: "Còn đang chờ."
+Ngụy Bách đáp: “Vẫn đang chờ.”
 
-Bỗng nhiên, Ngụy Bách nở một nụ cười, "Ta tin rằng cái gậy leo núi mà gửi đi sau khi rời khỏi đây sẽ khiến cho cậu học trò hôm trước của ngươi, thiếu gia nhà ngươi, trước kia có bảy, tám phần lực lượng, giờ sẽ dồn hết sức lực vào việc ứng phó với chúng ta."
+Hắn chợt cười: “Ta tin chiếc gậy leo núi vừa gửi đi sẽ khiến vị học trò của thiếu gia nhà ngươi, trước kia có lẽ chỉ bỏ bảy tám phần sức, bây giờ phải dốc toàn lực lo cho chúng ta.”[?]
 
-Chu Liễm gật đầu, "Về Thôi Đông Sơn, chúng ta nhất định phải cực kỳ cẩn trọng khi giao tiếp với hắn."
+Chu Liễm gật đầu: “Qua lại với Thôi Đông Sơn, chúng ta nhất định phải hết sức cẩn thận.”
 
-Chu Liễm luôn giữ một sự kiêng dè với Thôi Đông Sơn.
+Hắn luôn kiêng dè Thôi Đông Sơn.
 
-Bởi vì dù gì hai bên cũng là những người cùng một đường.
+Bởi dù sao, hai bên cũng là người cùng một đường.
 
-Hắn tuyệt đối sẽ không vì mối quan hệ phức tạp giữa Thôi Đông Sơn và Trần Bình An mà bỏ qua bất kỳ điều gì.
+Hắn tuyệt đối không vì quan hệ rắc rối giữa Thôi Đông Sơn và Trần Bình An mà lơi lỏng bất cứ chuyện gì.
 
-Bên cạnh đó, Trịnh Đại Phong cũng có nói rằng sẽ có một vị nhân vật tinh thông về quy tắc vận chuyển phúc địa đến núi Lạc Phách trong thời gian tới.
+Ngoài ra, Trịnh Đại Phong từng nói sắp có một người rất rành cách phúc địa vận hành tới núi Lạc Phách.
 
-Đây quả thực là một thông tin tốt không nhỏ.
+Đó thật sự là tin mừng lớn.
 
-Dù núi Lạc Phách Cốc vũ tiền không có nhiều, nhưng người này mỗi lần chia sẻ nội tình phúc địa, thực tế sẽ giúp núi Lạc Phách tiết kiệm được một khoản.
+Núi Lạc Phách tuy không còn nhiều tiền cốc vũ, nhưng người ấy mỗi lần nói một chút về phúc địa, trên thực tế đều giúp tiết kiệm được một khoản.
 
-Trước kia, Tôn Gia Thụ tự mình lên núi và vô cùng có thành ý.
+Trước đó Tôn Gia Thụ đích thân lên núi, thành ý rất đủ.
 
-Gia tộc của lão Long đã đồng ý mang ra ba trăm khối Cốc vũ tiền, chỉ cần xác định kỳ thu tiền lãi, tương lai lợi ích của Liên Ngẫu phúc địa, lão Tôn Gia Thụ cùng gia tộc sẽ không cần bất kỳ phần gì.
+Tôn gia Lão Long thành bằng lòng cho vay ba trăm đồng tiền cốc vũ. Chỉ cần định kỳ trả lãi, lợi nhuận sau này của Liên Ngẫu phúc địa, Tôn Gia Thụ cùng gia tộc không đòi chia chút nào.
 
-Gia tộc Phạm cũng đồng ý xuất ra ba trăm khối, với cùng điều kiện. Không phải là Phạm thị gia chủ, mà lại là một người trẻ tuổi tên là Phạm Nhị, sẽ đóng vai trò người vay tiền.
+Phạm gia cũng chịu bỏ ba trăm đồng, điều kiện tương tự. Chỉ có điều người đứng ra cho vay không phải gia chủ Phạm thị, mà là người trẻ tuổi tên Phạm Nhị.
 
-Tuy nhiên, hai gia tộc này đều có những yêu cầu riêng. Ví dụ, Tôn Gia Thụ yêu cầu núi Lạc Phách trong vòng mười năm phải cung cấp cho Tôn gia một vị trên danh nghĩa, có thể là Viễn Du cảnh vũ phu hoặc Nguyên Anh tu sĩ. Nếu Tôn gia gặp nạn và phải xuất thủ ứng cứu, khi đó yêu cầu sẽ hết hiệu lực. Tôn gia còn có dự định thành lập một tuyến đường thủy, kéo dài từ Lão Long thành đến thẳng phía bắc, và dùng núi Ngưu Giác bến đò thay vì Đại Ly kinh kỳ Trường Xuân cung để làm điểm dừng. Điều này cần Ngụy Bách và núi Lạc Phách hỗ trợ và chuẩn bị quan hệ với triều đình Đại Ly.
+Hai nhà vẫn có yêu cầu riêng. Chẳng hạn Tôn Gia Thụ muốn trong vòng mười năm, núi Lạc Phách cử một võ phu Viễn Du cảnh hoặc tu sĩ Nguyên Anh, trên danh nghĩa đứng về phía Tôn gia. Nếu Tôn gia gặp nạn, cần người ấy ra tay cứu viện, sau một lần xuất thủ, yêu cầu này coi như hoàn tất. Tôn gia còn muốn mở một tuyến đường thủy từ Lão Long thành thẳng lên phía bắc, lấy bến núi Ngưu Giác thay cho Trường Xuân cung ở vùng kinh kỳ Đại Ly làm điểm dừng. Việc ấy cần Ngụy Bách và núi Lạc Phách giúp thu xếp quan hệ với triều đình.
 
-Dù là có thêm những điều kiện nào, tất cả đều cần phải từ từ và có sự thỏa thuận giữa hai bên. Lần này, Tôn Gia Thụ vay tiền chỉ để thu lợi một chút, mặc dù nói rằng cam kết sẽ giúp Lão Long thành Tôn gia thu hoạch dù qua mùa hạn hay lụt.
+Những điều kiện khác đều phải từ từ thương lượng cho hai bên cùng thuận. Tôn Gia Thụ lần này cho vay chỉ lấy chút lãi, nói thì quả thật là bảo đảm cho Tôn gia Lão Long thành thu lợi bất kể hạn hay lụt.
 
-Nhưng hôm nay, Bảo Bình châu đang chuyển mình mạnh mẽ, ẩn chứa nhiều cơ hội phát tài, Tôn gia đã gần như tận dụng hết tài sản của mình để đánh cược vào núi Lạc Phách, điều này chắc chắn không phải là lựa chọn tốt nhất. Thực tế, con đường buôn bán sẽ giúp tiền sinh sôi nảy nở, cùng với các gia tộc lớn khác như hắn, sẽ rơi vào vùng Quan Hồ thư viện phía nam, hay Lão Long thành ở phía bắc với tiềm năng sinh lời cao. Dựa theo tình hình dần dần sáng tỏ hôm nay, Tôn thị không những không bị lỗ, mà còn có thể xây dựng mối quan hệ tốt với Đại Ly triều đình và Tống thị tân đế. Một khi Đại Ly chiếm giữ một châu, sự đầu tư này sẽ giúp gia tộc Tôn mở rộng tài lộ trong tương lai.
+Nhưng Bảo Bình châu hôm nay thay đổi dữ dội, khắp nơi đều có cơ hội phát tài. Tôn gia gần như dốc hết gia tài đánh cược vào núi Lạc Phách, chắc chắn chẳng phải lựa chọn có lời nhất. Nếu đem số tiền ấy đi buôn, cùng các đại tộc khác đổ vào vùng phía nam thư viện Quan Hồ, phía bắc Lão Long thành, tiền sinh tiền sẽ còn nhiều hơn. Theo cục diện ngày một rõ, Tôn thị không những không lỗ, còn có thể kết giao tốt với triều đình Đại Ly và tân đế Tống thị. Mai sau Đại Ly chiếm trọn một châu, khoản đầu tư ấy sẽ mở thêm tài lộ cho Tôn gia.
 
-Chu Liễm bỗng lên tiếng: "Khi Bao Phục trai khai trương cửa hàng, nếu không có gì bất ngờ xảy ra, Đại Ly tân đế sẽ chủ động gửi cho ngươi một khoản kim tinh đồng tiền, hoặc một ít Kim Thân mảnh vỡ. Núi Phi Vân hãy nhận lấy, để tránh làm cho trẻ tuổi hoàng đế phải suy nghĩ nhiều. Người thông minh sẽ dễ nảy sinh nghi ngờ, điều đó không tốt. Tuy nhiên, điều đã được định rõ là, quan hệ vẫn thuộc về quan hệ, mua bán vẫn thuộc về mua bán, và chúng ta sẽ cùng nhau mua sắm ở núi Lạc Phách và ngươi ở núi Phi Vân với giá cả hợp lý hơn."
+Chu Liễm chợt nói: “Bao Phục Trai mở cửa, nếu không có gì bất ngờ, tân đế Đại Ly sẽ chủ động gửi ngươi một khoản tiền đồng kim tinh hoặc ít mảnh vỡ kim thân. Núi Phi Vân cứ nhận, đỡ để vị hoàng đế trẻ tuổi nghĩ nhiều. Người thông minh vốn dễ sinh nghi, chẳng tốt lành gì. Nhưng phải nói rõ, giao tình là giao tình, mua bán là mua bán. Núi Lạc Phách chúng ta vẫn phải mua của núi Phi Vân bên ngươi với giá thấp.”
 
-Ngụy Bách cười nói: "Đương nhiên."
+Ngụy Bách cười: “Đương nhiên.”
 
-Sau đó, hắn bổ sung một câu: "Nếu có thể bỏ qua hai chữ "Giá thấp", thì thật là tốt."
+Rồi hắn thêm một câu: “Bỏ được hai chữ ‘giá thấp’ thì tốt biết mấy.”
 
-Ngụy Bách từ cuộc họp quan trọng trở về ngắm cảnh đêm, đến núi Ngưu Giác mở cửa Bao Phục trai của mình. Ngoài việc kiếm tiền bên ngoài, thực sự... hắn còn muốn kiếm một khoản kim tinh đồng tiền ẩn danh.
+Ngụy Bách từ chuyện mở dạ yến tới việc cho Bao Phục Trai mở cửa ở núi Ngưu Giác, ngoài kiếm tiền, thật ra còn muốn kín đáo thu được một khoản tiền đồng kim tinh.[?]
 
-Nếu như Bắc Nhạc đại thần cần phải mạnh mẽ cướp đoạt thần tiên tiền để hỗ trợ phá cảnh, thì Đại Ly triều đình làm sao có thể ngồi yên không mà không quan tâm? Có thể nói rằng, hôm nay Đại Ly tân đế, so với bất cứ ai ở Bảo Bình châu, rất muốn Ngụy Bách có thể thuận lợi vượt qua năm cảnh! Càng nhiều động tĩnh càng tốt! Thậm chí, trong vòng ngàn dặm hãy xuất hiện những dấu hiệu tốt lành. Điều này có ý nghĩa gì? Tống Hòa sẽ được vị nhất chính, thiên địa sẽ vui mừng!
+Đến đại thần Bắc Nhạc còn phải ra sức gom tiền thần tiên để phá cảnh, triều đình Đại Ly sao có thể ngồi yên? Tân đế Đại Ly hiện giờ e còn mong Ngụy Bách thuận lợi vào thượng ngũ cảnh hơn bất kỳ ai ở Bảo Bình châu. Động tĩnh càng lớn càng tốt! Trong vòng nghìn dặm đều xuất hiện điềm lành lại càng hay. Như vậy có nghĩa gì? Tống Hòa lên ngôi rất chính đáng, trời đất cùng vui!
 
-Ngụy Bách là tiên đế đã phong cho hắn vị trí thần thánh Ngũ Nhạc.
+Chính tiên đế đã sắc phong Ngụy Bách làm thần Ngũ Nhạc.
 
-Có lẽ Ngụy Bách lại là thần chích cao nhất ở Đại Ly, người rất quan trọng, vì Đại Ly kinh thành nằm ngay dưới mí mắt của hắn.
+Hắn lại là thần linh có địa vị cao nhất Đại Ly, vô cùng quan trọng, kinh thành Đại Ly ở ngay dưới mắt hắn.
 
-Như vậy, việc kéo "Tiền triều cựu thần" Ngụy Bách vào không phải là điều khó khăn, dễ dàng biến thành tâm bệnh của Đại Ly tân đế. Dần dần, nếu hai bên không có sự liên kết, sẽ trở thành một cái gai trong lòng hoàng đế. Do đó, cần Ngụy Bách cùng núi Phi Vân tạo điều kiện, để Đại Ly triều đình có thể thuận theo mà đi xuống, còn phải cảm thấy thoải mái chứ không lạnh lẽo.
+Lôi kéo vị “cựu thần tiền triều” này vốn chẳng khó, nhưng chuyện ấy lại dễ thành tâm bệnh của tân đế.[?] Hai bên cứ không có ràng buộc gì, dần dần sẽ thành một cái gai trong lòng hoàng đế. Vì thế, Ngụy Bách cùng núi Phi Vân phải tạo một bậc thang, để triều đình Đại Ly thuận thế bước xuống, còn phải bước cho thoải mái, đừng thấy lạnh lòng.
 
-Bởi vậy mà lúc đầu, Chu Liễm và Trịnh Đại Phong đã nói về lý do vì sao Ngụy Bách lại do dự và đồng ý.
+Đó cũng là lý do ban đầu Chu Liễm, Trịnh Đại Phong nói ra, Ngụy Bách sau khi do dự mới đồng ý.
 
-Bởi vì khi đó, trong tiểu viện đang bàn cờ, mỗi người đều phải tính toán nhiều bước.
+Bởi khi ngồi đánh cờ trong tiểu viện ấy, ai cũng phải tính thêm nhiều bước.
 
-Ngụy Bách do dự một chút, "Liệu có ai hỏi ta vì sao đột nhiên biết được tình huống của Ngẫu Hoa phúc địa không?"
+Ngụy Bách hơi ngập ngừng: “Ngươi không hỏi vì sao ta đột nhiên biết được chuyện Ngẫu Hoa phúc địa sao?”[?]
 
-Chu Liễm vẫy tay, "Không cần phải nói cho ta biết. Chúng ta đã là những người không cần phải nói quá nhiều, không cần có người hỏi, cũng không cần có ai trả lời, không có ý nghĩa gì cả."
+Chu Liễm khoát tay: “Không cần nói với ta. Đã là người như chúng ta, có những chuyện chẳng cần nói nhiều, không ai phải hỏi, cũng không ai phải đáp, vô nghĩa thôi.”
 
-Ngụy Bách nâng chén trà, "Lấy trà thay rượu."
+Ngụy Bách nâng chén: “Lấy trà thay rượu.”
 
-Chu Liễm tranh thủ thời gian dựa sát vào nhau, hai tay giơ chén trà, dáng vẻ tươi cười chẳng khác gì nịnh nọt: "Ngụy đại thần mời rượu, không dám từ chối."
+Chu Liễm vội ghé tới, hai tay nâng chén trà, cười nịnh nọt: “Ngụy đại thần mời rượu, nào dám chối từ.”
 
-Sau khi hai người uống cạn chén trà, Ngụy Bách cười nói: "Đáng tiếc Đại Phong huynh đệ không có ở đây."
+Cả hai uống cạn, Ngụy Bách cười: “Tiếc là Đại Phong huynh đệ không ở đây.”
 
-Chu Liễm lại xoa cái ót, "Cái việc ấy, ta và ngươi không bằng hắn."
+Chu Liễm xoa gáy: “Chuyện ấy, ta với ngươi không bằng hắn.”
 
-Ngụy Bách không có ý kiến gì.
+Ngụy Bách chẳng phản đối.
 
-Bởi vì hắn, Ngụy Bách, không phải là người.
+Bởi hắn, Ngụy Bách, đâu phải người.
 
-Điều này chẳng phải là tiện lợi cho Chu Liễm hay sao?
+Chẳng phải lại để Chu Liễm chiếm tiện nghi rồi sao?
 
-Từ lão đầu bếp đó, có chút lợi ích, đánh cờ hay buôn bán, đều không dễ dàng.
+Muốn kiếm chút lợi từ lão đầu bếp này, đánh cờ cũng vậy, buôn bán cũng vậy, đều chẳng dễ.
 
-Ngụy Bách đứng lên, cười nói: "Sẽ không làm phiền ngươi làm ăn đêm lâu rồi."
+Ngụy Bách đứng dậy cười: “Không quấy rầy ngươi lo việc đêm nữa.”
 
-Chu Liễm gật đầu nhẹ, thở dài: "Còn một lúc mới bắt đầu, ta phải kiên cường, nhưng bây giờ ta có chút chột dạ. Sau này thiếu gia nhà ta trở về núi Lạc Phách, có lẽ ta cần phải trốn bên ngươi một chút."
+Chu Liễm khẽ gật đầu, thở dài: “Còn một lúc nữa mới bắt đầu, ta phải cố chống đỡ. Nhưng bây giờ cũng hơi chột dạ. Mai sau thiếu gia về núi Lạc Phách, có lẽ ta phải sang chỗ ngươi trốn ít hôm.”
 
-Ngụy Bách nhìn có vẻ hả hê, chớp mắt rồi biến mất.
+Ngụy Bách nhìn hắn, có vẻ vui trên nỗi khổ người khác, rồi chớp mắt đã biến mất.
 
 Chu Liễm đứng dậy mở cửa.
 
-Bên ngoài có một nàng hầu bàn tay cụt đang gõ cửa, có vẻ nàng không muốn đánh thức hộ pháp Kỵ Long Hữu.
+Bên ngoài, một bàn tay nhỏ đang gõ nhè nhẹ, dường như không muốn đánh thức Kỵ Long Hữu hộ pháp.[?]
 
-Chu Liễm mở cửa, Bùi Tiễn lạng quạng bước vào, giọng nói rung rung: "Lão đầu bếp, ta không ngủ được, có thể cùng ngươi trò chuyện một chút không?"
+Cửa vừa mở, Bùi Tiễn đã lảo đảo bước vào, giọng run run: “Lão đầu bếp, ta không ngủ được. Nói chuyện với ngươi một lát được không?”
 
-Chu Liễm đóng cửa lại, cười nói: "Cái này có gì mà không thể."
+Chu Liễm đóng cửa, cười: “Có gì mà không được.”
 
-Bùi Tiễn ngồi xuống ghế, cười lớn, vẻ mặt rạng rỡ như hoa.
+Bùi Tiễn ngồi xuống ghế, cười rạng rỡ như hoa.
 
-Đêm nay, nàng không phải không ngủ được mà thực chất là bị đau nên không thể nghỉ, nàng đã hận không thể tự cho mình một cái miệng rộng. Trước đây, nói rằng đệm chăn mới là vấn đề sống chết của mình, bây giờ có khác gì hả? Mặc quần áo ở trên người cơ chừng là một thứ giày vò.
+Đêm nay chẳng phải nàng không buồn ngủ, mà đau đến không sao ngủ nổi. Nàng chỉ hận không tự tát mình một cái. Trước kia còn nói chăn đệm mới là cửa ải sinh tử, bây giờ thì sao? Chỉ mặc quần áo trên người thôi cũng đã là giày vò.
 
-Chu Liễm hỏi: "Không đói bụng à? Ăn chút gì khuya nhé? Rất nhanh thôi."
+Chu Liễm hỏi: “Có đói không? Ăn chút gì nhé, ta làm nhanh lắm.”
 
-Bùi Tiễn lắc đầu, giọng yếu ớt nói: "Tôi không có khẩu vị."
+Bùi Tiễn lắc đầu, yếu ớt đáp: “Chẳng muốn ăn.”
 
-Chu Liễm lại hỏi: "Có tâm sự gì không?"
+“Có tâm sự à?”
 
-Bùi Tiễn gật đầu, nhưng không chịu mở miệng.
+Bùi Tiễn gật đầu mà không chịu nói.
 
-Chu Liễm hỏi: "Có phải nợ nần ngày càng nhiều, tâm phiền ý loạn không?"
+Chu Liễm hỏi: “Nợ ngày một nhiều nên phiền lòng?”
 
-Bùi Tiễn gật đầu, vẻ buồn bã nói: "Lão đầu nhi bảo tôi còn vài ngày nữa mới phá được tam cảnh, đến lúc đó có thể miễn cưỡng có thời gian để sao chép sách, nhưng chẳng qua là không còn nhiều thời gian, rất nhanh lại phải trở lại tình trạng không được nhuần nhuyễn, thật sự phiền lòng."
+Nàng gật đầu, ủ rũ: “Lão đầu bảo còn mấy ngày nữa ta mới phá được tam cảnh. Tới lúc đó mới miễn cưỡng có thời gian chép sách. Nhưng cũng chẳng được bao lâu, rất nhanh lại trở về cảnh chẳng kịp trở tay, phiền chết đi được.”[?]
 
-Chu Liễm chỉ lắng nghe cô gái nhỏ, không chen vào.
+Chu Liễm chỉ lắng nghe, không xen lời.
 
-Bùi Tiễn ngẩng đầu, nhìn lên bầu trời rộng lớn như khay ngọc. "Trước đây, tại hẻm Kỵ Long, ta từng nghĩ sẽ có một ngày ngươi chỉ cần vèo một cái là về nhà. Giờ thì ta vừa muốn ngươi về, lại sợ hãi rằng ngươi sẽ trở về. Nếu ngươi biết ta đã nhiều ngày không sao chép sách, tức giận một phen thì sẽ đuổi ta ra khỏi sư môn, thì phải làm sao đây?"
+Bùi Tiễn ngẩng đầu, nhìn vầng trăng như mâm ngọc trên trời: “Hồi ở ngõ Kỵ Long, ta từng mong có ngày sư phụ vèo một cái đã về tới nhà. Bây giờ ta vừa muốn người về, lại vừa sợ. Sư phụ biết bao ngày qua ta chẳng chép sách, nổi giận đuổi ta khỏi sư môn, vậy phải làm sao?”
 
-Tiểu nha đầu nhíu mày, quệt miệng, nước mắt trong veo nơi khóe mắt, ủy khuất nói: "Ngươi cũng không phải chưa từng làm chuyện như thế. Khi vừa rời khỏi Ngẫu Hoa phúc địa, tại thành phố Đồng Diệp, nơi có Đại Tuyền vương triều, ngươi cũng từng không ghé qua ta một lần nào. Ngươi không màng tới ta, không quan tâm tới ta nữa sao? Lúc ấy, ta còn chưa hiểu chuyện, nhưng ngươi có thể không quan tâm và đổi ý, giờ ta đã hiểu. Nếu như ngươi không quan tâm ta lần nữa, thì thật sự sẽ không cần ta nữa."
+Tiểu nha đầu nhíu mày, mím môi, khóe mắt ngấn lệ, tủi thân nói: “Người đâu phải chưa từng làm vậy. Vừa ra khỏi Ngẫu Hoa phúc địa, tới vương triều Đại Tuyền ở Đồng Diệp châu, có lần người chẳng ngó ngàng tới ta. Không lo cho ta, chẳng thèm để ý ta nữa. Khi ấy ta chưa hiểu chuyện, nhưng người vẫn có thể đổi ý mà nhận ta lại. Bây giờ ta đã hiểu rồi, nếu người lại bỏ ta, vậy là thật sự không cần ta nữa.”[?]
 
-Chu Liễm nhẹ nhàng hỏi: "Có phải vì sợ như vậy mà ngươi mãi không dám lớn lên hay không?"
+Chu Liễm khẽ hỏi: “Có phải sợ vậy nên ngươi cứ mãi không dám lớn lên?”
 
-Bùi Tiễn khó khăn giơ tay lên, lau mặt một cái, "Sao có thể không sợ chứ. Lớn lên có gì tốt đâu."
+Bùi Tiễn khó nhọc giơ tay lau mặt: “Sao không sợ được? Lớn lên có gì tốt đâu.”
 
-Thực tế về việc sao chép sách, Chu Liễm đã từng giải thích cho Bùi Tiễn, nàng hẳn đã nghe thấy.
+Chuyện chép sách, thật ra Chu Liễm từng giải thích, nàng hẳn cũng nghe lọt tai.
 
-Vì vậy, nguyên nhân chân chính là Bùi Tiễn không thể nói ra khỏi miệng, mà chỉ đặt ở tận đáy lòng mình.
+Cho nên nguyên do thật sự, Bùi Tiễn chẳng nói ra, chỉ giấu tận đáy lòng.
 
-Chu Liễm có lẽ đã đoán ra điều này, nhưng không nói thẳng ra.
+Chu Liễm đoán được, nhưng không vạch trần.
 
-Năm đó, Trần Bình An đã từng nói với Bùi Tiễn rằng hắn thực sự muốn mang nàng ra khỏi Ngẫu Hoa phúc địa, chính là Tào Tình Lãng.
+Năm xưa Trần Bình An từng nói với nàng, người hắn thật sự muốn đưa khỏi Ngẫu Hoa phúc địa là Tào Tình Lãng.
 
-Khi đó, Trần Bình An đối với tính cách của Bùi Tiễn, một người cực đoan, đồng thời cũng không che giấu sự ưa thích hay chán ghét của mình.
+Bấy giờ, đối với tính tình cực đoan của Bùi Tiễn, hắn chẳng hề che giấu sự yêu ghét.
 
-Cái gọi là "phát triển," trong mắt Chu Liễm, chỉ đơn thuần là những tính toán, lợi và hại mà thôi.
+Trong mắt Chu Liễm, cái gọi là “lớn lên” chẳng qua là bắt đầu biết tính toán lợi hại.
 
-Bùi Tiễn đang rơi vào một hoàn cảnh rất lúng túng.
+Bùi Tiễn đang mắc kẹt ở một chỗ rất khó xử.
 
-Nàng không phải không hiểu về những tính toán này, hoàn toàn ngược lại, với hoàn cảnh khó khăn của một cô nhi, nàng rất am hiểu cách nhìn người và tính toán được-mất.
+Nàng không phải không hiểu những tính toán ấy. Trái lại, từ nhỏ làm cô nhi, chịu bao khốn khó, nàng rất giỏi nhìn sắc mặt và cân nhắc được mất.
 
-Nhưng khi theo Trần Bình An, nàng lại nhận ra những điều mà nàng am hiểu lại khiến khoảng cách giữa nàng và Trần Bình An ngày càng xa.
+Nhưng theo Trần Bình An rồi, nàng lại nhận ra, chính những việc mình giỏi nhất ấy khiến nàng cách hắn ngày một xa.
 
-Vì thế, hắn mãi sợ hãi việc lớn lên, lặng lẽ bắt chước Trần Bình An, với ý định trở thành một người mà Trần Bình An có thể công nhận là Bùi Tiễn.
+Cho nên nàng cứ sợ lớn lên, lặng lẽ bắt chước Trần Bình An, muốn trở thành một Bùi Tiễn được hắn công nhận.
 
-Thực ra điều này không có gì xấu.
+Thật ra chuyện ấy chẳng xấu.
 
-Bởi vì Trần Bình An có đủ kiên nhẫn, chờ đợi Bùi Tiễn chậm rãi lớn lên, và muốn truyền thụ cho nàng những quy tắc, lễ nghi cùng cách ứng xử khác nhau trong từng giai đoạn.
+Bởi Trần Bình An đủ kiên nhẫn đợi nàng chậm rãi trưởng thành, rồi ở mỗi giai đoạn lại dạy nàng những quy củ, lễ nghi cùng cách đối nhân xử thế khác nhau.
 
-Nhưng không ai ngờ rằng Ngẫu Hoa phúc địa chia làm bốn, Chu Liễm và Bùi Tiễn vừa vào trong đó thì gặp phải một cảnh tượng như vậy.
+Nhưng chẳng ai ngờ Ngẫu Hoa phúc địa chia làm bốn, Chu Liễm và Bùi Tiễn vừa bước vào đã gặp một cảnh như vậy.
 
-Thực sự, nếu như Bùi Tiễn chỉ đơn thuần nhìn thấy Ngẫu Hoa phúc địa, nơi có một thiếu niên áo xanh đột nhiên lớn lên chỉ trong một đêm, thì có thể còn dễ dàng chấp nhận.
+Nếu nàng chỉ thấy một thiếu niên thanh y ở Ngẫu Hoa phúc địa dường như lớn lên sau một đêm, có lẽ vẫn dễ chấp nhận hơn.
 
-Vấn đề nằm ở chỗ, tại thời điểm đầu tiên, Bùi Tiễn đứng ở đầu hẻm nhỏ, nhìn thấy Trần Bình An và Tào Tình Lãng cùng đi dưới mưa trong một con ngõ hẹp.
+Mấu chốt là, ngay lúc đầu đứng ở đầu ngõ, nàng đã thấy Trần Bình An và Tào Tình Lãng cùng bước trong mưa giữa con ngõ hẹp.
 
-Khi đến Hạo Nhiên Thiên Hạ, tại cái quyển tẩu mã đồ ở Thôi Đông Sơn, nàng lại thấy được một bức tranh rất tương tự như bức tranh trước mặt: một thiếu niên trong giày rơm cùng với vị tiên sinh mà hắn kính trọng, cũng kề vai sát cánh dưới màn mưa.
+Đến Hạo Nhiên thiên hạ, trong bức tẩu mã đồ ở chỗ Thôi Đông Sơn, nàng lại thấy một cảnh rất giống: thiếu niên giày cỏ cùng vị tiên sinh hắn kính trọng sóng vai đi dưới màn mưa.
 
-Vì vậy, Bùi Tiễn mới có thể nói rằng nàng có thể thua bất kỳ ai, nhưng tuyệt đối không thể thua Tào Tình Lãng.
+Bởi vậy Bùi Tiễn mới nói, thua ai cũng được, riêng Tào Tình Lãng thì tuyệt đối không.
 
-Bởi vì Bùi Tiễn sợ rằng kẻ đã lớn lên, tài năng xuất chúng như Tào Tình Lãng, sẽ cướp đi tất cả những gì vốn nên thuộc về nàng.
+Nàng sợ Tào Tình Lãng đã lớn lên, lại tài giỏi xuất chúng, sẽ lấy mất tất cả những gì đáng lẽ thuộc về mình.
 
-Bùi Tiễn lo lắng rằng một ngày nào đó, dưới cơn mưa lớn, ngươi sẽ không ngần ngại khen ngợi Tào Tình Lãng, đi cùng hắn, cứ như vậy mà dần dần rời xa, Trần Bình An cũng không quay đầu.
+Nàng sợ một ngày giữa cơn mưa lớn, sư phụ cứ hết lời khen Tào Tình Lãng, đi cùng hắn, rồi dần dần xa mãi, không ngoảnh đầu lại.
 
-Giờ đây, ở núi Lạc Phách cùng Hạo Nhiên Thiên Hạ, Bùi Tiễn như trở về năm đó tại cửa hẻm Ngẫu Hoa phúc địa.
+Ngay lúc này, ở núi Lạc Phách, ở Hạo Nhiên thiên hạ, nàng cũng chẳng khác nào trở lại đầu ngõ Ngẫu Hoa phúc địa năm xưa.
 
-Hai tay trắng.
+Hai bàn tay trắng.
 
-Tại Ngẫu Hoa phúc địa, khoảnh khắc nhìn thấy Tào Tình Lãng lần nữa.
+Khoảnh khắc gặp lại Tào Tình Lãng trong Ngẫu Hoa phúc địa.
 
-Bùi Tiễn cảm thấy như mình đang rơi vào hầm băng, tay chân lạnh buốt, hơn nữa trong lòng tràn đầy sát cơ!
+Bùi Tiễn như rơi xuống hầm băng, tay chân lạnh buốt, trong lòng lại đầy sát cơ!
 
-Nhưng mà, nếu như nàng tìm cơ hội để giết Tào Tình Lãng, thì sẽ đồng nghĩa với việc mất đi sư phụ, và buộc phải tự lớn lên, còn muốn vượt qua Tào Tình Lãng, để có thể ở bên cạnh Trần Bình An trong cơn mưa như bão táp, sau đó khi nàng một lần nữa đứng trên núi Lạc Phách như trước.
+Nhưng tìm cơ hội giết Tào Tình Lãng thì đồng nghĩa mất sư phụ. Hoặc nàng phải tự lớn lên, vượt qua Tào Tình Lãng, để được đứng bên Trần Bình An giữa cơn mưa như trút, rồi vẫn có thể trở lại núi Lạc Phách như trước.[?]
 
-Nàng đã chọn người sau.
+Nàng chọn cách thứ hai.
 
-Chu Liễm cẩn thận chuẩn bị và tìm từ để hỏi: "Nếu như sư phụ ngươi trở lại núi Lạc Phách, thấy Tào Tình Lãng, rất ưa thích hắn, ngươi sẽ rất buồn sao?"
+Chu Liễm cân nhắc lời lẽ, dè dặt hỏi: “Nếu sư phụ về núi Lạc Phách, gặp Tào Tình Lãng rồi rất thích hắn, ngươi sẽ buồn lắm sao?”
 
-Bùi Tiễn suy nghĩ một chút, nói: "Chỉ cần ngươi thích ta nhất, thì cũng rất vui vẻ. Nhưng nếu như ngươi yêu thích ta cùng Tào Tình Lãng như nhau, thì có chút không vui. Còn nếu như ngươi thích Tào Tình Lãng hơn ta, thì... rất buồn."
+Bùi Tiễn nghĩ một lát: “Chỉ cần sư phụ thích ta nhất thì ta vẫn rất vui. Nếu người thích ta với Tào Tình Lãng như nhau, ta sẽ hơi không vui. Còn nếu người thích hắn hơn ta thì... buồn lắm.”
 
-Chu Liễm nở một nụ cười và nói: "Vậy ngươi có thể yên tâm, một hai ba, ba loại tình huống, ta không dám nói thêm gì, nhưng ít nhất ngươi có thể bảo vệ hai tranh giành một."
+Chu Liễm mỉm cười: “Vậy cứ yên tâm. Ba tình huống, một, hai, ba, ta không dám nói nhiều, nhưng ít nhất ngươi giữ chắc được thứ hai, tranh lấy thứ nhất.”
 
-Bùi Tiễn liếc mắt, "Ngươi không phải sư phụ ta, nói chuyện thì cũng nên cân nhắc hơn."
+Bùi Tiễn đảo mắt: “Ngươi có phải sư phụ ta đâu, nói gì cũng nên nghĩ kỹ chút.”
 
-Mặc dù nàng nói như vậy, nhưng thực tế trong lòng vẫn có chút vui vẻ.
+Miệng nói vậy, trong lòng nàng vẫn vui hơn một ít.
 
-Chu Liễm kiềm chế nụ cười, "Tin hay không là tùy ngươi, chỉ là luyện quyền lâu như vậy, nợ nần chồng chất mà vẫn chưa phá tam cảnh, điều này có chút không ổn."
+Chu Liễm thu nụ cười: “Tin hay không tùy ngươi. Có điều luyện quyền lâu vậy rồi, nợ chồng nợ mà chưa phá tam cảnh, thế cũng hơi không ổn.”
 
-Bùi Tiễn thở dài đầy chán nản, nhíu mày với khuôn mặt nhỏ nhắn có phần u ám, "Không phải đâu, lão đầu cũng nói ta tư chất kém, ngay cả sư phụ ta cũng không bằng. Nói thật ra cũng chỉ là lời nói nhảm, ta sao có thể so với sư phụ được? Buồn chết đi được!"
+Bùi Tiễn thở dài, mặt mày ủ dột: “Còn phải nói. Lão đầu cũng chê tư chất ta kém, ngay sư phụ ta cũng chẳng bằng. Nói thế chẳng phải thừa sao, ta làm sao so được với sư phụ? Buồn chết mất!”
 
-Chu Liễm có chút cảm thán.
+Chu Liễm cảm khái.
 
-Chỉ là một câu đùa vui, không ngờ rằng vị lão tiền bối kia lại có thể thốt ra những lời độc ác như vậy, thật không thể tin nổi!
+Hắn chỉ thuận miệng đùa, nào ngờ lão tiền bối lại thật sự nói được những lời ác độc như vậy, khó tin thật!
 
-Chu Liễm vuốt trán, không quá muốn nói thêm.
+Chu Liễm xoa trán, chẳng muốn nói thêm.
 
-Tam cảnh bình cảnh trong võ thuật, đó là cách đầu tiên, thậm chí có thể xem như là quyết định tối cao cuối cùng của võ đạo.
+Bình cảnh tam cảnh của võ đạo là cửa ải đầu tiên, thậm chí có thể quyết định độ cao cuối cùng của một võ phu.
 
-Ý nghĩa to lớn chẳng khác gì với việc một võ giả phá cửa chính, thành công tiến vào mười cảnh cao nhất.
+Ý nghĩa lớn lao chẳng kém việc phá cánh cửa cuối cùng, bước lên thập cảnh đỉnh cao.
 
-Nếu là một người bình thường truyền thụ quyền pháp, tốc độ phá cảnh như vậy có thể được lý giải là do nội lực chưa đủ kiên cố, cả đời không cần mong đợi tới hai chữ "mạnh nhất", chỉ có thể từng bước từng bước tiến lên.
+Nếu do người thường truyền quyền, phá cảnh nhanh đến vậy còn có thể giải thích rằng căn cơ chưa chắc, cả đời đừng mong tới hai chữ “mạnh nhất”, chỉ có thể chậm rãi đi từng bước.
 
-Có thể đạt đến cảnh giới đó sao?
+Nhưng ở trong tay vị kia, có thể như vậy sao?[?]
 
-Tại trong tay hắn, dường như không có cảnh giới nội lực nào kiên cố hơn, chỉ có thể ngày càng kiên cố.
+Trong tay hắn, căn cơ dường như chẳng có chắc nhất, chỉ có ngày một chắc hơn.
 
-Bùi Tiễn bỗng nhiên ngẩng đầu hỏi: "Lão đầu bếp, ngươi đang ở mấy cảnh?"
+Bùi Tiễn chợt ngẩng đầu: “Lão đầu bếp, ngươi mấy cảnh rồi?”
 
-Chu Liễm cười đáp: "Tám cảnh, Viễn Du cảnh."
+Chu Liễm cười: “Bát cảnh, Viễn Du cảnh.”
 
-Bùi Tiễn cúi đầu, ngón tay khẽ nhúc nhích, một hồi lại thở dài, sau đó ngẩng đầu, gương mặt tràn đầy thất vọng, "Lão đầu bếp, vậy ta đã nhiều năm không theo kịp ngươi rồi."
+Nàng cúi đầu nhúc nhích ngón tay tính toán, một lát sau lại thở dài. Ngẩng lên, mặt đầy thất vọng: “Lão đầu bếp, vậy còn nhiều năm nữa ta mới đuổi kịp ngươi.”
 
-Chu Liễm cười nhưng có phần cứng ngắc, "Hình như đúng là như vậy..."
+Nụ cười Chu Liễm hơi cứng lại: “Hình như đúng vậy...”
 
-Lập tức, Chu Liễm nghi hoặc hỏi: "Sư phụ ngươi ở cảnh nào, ngươi không biết sao?"
+Rồi hắn nghi hoặc: “Ngươi không biết sư phụ mình mấy cảnh sao?”
 
-Bùi Tiễn vẻ mặt như nhìn kẻ ngu ngốc, "Sư phụ ta hôm nay ở mức sáu cảnh."
+Bùi Tiễn nhìn hắn như nhìn kẻ ngốc: “Sư phụ ta giờ ở lục cảnh.”
 
-Chu Liễm càng suy nghĩ mà không rõ, "Thiếu gia sao lại không so với ta thấp hai cảnh? Tại sao ngươi không kịp sư phụ ngươi về cảnh giới?"
+Chu Liễm càng khó hiểu: “Thiếu gia chẳng phải thấp hơn ta hai cảnh sao? Sao ngươi lại không sợ không đuổi kịp cảnh giới của sư phụ?”[?]
 
-Bùi Tiễn vẻ mặt ngớ ngẩn, như thể đang nói rằng Chu Liễm thật ngốc, nàng lắc đầu và nói: "Lão đầu bếp, ngươi nói như vậy chẳng phải đêm hôm khuya khoắt nói mớ sao? Cảnh giới của sư phụ ta không thể lật tính toán như vậy."
+Mặt Bùi Tiễn ngơ ngác, như đang hỏi sao hắn ngốc thế. Nàng lắc đầu: “Lão đầu bếp, đêm hôm khuya khoắt ngươi nói mớ à? Cảnh giới sư phụ ta đâu thể tính kiểu ấy.”
 
 Chu Liễm thật lòng khâm phục.
 
-Bùi Tiễn vui vẻ, nhún chân đứng dậy, bồng bềnh nhảy lên đầu tường, lặng lẽ vượt lên nóc nhà, rồi bước đến mái hiên, đưa mắt nhìn về phía phương bắc.
+Bùi Tiễn vui vẻ nhón chân đứng dậy, nhẹ nhàng nhảy lên đầu tường, lặng lẽ lướt tới nóc nhà, rồi bước ra mái hiên, nhìn về phương bắc.
 
-Có lẽ nàng hôm nay còn chưa nhận ra điều gì gọi là quyền ra chân, khiến người ta kinh hãi.
+Có lẽ chính nàng còn chưa biết thế nào là ra quyền, cất bước đều khiến người ta kinh hãi.[?]
 
-Xem chừng rất nhanh sau đó nàng không cần dán tấm bùa trước trán nữa.
+Xem chừng chẳng bao lâu nữa nàng không cần dán lá bùa lên trán.
 
-Bỗng nhiên Chu Liễm nghĩ đến một chuyện, sắc mặt lập tức đổi khác, sau khi trầm ngâm một chút, nghiêm mặt hỏi: "Bùi Tiễn, lúc trước ngươi hai lần ợ một cái không ngừng, lão tiền bối đã nói gì với ngươi?"
+Chu Liễm bỗng nhớ một chuyện, sắc mặt đổi hẳn. Nghĩ một lúc, hắn nghiêm túc hỏi: “Bùi Tiễn, hai lần trước ngươi cứ nấc mãi không thôi, lão tiền bối nói gì với ngươi?”
 
-Bùi Tiễn chỉ nhìn về phương bắc với vẻ cực kỳ chán ghét, nói: "Nói ta cần ăn đòn."
+Nàng chỉ nhìn phương bắc, giọng đầy chán ghét: “Bảo ta thiếu đòn.”
 
-Thực tế, cụ lão đầu còn có vẻ ghét bỏ, nói rằng cảnh giới võ đạo của nàng giống như kiến dọn nhà so với rùa đen bò. Chỉ có điều, những lời này, nàng chỉ một mình biết rõ, không thì lão đầu bếp với cái miệng rộng như vậy, có lẽ ngày mai cả ngọn núi Lạc Phách đều biết mất.
+Thật ra lão đầu còn ghét bỏ, nói cảnh giới võ đạo của nàng tiến chậm như kiến chuyển nhà, như rùa bò. Nhưng những lời ấy cứ để một mình nàng biết. Lão đầu bếp lắm miệng như vậy, nói cho hắn thì e sáng mai cả núi Lạc Phách đều hay.
 
 Chu Liễm vỗ trán.
 
-Hắn thực sự hối hận khi để Bùi Tiễn học võ quá sớm.
+Hắn thật sự hối hận vì để nàng học võ sớm quá.
 
-Chu Liễm có thể đoán, khi Trần Bình An trở lại núi Lạc Phách và phát hiện ra sự khác thường của Bùi Tiễn, hắn cùng Trịnh Đại Phong, Ngụy Bách đều không thể thoát khỏi cơn giận dữ của Trần Bình An.
+Có thể đoán được, đợi Trần Bình An về núi, phát hiện chỗ khác thường của Bùi Tiễn, hắn, Trịnh Đại Phong cùng Ngụy Bách chẳng ai tránh nổi cơn giận ấy.
 
-Trong mắt người ngoài, núi Lạc Phách có nhiều kỳ nhân dị thường, thế nhưng trong mắt người trong nhà, có lẽ Bùi Tiễn là quái dị nhất.
+Trong mắt người ngoài, núi Lạc Phách có bao kỳ nhân dị sĩ. Nhưng trong mắt người nhà, có lẽ Bùi Tiễn mới kỳ quái nhất.
 
-Tất nhiên, Trần Bình An lại càng quái dị hơn.
+Dĩ nhiên, Trần Bình An còn kỳ quái hơn.
 
-Trên đời này, tất cả các sư phụ đều vì có một đệ tử như Bùi Tiễn mà mừng rỡ.
+Sư phụ trên đời, ai có một đệ tử như Bùi Tiễn mà chẳng mừng rỡ?
 
-Nhưng Trần Bình An thì không như vậy.
+Chỉ Trần Bình An là khác.
 
-Không phải hắn không tính sổ, hoàn toàn trái ngược, người đã trở thành thầy giáo thu chi tại Thư Giản Hồ ba năm ở độ tuổi trẻ nhất, luôn tính toán mọi thứ.
+Không phải hắn không biết tính toán. Trái lại, còn trẻ như vậy đã làm tiên sinh phòng thu chi ở Thư Giản hồ suốt ba năm, chuyện gì hắn cũng tính.
 
-Hắn chỉ là rất hy vọng bên cạnh có một người, dù chỉ một người, có thể ở cạnh, thoải mái như những tháng năm thanh bình trở về, trên vai soi sáng những cánh đồng và rặng liễu.
+Chỉ là hắn rất mong bên cạnh có một người, dẫu chỉ một người, được thong dong sống như trở lại những tháng năm thanh bình, vai gánh sắc đồng quê cùng bóng liễu.[?]
 
-Ở đó, mới là chân trời rộng mở, đại đạo xa vời.
+Ở nơi ấy mới có trời cao đất rộng, đại đạo xa dài.
 
-Bùi Tiễn cúi đầu nói, "Lão đầu bếp, ta đi thôi."
+Bùi Tiễn cúi đầu nói: “Lão đầu bếp, ta đi đây.”
 
-Chu Liễm gật đầu đồng ý.
+Chu Liễm gật đầu.
 
-Bùi Tiễn ngay lập tức nhảy lên thật cao, rơi xuống đầu tường, hùng hồn bay vọt đi.
+Nàng lập tức nhảy vọt lên cao, đáp xuống đầu tường, rồi hiên ngang lao đi.
 
-Như những gì Thôi Đông Sơn đã viết trong sách.
+Giống như câu Thôi Đông Sơn viết trong sách.
 
-Nhảy lên mái nhà, không một tiếng động, lúc ánh trăng sáng, di chuyển giống như chim bay.
+Tung mình lên mái, ngói không một tiếng động. Trăng đang sáng, đi nhanh như chim bay.

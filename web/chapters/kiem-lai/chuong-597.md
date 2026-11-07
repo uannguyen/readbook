@@ -1,643 +1,643 @@
 # Chương 597: Cố Xán còn là cái kia Cố Xán
 
-Năm nay Thư Giản hồ Vân Lâu thành, Trì Thủy thành, trước sau tổ chức thủy lục đại hội cùng Chu Thiên Đại Ly, hao tiền vô số, bởi vì mời rất nhiều thần tiên trên núi hai nhà Phật Đạo, không phải loại mua danh chuộc tiếng.
+Năm nay, Vân Lâu thành và Trì Thủy thành ở Thư Giản hồ lần lượt tổ chức thủy lục đại hội cùng đại lễ Chu Thiên [?]. Hai trận pháp sự tiêu tốn vô số tiền của, bởi những vị thần tiên Phật Đạo được mời xuống núi đều có chân tài thực học, chẳng phải hạng mua danh chuộc tiếng.
 
-Đây còn là bởi vì hai vị tổ chức thân phận không tầm thường, phân biệt là Tiệt Giang chân quân Lưu Chí Mậu từ cung cấp tù nhân từ cung Liễu đảo chuyển thành cung phụng Chân cảnh tông, cùng Thư Giản hồ đóng giữ tướng quân Quan Thiên Nhiên, bằng không nhắm chừng ít nhất giá cả còn phải tăng lên một phen, có thể mời được những tu sĩ trên núi xuống núi, cần tiêu hao tình hương khói, lại là một bút trả giá không nhỏ. Đương nhiên, đã có thể tích góp công đức bản thân, lại có thể kết bạn Lưu Chí Mậu cùng Quan Chí Mậu, cũng là chuyện may mắn, cho nên từng vị đạo môn thần tiên cùng cao đức đại tăng, đối với hai tràng pháp sự đều cực kỳ dụng tâm.
+Ấy còn là nhờ hai người đứng ra tổ chức đều có thân phận không tầm thường. Một người là Tiệt Giang chân quân Lưu Chí Mậu, từ tù nhân ở Cung Liễu đảo trở thành cung phụng Chân Cảnh tông; người kia là Quan Diệp Nhiên, tướng quân trú đóng Thư Giản hồ. Nếu không có hai người, e rằng giá tiền ít nhất còn phải tăng thêm. Muốn mời tu sĩ xuống núi còn phải dùng đến tình hương khói, đó cũng là một khoản bỏ ra không nhỏ. Đương nhiên, vừa tích góp được công đức, vừa kết giao với Lưu Chí Mậu và Quan Diệp Nhiên, đối với những vị thần tiên Đạo môn cùng cao tăng đại đức ấy cũng là chuyện may mắn. Bởi vậy, ai nấy đều hết lòng với hai trận pháp sự.
 
-Trong đó, có ba bóng người vẫn luôn giấu sau màn không nổi bật. Nhưng Quan Cao Nhiên đi theo quan quân, đối với bản lĩnh tính sổ của ba người, vẫn có chút bội phục.
+Trong suốt thời gian đó, có ba người lặng lẽ đứng sau lo liệu, chẳng mấy ai chú ý. Nhưng đám quan lại đi theo Quan Diệp Nhiên đều có phần khâm phục bản lĩnh tính toán sổ sách của họ.
 
-Ba người kia, lần lượt tên là Cố Xán, Tăng Dịch, Mã Thụy.
+Ba người ấy là Cố Xán, Tằng Dịch và Mã Đốc Nghi.
 
-Hai trận thịnh hội thuận lợi kết thúc, người người ca tụng công đức vô lượng của Lưu cung phụng cùng Quan tướng quân.
+Hai trận thịnh hội kết thúc thuận lợi. Khắp nơi đều ca tụng Lưu cung phụng và Quan tướng quân công đức vô lượng.
 
-Trong màn đêm hôm nay, từng uống một trận rượu mừng công với quan lại thủ hạ Quan tướng quân, một thiếu niên cao gầy mặc áo sam xanh, một mình đi trở về chỗ ở, là một ngõ nhỏ yên tĩnh của Trì Thủy thành, hắn thuê một tòa nhà nhỏ ở bên cạnh, một thiếu niên cao lớn đứng ở cửa chờ mong, thấy bóng người thiếu niên áo sam xanh kia, nhẹ nhàng thở ra, thiếu niên cao lớn chính là Tằng Dịch, một người may mắn được lão tu sĩ Chương má lúm đồng tiền của Thanh Hạp đảo từ trong hố lửa mang ra, về sau làm việc ở bên kia sơn môn Thanh Hạp đảo, đoạn thời gian đó, giúp đỡ một vị tiên sinh phòng thu chi quét tước phòng, về sau cùng nhau du lịch sơn thủy nhiều nước, lấy bàng môn tả đạo tương tự quỷ thượng thân, tinh tiến tu hành.
+Đêm nay, sau bữa rượu mừng công với quan lại dưới trướng Quan tướng quân, một thiếu niên cao gầy mặc thanh sam một mình đi về chỗ ở. Hắn thuê một căn nhà nhỏ trong ngõ vắng ở Trì Thủy thành. Ngoài cửa, một thiếu niên cao lớn đang đứng ngóng. Thấy bóng người thanh sam, thiếu niên ấy mới thở phào. Đó là Tằng Dịch, người may mắn được lão tu sĩ họ Chương ở đảo Thanh Hạp cứu khỏi hố lửa năm xưa. Sau đó hắn làm việc ở sơn môn Thanh Hạp đảo, từng giúp một vị tiên sinh phòng thu chi quét dọn phòng ốc, rồi cùng người nọ đi qua sơn thủy nhiều nước, mượn bàng môn tả đạo gần giống quỷ nhập thân để tinh tiến tu hành.
 
-Mã Đốc Nghi cũng không ngủ, nàng vốn là quỷ vật, ban đêm tu hành làm ít công to, giờ phút này trên bàn điểm hỏa một ngọn đèn, đang tính toán tính toán sổ sách, hai trận thủy lục đại hội cùng Chu Thiên đại cáo, tiêu tiền như nước, cũng may lão nhân lưng còng tên Chu Liễm kia trước sau đưa tới hai khoản tiền Cốc Vũ, một lần là Chu Liễm tự mình tới, thấy bọn họ một chuyến, cười tủm tỉm, sắc mặt hiền lành, rất dễ nói chuyện, lần thứ hai là phó thác cho một người trẻ tuổi tên Đổng Thủy Tỉnh đưa tới Vân Lâu thành, giao cho ba người bọn họ.
+Mã Đốc Nghi cũng chưa ngủ. Nàng vốn là quỷ vật, tu hành ban đêm được lợi hơn nhiều. Lúc này, trên bàn thắp một ngọn đèn, nàng đang cúi đầu tính sổ. Thủy lục đại hội và đại lễ Chu Thiên tiêu tiền như nước. May mà lão nhân lưng còng tên Chu Liễm đã hai lần gửi tiền cốc vũ tới. Lần đầu lão đích thân đến thăm ba người, lúc nào cũng cười tủm tỉm, vẻ mặt hiền hòa, rất dễ nói chuyện. Lần sau lão nhờ một người trẻ tuổi tên Đổng Thủy Tỉnh mang tiền đến Vân Lâu thành, giao tận tay họ.
 
-Mã Đốc Nghi mặc tấm phù lục da cáo của Thanh Phong thành Hứa thị, dung mạo động lòng người.
+Mã Đốc Nghi khoác tấm da cáo phù lục của Hứa thị thành Thanh Phong, dung mạo khiến người động lòng.
 
-Cố Xán đứng ở ngoài cửa, vỗ vỗ quần áo, tản đi một ít mùi rượu, nhẹ nhàng gõ cửa, đi vào trong phòng, rót cho mình một chén trà, ngồi đối diện ngựa đang ngồi, từng ngồi ở trên ghế dài giữa hai người.
+Cố Xán đứng ngoài cửa, phủi áo cho bớt mùi rượu rồi khẽ gõ cửa. Vào phòng, hắn rót cho mình một chén trà, ngồi xuống đối diện Mã Đốc Nghi. Tằng Dịch ngồi trên chiếc ghế dài ở giữa hai người.
 
-Mã Đốc Nghi không ngẩng đầu lên: "Quan lại bên phủ tướng quân kia so với những quan viên châu quận chúng ta năm đó không tham tiền tài, ngoại trừ một chút ngân lượng tiêu hao, gần như không có bất kỳ túi tiền riêng nào trung gian cả."
+Mã Đốc Nghi không ngẩng đầu, nói: "Quan lại bên phủ tướng quân chẳng tham tiền như đám quan viên châu quận chúng ta gặp năm đó. Trừ ít bạc chi dùng, gần như chẳng ai giấu tiền vào túi riêng."
 
-Cố Xán thản nhiên nói: "Không tham tiền tài? Một là không có gan làm việc dưới mí mắt Quan tướng quân, không dám không dụng tâm. Thứ hai nhất định tiền đồ rộng lớn, vì bạc mà mất đi con đường làm quan, không có lời, tự nhiên trước tiên phải làm đại quan kiếm nhiều tiền, không có chút đầu óc này, làm sao có thể trở thành quan lại phụ tá Quan tướng quân. Nhưng trong đó quả thật có một số quan văn, không vì cầu tài, về sau cũng là như thế."
+Cố Xán thản nhiên nói: "Không tham tiền ư? Thứ nhất, làm việc ngay dưới mắt Quan tướng quân, bọn họ không có gan, cũng không dám lơ là. Thứ hai, tiền đồ đang rộng mở, vì chút bạc mà mất đường làm quan thì chẳng đáng. Đương nhiên phải làm quan lớn trước, rồi mới kiếm nhiều tiền. Không có chút đầu óc ấy, làm sao vào được hàng phụ tá của Quan tướng quân? Nhưng quả thật, trong số đó có vài quan văn không cầu tiền tài, về sau cũng sẽ như vậy."
 
-Mã Thụ Nghi duỗi lưng một cái, Cố Xán đã đưa tới một chén trà.
+Mã Đốc Nghi vươn vai. Cố Xán đã đưa một chén trà đến trước mặt nàng.
 
-Dĩ nhiên, sớm chiều ở chung, cho dù là Mã Đốc Nghi cũng sẽ không cảm thấy có chút không được tự nhiên, về phần Tằng Dịch, đã sớm lấy được chén trà Cố Xán đưa tới.
+Sớm chiều ở chung, ngay cả Mã Đốc Nghi cũng không thấy chuyện ấy có gì gượng gạo. Còn Tằng Dịch thì đã nhận chén trà Cố Xán đưa từ trước.
 
-Cố Xán cười nói: "Tất cả mọi người khổ cực rồi."
+Cố Xán cười nói: "Mọi người vất vả rồi."
 
-Mã Đốc Nghi uống cạn nước trà, xoa cổ tay, thần thái phấn chấn, "Cuối cùng cũng có thời gian rảnh rỗi đi nhặt chỗ tốt! Kế tiếp ta muốn đi dạo các nước xung quanh Thư Giản hồ! Thạch Hào quốc, Mai men quốc, đều phải đi!"
+Mã Đốc Nghi uống cạn trà, xoa cổ tay, tinh thần phấn chấn: "Cuối cùng cũng rảnh rang để đi nhặt của hời! Tiếp theo ta muốn dạo một vòng các nước quanh Thư Giản hồ. Thạch Hào quốc, Mai men quốc, đều phải đi!"
 
-Cố Xán nhắc nhở: "Để sau ta mang khối Thái Bình Vô Sự bài kia cho ngươi, du lãm những nước phiên thuộc Đại Ly này, lộ tuyến đại khái của ngươi tận lực dựa sát vào quan ải đại thành trú quân Đại Ly, vạn nhất có phiền toái, có thể tìm kiếm trợ giúp. Nhưng mà thời điểm bình thường, tốt nhất không nên hiển lộ vô sự bài, để tránh gặp phải rất nhiều tu sĩ vong quốc cừu thị."
+Cố Xán nhắc: "Lát nữa ta đưa tấm Thái Bình Vô Sự bài kia cho ngươi. Đi qua các nước phiên thuộc Đại Ly, ngươi cố chọn đường gần quan ải, thành lớn có quân Đại Ly đóng giữ. Lỡ gặp rắc rối còn có chỗ cầu viện. Nhưng bình thường tốt nhất đừng để lộ vô sự bài, tránh gặp phải đám tu sĩ mất nước mang lòng thù hận."
 
-Mã Đốc Thụ liếc mắt nói: "Lề mề, phiền cũng không phiền? Cần ngươi dạy ta những đạo lý thô thiển này? Ta có thể đi du tẩu giang hồ sớm hơn ngươi!"
+Mã Đốc Nghi đảo mắt: "Lải nhải mãi, ngươi không thấy phiền à? Mấy đạo lý sơ đẳng ấy còn cần ngươi dạy? Ta đã đi giang hồ từ trước ngươi kia!"
 
-Cố Xán lơ đễnh, mỉm cười nói: "Vậy ta đi nghỉ trước, xã giao nơi rượu là mệt nhất."
+Cố Xán chẳng để bụng, mỉm cười nói: "Vậy ta đi nghỉ trước. Uống rượu xã giao vẫn là việc mệt nhất."
 
-Cố Xán rời khỏi sương phòng, đi đến thư phòng bên cạnh gian nhà chính, trên bàn đặt trọng khí quỷ đạo mà tiên sinh phòng thu chi năm đó mua chịu từ mật khố đảo Thanh Hạp, "Hạ ngục" Diêm La điện, còn có Lưu Ly các năm đó cung phụng đảo Thanh Hạp Du Tiêm bán cho tiên sinh phòng thu chi, so với tòa hạ ngục này, tòa Lưu Ly các này chỉ có mười hai gian phòng, trong đó mười một đầu *m v*t, khi còn sống đều là tu sĩ trung ngũ cảnh, chấp niệm cực sâu. Nhiều năm trôi qua, khách trọ hôm nay ước chừng còn có nửa số.
+Rời sương phòng, Cố Xán đến thư phòng cạnh gian nhà chính. Trên bàn bày món trọng khí quỷ đạo "Hạ Ngục" Diêm La điện, năm đó vị tiên sinh phòng thu chi mua chịu từ mật khố Thanh Hạp đảo. Bên cạnh là tòa Lưu Ly các mà cung phụng Du Tiêm của Thanh Hạp đảo bán cho người nọ. Khác với Hạ Ngục, tòa Lưu Ly các này chỉ có mười hai gian phòng. Mười một âm vật ở trong đó, lúc còn sống đều là tu sĩ trung ngũ cảnh, chấp niệm rất sâu. Qua mấy năm, khách trọ nay chỉ còn chừng một nửa.
 
-Cố Xán ngồi ngay ngắn trên ghế, nhìn đăm đăm tòa Diêm La điện hạ ngục kia, tâm thần đắm chìm trong đó, tâm thần nhỏ như hạt cải, như cả hòn đảo Thanh Hạp nằm trong Thư Giản hồ, thần hồn "Cố Xán" đặt mình trong đó, nguyện ý mượn dùng thủy lục pháp hội cùng *m v*t quỷ hồn rời khỏi Chu Thiên đại kỳ, có hơn hai trăm, những tồn tại này phần nhiều đã lục tục, *m v*t tâm nguyện đã có, cũng có một ít không hề nhớ thương cuộc đời này, hy vọng sống nhờ kiếp sau, đổi một loại hoạt pháp khác.
+Cố Xán ngồi thẳng trên ghế, chăm chú nhìn Hạ Ngục Diêm La điện, rồi chìm tâm thần vào đó. Tâm thần nhỏ như hạt cải, tựa hòn đảo Thanh Hạp giữa Thư Giản hồ. Thần hồn "Cố Xán" đặt chân vào bên trong. Hơn hai trăm âm vật, quỷ hồn đã bằng lòng mượn thủy lục pháp hội và đại lễ Chu Thiên để rời đi. Phần nhiều trong số ấy lần lượt được hoàn thành tâm nguyện; cũng có những kẻ chẳng còn lưu luyến đời này, mong gửi gắm vào kiếp sau, đổi một cách sống khác.
 
-Nhưng mà vẫn có âm hồn quỷ vật lựa chọn ở lại trong tòa hạ ngục này, ngày qua ngày, năm này qua năm khác, chửi rủa nguyền rủa hắn đầu sỏ gây nên, trong đó không ít, ngay cả tiên sinh phòng thu chi kia cũng ác độc mắng chửi.
+Nhưng vẫn có âm hồn quỷ vật chọn ở lại Hạ Ngục. Ngày này qua ngày khác, năm này qua năm khác, chúng chửi rủa, nguyền rủa kẻ đầu sỏ là hắn. Không ít kẻ còn buông lời độc địa mắng cả vị tiên sinh phòng thu chi kia.
 
-Nhưng dù vậy, Cố Xán vẫn dựa theo ước định với người nọ, không những không tiện tay đánh cho bất kỳ một vị quỷ vật nào tan thành tro bụi, ngược lại còn cần thường xuyên cách một đoạn thời gian phải xuống ngục Diêm La điện và mô phỏng Lưu Ly các, ném vào tiền thần tiên, khiến chúng nó duy trì một chút linh quang, không đến mức trở thành lệ quỷ.
+Dẫu vậy, Cố Xán vẫn giữ lời ước hẹn với người nọ. Hắn không tùy tay đánh tan bất kỳ quỷ vật nào, mà còn phải định kỳ bỏ tiền thần tiên vào Hạ Ngục Diêm La điện và tòa Lưu Ly các phỏng chế, giúp chúng giữ lại chút linh quang, không đến mức hóa thành lệ quỷ.
 
-Cố Xán rời khỏi ngục, tâm thần chuyển vào Lưu Ly các, đi qua từng phòng từng phòng, trong phòng là một mảnh đen kịt, không thấy bất cứ cảnh tượng gì, chỉ có quỷ vật hung ác đứng ở cửa ra vào, Cố Xán mới có thể đối mặt với bọn nó.
+Cố Xán rời Hạ Ngục, chuyển tâm thần vào Lưu Ly các, đi qua từng gian phòng. Trong phòng tối đen, không nhìn thấy gì. Chỉ khi quỷ vật dữ tợn đứng ngay cửa, hắn mới có thể đối mặt với chúng.
 
-Giờ phút này, một nữ tử quỷ vật mặc xiêm y trắng như tuyết, thần sắc đờ đẫn đứng ở cửa, cho dù hai bên chỉ cách một thước, nàng vẫn không có bất kỳ ý đồ động thủ nào.
+Lúc này, một nữ quỷ mặc xiêm y trắng như tuyết đang đứng nơi cửa, vẻ mặt đờ đẫn. Hai bên chỉ cách một thước, nhưng nàng không hề có ý ra tay.
 
-Bởi vì trước khi Lưu Ly các qua tay giao cho Cố Xán, bọn họ từng có một ước định với vị tiên sinh phòng thu chi hình tiêu cốt lập kia, tương lai Cố Xán tiến vào trong Lưu Ly các, giết người báo thù, không thành vấn đề, tự gánh lấy hậu quả, cơ hội chỉ có một lần.
+Bởi trước khi Lưu Ly các được giao sang tay Cố Xán, họ từng ước hẹn với vị tiên sinh phòng thu chi gầy gò tiều tụy ấy: sau này Cố Xán vào Lưu Ly các, muốn giết hắn báo thù thì cứ ra tay, hậu quả tự chịu. Cơ hội chỉ có một lần.
 
-Năm đó, mười một con *m v*t không có một con lựa chọn ra tay, hiện giờ hai con trong đó đã có nhu cầu riêng, lựa chọn rời khỏi nhân gian triệt để. Một vị yêu cầu Cố Xán đồng ý với gia tộc chăm sóc hắn ít nhất trăm năm, hơn nữa nhất định phải đại phú đại quý, vả lại không có tai ương lớn. Một vị khác yêu cầu Cố Xán tặng cho nàng một đệ tử đích truyền, một pháp bảo, cam đoan vị đệ tử kia tễ thân trong ngũ cảnh, hơn nữa không được ước thúc đệ tử tu hành, Cố Xán không thể có bất cứ dụng tâm hiểm ác nào. Cố Xán cũng đồng ý, chẳng qua trước hết phải thiếu pháp bảo, nhưng con đường tu hành của đệ tử kia, Cố Xán hắn có thể âm thầm hỗ trợ.
+Năm đó, cả mười một âm vật đều không ra tay. Nay có hai kẻ đã đưa ra yêu cầu của mình, chọn rời hẳn nhân gian. Một người đòi Cố Xán chăm sóc gia tộc mình ít nhất trăm năm, phải bảo đảm đại phú đại quý, không gặp tai họa lớn. Người kia muốn hắn tặng cho đệ tử đích truyền của nàng một món pháp bảo, bảo đảm người đệ tử ấy bước vào trung ngũ cảnh, lại không được bó buộc việc tu hành của đệ tử, càng không được mang lòng hiểm ác. Cố Xán đều nhận lời. Chỉ riêng pháp bảo còn phải nợ lại, còn đường tu hành của người đệ tử, hắn có thể âm thầm trợ giúp.
 
-Còn ba vị lựa chọn dựa vào Cố Xán đảm nhiệm Quỷ Tướng tương đương với cung phụng mạt đẳng trên đỉnh núi Cố Xán tương lai, tương lai sau này con đường tu đạo cần tiền tài và thân phận thăng tiến dựa theo sau này công lao lớn nhỏ để định ra. Một vị trong đó chính là lão quỷ vật rời khỏi Lưu Ly các nhái sớm nhất, giúp Mã Đốc tiện nhắm mắt nhặt nhạnh, hiện giờ đã không thường xuyên đến Lưu Ly các tu hành, chỉ an tâm làm quản sự trong kho tài sản của ba người.
+Lại có ba vị chọn đi theo Cố Xán làm quỷ tướng, tương đương với cung phụng hạng chót trên đỉnh núi tương lai của hắn. Về sau, tiền tài dành cho tu hành và việc thăng tiến thân phận sẽ xét theo công lao lớn nhỏ. Trong đó có lão quỷ rời tòa Lưu Ly các phỏng chế sớm nhất, từng giúp Mã Đốc Nghi tìm kiếm của hời. Nay lão ít khi trở về Lưu Ly các tu hành, chỉ yên phận làm quản sự coi kho tài sản của ba người.
 
-Cố Xán tâm thần rời khỏi Lưu Ly các, nhắm mắt dưỡng thần, giống như ngủ mà không phải ngủ.
+Cố Xán thu tâm thần khỏi Lưu Ly các, nhắm mắt dưỡng thần, tựa ngủ mà chẳng phải ngủ.
 
-Bên sương phòng, Mã Đốc Nghi và Tăng Dịch vẫn ngồi trên một cái bàn.
+Bên sương phòng, Mã Đốc Nghi và Tằng Dịch vẫn ngồi cùng bàn.
 
-Mã Đốc Nghi còn đang ước mơ sau này sẽ du lịch dưới núi, tính toán hiện giờ gia sản và kho vàng của mình.
+Mã Đốc Nghi còn đang mơ đến chuyến du lịch dưới núi, tính toán gia sản cùng kho tiền riêng của mình.
 
-Muốn nói lại thôi, lại không muốn đứng dậy rời đi.
+Tằng Dịch mấy lần định nói lại thôi, cũng không chịu đứng dậy ra về.
 
-Mã Đốc Nghi nghi hoặc nói: "Có việc gì?"
+Mã Đốc Nghi ngờ vực hỏi: "Có việc gì?"
 
-Hắn từng hỏi: "Sau này tính thế nào?"
+Tằng Dịch hỏi: "Sau này ngươi định thế nào?"
 
-Mã Đốc Nghi sửng sốt một chút: "Kế hoạch gì thế?"
+Mã Đốc Nghi ngẩn ra: "Định chuyện gì?"
 
-Từng hơi do dự một phen, "Nghe nói một bộ phận tu sĩ Châu Sước đảo, muốn dời tới quê nhà Trần tiên sinh, ta cũng muốn rời khỏi Thư Giản hồ."
+Tằng Dịch do dự một lúc mới nói: "Nghe nói có một nhóm tu sĩ Châu Sước đảo muốn dọn đến quê nhà Trần tiên sinh. Ta cũng muốn rời Thư Giản hồ."
 
-Mã Đốc Nghi nhíu mày nói: "Hiện tại không tốt lắm sao? Bây giờ cũng không phải là hồ Thư Giản năm đó, sinh tử không do mình, bây giờ hồ Thư Giản đã thay đổi. Ngươi nhìn xem, nhiều sơn trạch dã tu như vậy đều trở thành tiên sư gia phả của Chân cảnh tông. Đương nhiên, cảnh giới của bọn họ cao, phần nhiều là xuất thân từ đại đảo chủ, ngươi từng dịch loại vô danh tiểu tốt như vậy không so được, nhưng trên thực tế nếu ngươi nguyện ý mở miệng, cầu Cố Xán giúp ngươi khơi thông quan hệ, chuẩn bị phương pháp, nói không chừng vài ngày sau ngươi đã từng dịch chuyển cho quỷ tu Chân cảnh tông. Cho dù không đi nương nhờ Chân cảnh tông, ngươi từng dịch chỉ cần an tâm tu hành, thì không thành vấn đề, dù sao quan hệ giữa chúng ta và phủ tướng quân của Trì Thủy thành không tệ, từng dịch chuyển, cho nên thật ra ngươi rất an ổn ở hồ Thư Giản."
+Mã Đốc Nghi nhíu mày: "Bây giờ chẳng phải rất tốt sao? Thư Giản hồ đâu còn như năm xưa, sống chết đều không do mình quyết định. Nơi này thay đổi rồi. Ngươi xem, bao nhiêu sơn trạch dã tu đã thành tiên sư có tên trong gia phả Chân Cảnh tông. Đương nhiên, cảnh giới bọn họ cao, phần lớn lại từng là đảo chủ các đảo lớn, hạng vô danh tiểu tốt như ngươi không so được. Nhưng thật ra, chỉ cần ngươi chịu mở miệng nhờ Cố Xán khơi thông quan hệ, tìm đường giúp, biết đâu vài ngày nữa đã thành quỷ tu của Chân Cảnh tông. Cho dù không nương nhờ Chân Cảnh tông, ngươi cứ an tâm tu hành cũng chẳng sao. Dù gì quan hệ của chúng ta với phủ tướng quân Trì Thủy thành cũng không tệ. Tằng Dịch, thật ra ngươi ở Thư Giản hồ rất yên ổn."
 
-Thoạt Dịch cúi đầu, "Ta thật sự rất sợ Cố Xán."
+Tằng Dịch cúi đầu: "Ta thật sự rất sợ Cố Xán."
 
-Mã Đốc Nghi cười mắng: "Nhìn tiền đồ của ngươi kìa!"
+Mã Đốc Nghi cười mắng: "Nhìn chút tiền đồ của ngươi kìa!"
 
-Sau khi Tăng Dịch rời đi, Mã Đốc Nghi lâm vào trầm tư.
+Tằng Dịch đi rồi, Mã Đốc Nghi ngồi trầm ngâm.
 
-Cố Xán càng ngày càng giống tiên sinh phòng thu chi kia, nhưng Mã Đốc Nghi trong lòng biết rõ, chỉ là giống, chỉ thế thôi.
+Cố Xán càng ngày càng giống vị tiên sinh phòng thu chi ấy. Nhưng trong lòng nàng hiểu rõ, chẳng qua là giống, cũng chỉ đến thế mà thôi.
 
-Cho nên thật ra Mã Đốc Nghi cũng sợ Cố Xán.
+Cho nên thật ra, Mã Đốc Nghi cũng sợ Cố Xán.
 
-Khai thiết tại phủ tướng quân trong Phạm gia Trì Thủy thành, chủ tướng Quan bỗng nhiên còn đang ở thư phòng khêu đèn xử lý chính vụ, sau khi tiếng đập cửa vang lên, Quan Tông bỗng nhiên khép lại một phần mật chiết, nói: "Vào đi."
+Phủ tướng quân đặt trong tòa nhà Phạm gia ở Trì Thủy thành. Chủ tướng Quan Diệp Nhiên vẫn chong đèn xử lý công vụ trong thư phòng. Nghe tiếng gõ cửa, hắn khép một bản mật chiết lại, nói: "Vào đi."
 
-Tu sĩ tùy quân tên là Ngu Sơn Phòng thoải mái bước qua bậc cửa, chọn một cái ghế dựa ngồi xuống, ngồi dựa vào ghế, ợ một cái, cười nói: "Bữa rượu này uống thống khoái! Tên vương bát đản họ Cố kia tuổi không lớn lắm, uống rượu thật sự là một hán tử, công phu mời rượu càng cao, con mẹ nó ta cùng hai huynh đệ cùng nhau trút hắn, trước đó đã nói nhất định phải để tiểu tử này nằm úp sấp dưới bàn xoay quanh, nào ngờ uống một chút, ba người chúng ta bắt đầu nội chiến. Hai bàn lớn, gần hai mươi người, tốt nhất đứng đi ra, cũng chỉ còn lại có lão tử cùng tiểu tử kia, tiểu tử kia còn cõng mấy người quay về chỗ ở."
+Tu sĩ tùy quân Ngu Sơn Phòng thong thả bước qua ngưỡng cửa, chọn ghế ngồi xuống, ngả lưng rồi ợ một tiếng, cười nói: "Bữa rượu này thật đã! Thằng nhãi họ Cố tuổi chẳng lớn, uống rượu lại đúng là hán tử, công phu mời rượu còn cao hơn. Con mẹ nó, ta với hai huynh đệ cùng chuốc hắn, trước đó nói chắc như đinh đóng cột, phải khiến tiểu tử ấy bò quay dưới gầm bàn. Ai ngờ uống một hồi, ba chúng ta lại quay ra đánh nhau. Hai bàn lớn gần hai mươi người, cuối cùng còn đứng mà bước ra được chỉ có lão tử với hắn. Tiểu tử kia còn cõng mấy người về chỗ ở."
 
-Quan Tông đột nhiên hỏi: "Ngươi cảm thấy thiếu niên kia, người như thế nào?"
+Quan Diệp Nhiên hỏi: "Ngươi thấy thiếu niên ấy là người thế nào?"
 
-Ngu Sơn Phòng nói: "Trước kia nghe đồn về Thanh Hạp Đảo cùng tiểu tử này, lỗ tai ta đều nghe ra vết chai, nhưng một năm ở chung này, hoàn toàn không phải là chuyện như vậy!"
+Ngu Sơn Phòng đáp: "Chuyện đồn về Thanh Hạp đảo và tiểu tử ấy, ta nghe đến chai cả tai. Nhưng ở chung suốt một năm nay, hoàn toàn chẳng giống lời đồn!"
 
-Quan Tông bỗng nhiên gật đầu, không nói thêm gì.
+Quan Diệp Nhiên gật đầu, không nói thêm.
 
-Ngu Sơn phòng cũng lười so đo, kiếp sống của hán tử thô ráp này không có nhiều tâm địa cong cong như vậy, dù sao cũng có liên quan đến đồng đội xuất sinh nhập tử nhiều năm này, sợ cái trứng.
+Ngu Sơn Phòng cũng lười nghĩ nhiều. Hán tử thô kệch ấy sống chẳng có bao nhiêu tâm địa vòng vo. Dù sao đối diện cũng là đồng đội cùng vào sinh ra tử nhiều năm, sợ cái quái gì.
 
-Quan Tông đột nhiên hỏi: "Ngu Sơn phòng, ta tính toán quan hệ với người trẻ tuổi tên Đổng Thủy Tỉnh ở Long Tuyền quận kia, muốn đến gần một bước, chuẩn bị giúp đỡ hắn và nhà ta làm mối liên hệ, làm cho một ít chuyện làm ăn nhỏ lớn hơn một chút."
+Quan Diệp Nhiên nói: "Ngu Sơn Phòng, ta định gần gũi hơn với người trẻ tuổi tên Đổng Thủy Tỉnh ở quận Long Tuyền. Ta muốn giúp hắn kết nối với nhà ta, mở rộng vài việc làm ăn nhỏ."
 
-Ngu Sơn phòng buồn bực nói: "Ngươi nói với ta những này làm gì? Ta một làm không được tiên sinh phòng thu chi, hai làm không đến xem chó săn của hộ viện nhà, ta có thể nói với ngươi, đừng để ta làm tùy tùng cho Đổng Thủy Tỉnh kia, lão tử là quân tu sĩ Đại Ly theo quân chỉnh tề, món giáp sắt phù lục mấp mô kia, chính là vợ ta, ngươi nếu dám để ta cởi giáp đi mưu cầu giàu sang chó má, chính là mối hận đoạt vợ kia, cẩn thận lão tử đạp chết ngươi!"
+Ngu Sơn Phòng khó hiểu: "Ngươi nói với ta làm gì? Ta chẳng làm tiên sinh phòng thu chi được, cũng không làm nổi chó giữ nhà hộ viện. Nói trước, đừng bắt ta đi theo hầu Đổng Thủy Tỉnh. Lão tử đường đường chính chính là tu sĩ tùy quân Đại Ly, bộ giáp phù lục sứt sẹo kia chính là vợ ta. Dám bắt ta cởi giáp đi cầu phú quý chó má thì khác nào cướp vợ? Coi chừng lão tử đạp chết ngươi!"
 
-Quan Diệp Nhiên vẻ mặt như thường nói: "Đường tài lộ dưới núi, thủy vận từ xưa là chảy bạc trong nước, đổi thành trên núi, chính là đò ngang tiên gia. Toàn bộ vương triều thế tục, chỉ cần trong nước có thủy vận đó, quan viên chủ chính phẩm trật đều không thấp, mỗi người là đại quan biên giới tay nắm thực quyền không nổi tiếng. Hôm nay triều đình Đại Ly chúng ta sắp mở ra một tòa nha môn mới, quản tuyến đường độ thuyền một châu cùng rất nhiều cửa ra, chủ quan chỉ thấp hơn Hộ bộ thượng thư một phẩm. Hôm nay triều đình bên kia đã bắt đầu tranh đoạt ghế ngồi, Quan gia ta được ba cái, ta có thể muốn tới một thanh vị trí thấp nhất, đây là ta nên được, trong gia tộc, ai cũng không tìm ra tật xấu."
+Quan Diệp Nhiên thản nhiên nói: "Đường kiếm tiền dưới núi, từ xưa thủy vận đã là dòng bạc chảy trong nước. Lên trên núi thì là đò ngang tiên gia. Vương triều thế tục nào có thủy vận trong nước, quan viên trông coi việc ấy đều có phẩm trật cao, người nào cũng là đại quan một phương nắm thực quyền, dù danh tiếng không vang. Nay triều đình Đại Ly sắp mở một nha môn mới, quản các tuyến đò ngang cùng nhiều bến bãi trên cả châu. Chủ quan chỉ thấp hơn Hộ bộ thượng thư một phẩm. Bên triều đình đã bắt đầu tranh ghế. Quan gia ta giành được ba chỗ, ta có thể lấy chỗ thấp nhất. Đó là phần ta đáng được hưởng, trong nhà chẳng ai bắt bẻ được."
 
-Nói tới đây, Quan Tông đột nhiên hỏi: "Ngu sơn phòng, ta cũng không cần ngươi giải giáp quy điền, vậy chỉ có thể nghẹn khuất chết ngươi, ta còn không hiểu ngươi? Ta chỉ là muốn mượn cơ hội này, đưa ngươi đi tòa nha môn mới kia, về sau ngươi ở ngoài sáng, Đổng Thủy Tỉnh ở trong bóng tối, các ngươi giúp đỡ lẫn nhau, ngươi thăng quan hắn phát tài, yên tâm, đều sạch sẽ, ngươi coi như là giúp ta làm việc, như thế nào?"
+Nói đến đây, hắn tiếp: "Ngu Sơn Phòng, ta đâu cần ngươi cởi giáp về quê. Làm thế ngươi chẳng uất ức đến chết sao, ta còn không hiểu ngươi ư? Ta chỉ muốn nhân dịp này đưa ngươi sang nha môn mới ấy. Sau này ngươi ở ngoài sáng, Đổng Thủy Tỉnh trong tối, hai người giúp đỡ lẫn nhau, ngươi thăng quan, hắn phát tài. Yên tâm, đều sạch sẽ. Cứ coi như giúp ta làm việc, thế nào?"
 
-Ngu Sơn Phòng rầu rĩ không vui nói: "Ta không cần cái gì mà quan hay không quan, thôi quên đi, ngươi đem cơ hội này tặng cho người khác."
+Ngu Sơn Phòng buồn bực đáp: "Ta chẳng cần quan với chẳng chức. Thôi đi, ngươi cho người khác cơ hội này đi."
 
-Quan Khuyết đột nhiên hỏi: "Ngươi thật muốn chết trận ở sa trường?"
+Quan Diệp Nhiên hỏi: "Ngươi thật sự muốn chết trận ngoài sa trường?"
 
-Ngu Sơn Phòng nhếch miệng cười nói: "Hiện giờ tử chiến ở đâu ra?"
+Ngu Sơn Phòng nhếch miệng cười: "Bây giờ kiếm đâu ra trận tử chiến?"
 
-Quan bỗng nhiên do dự một chút, hàm súc nói: "Sa trường kế tiếp, cũng hung hiểm như nhau, chỉ là không ở trên lưng ngựa. Ta chỉ nói cho ngươi biết một chuyện, không đề cập cơ mật gì, chỉ là tự ta cân nhắc ra, đó chính là toàn bộ tu sĩ trú quân ở ngoài bản thổ Đại Ly, ai cũng có khả năng, tính cả Quan Khuyết ta, tùy thời tùy chỗ, vô duyên vô cớ, sẽ chết bất đắc kỳ tử, nhất là những nước phiên thuộc gần biên cảnh diệt quốc thảm thiết kia, càng tới gần kinh đô của nước cũ, hoặc là càng gần đỉnh núi tiên gia bị diệt, khả năng tu sĩ theo quân chiến tử lại càng lớn, hơn nữa ta có thể khẳng định, âm hiểm ám sát sẽ rất nhiều, rất nhiều rất nhiều."
+Quan Diệp Nhiên do dự một thoáng, rồi nói kín đáo: "Sa trường sắp tới cũng hung hiểm chẳng kém, chỉ là không ở trên lưng ngựa. Ta nói với ngươi một chuyện, chẳng liên quan đến cơ mật, chỉ do ta tự cân nhắc ra. Tất cả tu sĩ đóng quân ngoài bản thổ Đại Ly, kể cả Quan Diệp Nhiên ta, đều có thể chết bất đắc kỳ tử bất cứ lúc nào, ở bất cứ đâu, không rõ duyên cớ. Nhất là tại những nước phiên thuộc gần vùng biên từng trải qua thảm cảnh diệt quốc. Càng gần kinh đô cũ, hoặc càng gần đỉnh núi tiên gia đã bị diệt, tu sĩ tùy quân càng dễ mất mạng. Ta dám khẳng định, sẽ có rất nhiều vụ ám sát hiểm độc, nhiều vô kể."
 
-Ngu Sơn Phòng ồ một tiếng, "Vậy không phải được rồi sao, ta không chạy trốn làm quan, là đúng nha. Bằng chút công phu mèo cào này của ngươi, không có ta, ngươi không thể đi nhà xí mà lo lắng bị người ta đâm mấy đao vào mông?"
+Ngu Sơn Phòng ồ một tiếng: "Thế thì đúng rồi còn gì. Ta không chạy đi làm quan mới là phải. Với chút công phu mèo cào của ngươi, thiếu ta thì ngay cả đi nhà xí cũng phải lo có kẻ đâm mấy đao vào mông chứ?"
 
-Quan Diệp Nhiên tức giận đến mức nắm lên một cái trấn giấy thanh đồng, ném tới hán tử kia.
+Quan Diệp Nhiên tức giận chộp chiếc trấn giấy đồng xanh ném sang.
 
-Ngu Sơn phòng bắt lấy, cười đùa tí tửng nói: "Ai ui, tạ tướng quân ban thưởng."
+Ngu Sơn Phòng bắt lấy, cười hì hì: "Ây da, tạ tướng quân ban thưởng."
 
-Ngu Sơn phòng đứng lên, chạy vội về phía cửa phòng bên kia.
+Hắn đứng dậy, chạy vội ra cửa.
 
-Quan Diệp bỗng nhiên ngồi tại chỗ, tức giận nói: "Chỉ đáng giá hai ba lượng bạc, ngươi cũng không biết xấu hổ thuận đi?"
+Quan Diệp Nhiên vẫn ngồi tại chỗ, bực bội nói: "Chỉ đáng hai ba lượng bạc, ngươi cũng có mặt mũi cuỗm đi?"
 
-Ngu Sơn Phòng dừng thân hình, quay đầu, vẻ mặt ghét bỏ ném về Thanh Đồng Trấn Chỉ, mắng: "Ngươi là một đệ tử Quan thị ở quận Vân Châu, lại lấy đồ vật rách nát này đặt lên bàn?! Ta cũng phải thay Quan lão gia tử cảm thấy đỏ mặt!"
+Ngu Sơn Phòng dừng bước, ngoảnh đầu, chê bai ném trả chiếc trấn giấy: "Đường đường đệ tử Quan thị quận Vân Châu, lại bày thứ đồ rách này trên bàn? Ta cũng thấy đỏ mặt thay Quan lão gia tử!"
 
-Nào ngờ Quan bỗng nhiên vội vàng vươn hai tay, tiếp lấy trấn giấy đồng xanh, nhẹ nhàng hà hơi, thật cẩn thận bày ra trên bàn, cười tủm tỉm nói: "Đây chính là ngự thư phòng của hoàng đế vương triều Chu Huỳnh, Tô tướng quân chúng ta tự mình thưởng cho ta, thật ra rất đáng tiền."
+Ai ngờ Quan Diệp Nhiên vội đưa cả hai tay đón lấy, khẽ hà hơi, cẩn thận đặt lại trên bàn rồi cười tủm tỉm: "Thứ này lấy từ ngự thư phòng của hoàng đế vương triều Chu Huỳnh, do chính tay Tô tướng quân thưởng cho ta đấy. Thật ra đáng tiền lắm."
 
-Ngu Sơn Phòng vừa mới mở cửa, đưa lưng về phía vị gia chủ tương lai của Thượng Trụ Quốc Quan thị, giơ cao cánh tay, dựng thẳng một ngón giữa, sau khi ngã lên cửa liền nhanh chân rời đi.
+Ngu Sơn Phòng vừa mở cửa, quay lưng về phía vị gia chủ tương lai của Thượng Trụ Quốc Quan thị, giơ cao cánh tay, dựng ngón giữa. Hắn đóng sầm cửa rồi nhanh chân bỏ đi.
 
-Quan Tông cười lắc đầu, khi ánh mắt hắn rơi vào trên bàn, liền thu liễm ý cười.
+Quan Diệp Nhiên cười lắc đầu. Ánh mắt vừa hạ xuống bàn, ý cười đã tắt.
 
-Tiếp tục lật xem một phần điệp báo mật của Đại Ly Lục Ba Đình, số lượng chữ rất nhiều, cái này cực kỳ hiếm thấy ở triều đình Đại Ly.
+Hắn tiếp tục lật một bản mật báo của Lục Ba Đình Đại Ly. Bản mật báo dài đến hiếm thấy trong công văn triều đình.
 
-Ở dưới quốc sư Thôi Sàm thúc đẩy, tất cả công văn, cố gắng đơn giản lược.
+Từ khi quốc sư Thôi Sàm thúc đẩy cải cách, tất cả công văn đều gắng viết ngắn gọn.
 
-Quan Diệp Nhiên sở dĩ có thể lật xem phần điệp báo cơ mật này, không phải vì hắn họ Quan, mà là hắn vừa vặn là tướng quân trú quân của Đại Ly ở Thư Giản hồ, cần hắn tự tay viết trả lại.
+Quan Diệp Nhiên được xem bản tình báo cơ mật này không phải vì mang họ Quan, mà bởi hắn vừa hay là tướng quân Đại Ly trú đóng Thư Giản hồ, cần đích thân viết lời hồi đáp.
 
-Phần tình báo này, xuất phát từ tay một vị quan văn nhỏ Thanh Loan quốc họ Liễu, nội dung dính líu lại rất lớn, lớn đến mức khiến Quan Diệp nhìn văn tự vài lần, đã cảm thấy hàn khí đập vào mặt.
+Bản tình báo do một tiểu quan văn họ Liễu ở Thanh Loan quốc viết. Nội dung liên quan đến chuyện quá lớn, lớn đến mức Quan Diệp Nhiên đọc mấy lần vẫn thấy hàn khí phả vào mặt.
 
-Là về sách lược chi tiết của đại cục tương lai Thư Giản hồ.
+Đó là sách lược cụ thể dành cho đại cục Thư Giản hồ trong tương lai.
 
-Trong đó nhắc tới Cố Xán, đương nhiên cũng có quan hệ đo đạc với hắn.
+Trong ấy có nhắc đến Cố Xán, đương nhiên cũng có những tính toán liên quan đến chính hắn.
 
-Một vị lão nhân lặng yên hạ xuống sân trong hẻm nhỏ.
+Một lão nhân lặng lẽ đáp xuống sân trong ngõ nhỏ.
 
-Cố Xán thu hồi Diêm La điện và Lưu Ly các nhái trên bàn, đặt trong một rương trúc bên chân.
+Cố Xán cất Diêm La điện và tòa Lưu Ly các phỏng chế trên bàn vào chiếc rương trúc bên chân.
 
-Cầm lấy một chiếc quạt trúc được chế tạo từ Thần Tiêu Trúc trên bàn, buộc ở bên hông, cười rời khỏi thư phòng, mở cửa chính phòng.
+Hắn cầm chiếc quạt trúc làm từ trúc Thần Tiêu trên bàn, giắt vào thắt lưng, mỉm cười rời thư phòng, ra mở cửa gian nhà chính.
 
-Khách không mời mà đến, xem như là sư phụ chính cống của hắn.
+Vị khách không mời mà đến ấy chính là sư phụ danh chính ngôn thuận của hắn.
 
-Nghe đồn ở trong thủy lao nhân họa đắc phúc, hôm nay có đảo Thanh Hạp Lưu Chí Mậu hy vọng phá vỡ bình cảnh Nguyên Anh.
+Đó là Lưu Chí Mậu của Thanh Hạp đảo. Nghe đồn lão ở thủy lao lại nhân họa đắc phúc, nay đã có hy vọng phá vỡ bình cảnh Nguyên Anh.
 
-Sau khi Cố Xán mở cửa, chắp tay bái: "Đệ tử Cố Xán gặp qua sư phụ."
+Mở cửa rồi, Cố Xán chắp tay vái: "Đệ tử Cố Xán bái kiến sư phụ."
 
-Lưu Chí Mậu cười gật đầu, "Giữa sư đồ chúng ta, không cần xa lạ như thế."
+Lưu Chí Mậu cười gật đầu: "Giữa thầy trò chúng ta, không cần khách sáo như vậy."
 
-Hai người ngồi ở đại sảnh chính phòng, tấm biển là do cố nhân tòa nhà lưu lại, "Bách thế lưu phương".
+Hai người ngồi trong sảnh chính. Tấm biển do chủ cũ để lại viết bốn chữ "Bách thế lưu phương".
 
-Hai bên treo câu đối, cũng rất nhiều năm tháng, vẫn chưa đổi mới, cổ sắc cổ hương, "Sau khi mở cửa sơn minh thủy tú khả dưỡng mục. Lúc đóng cửa sổ đạo đức văn chương tức tu tâm."
+Đôi câu đối treo hai bên cũng đã nhiều năm, chưa thay mới, mang vẻ cổ kính: "Mở cửa, sơn minh thủy tú đủ dưỡng mắt. Khép song, đạo đức văn chương để tu tâm."
 
-Lưu Chí Mậu ngồi ở chủ vị, Cố Xán ngồi một bên.
+Lưu Chí Mậu ngồi ghế chủ, Cố Xán ngồi bên cạnh.
 
-Lưu Chí Mậu liếc mắt đánh giá phòng ốc, "Địa phương là nhỏ một chút, cũng may thanh tịnh."
+Lão nhìn quanh, nói: "Chỗ này hơi nhỏ, được cái thanh tịnh."
 
-Cố Xán hỏi: "Sư phụ muốn uống rượu hay không? Bên này không có rượu tiên gia nhưỡng, rượu nếp của một vị bằng hữu ngược lại cũng không ít, nhưng rượu phố phường bực này, sư phụ chưa hẳn uống quen."
+Cố Xán hỏi: "Sư phụ có muốn uống rượu không? Chỗ đệ tử không có rượu tiên gia, nhưng rượu nếp của một vị bằng hữu thì còn không ít. Chỉ sợ rượu phố phường, sư phụ uống không quen."
 
-Lưu Chí Mậu khoát tay, cười nói: "Uống rượu thì thôi."
+Lưu Chí Mậu xua tay, cười nói: "Rượu thì thôi."
 
-Cố Xán không nói thêm gì nữa, mặt mỉm cười, ngồi nghiêm chỉnh.
+Cố Xán không nói thêm, mỉm cười ngồi ngay ngắn.
 
-Lưu Chí Mậu cười hỏi: "Sư phụ lúc trước cùng một vị cung phụng tông môn đi một chuyến bên ngoài, hôm nay cùng đại tướng quân Tô Cao Sơn xem như có chút tình cảm, ngươi có muốn tòng quân nhập ngũ, mưu cái chức quan võ tướng hay không?"
+Lưu Chí Mậu cười hỏi: "Vừa rồi sư phụ cùng một vị cung phụng tông môn ra ngoài một chuyến, nay coi như có chút giao tình với đại tướng quân Tô Cao Sơn. Ngươi có muốn nhập ngũ, kiếm một chức võ quan không?"
 
-Cố Xán lắc đầu cười nói: "Đệ tử sẽ không phung phí hương hỏa tình của sư phụ."
+Cố Xán cười lắc đầu: "Đệ tử không muốn phung phí tình hương khói của sư phụ."
 
-Lưu Chí Mậu cũng không cưỡng cầu, đột nhiên cảm khái nói: "Cố Xán, hôm nay ngươi còn chưa có mười bốn tuổi đúng không?"
+Lưu Chí Mậu cũng không ép, chợt cảm khái: "Cố Xán, năm nay ngươi vẫn chưa đầy mười bốn tuổi phải không?"
 
-Cố Xán gật gật đầu.
+Cố Xán gật đầu.
 
-Lưu Chí Mậu trầm mặc một lát, "Sư phụ nếu phá cảnh thành công, chen thân thượng ngũ cảnh, làm cung phụng, có thể cùng Chân Cảnh tông đưa ra ba thỉnh cầu, đây là Khương tông chủ sớm đồng ý. Ta tính mở miệng với Chân Cảnh tông, cắt ra một tòa đảo nhỏ Thanh Hạp đảo cùng đảo Tố Lân ở trong đảo phiên thuộc, tặng hết cho ngươi."
+Lưu Chí Mậu im lặng một lát rồi nói: "Nếu sư phụ phá cảnh thành công, bước vào thượng ngũ cảnh, với thân phận cung phụng có thể đưa ra ba yêu cầu với Chân Cảnh tông. Khương tông chủ đã hứa trước rồi. Ta định xin tông môn tách Thanh Hạp đảo cùng một đảo nhỏ phiên thuộc, đảo Tố Lân, giao hết cho ngươi."
 
-Cố Xán thần sắc tự nhiên, cũng không sốt ruột nói chuyện.
+Cố Xán vẫn bình thản, không vội lên tiếng.
 
-Lưu Chí Mậu tiếp tục nói: "Sư phụ không hoàn toàn là suy xét cho đệ tử đắc ý của ngươi, cũng có tư tâm, vẫn là không hy vọng hương khói Thanh Hạp Đảo nhất mạch cứ như vậy đoạn tuyệt, có ngươi ở Thanh Hạp Đảo, tổ sư đường sẽ không đóng cửa, cho dù cuối cùng Thanh Hạp Đảo không thể lưu lại mấy người, cũng không có vấn đề gì, kể từ đó, đảo chủ Thanh Hạp Đảo ta, có thể khăng khăng một mực hiệu mệnh cho Khương Thượng Chân cùng Chân cảnh tông."
+Lưu Chí Mậu nói tiếp: "Sư phụ không hoàn toàn nghĩ cho người đệ tử đắc ý là ngươi, cũng có tư tâm. Ta không muốn hương khói một mạch Thanh Hạp đảo cứ thế đoạn tuyệt. Có ngươi ở lại, tổ sư đường sẽ không phải đóng cửa. Cho dù cuối cùng chẳng giữ được mấy người trên đảo cũng không sao. Có vậy, đảo chủ Thanh Hạp đảo như ta mới có thể một lòng hiệu lực cho Khương Thượng Chân và Chân Cảnh tông."
 
-Cố Xán hỏi: "Sư phụ cần đệ tử làm cái gì? Sư phụ cứ việc mở miệng, đệ tử không dám nói lời hay ho gì, có thể làm được nhất định sẽ tận lực làm được, còn có thể tận lực làm tốt một chút."
+Cố Xán hỏi: "Sư phụ cần đệ tử làm gì? Người cứ nói. Đệ tử không dám hứa những lời hay ho, nhưng việc làm được nhất định sẽ dốc sức, còn cố gắng làm cho tốt."
 
-Lưu Chí Mậu vẻ mặt vui mừng, vuốt râu mà cười, trầm ngâm một lát, chậm rãi nói: "Giúp tổ sư đường Thanh Hạp Đảo khai chi tán diệp, chỉ đơn giản như vậy. Nhưng mà nói trước, trừ Nguyên Anh Chân Cảnh tông cung phụng Lý Phù Huề, các cung phụng lớn nhỏ khác, sư phụ ta một người cũng không quen, thậm chí còn có cừu gia tiềm ẩn, Khương Thượng Chân cũng chưa thật sự thổ lộ tình cảm với ta, cho nên ngươi toàn bộ tiếp nhận tổ sư đường Thanh Hạp Đảo cùng mấy hòn đảo nhỏ chứa hệ Phiên chúc, không hoàn toàn là chuyện tốt, ngươi cần phải cân nhắc lợi hại cho tốt, dù sao trời giáng tiền tài, bạc quá nhiều, cũng có thể đập chết người. Ngươi là đệ tử duy nhất sư phụ lọt vào mắt, mới có thể nói thẳng thẳng ra với Cố Xán ngươi như thế."
+Lưu Chí Mậu vui vẻ vuốt râu. Trầm ngâm một lúc, lão chậm rãi nói: "Giúp tổ sư đường Thanh Hạp đảo khai chi tán diệp, đơn giản vậy thôi. Nhưng phải nói trước, ngoài Lý Phù Huề, vị cung phụng Nguyên Anh của Chân Cảnh tông, các cung phụng lớn nhỏ khác ta chẳng quen ai, thậm chí có thể còn có kẻ thù ẩn trong đó. Khương Thượng Chân cũng chưa thật sự giao tâm với ta. Cho nên nhận cả tổ sư đường cùng mấy đảo nhỏ phiên thuộc không hoàn toàn là chuyện tốt. Ngươi phải cân nhắc lợi hại cho kỹ. Của cải từ trời rơi xuống, bạc nhiều quá cũng có thể đè chết người. Ngươi là đệ tử duy nhất lọt vào mắt sư phụ, ta mới nói thẳng với ngươi như vậy."
 
-Cố Xán nói: "Đệ tử suy nghĩ thật kỹ một phen, chậm nhất ba ngày, là có thể cho sư phụ một câu trả lời thuyết phục."
+Cố Xán nói: "Để đệ tử suy nghĩ cho kỹ. Chậm nhất ba ngày, đệ tử sẽ trả lời sư phụ."
 
-Lưu Chí Mậu gật đầu nói: "Như thế tốt nhất. Cẩn thận sợ chết, mưu rồi mới động, không tiếc liều mạng, cược lớn thắng lớn, đây là gốc rễ lập thân của sơn trạch dã tu chúng ta."
+Lưu Chí Mậu gật đầu: "Vậy là tốt nhất. Cẩn thận sợ chết, tính rồi mới làm; lúc cần cũng không tiếc liều mạng, cược lớn thắng lớn. Đó là gốc rễ lập thân của sơn trạch dã tu chúng ta."
 
-Cố Xán gật đầu nói: "Sư phụ dạy bảo, đệ tử ghi nhớ trong lòng."
+Cố Xán đáp: "Lời sư phụ dạy, đệ tử ghi lòng."
 
-Nói đến đây, Cố Xán cười nói: "Mấy năm trước, tự cho là đạo lý đều hiểu, thật ra đều là hiểu cái rắm, là đệ tử ngoan liệt vô tri, để sư phụ chê cười."
+Nói đến đây, hắn cười: "Mấy năm trước đệ tử cứ tưởng đạo lý nào mình cũng hiểu. Thật ra hiểu cái rắm. Đệ tử ngu dốt bướng bỉnh, khiến sư phụ chê cười rồi."
 
-Lưu Chí Mậu cười nói: "Trên đời này toàn bộ ngoài miệng ồn ào đạo lý mình cũng hiểu, tự nhiên là không hiểu nhất. Thật ra hành vi của ngươi năm đó, nhìn như coi trời bằng vung, trên thực tế cũng không không chịu nổi như ngươi nghĩ, chỉ cần sống sót, toàn bộ khổ sở từng nếm qua, đều là của cải thật sự của một vị sơn trạch dã tu. Đạo lý đánh rớt răng cùng nuốt máu, mới là đạo lý chân chính hiểu được."
+Lưu Chí Mậu cười nói: "Trên đời, hễ kẻ nào ngoài miệng luôn kêu mình hiểu hết đạo lý, tự nhiên là kẻ chẳng hiểu nhất. Thật ra những việc ngươi làm năm đó nhìn thì coi trời bằng vung, nhưng cũng không tệ hại đến mức ngươi nghĩ. Chỉ cần còn sống, mọi khổ sở từng nếm trải đều là của cải thật sự của một sơn trạch dã tu. Đạo lý phải chịu gãy răng nuốt máu mới đổi được, mới là đạo lý mình thật sự hiểu."
 
 Cố Xán ừ một tiếng.
 
-Lưu Chí Mậu lấy ra một quyển sách cổ chất liệu tựa như kim ngọc, bảo quang lưu chuyển, sương mù, tên sách dùng bốn chữ cổ triện màu vàng viết thành, "Tiệt Giang Chân Kinh".
+Lưu Chí Mậu lấy ra một quyển sách cổ, chất liệu tựa kim ngọc, bảo quang thấp thoáng trong làn sương mờ. Trên bìa là bốn chữ cổ triện màu vàng: "Tiệt Giang Chân Kinh".
 
-Lưu Chí Mậu vươn hai ngón tay khép lại, nhẹ nhàng đem bộ sách đẩy về phía vị thiếu niên thanh sam khí thái trầm ổn kia, lão nhân trầm giọng nói: "Trước kia sư phụ truyền thụ đạo pháp cho các ngươi, là đạo pháp căn bản trên mặt nổi của tổ sư đường Thanh Hạp Đảo, chỉ xem như bàng môn tả đạo, chỉ có quyển bí tịch tiên gia này, mới là căn bản của đại đạo sư phụ, nói lời thật, năm đó sư phụ là thật không dám, cũng không muốn đem môn đạo pháp này truyền cho ngươi, tự nhiên là sợ ngươi cùng Tiểu Nê Thu liên thủ, đánh giết sư phụ."
+Lão khép hai ngón tay, nhẹ nhàng đẩy quyển sách đến trước thiếu niên thanh sam trầm ổn, giọng trầm xuống: "Đạo pháp trước đây sư phụ truyền cho các ngươi là căn bản công khai của tổ sư đường Thanh Hạp đảo, chỉ tính là bàng môn tả đạo. Chỉ có quyển bí tịch tiên gia này mới là gốc rễ đại đạo của ta. Nói thật, năm đó sư phụ không dám, cũng chẳng muốn truyền môn đạo pháp ấy cho ngươi. Đương nhiên là sợ ngươi liên thủ với Tiểu Nê Thu, đánh giết cả sư phụ."
 
-Lưu Chí Mậu sau khi đẩy ra quyển bí tịch mấy trăm năm qua vẫn quý trọng như tính mạng, liền không liếc mắt nhìn nhiều nữa, "Lúc này không giống ngày xưa, ta nếu là chen thân thượng ngũ cảnh, mọi sự dễ nói. Nếu là bất hạnh thân tử đạo tiêu, giữa thiên địa không còn Lưu Chí Mậu nữa, thì càng không cần lo lắng tiểu tử ngươi sau thu sẽ tính sổ."
+Đẩy ra quyển bí tịch mấy trăm năm qua vẫn quý ngang tính mạng, Lưu Chí Mậu không nhìn lại nữa: "Nay đã khác xưa. Nếu ta bước được vào thượng ngũ cảnh, mọi việc đều dễ nói. Nếu chẳng may thân tử đạo tiêu, trời đất không còn Lưu Chí Mậu, lại càng khỏi lo tiểu tử ngươi về sau tính sổ."
 
-Cố Xán không đi lấy bản sách cổ tiên giá trị cơ hồ bằng nửa "Thượng ngũ cảnh", đứng lên, lần nữa chắp tay thi lễ với Lưu Chí Mậu.
+Cố Xán không vội cầm quyển sách tiên gia giá trị gần bằng nửa phần "thượng ngũ cảnh" ấy. Hắn đứng dậy, lại chắp tay thi lễ với Lưu Chí Mậu.
 
-Lưu Chí Mậu ngồi ngay ngắn ở vị trí bàn chính của căn phòng nhỏ, nhận đệ tử này cúi đầu.
+Lão ngồi ngay ngắn ở ghế chủ trong căn nhà nhỏ, nhận một vái này của đệ tử.
 
-Đôi thầy trò bọn họ lục đục với nhau, qua nhiều năm như vậy, thật sự không tính là ít.
+Thầy trò bọn họ đấu trí với nhau bao năm, số lần thật sự chẳng ít.
 
-Tối nay một người tặng sách, một người bái lễ, thật ra rất thuần túy, chỉ là đạo pháp truyền thừa thuần túy nhất trên đường tu hành trên thế gian.
+Nhưng đêm nay, một người tặng sách, một người hành lễ, lại rất thuần túy. Chỉ là truyền thừa đạo pháp thuần túy nhất trên đường tu hành ở thế gian.
 
-Sau đêm nay, nợ cũ và tính toán giữa sư đồ, có lẽ vẫn là một tình hình phức tạp không ít.
+Qua đêm nay, nợ cũ cùng những tính toán giữa thầy trò có lẽ vẫn phức tạp chẳng kém trước.
 
-Cố Xán thu bản bí kíp tiên gia vào trong tay áo.
+Cố Xán cất quyển bí tịch vào tay áo.
 
-Lưu Chí Mậu cười nói: "Điền sư tỷ kia của ngươi cùng mấy sư huynh còn lại, thật sự là một người so một người càng ngu xuẩn."
+Lưu Chí Mậu cười nói: "Điền sư tỷ cùng mấy vị sư huynh còn lại của ngươi, đúng là người sau còn ngu hơn người trước."
 
-Cố Xán mỉm cười nói: "Phúc họa tự tìm, không trách được người khác."
+Cố Xán mỉm cười: "Phúc họa tự chuốc lấy, chẳng trách ai được."
 
-Lưu Chí Mậu nghĩ nghĩ, "Đi lấy hai bầu rượu đến, sư phụ nói chuyện phiếm với ngươi thêm vài câu, tự uống tự uống, không cần khách khí."
+Lưu Chí Mậu nghĩ một lát rồi nói: "Lấy hai bầu rượu ra đây. Sư phụ ngồi tán gẫu với ngươi thêm vài câu. Ai uống phần người ấy, không cần khách khí."
 
-Cửa chính phòng vốn không đóng lại, ánh trăng vào phòng.
+Cửa gian nhà chính vẫn mở, ánh trăng tràn vào phòng.
 
-Cố Xán đi hai chuyến đến phòng bếp, xách hai bình rượu quê nhà Đổng Thủy Tỉnh đưa tặng, cùng hai bát trắng, còn có mấy đĩa dưa cải chưng rượu.
+Cố Xán đi hai chuyến xuống bếp, mang lên hai bình rượu quê Đổng Thủy Tỉnh tặng, hai chiếc bát trắng cùng mấy đĩa dưa cải ăn nhắm.
 
-Lưu Chí Mậu rót một chén rượu, cầm lên một con cá khô Thư Giản Hồ nhỏ giòn tan, nhấm nuốt một phen, uống ngụm rượu.
+Lưu Chí Mậu rót một bát rượu, nhặt con cá khô Thư Giản hồ giòn tan, nhai rồi nhấp một ngụm.
 
-Đây chính là tư vị của nhân gian.
+Đây chính là tư vị nhân gian.
 
-Tuy nói chuyện phá cảnh hi vọng cực lớn, Khương Thượng Chân bên kia cũng sẽ tận lực giúp hắn hộ trận, để Chân cảnh tông có thêm một vị Ngọc Phác cảnh cung phụng.
+Dẫu hy vọng phá cảnh rất lớn, Khương Thượng Chân cũng sẽ hết sức hộ trận để Chân Cảnh tông có thêm một cung phụng Ngọc Phác cảnh.
 
-Nhưng không có gì là tuyệt đối.
+Nhưng mọi việc chẳng có gì là tuyệt đối.
 
-Vẫn có khả năng phong vị phố phường đêm trăng sáng này, chính là bữa ăn khuya cuối cùng của Lưu Chí Mậu ở nhân gian.
+Hương vị phố phường trong đêm trăng sáng này vẫn có thể là bữa khuya cuối cùng của Lưu Chí Mậu ở nhân gian.
 
-Lưu Chí Mậu cười nói: "Năm đó ngươi chơi đùa ra một vị thập hùng kiệt Thư Giản hồ, bị người ta biết rõ, thật ra cũng chỉ có chín người các ngươi. Đánh giá đến bây giờ, cũng không có mấy người, đoán ra người cuối cùng, chính là vị tiên sinh phòng thu chi ở cửa Thanh Hạp Đảo Sơn chúng ta. Đáng tiếc, tương lai vốn nên có cơ hội trở thành một câu chuyện hay hơn nữa."
+Lưu Chí Mậu cười nói: "Năm đó ngươi bày ra Thư Giản hồ thập hùng kiệt, người ngoài biết đến thật ra chỉ có chín người các ngươi. E rằng đến bây giờ vẫn chẳng mấy ai đoán được người cuối cùng chính là vị tiên sinh phòng thu chi ở sơn môn Thanh Hạp đảo. Đáng tiếc, tương lai vốn có cơ hội trở thành một giai thoại còn hay hơn nữa."
 
-Lưu Chí Mậu một chân giẫm lên ghế dài, hí mắt nhấp một ngụm rượu, cầm mấy hạt lạc ném vào trong miệng, vươn một bàn tay, bắt đầu tính toán, "Hỗn Thế Ma Vương đảo Thanh Hạp Cố Xán, Tứ sư huynh đảo Tố Lân Điền Hồ Quân, Tứ sư huynh Tần Cố Huyên, Lục sư huynh Kỳ Triệt, thiếu thành chủ thành Trì Thủy Phạm Ngạn, Hoàng Ly đảo Lữ Thái Tang, đảo Cổ Minh đảo Nguyên Viên, hoàng tử gặp nạn Hàn Tĩnh Linh, con trai đại tướng quân Hoàng Hạc."
+Lưu Chí Mậu gác một chân lên ghế dài, nheo mắt nhấp rượu, ném mấy hạt lạc vào miệng, rồi giơ tay đếm: "Hỗn Thế Ma Vương Cố Xán của Thanh Hạp đảo, Điền Hồ Quân của Tố Lân đảo, tứ sư huynh Tần Cố Huyên, lục sư huynh Kỳ Triệt, thiếu thành chủ Phạm Ngạn của Trì Thủy thành, Lữ Thái Tang ở Hoàng Ly đảo, Nguyên Viên ở Cổ Minh đảo, hoàng tử gặp nạn Hàn Tĩnh Linh, con trai đại tướng quân Hoàng Hạc."
 
-Lưu Chí Mậu cười nói: "Đia sư tỷ của ngươi hai chuyến đi đảo cung liễu, ta cũng chưa gặp nàng, nàng lần đầu tiên ở biên giới bên kia, bồi hồi một ngày một đêm, thất vọng mà về. Lần thứ hai càng ngày càng sợ chết, liền muốn xông vào đảo cung liễu, dùng thủ đoạn tạm thời vứt bỏ nửa cái mạng, đổi lấy một cái mạng hoàn chỉnh sau này. Đáng tiếc sư phụ ý chí sắt đá như ta, vẫn lười nhìn nàng, nửa cái mạng kia của nàng, xem như vứt bỏ vô ích. Ngươi tính xử trí nàng như thế nào? Là đánh hay giết?"
+Lưu Chí Mậu cười nói: "Điền sư tỷ của ngươi đến Cung Liễu đảo hai lần, ta đều không gặp. Lần đầu nàng quanh quẩn ở ranh giới bên kia suốt một ngày một đêm, rồi thất vọng trở về. Lần sau càng sợ chết, nàng định xông vào Cung Liễu đảo, tạm bỏ nửa cái mạng để đổi lấy trọn một mạng về sau. Tiếc rằng sư phụ lòng dạ sắt đá, vẫn lười nhìn nàng. Nửa cái mạng ấy coi như bỏ uổng. Ngươi định xử trí nàng thế nào? Đánh hay giết?"
 
-Cố Xán mỉm cười nói: "Sư phụ lương khổ tâm, cố ý để cho Điền sư tỷ cùng đường mạt lộ, hoàn toàn tuyệt vọng, xét đến cùng, vẫn là hi vọng ta Cố Xán và đảo Thanh Hạp tương lai có thể có thêm một vị tài trí hiểu chuyện biết hữu dụng."
+Cố Xán mỉm cười: "Sư phụ khổ tâm, cố ý dồn Điền sư tỷ đến đường cùng, khiến nàng hoàn toàn tuyệt vọng. Xét đến cùng vẫn mong tương lai Cố Xán và Thanh Hạp đảo có thêm một người tài trí, biết điều, dùng được."
 
-Lưu Chí Mậu ừ một tiếng, "Đối đãi Điền Hồ Quân, thủ đoạn khống chế trước kia của ngươi, thật ra không kém, chẳng qua tựa như..."
+Lưu Chí Mậu ừ một tiếng: "Thủ đoạn khống chế Điền Hồ Quân trước kia của ngươi thật ra không tệ. Chỉ là giống như..."
 
-Nói tới đây, Lưu Chí Mậu chỉ chỉ mấy đĩa thức ăn trên bàn, "Chỉ uống rượu thôi, thiếu chút rượu và thức ăn, tư vị sẽ kém rất nhiều. Ân uy cùng thi, nói đến đơn giản, làm, cũng không dễ dàng. Ngươi có thể học tập Chương lúm đồng tiền của ta cùng lão huynh đệ, đây chính là lương thiện chi tâm không nhiều lắm của sư phụ, sự thật chứng minh, so với ham tiết tiết kiệm tâm, một đao cắt, đối với bất luận kẻ nào đều thi triển phương pháp lấy vương bá, lấy lợi dụ, một ngọn núi hương khói, tuyệt đối không thể lâu dài."
+Lão chỉ mấy đĩa thức ăn trên bàn: "Uống rượu suông mà thiếu đồ nhắm, tư vị kém đi rất nhiều. Ân uy cùng dùng, nói thì dễ, làm lại chẳng dễ. Ngươi có thể học cách ta đối đãi với Chương đạo hữu cùng những lão huynh đệ khác. Đó là chút lòng tốt chẳng có bao nhiêu của sư phụ. Sự thật chứng minh, cứ tham tiện, đối với ai cũng cùng một cách, chỉ dùng uy áp, dùng lợi dụ, thì hương khói một đỉnh núi tuyệt đối không thể lâu dài."
 
-Cố Xán gật đầu nói: "Giống như nhau, gạo nuôi trăm dạng người, đương nhiên cần chia ra dụ dỗ, danh vọng, tiền tài, pháp bảo, cơ hội tu đạo, câu cá là môn đại học vấn."
+Cố Xán gật đầu: "Cùng một thứ gạo nuôi trăm hạng người, đương nhiên phải tùy người mà dẫn dụ. Danh vọng, tiền tài, pháp bảo, cơ hội tu đạo... Câu cá cũng là một môn học vấn lớn."
 
-Lưu Chí Mậu cười ha ha, "Khó trách ta ở đảo Cung Liễu, đều nghe nói tiểu tử ngươi hôm nay thích một người đi câu cá bên hồ, cho dù thu hoạch không lớn, cũng nhiều lần lại đi."
+Lưu Chí Mậu cười ha hả: "Chẳng trách ở Cung Liễu đảo ta cũng nghe nói dạo này tiểu tử ngươi thích một mình câu cá ven hồ. Dù chẳng được bao nhiêu, vẫn cứ đi hoài."
 
-Chuyện Lưu Chí Mậu vui vẻ, không phải chút chuyện đùa như lông gà vỏ tỏi của Cố Xán.
+Điều khiến Lưu Chí Mậu vui không phải chút thú tiêu khiển vụn vặt ấy của Cố Xán.
 
-Mà là Cố Xán rốt cuộc hiểu được chừng mực và hỏa hầu, hiểu được giao tâm vừa đúng lúc, mà không phải cởi ra bộ pháp bào long thuế phú quý hoa mỹ năm đó, đổi lại một thân thanh sam thô sơ hôm nay, thật sự cảm thấy tất cả mọi người đều tin Cố Xán hắn chuyển tính tu tâm, trở thành một thiếu niên tâm địa Bồ Tát tốt. Nếu thật sự là như thế, vậy cũng chỉ có thể nói rõ Cố Xán trưởng thành hơn năm đó, nhưng không nhiều, vẫn là theo thói quen coi người khác là kẻ ngốc, đến cuối cùng, sẽ có kết cục gì? Một Phạm Ngạn thành Trì Thủy giả ngu si đơn giản chỉ là tìm đúng điểm yếu tâm cảnh của Cố Xán hắn, năm đó có thể chơi đùa xoay vòng vòng giống như con chó Cố Xán hắn.
+Mà là cuối cùng hắn đã hiểu chừng mực, biết nắm thời cơ, hiểu khi nào nên thổ lộ lòng mình. Hắn không phải chỉ cởi bộ pháp bào long thuế lộng lẫy phú quý năm xưa, thay bằng áo thanh sam giản dị, rồi thật sự nghĩ ai cũng tin mình đổi tính tu tâm, thành một thiếu niên tốt bụng mang lòng Bồ Tát. Nếu nghĩ vậy, chỉ có thể nói Cố Xán đã trưởng thành hơn trước, nhưng chẳng được bao nhiêu, vẫn quen coi người khác là kẻ ngốc. Cuối cùng sẽ nhận kết cục gì? Chỉ riêng Phạm Ngạn ở Trì Thủy thành giả ngu, tìm đúng chỗ yếu trong tâm cảnh hắn, năm đó đã có thể xoay hắn như xoay một con chó.
 
-Nếu Lưu Chí Mậu có thể đưa ra bản《 Tiệt Giang Chân Kinh 》kia, đương nhiên có thể ở lúc rời đi, tùy tiện thu hồi.
+Lưu Chí Mậu đưa được quyển "Tiệt Giang Chân Kinh" ra, đương nhiên lúc ra về cũng có thể tiện tay lấy lại.
 
-Cho nên kế tiếp Lưu Chí Mậu còn có một trận khảo nghiệm trên tâm tính đối với Cố Xán.
+Cho nên tiếp theo, lão còn muốn thử tâm tính Cố Xán một phen.
 
-Điền Hồ Quân đã định trước sẽ không được việc kia, một người tương lai chống đỡ được nhiều nhất chính là tu sĩ Nguyên Anh bình thường đảo chủ Tố Lân đảo, bất quá là một món nhắm rượu trên bàn tối nay, có cũng được không có cũng được.
+Điền Hồ Quân vốn đã định chẳng làm nên chuyện lớn, tương lai cùng lắm thành đảo chủ Tố Lân đảo, một tu sĩ Nguyên Anh bình thường. Nàng chỉ như đĩa nhắm trên bàn đêm nay, có cũng được, không có cũng chẳng sao.
 
-Nhưng vị Tiệt Giang Chân Quân này không vội.
+Nhưng vị Tiệt Giang chân quân này không vội.
 
-Lúc này mới bắt đầu uống rượu.
+Rượu mới bắt đầu uống mà thôi.
 
-Lưu Chí Mậu thuận miệng nói: "Phạm Ngạn đã sớm là người chủ sự chân chính phía sau màn của tòa thành trì thủy này, đã nhìn ra rồi chứ?"
+Lưu Chí Mậu thuận miệng hỏi: "Phạm Ngạn từ lâu đã là người chủ sự thật sự sau màn của Trì Thủy thành. Ngươi nhìn ra rồi chứ?"
 
-Cố Xán cười khổ nói: "Sư phụ, ta không có mắt mù."
+Cố Xán cười khổ: "Sư phụ, đệ tử đâu có mù."
 
-Lưu Chí Mậu cười cười, "Vậy ngươi nhìn ra Phạm Ngạn đã có người trong triều chưa? Cũng không phải là Quan Đàm Nhiên của lão thượng thư Lại bộ lão Thượng thư Đại Ly, cũng không phải Tô Cao Sơn dẫn đầu công phá kinh thành vương triều Chu Huỳnh."
+Lưu Chí Mậu cười: "Vậy ngươi có nhìn ra trong triều đã có người chống lưng cho Phạm Ngạn chưa? Chẳng phải Quan Diệp Nhiên, cháu của lão thượng thư Lại bộ Đại Ly, cũng chẳng phải Tô Cao Sơn, người dẫn quân đánh vào kinh thành vương triều Chu Huỳnh đầu tiên."
 
-Cố Xán suy nghĩ một chút, "Sau này ta sẽ nhịn hắn một chút."
+Cố Xán nghĩ một lát: "Sau này đệ tử sẽ nhường nhịn hắn một chút."
 
-Hi vọng đến lúc đó Phạm Ngạn và cha mẹ của gã đều còn khỏe mạnh, tốt nhất là khí tượng gia tộc cường thịnh.
+Hy vọng đến lúc ấy, Phạm Ngạn cùng cha mẹ hắn vẫn còn khỏe mạnh. Tốt nhất gia tộc còn đang hưng thịnh.
 
-Lưu Chí Mậu tiếp tục nói: "Nguyên Viên đầu thai tốt, phụ mẫu song kim đan, chỗ dựa của đảo Cổ Minh, chuẩn xác mà nói là chỗ dựa của mẫu thân Nguyên Viên, là vị kiếm tu Nguyên Anh của vương triều Chu Huỳnh, kết quả bị một thiếu niên áo trắng thân phận mịt mờ, cùng với Long Tuyền Kiếm Tông Nguyễn Tú đuổi giết vạn dặm, sau đó chém giết ở tuyến biên cảnh. Theo lý thuyết đảo Cổ Minh nên xong đời, hôm nay thì hay rồi, cung phụng Chân Cảnh tông nắm tới tay, Thái Bình Vô Sự bài Đại Ly Hình bộ ban phát cũng có."
+Lưu Chí Mậu lại nói: "Nguyên Viên đầu thai tốt, cha mẹ đều là Kim Đan. Chỗ dựa của Cổ Minh đảo, nói cho đúng là chỗ dựa của mẹ Nguyên Viên, vốn là vị kiếm tu Nguyên Anh thuộc vương triều Chu Huỳnh. Kết quả người ấy bị một thiếu niên bạch y thân phận bí ẩn cùng Nguyễn Tú của Long Tuyền Kiếm tông đuổi giết vạn dặm, cuối cùng chém chết tại biên giới. Theo lý, Cổ Minh đảo phải sụp đổ rồi. Nay thì hay, họ chẳng những có ghế cung phụng Chân Cảnh tông, còn lấy được Thái Bình Vô Sự bài do Hình bộ Đại Ly ban."
 
-Cố Xán đối với tiểu mập mạp gọi thân mật tròn tròn này, chưa nói tới ghi hận, đem khôn khéo bày ở trên mặt người khác xem, có thể thông minh được bao nhiêu?
+Với tiểu mập mạp được gọi thân mật là Tròn Tròn ấy, Cố Xán chẳng có bao nhiêu oán hận. Kẻ bày hết vẻ khôn khéo ra mặt cho người khác xem thì thông minh được bao nhiêu?
 
-Đảo Cổ Minh mượn gió bẻ măng, thật sự không tính là tác phẩm xuất sắc gì, ai cũng biết.
+Cổ Minh đảo thấy gió bẻ măng, thật sự chẳng phải thủ đoạn cao minh gì, ai cũng nhìn ra.
 
-Chỉ cần người này đừng trêu chọc mình, để hắn làm khách quý đảo Thanh Hạp, đều không có vấn đề gì.
+Chỉ cần người ấy đừng trêu vào hắn, có mời đến làm khách quý ở Thanh Hạp đảo cũng chẳng sao.
 
-Về phần Nguyên Viên ở sau lưng nói nhỏ những lời âm dương quái khí kia, chút nước miếng này, có thể nặng mấy cân?
+Còn những lời âm dương quái khí Nguyên Viên nói sau lưng, chút nước bọt ấy nặng được mấy cân?
 
-Ngôn tức Cố Xán bị người khác chọc thẳng lên lưng, từ nhỏ đến lớn, nghe được, đã bao giờ ít?
+Từ nhỏ đến lớn, lời người ta chỉ trỏ, chọc vào sống lưng Cố Xán, hắn nghe được còn ít sao?
 
-Bây giờ Cố Xán sẽ không hỏi lòng giết người.
+Cố Xán bây giờ sẽ không chỉ vì thế mà giết người cho hả lòng.
 
 Ít nhất tạm thời sẽ không.
 
-Mà cái "Tạm thời" này, có thể sẽ cực kỳ dài.
+Mà cái "tạm thời" ấy có thể rất dài.
 
-Nhưng Cố Xán có thể chờ, hắn có kiên nhẫn này.
+Nhưng Cố Xán chờ được. Hắn có lòng kiên nhẫn ấy.
 
-Bởi vì hắn biết một đạo lý, ở thời điểm ngươi chỉ có thể phá hư quy củ mà vô lực sáng tạo quy củ, ngươi phải đi trước tuân thủ quy củ, trong lúc đó, không chịu khổ một lần, chỉ cần không chết, chính là một loại thu hoạch vô hình. Bởi vì hắn Cố Xán có thể học được càng nhiều, toàn bộ va chạm, lần lượt vấp phải vách tường cùng đóng cửa canh, đều là học vấn liên quan tới quy củ thế gian.
+Bởi hắn hiểu một đạo lý: khi chỉ có sức phá quy củ mà chưa đủ sức đặt ra quy củ, trước hết phải tuân theo nó. Trong quãng thời gian ấy, mỗi lần chịu khổ, chỉ cần không chết, đều là một phần thu hoạch vô hình. Cố Xán có thể học thêm nhiều chuyện. Tất cả những lần va vấp, đụng tường, bị đóng cửa không tiếp, đều là học vấn về quy củ thế gian.
 
-Lưu Chí Mậu nói: "Thạch Hào quốc tân đế Hàn Tĩnh Linh, thật sự là vận khí tốt một cách thần kỳ."
+Lưu Chí Mậu nói: "Tân đế Thạch Hào quốc Hàn Tĩnh Linh, vận khí thật tốt đến lạ."
 
-Hàn Tĩnh Linh đầu tiên là không để ý đến sự sống chết của dân chúng phiên vương hạt cảnh, chạy đến Thư Giản hồ tị nạn, kết quả không hiểu sao lại thành một vị hiền vương được giao khẩu ca tụng, sau đó mặc long bào ngồi trên long ỷ, phỏng chừng tiểu tử này hai năm nay nằm mơ cũng có thể cười tỉnh. Mặt khác hoàng tử được kỳ vọng rất lớn kia, Hàn Tĩnh Tín chết bất đắc kỳ tử ở nơi rừng núi hoang vu ngoài kinh kỳ, cho nên Hàn Tĩnh Linh tân đế này ngồi rất vững vàng. Về phần Hàn Tĩnh Linh một tay đỡ vị hoàng hạc Hàn Tĩnh Linh này lên long ỷ cũng không kém, Lễ bộ Thị Lang tuổi còn trẻ mà đã từng trải qua đời., Sắc phong tân Ngũ Nhạc của Thạch Hào quốc, toàn bộ là một mình hắn cùng tân đế chạy đông chạy tây, Lễ bộ Thượng thư còn không dám nói thêm một câu bực tức, nghe nói đến nha môn, Thượng thư đại nhân còn muốn chủ động châm trà. Cha hắn Hoàng hạc, tức thì bị nói thành lập hoàng đế trên triều đình Thạch Hào quốc, không có hoàng bào trên người, nhưng có thể đeo đao vào triều.
+Ban đầu, Hàn Tĩnh Linh bỏ mặc sống chết của dân chúng trong lãnh địa phiên vương, chạy đến Thư Giản hồ lánh nạn. Kết quả chẳng hiểu sao lại thành hiền vương được người người ca tụng, rồi khoác long bào ngồi lên long ỷ. E rằng hai năm nay, nằm mơ hắn cũng cười tỉnh. Vị hoàng tử còn lại từng được gửi gắm kỳ vọng lớn là Hàn Tĩnh Tín đã chết bất đắc kỳ tử giữa núi rừng ngoài vùng kinh kỳ, nên ngôi vị tân đế của Hàn Tĩnh Linh rất vững. Hoàng Hạc, kẻ một tay đỡ hắn lên long ỷ, cũng chẳng kém. Tuổi còn trẻ đã làm Thị lang Lễ bộ, từng trải chẳng thiếu. Việc sắc phong Ngũ Nhạc mới của Thạch Hào quốc đều do một mình hắn theo tân đế chạy đông chạy tây lo liệu. Thượng thư Lễ bộ chẳng dám oán lấy một câu, nghe nói đến nha môn còn phải chủ động châm trà cho hắn. Cha của Hoàng Hạc thì bị người trong triều Thạch Hào quốc gọi là hoàng đế đứng: trên người không có hoàng bào, nhưng được đeo đao vào chầu.
 
-Cố Xán mỉm cười nói: "Vận khí tốt, cũng là một loại có bản lĩnh."
+Cố Xán mỉm cười: "Vận khí tốt cũng là một thứ bản lĩnh."
 
-Hoàng hạc là gia hỏa đắc ý vênh váo, có lẽ cũng không cần hắn động thủ, sớm muộn cũng sẽ bị Hàn Tĩnh Linh giấu kim trong bông, thu thập rất thảm.
+Hạng đắc ý quên mình như Hoàng Hạc, có lẽ chẳng cần hắn ra tay, sớm muộn cũng bị Hàn Tĩnh Linh ngoài mềm trong cứng thu thập đến thảm.
 
-Bất quá Cố Xán vẫn hi vọng hoàng hạc có thể rơi vào trong tay mình.
+Nhưng Cố Xán vẫn mong Hoàng Hạc rơi vào tay mình.
 
-Bởi vì người này là người duy nhất năm đó sau khi hắn sa sút chán nản Cố Xán, dám can đảm leo lên đảo Thanh Hạp yêu cầu mở ra gian phòng ốc kia.
+Bởi sau khi hắn sa sút năm ấy, Hoàng Hạc là kẻ duy nhất dám lên Thanh Hạp đảo, đòi mở gian phòng kia.
 
 Cố Xán đang đợi cơ hội.
 
-Hơn nữa cơ hội tới tay này, nhất định phải hợp tình hợp lý, hợp quy củ.
+Hơn nữa, cơ hội đến tay nhất định phải hợp tình, hợp lý, hợp quy củ.
 
-Lưu Chí Mậu nói xong từng cái tên.
+Lưu Chí Mậu lần lượt nhắc hết những cái tên ấy.
 
-Thái độ đại khái của Cố Xán đối với mỗi người, vị Tiệt Giang Chân Quân này cũng có thể nhìn ra đại khái.
+Thái độ của Cố Xán với từng người, vị Tiệt Giang chân quân này cũng đã nhìn ra đại khái.
 
-Vẫn mang thù như cũ.
+Vẫn ghi thù như trước.
 
-Nhưng so với năm đó tùy tâm sở dục, chém giết lung tung một trận, hiện giờ trật tự Cố Xán rõ ràng, chẳng những có thể ẩn nhẫn không phát, ngược lại đối với tình cảnh ngủ đông ăn nhờ ở đậu hiện giờ, cúi đầu làm việc khắp nơi, tựa như không những không oán giận, ngược lại còn vui vẻ chịu đựng.
+Nhưng so với năm xưa tùy hứng làm càn, giết chóc lung tung, Cố Xán bây giờ suy tính đâu ra đấy. Hắn không chỉ nhẫn nhịn giấu kín, mà đối với cảnh ẩn mình nương nhờ người khác, đi đâu cũng phải cúi đầu làm việc, dường như chẳng hề oán giận, ngược lại còn vui lòng chịu đựng.
 
-Tốt lắm.
+Rất tốt.
 
-Như vậy có thể sống được càng lâu, sống được càng tốt.
+Như vậy mới có thể sống lâu hơn, sống tốt hơn.
 
-Trong cục diện khốn cùng cực khổ gian khổ, người khó nhịn nhất có năng lực, khổ định hồi phục cam.
+Giữa cảnh khốn cùng gian khổ, chịu được cái khổ người khác khó chịu nổi, rồi khổ tận sẽ đến cam lai.
 
-Đây chính là một loại tu hành khác.
+Đó cũng là một cách tu hành.
 
-Lưu Chí Mậu cũng không lo lắng con đường tu hành trên mặt sáng của Cố Xán sẽ nhấp nhô không thuận.
+Lưu Chí Mậu không lo con đường tu hành bên ngoài của Cố Xán sẽ lắm gập ghềnh.
 
-Tiểu tử này chính là dã tu trời sinh ở đầm lầy, hơn nữa có thể là loại dã tu không thua gì Cung Liễu đảo Lưu Lão Thành!
+Tiểu tử này trời sinh đã là sơn trạch dã tu, thậm chí có thể là loại dã tu chẳng thua Lưu Lão Thành ở Cung Liễu đảo!
 
-Lưu Chí Mậu lại rót cho mình một chén rượu, hỏi: "Còn lại *m v*t quỷ mị, xử trí như thế nào? Việc này nếu không thể nói, ngươi liền không nói."
+Lão rót thêm một bát rượu, hỏi: "Đám âm vật quỷ mị còn lại, ngươi định xử trí thế nào? Chuyện này nếu không tiện nói thì thôi."
 
-Cố Xán vừa mới nâng chén rượu lên, lại buông xuống, trầm mặc một lát, sau đó lắc đầu nói: "Không có gì không thể nói, nếu như bọn họ chết mà là quỷ, chấp niệm duy nhất chính là báo thù mà nói, rất đơn giản, ta cho bọn họ cơ hội báo thù, sư phụ hẳn là đã biết, Khương tông chủ ở địa giới Thư Giản hồ gần Vân Lâu thành, một mình vẽ ra mấy hòn đảo sơn thủy khí vận liên miên không dứt., Chính là tính giao cho Cố Xán ta, đến lúc đó ta sẽ ở bên đó chế tạo ra một đỉnh núi quỷ tu, toàn bộ *m v*t đều có thể tu hành. Tu hành thiếu tiền? Cố Xán ta đến cho! Thiếu bí tịch? Ta đi tìm giúp chúng nó tìm được thứ thích hợp. Khi nào cảm thấy có thể báo thù, chỉ việc đánh tiếng. Ngoài ra, rất nhiều yêu cầu và tâm nguyện, ta đủ khả năng làm được một món là một món. Ta biết, thật ra rất nhiều *m v*t hôm nay đều đang treo giá, không sao cả, chỉ cần chúng nó nguyện ý mở miệng là được."
+Cố Xán vừa nâng bát rượu lại đặt xuống, im lặng một lát rồi lắc đầu: "Không có gì không thể nói. Nếu sau khi chết thành quỷ, chấp niệm duy nhất của họ là báo thù, vậy rất đơn giản, đệ tử cho họ cơ hội báo thù. Hẳn sư phụ đã biết, Khương tông chủ đã riêng vạch ra mấy hòn đảo có khí vận sơn thủy nối liền, ở gần Vân Lâu thành trong địa giới Thư Giản hồ, định giao cho đệ tử. Đến lúc ấy, đệ tử sẽ dựng một đỉnh núi quỷ tu ở đó. Tất cả âm vật đều có thể tu hành. Thiếu tiền? Cố Xán đệ tử cấp! Thiếu bí tịch? Đệ tử đi tìm thứ phù hợp cho họ. Khi nào cảm thấy có thể báo thù, cứ lên tiếng. Ngoài ra, các yêu cầu, tâm nguyện khác, đệ tử làm được việc nào sẽ làm việc ấy. Đệ tử biết thật ra nhiều âm vật đang chờ giá cao. Chẳng sao, chỉ cần họ chịu mở miệng là được."
 
-Lưu Chí Mậu đột nhiên cười lên, "Nếu nói năm đó Trần Bình An một quyền hoặc là một kiếm đánh chết ngươi, đối với hai người các ngươi mà nói, có thể đều là lựa chọn càng thêm thoải mái hay không?"
+Lưu Chí Mậu chợt cười: "Nếu năm đó Trần Bình An một quyền hoặc một kiếm giết chết ngươi, đối với cả hai người, có phải đều nhẹ nhõm hơn không?"
 
-Cố Xán cúi đầu, bưng bát rượu lên, cổ tay lơ lửng, suy nghĩ một chút, mặt không chút thay đổi nói: "Trần Bình An không phải loại người đó, ta cũng không nguyện ý chết sớm như vậy."
+Cố Xán cúi đầu, nâng bát rượu, cổ tay dừng giữa không trung. Nghĩ một lát, hắn nói, mặt không chút biểu cảm: "Trần Bình An không phải người như vậy. Đệ tử cũng không muốn chết sớm thế."
 
-Lúc ngẩng đầu uống rượu, khuôn mặt thiếu niên đã khôi phục bình thường.
+Đến khi ngửa đầu uống rượu, sắc mặt thiếu niên đã trở lại bình thường.
 
-Lưu Chí Mậu cười trừ.
+Lưu Chí Mậu chỉ cười.
 
-Trên thực tế, trong lòng Lưu Chí Mậu như dời sông lấp biển.
+Thật ra trong lòng lão đang dậy sóng.
 
-Về những hòn đảo kia thuộc sở hữu, Lưu Chí Mậu hắn căn bản không biết chút nào!
+Chuyện những hòn đảo ấy thuộc về ai, Lưu Chí Mậu hoàn toàn không biết!
 
-Lưu Chí Mậu thở dài, như vậy, một hồi đại khảo tâm tính cuối cùng của Cố Xán, cũng có chút biến số.
+Lão thở dài. Như vậy, lần khảo nghiệm tâm tính cuối cùng dành cho Cố Xán cũng có thêm biến số.
 
-Nhưng Lưu Chí Mậu cân nhắc một phen, vẫn hỏi: "Ngươi cảm thấy đường ra đảo Thanh Hạp ở nơi nào? Không nóng nảy, uống rượu rồi, từ từ nghĩ."
+Nhưng cân nhắc một hồi, lão vẫn hỏi: "Ngươi thấy đường ra của Thanh Hạp đảo ở đâu? Không vội, cứ uống rượu, từ từ nghĩ."
 
-Cố Xán buông bát rượu, lau miệng, xoay người đưa tay vê lên một con cá khô nhỏ trên bàn tiệc xa xỉ quyền quý Thư Giản hồ, sau khi nhai kỹ nuốt chậm, chậm rãi nói: "Một, ta có thể tễ thân ngũ cảnh. Hai, ta tìm được chỗ dựa Đại Ly, ít nhất cũng là một vị gia chủ cầm quyền dòng họ thượng trụ quốc. Ba, thông qua ngọn núi này, gặp qua hoàng đế Đại Ly, trước trở thành quân cờ hắn đặt ở Thư Giản hồ để cản chân cảnh tông."
+Cố Xán đặt bát xuống, lau miệng, xoay người nhặt một con cá khô nhỏ, thứ thức nhắm ngay cả trên bàn tiệc quyền quý xa hoa ở Thư Giản hồ cũng có mặt. Nhai kỹ nuốt chậm rồi, hắn mới thong thả đáp: "Một, đệ tử bước vào thượng ngũ cảnh [?]. Hai, tìm được chỗ dựa ở Đại Ly, ít nhất phải là gia chủ đang nắm quyền của một dòng họ thượng trụ quốc. Ba, qua chỗ dựa ấy, gặp hoàng đế Đại Ly, trước tiên trở thành quân cờ người đặt ở Thư Giản hồ để kiềm chế Chân Cảnh tông."
 
-Lưu Chí Mậu ánh mắt rạng rỡ, "Không có thứ tư?"
+Mắt Lưu Chí Mậu sáng lên: "Không có điều thứ tư?"
 
-Cố Xán cười nói: "Từ từ sẽ đến."
+Cố Xán cười: "Cứ từ từ."
 
-Lưu Chí Mậu truy vấn: "Hành động này của ngươi, đối với ân sư truyền đạo mà Chân Cảnh tông ta đảm nhiệm cung phụng, đối với Chân Cảnh Tông Khương Thượng Chân trên đảo trao cho ngươi, chẳng phải đều là vong ân phụ nghĩa?"
+Lưu Chí Mậu hỏi dồn: "Làm vậy, đối với ân sư truyền đạo đang làm cung phụng Chân Cảnh tông là ta, đối với Khương Thượng Chân đã giao đảo cho ngươi, chẳng phải đều là vong ân phụ nghĩa?"
 
-Cố Xán thần sắc thong dong, quay đầu nhìn ra ngoài phòng, "Đêm dài đằng đẵng, có thể ăn mấy chén rượu, mấy đĩa đồ ăn. Hôm nay chỉ nói là việc này, tự nhiên có hiềm nghi vong ân phụ nghĩa, nhưng đợi đến khi ông ấy làm việc này một năm, nói không chừng chính là đưa than sưởi ấm trong ngày tuyết rơi. Huống chi trong lúc lời nói hành động, lại có nhiều buôn bán như vậy có thể làm. Nói không chừng ngày nào đó Cố Xán ta nói chết thì sao."
+Cố Xán vẫn ung dung, quay đầu nhìn ra ngoài: "Đêm còn dài, có thể uống mấy bát rượu, ăn mấy đĩa thức nhắm. Chỉ xét chuyện ấy vào hôm nay, tự nhiên có hiềm nghi vong ân phụ nghĩa. Nhưng đợi đến năm thật sự làm việc ấy, biết đâu lại thành đưa than ngày tuyết. Huống chi, từ lúc nói đến lúc làm, còn biết bao việc mua bán có thể thực hiện. Biết đâu một ngày nào đó Cố Xán đệ tử nói chết là chết rồi."
 
-Lưu Chí Mậu mỗi lần uống rượu không nhiều lắm, nhưng mà số lần nâng bát nhiều, cũng chỉ còn lại có một bát rượu cuối cùng, bị hắn một hơi uống cạn.
+Mỗi lần Lưu Chí Mậu uống chẳng nhiều, nhưng nâng bát liên tiếp, đến giờ chỉ còn bát cuối. Lão uống cạn một hơi.
 
-Nói đến mức này, cũng không phải thổ lộ tâm tình bình thường.
+Nói đến mức này đã chẳng phải thổ lộ tâm tình bình thường nữa.
 
-Chuyến đi tối nay, không uổng chuyến đi này.
+Chuyến đi đêm nay quả không uổng.
 
-Không ngờ Cố Xán thấy Lưu Chí Mậu đã không còn rượu, trong bát không có bầu rượu cũng không còn, liền đứng dậy xách bầu rượu của mình lên, rót cho lão nhân một chén.
+Không ngờ thấy bát rượu và bầu rượu của lão đều cạn, Cố Xán liền đứng lên, cầm bầu của mình rót thêm cho lão một bát.
 
-Lưu Chí Mậu vẫn chưa ngăn trở.
+Lưu Chí Mậu không ngăn.
 
-Sau khi ngồi xuống, Cố Xán giơ lên một chén rượu cuối cùng, nói với lão nhân: "Liền luận sự bất luận tâm, Cố Xán ta muốn cảm tạ sư phụ lão nhân gia ngươi, năm đó mang ta ra khỏi ngõ Nê Bình, để cho ta có cơ hội làm nhiều chuyện như vậy, còn có thể sống đến tối nay nói nhiều lời như vậy."
+Ngồi xuống, Cố Xán nâng bát rượu cuối cùng của mình, nói: "Chỉ luận việc, không xét lòng, Cố Xán đệ tử muốn cảm tạ sư phụ. Năm đó người đưa đệ tử ra khỏi ngõ Nê Bình, cho đệ tử cơ hội làm bao nhiêu chuyện, còn có thể sống đến đêm nay, nói bấy nhiêu lời."
 
-Lưu Chí Mậu giơ bát rượu lên, trùng trùng cụng đập đập với bát rượu của Cố Xán, cùng nhau uống cạn rượu trong bát.
+Lưu Chí Mậu nâng bát, cụng mạnh với Cố Xán, cùng hắn uống cạn.
 
-Lưu Chí Mậu đứng lên, Cố Xán cũng đứng dậy theo.
+Lão đứng dậy, Cố Xán cũng đứng lên theo.
 
-Hai người cùng nhau đi đến ngoài cửa phòng chính, sóng vai mà đứng, Lưu Chí Mậu cười nói: "Tuổi trẻ không mua vui, thiếu niên không tầm hoan, cô phụ quang âm tốt."
+Hai người đi ra ngoài cửa gian nhà chính, sóng vai đứng đó. Lưu Chí Mậu cười nói: "Tuổi trẻ không tìm vui, thiếu niên chẳng hưởng lạc, chẳng phải phụ mất thời gian tốt đẹp sao."
 
-Cố Xán lắc đầu, nói: "Thiếu niên bay bổng, thời gian tốt đẹp, có thể bao lâu."
+Cố Xán lắc đầu: "Thiếu niên hăng hái, tháng ngày tươi đẹp, được bao lâu?"
 
-Lưu Chí Mậu ồ một tiếng, có chút kinh ngạc, quay đầu cười nói: "Xem không ít sách?"
+Lưu Chí Mậu ồ một tiếng, hơi ngạc nhiên, quay đầu cười hỏi: "Đọc không ít sách rồi?"
 
-Cố Xán gật đầu nói: "Sơn thủy đề báo, tạp thư dưới núi cái gì cũng nguyện ý đọc một chút. Dù sao chỉ học tư được vài ngày, có chút tiếc nuối, từ ngõ Nê Bình đến Thư Giản hồ, thật ra cũng không xê dịch, muốn thông qua công báo và thư tịch, để biết nhiều hơn một chút thiên địa bên ngoài."
+Cố Xán gật đầu: "Sơn thủy đề báo, tạp thư dưới núi, thứ gì đệ tử cũng muốn đọc một chút. Dù sao chỉ được học tư thục vài ngày, vẫn thấy tiếc. Từ ngõ Nê Bình đến Thư Giản hồ, thật ra đệ tử chẳng đi được mấy nơi, muốn nhờ đề báo cùng sách vở mà biết thêm chút trời đất bên ngoài."
 
-Lưu Chí Mậu liếc chiếc quạt trúc bên hông, cười nói: "Là món đồ tốt."
+Lưu Chí Mậu liếc chiếc quạt trúc bên hông hắn, cười: "Đồ tốt đấy."
 
-Cố Xán lấy quạt xếp đưa tới hướng lão nhân, ánh mắt thanh tịnh nói: "Nếu như sư phụ thích thì cầm đi."
+Cố Xán rút quạt đưa cho lão, ánh mắt trong trẻo: "Sư phụ thích thì cứ cầm lấy."
 
-Để cho món đồ này xuất hiện đã mang ý nghĩa là Cố Xán đã đưa ra quyết định muốn giữ nó.
+Để món đồ này lộ ra vốn đã có nghĩa Cố Xán quyết định giữ nó bên mình.
 
-Lưu Chí Mậu khoát tay, "Tự mình giữ đi. Ai đưa cho ngươi?"
+Lưu Chí Mậu xua tay: "Tự giữ đi. Ai tặng ngươi vậy?"
 
-Cố Xán nói: "Bằng hữu của một người bạn."
+Cố Xán nói: "Bằng hữu của một người bằng hữu."
 
-Bằng hữu của bạn bè, lại không phải bằng hữu của hắn.
+Bằng hữu của bằng hữu, không phải bằng hữu của hắn.
 
-Cho dù người kia là Lưu Tiện Dương.
+Dù người ấy là Lưu Tiện Dương.
 
-Nhưng Cố Xán chưa từng coi Lưu Tiện Dương là bằng hữu gì.
+Cố Xán chưa từng coi Lưu Tiện Dương là bằng hữu.
 
-Từ nhỏ đã là, Lưu Tiện Dương chỉ là bằng hữu của người kia, cho dù Cố Xán cũng phải thừa nhận, Lưu Tiện Dương là số lượng không nhiều không có ý xấu ở quê nhà trấn nhỏ... Người tốt.
+Từ nhỏ đã vậy. Lưu Tiện Dương chỉ là bằng hữu của người kia. Cho dù Cố Xán cũng phải thừa nhận, ở trấn nhỏ quê nhà, Lưu Tiện Dương là một trong số ít những... người tốt chẳng mang ý xấu.
 
-Nhưng Cố Xán vẫn sẽ không coi Lưu Tiện Dương là bằng hữu.
+Nhưng Cố Xán vẫn không coi Lưu Tiện Dương là bằng hữu.
 
-Cố Xán rất không thích loại tùy tiện lớn lớn vô tâm như Lưu Tiện Dương, còn thích lấy mẫu thân hắn nói giỡn, cho nên Cố Xán nhiều lần mặt đầy nước mũi nước mắt, đuổi theo Lưu Tiện Dương đánh nhau.
+Hắn rất không thích cái tính tùy tiện vô tâm của Lưu Tiện Dương. Người nọ còn hay đem mẹ hắn ra đùa, nên không ít lần Cố Xán mặt mũi đầy nước mắt nước mũi, đuổi theo đòi đánh nhau.
 
-Thường thường đến cuối cùng, Lưu Tiện Dương sẽ cười hì hì nhận sai nhận lỗi nhận lỗi.
+Thường đến cuối cùng, Lưu Tiện Dương sẽ cười hì hì, nhận sai xin lỗi.
 
-Sau đó con sên nhỏ mặt đầy nước mắt, sẽ ốm yếu đi theo một người khác, cùng nhau trở về ngõ Nê Bình.
+Rồi con sên nhỏ nước mắt đầy mặt lại ủ rũ theo một người khác, cùng trở về ngõ Nê Bình.
 
-Đi tới đi tới, con sên nhỏ thường thường sẽ cười rạng rỡ, không còn ưu sầu.
+Đi được một quãng, con sên nhỏ thường đã cười rạng rỡ, quên hết âu sầu.
 
-Cho nên bằng hữu của hắn là Cố Xán.
+Cho nên bằng hữu của Cố Xán hắn.
 
-Từ trước đến nay chỉ có một.
+Trước sau chỉ có một người.
 
-Trước kia là vậy, sau này vẫn vậy, cuộc đời này đến chết cũng như vậy.
+Trước kia như vậy, sau này vẫn thế, đến chết cũng không đổi.
 
-Nhưng Cố Xán đời này sẽ không trở thành người như người kia.
+Nhưng cả đời này, Cố Xán sẽ không trở thành người giống người ấy.
 
 Cố Xán chính là Cố Xán.
 
-Trên đời này chỉ có một mình Cố Xán.
+Trên đời chỉ có một Cố Xán.
 
-Nhưng hắn nguyện ý thay đổi lời nói và việc làm.
+Có điều, hắn bằng lòng thay đổi lời nói và việc làm.
 
-Hơn nữa hắn học vô cùng tốt, sửa cực nhanh.
+Hơn nữa, hắn học rất giỏi, sửa rất nhanh.
 
-Bởi vì người kia lúc ly biệt đã nói một câu.
+Bởi khi chia tay, người ấy từng nói một câu.
 
-Mộc Tú xuất thân rừng, cùng Tú Mộc quy lâm trong rừng, là hai đạo lý.
+Cây đẹp vượt lên khỏi rừng, với cây đẹp trở về trong rừng, là hai đạo lý khác nhau.
 
-Lưu Chí Mậu cuối cùng nói: "Cố Xán, biết cái gì gọi là của cải không?"
+Cuối cùng, Lưu Chí Mậu hỏi: "Cố Xán, có biết thế nào gọi là nội tình của một nhà không?"
 
-Cố Xán cười nói: "Thỉnh sư phụ chỉ giáo."
+Cố Xán cười: "Xin sư phụ chỉ giáo."
 
-Lưu Chí Mậu nói: "Không phải thân hào phố phường thắt lưng buộc bạc triệu, ruộng tốt vạn mẫu, cũng không phải cả nhà trên quan trường đều sẽ trồng, phụ tử cùng triều hội, thậm chí cũng không phải tiên nhân trên núi nhiều như mây."
+Lưu Chí Mậu nói: "Chẳng phải phú hào phố phường lưng giắt bạc triệu, ruộng tốt vạn mẫu; cũng chẳng phải một nhà toàn dòng dõi tướng lĩnh, cha con cùng đứng triều đường; thậm chí cũng chẳng phải tiên nhân trên núi tụ tập như mây."
 
-Lưu Chí Mậu chỉ nói một nửa, vẫn không đưa ra đáp án.
+Lão chỉ nói một nửa, không đưa đáp án.
 
-Cố Xán nhai nhai một phen, gật đầu nói: "Hiểu rồi, là một gia đình, sau khi xảy ra sai lầm lớn, bổ cứu trở về, không phải loại nói không có là sẽ không có."
+Cố Xán ngẫm nghĩ rồi gật đầu: "Hiểu rồi. Là một gia đình dù phạm sai lầm lớn vẫn có thể cứu vãn, chẳng phải nói mất là mất hẳn."
 
-Lưu Chí Mậu tiếc nuối nói: "Lưu Chí Mậu ta thì không thể làm được, sau khi gặp kiếp nạn này khổ sở, đến cùng là để cho Chương lúm đồng tiền thất vọng, cho dù may mắn thành Ngọc Phác cảnh, cũng là một con chó nhà của gia phả tiên sư."
+Lưu Chí Mậu tiếc nuối: "Lưu Chí Mậu ta không làm được. Trải qua kiếp nạn này, rốt cuộc vẫn khiến lão Chương thất vọng. Dù may mắn thành Ngọc Phác cảnh, cũng chỉ là con chó giữ nhà cho đám tiên sư gia phả."
 
-Cố Xán mỉm cười nói: "Đảo Thanh Hạp còn có ta là Cố Xán."
+Cố Xán mỉm cười: "Thanh Hạp đảo vẫn còn Cố Xán đệ tử."
 
-Lưu Chí Mậu lắc đầu, "Là Thư Giản hồ chúng ta còn có một Cố Xán!"
+Lưu Chí Mậu lắc đầu: "Là Thư Giản hồ chúng ta vẫn còn một Cố Xán!"
 
-Sơn trạch dã tu, ân oán rõ ràng.
+Sơn trạch dã tu, ân oán phân minh.
 
-Cho dù là sư đồ, cũng như thế.
+Dù là thầy trò cũng vậy.
 
-Lưu Chí Mậu chợt lóe rồi biến mất, quay về đảo Cung Liễu chỗ tổ sư đường Chân Cảnh Tông, bắt đầu bế quan.
+Lưu Chí Mậu thoáng cái đã biến mất, trở về Cung Liễu đảo, nơi đặt tổ sư đường Chân Cảnh tông, bắt đầu bế quan.
 
-Cố Xán một đêm không ngủ.
+Cố Xán suốt đêm không ngủ.
 
-Chỉ là chậm rãi tản bộ trong tiểu viện.
+Hắn chỉ chậm rãi đi lại trong sân nhỏ.
 
-Tuy rằng Lưu Chí Mậu che lấp động tĩnh ngôn ngữ trong phòng, nhưng mà lão nhân sau khi đi ra khỏi phòng, cũng không tận lực che giấu.
+Dẫu Lưu Chí Mậu che kín tiếng nói và động tĩnh trong phòng, nhưng lúc bước ra ngoài, lão không cố ý giấu mình.
 
-Cho nên Tăng Dịch và Mã Đốc Nghi tự nhiên biết được vị Tiệt Giang Chân Quân này đã đến và rời đi.
+Cho nên Tằng Dịch và Mã Đốc Nghi đều biết vị Tiệt Giang chân quân ấy đã đến rồi đi.
 
-Mã Đốc Nghi mở cửa sổ, nhìn trái nhìn phải rồi hỏi Cố Xán xem có phải có phiền toái không.
+Mã Đốc Nghi mở cửa sổ, nhìn quanh một lượt, hỏi Cố Xán có phải gặp phiền phức hay không.
 
-Cố Xán cười khoát khoát tay, tỏ ý không cần nàng lo lắng.
+Hắn cười xua tay, ra hiệu nàng đừng lo.
 
-Về phần Tằng Dịch kia, tính tình thật thà chất phác khiếp nhược, cho nên vẫn trốn ở trong phòng, tự lo sợ bất an.
+Còn Tằng Dịch tính tình chất phác nhút nhát vẫn trốn trong phòng, một mình thấp thỏm.
 
-Nhưng chuyện tu hành chính là kỳ lạ như vậy, từng tu hành căn cốt tốt, tư chất tu hành lại là Mã Đốc Nghi tốt hơn, đồng thời cơ duyên càng tốt hơn, thiên tính của Mã Đốc Nghi hiển nhiên càng tốt hơn.
+Nhưng chuyện tu hành lạ lùng như vậy. Tằng Dịch có căn cốt tốt, còn tư chất tu hành của Mã Đốc Nghi lại cao hơn, cơ duyên cũng tốt hơn, ngay cả thiên tính nàng hiển nhiên cũng hơn hắn.
 
-Đến cuối cùng, Tằng Dịch càng có hy vọng đi được cao xa hơn.
+Vậy mà đến cuối cùng, Tằng Dịch lại có hy vọng đi cao hơn, xa hơn.
 
-May mà Mã Đốc Nghi đã chết một lần, căn bản không quan tâm những thứ này.
+May là Mã Đốc Nghi từng chết một lần, vốn chẳng để tâm những chuyện ấy.
 
-Cho nên có đôi lúc Cố Xán có chút hâm mộ thỉnh thoảng tỉnh tỉnh mê mê không hiểu, cũng hâm mộ vô ưu vô lo thích hợp cho ngựa.
+Bởi vậy đôi khi Cố Xán có chút hâm mộ Tằng Dịch ngơ ngác hồ đồ, cũng hâm mộ Mã Đốc Nghi vô ưu vô lo.
 
-Từng trằn trọc, cuối cùng mơ màng thiếp đi.
+Tằng Dịch trằn trọc một hồi, cuối cùng mơ màng ngủ thiếp đi.
 
-Cố Xán thở dài, năm đó tu hành ở Thư Giản hồ, dù cho có chút tu vi cảnh giới hôm nay, chủ động vẫn là dê vào miệng hổ, xương cốt không thừa.
+Cố Xán thở dài. Tu hành ở Thư Giản hồ năm xưa, dù có chút cảnh giới hôm nay, vẫn chẳng khác nào dê tự chui miệng cọp, bị ăn đến chẳng còn xương.
 
-Thông qua từng hội rượu lớn nhỏ trong tướng quân phủ bên kia, Cố Xán phát hiện một chút manh mối.
+Qua những tiệc rượu lớn nhỏ bên phủ tướng quân, Cố Xán đã nhận ra chút manh mối.
 
-Quy củ Thư Giản hồ được định ra, vị tướng quân trẻ tuổi Quan Khuyết Nhiên nhất định xuất thân hào phiệt kia, nhất định là trước đó chiếm được một phần sổ sách, bởi vì Cố Xán sẽ cảm thấy quen thuộc.
+Quy củ Thư Giản hồ được định lại, vị tướng quân trẻ tuổi Quan Diệp Nhiên chắc chắn xuất thân hào phiệt ấy, nhất định đã nhận được một quyển sổ từ trước. Bởi những việc làm ấy khiến Cố Xán thấy quen thuộc.
 
-Cho nên nói Thư Giản hồ hiện giờ, khắp nơi đều có dấu vết của vị tiên sinh phòng thu chi đảo Thanh Hạp kia.
+Cho nên, Thư Giản hồ bây giờ đâu đâu cũng có dấu vết của vị tiên sinh phòng thu chi Thanh Hạp đảo.
 
-Cố Xán cầm trong tay quạt xếp, vỗ nhè nhẹ đầu vai, tự nhủ: "Muốn học, còn rất nhiều."
+Cố Xán cầm quạt xếp, khẽ gõ lên vai, tự nhủ: "Còn nhiều thứ phải học lắm."
 
-Cây quạt trúc được chế tạo từ Thần Tiêu trúc trong tay hắn.
+Chiếc quạt trong tay hắn làm bằng trúc Thần Tiêu.
 
-Hai mặt chính phản đều có đề chữ.
+Cả hai mặt đều đề chữ.
 
-Thanh Phong Minh Nguyệt, ngũ lôi sinh phát.
+"Thanh phong minh nguyệt", "Ngũ lôi sinh phát".
 
-Hẳn là Lưu Tiện Dương tự tay viết trên mặt quạt, là để thể hiện bản lĩnh học tập thuần nho Trần thị của hắn với Cố Xán.
+Hẳn là Lưu Tiện Dương tự tay viết, muốn khoe với Cố Xán bản lĩnh học được ở Thuần Nho Trần thị.
 
-Nhưng Cố Xán cho tới bây giờ đều cảm thấy nếu như Lưu Tiện Dương cùng người kia đi học thục, Lưu Tiện Dương cũng chỉ có phần ăn tro bụi ở sau lưng.
+Nhưng Cố Xán vẫn luôn nghĩ, nếu Lưu Tiện Dương cùng người kia đi học, hắn chỉ có phần chạy phía sau hít bụi.
 
-Nhưng thế sự, lại để cho người kia hành tẩu giang hồ, Lưu Tiện Dương đang học.
+Vậy mà thế sự lại để người kia bôn ba giang hồ, còn Lưu Tiện Dương ngồi đọc sách.
 
-Cho nên Cố Xán vẫn không quá thích thế đạo như vậy.
+Cho nên Cố Xán vẫn chẳng thích thế đạo này cho lắm.
 
-Về phần bản tiên gia bí tịch giấu ở trong tay áo, Cố Xán một đêm này cũng không đi lật xem.
+Còn quyển bí tịch tiên gia giấu trong tay áo, suốt đêm hắn chưa mở xem.
 
-Cố Xán ta tu hành, cần gấp sao?
+Cố Xán ta tu hành, cần vội sao?
 
-Lúc tảng sáng Cố Xán mở cửa, ngồi ở trên bậc thang bên ngoài, môn thần và câu đối xuân đều là mua từ Niên Quan năm ngoái.
+Tảng sáng, hắn mở cổng, ngồi xuống bậc thềm bên ngoài. Môn thần và câu đối xuân đều được mua từ dịp cuối năm trước.
 
-Từng có con sên, tuyên bố muốn treo câu đối xuân cho tòa nhà nào đó ở ngõ Nê Bình.
+Từng có một con sên nhỏ tuyên bố muốn treo câu đối xuân cho một căn nhà trong ngõ Nê Bình.
 
-Lúc ấy, người kia hẳn là rất vui vẻ, cho nên dùng sức xoa đầu con sên, nói năm nay hai nhà có câu đối xuân giấy đỏ, đều để hắn đến bỏ tiền.
+Khi ấy, người kia hẳn rất vui, nên ra sức xoa đầu con sên nhỏ, nói năm nay tiền giấy đỏ viết câu đối xuân của hai nhà đều để mình lo.
 
-Đây không phải là nói nhảm sao?
+Chẳng phải nói thừa sao?
 
-Từ sau khi tên kia đi Long Diêu làm học đồ, hộ gia đình trên đầu ngõ Nê Bình, câu đối môn thần xuân, có lần nào không phải hắn bỏ tiền mua đưa đến nhà? Người càng nghèo, ngược lại là vì người khác tiêu tiền càng nhiều.
+Từ khi người ấy đến lò rồng làm học đồ, môn thần, câu đối xuân của nhà ở đầu ngõ Nê Bình kia, có lần nào không do hắn bỏ tiền mua rồi mang đến? Người càng nghèo, ngược lại càng tiêu nhiều tiền cho người khác.
 
-Kỳ quái.
+Lạ thật.
 
-Trên đời này sao lại có loại người như vậy.
+Trên đời sao lại có người như vậy.
 
-Cố Xán ngồi ở dưới bậc thang, khuỷu tay để ở trên bậc thang bên trên, an tĩnh chờ đợi hộ gia đình đối diện mở cửa.
+Cố Xán ngồi ở bậc thấp, chống khuỷu tay lên bậc cao phía sau, yên lặng đợi nhà đối diện mở cửa.
 
-Bởi vì bên kia có đứa bé con cái rắm, trên mặt hàng năm treo hai con rồng xanh nhỏ dính dính.
+Bởi bên ấy có một thằng nhóc con, quanh năm dưới mũi treo hai con rồng xanh dinh dính.
 
-Cho nên Cố Xán mới lựa chọn thuê phòng ở bên này.
+Cũng vì vậy mà Cố Xán chọn thuê nhà ở đây.
 
-Đối diện là một gia đình tiểu hộ, cha mẹ đều ở đây, làm công việc có thể nuôi sống gia đình, tiểu tử vừa mới đi học thục không bao lâu, bên trên còn có một tỷ tỷ, bộ dạng không dễ nhìn, tên cũng không dễ nghe, thiếu nữ nhu nhu nhược nhược, da mặt còn mỏng, dễ dàng đỏ mặt, mỗi lần nhìn thấy hắn, liền phải cúi đầu bước nhanh đi.
+Đối diện là một gia đình bình thường. Cha mẹ đều còn, có việc làm nuôi sống cả nhà. Thằng nhóc vừa vào tư thục chưa bao lâu, trên còn một người tỷ tỷ. Thiếu nữ ấy dáng vẻ chẳng đẹp, tên cũng không hay, tính tình yếu đuối, da mặt mỏng, rất dễ đỏ mặt. Mỗi lần thấy hắn, nàng đều cúi đầu bước vội.
 
-Cố Xán đương nhiên sẽ không thích một thiếu nữ phố phường như thế.
+Cố Xán đương nhiên không thích một thiếu nữ phố phường như vậy.
 
-Đối diện có một đứa trẻ nghênh ngang đi ra khỏi học thục, sụt sịt mũi, sau khi nhìn thấy Cố Xán, hắn lui về phía sau hai bước, đứng ở trên bậc cửa, "Họ Cố, nhìn cái gì, một vị đại mỹ nhân như tỷ tỷ ta, cũng là người mà loại tiểu tử nghèo như ngươi có thể thèm muốn? Ta khuyên ngươi bỏ qua suy nghĩ này đi, ngươi không xứng với tỷ tỷ ta! Ta cũng không muốn gọi ngươi là tỷ phu."
+Thằng nhóc nghênh ngang bước ra, chuẩn bị đến tư thục, vừa đi vừa sụt sịt. Thấy Cố Xán, nó lùi hai bước, đứng trên ngưỡng cửa: "Họ Cố, nhìn gì mà nhìn? Đại mỹ nhân như tỷ tỷ ta, loại tiểu tử nghèo nhà ngươi cũng dám mơ tưởng? Khuyên ngươi bỏ ý ấy đi, ngươi không xứng với tỷ tỷ ta đâu! Ta cũng chẳng muốn gọi ngươi là tỷ phu."
 
-Cố Xán ngồi thẳng người, nhẹ nhàng dùng trúc phiến vỗ đầu gối.
+Cố Xán ngồi thẳng dậy, nhẹ nhàng gõ quạt trúc lên đầu gối.
 
-Tên kia nhịn không được nhìn trúc phiến thêm vài lần, nhảy xuống bậc cửa, nhanh như chớp chạy đến ngồi bên cạnh Cố Xán, vươn tay, "Đùa ta chút."
+Thằng nhóc không nhịn được liếc chiếc quạt mấy lần, rồi nhảy khỏi ngưỡng cửa, thoắt cái đã chạy sang ngồi bên hắn, chìa tay: "Cho ta chơi một lát."
 
-Cố Xán cười hỏi: "Còn không cút đi chi hồ giả dã?"
+Cố Xán cười hỏi: "Còn chưa cút đi học chi hồ giả dã?"
 
-Tiểu gia hỏa trợn mắt nói: "Những kẻ hồ đồ kia, lại không mọc chân chạy trốn, ta đi trễ một chút, nói với phu tử bụng đau."
+Thằng nhóc trợn mắt: "Mấy thứ chi hồ giả dã ấy có mọc chân chạy mất đâu. Ta đi trễ một chút, cứ bảo phu tử là đau bụng."
 
-Cố Xán liếc mắt nói: "Vậy trên đường ngươi phải đi, nếu bôi chút bùn vàng lên mông, tiên sinh học thục mới có thể tin tưởng ngươi."
+Cố Xán liếc nó: "Vậy trên đường nhớ bôi ít bùn vàng lên mông, tiên sinh mới tin."
 
-Tiểu tử kia suy nghĩ một chút, đột nhiên chửi ầm lên: "Họ Cố, ngươi có ngốc hay không? Phu tử cũng sẽ không đánh ta, ô uế quần, về nhà, mẹ ta còn không đánh chết ta!"
+Thằng nhóc nghĩ một lát, chợt mắng ầm lên: "Họ Cố, ngươi có ngốc không? Phu tử lại chẳng đánh ta. Làm bẩn quần, về nhà mẹ ta không đánh chết ta mới lạ!"
 
-Tiểu tử kia mắng xong, hỏi: "Họ Cố, ngươi sẽ kéo văn, dạy ta hai câu, ta sẽ cùng hai người bạn khoe khoang học vấn đi."
+Mắng xong, nó lại hỏi: "Họ Cố, ngươi biết nói văn vẻ, dạy ta hai câu đi. Ta đem khoe học vấn với hai bằng hữu."
 
-Cố Xán thuận miệng nói: "Thôn Đông lão ông phòng hổ hoạn, đêm nay hổ nhập thất ngậm đầu. Hài đồng Tây gia không biết hổ, cầm gậy xua hổ như quất trâu."
+Cố Xán thuận miệng đọc: "Lão ông thôn Đông lo họa hổ, đêm nay hổ vào nhà tha đầu. Trẻ nhà bên Tây không biết hổ, cầm gậy đuổi hổ như đánh trâu."
 
-Tiểu tử cả giận nói: "Nhiều chữ như vậy? Phải ít một chút, khí thế càng đủ một chút!"
+Thằng nhóc tức giận: "Nhiều chữ vậy? Phải ngắn hơn, khí thế hơn nữa!"
 
-Cố Xán ồ một tiếng, thuận miệng bịa chuyện nói: "Thiếu niên mài đao trong đêm, kẻ muốn nói nghịch ta, lập tử quỳ cũng chết."
+Cố Xán ồ một tiếng, tùy miệng bịa: "Thiếu niên mài đao giữa đêm, kẻ nào nghịch ý ta, đứng chết quỳ cũng chết [?]."
 
-Tiểu gia hỏa nhíu mày, "Sát khí quá nặng đi, ta sợ bị người đánh, bất quá cũng không phải là không thể nói, chỉ có thể nói với những người chạy không lại kia."
+Thằng nhóc nhíu mày: "Sát khí nặng quá, ta sợ bị đánh. Nhưng cũng chẳng phải không nói được, chỉ cần nói với đứa chạy chậm hơn ta thôi."
 
-Cố Xán cười ha ha, một bàn tay vỗ lên đầu tiểu gia hỏa: "Sức mạnh cơ trí này của ngươi giống như ta khi còn bé."
+Cố Xán cười ha hả, vỗ đầu nó: "Cái vẻ lanh lợi này giống ta hồi nhỏ."
 
-Cố Xán dừng tiếng cười, "Câu nói vô liêm sỉ này, nghe qua thì quên đi, ta dạy ngươi một câu khác, càng có khí phách."
+Hắn ngừng cười: "Câu khốn kiếp vừa rồi, nghe xong thì quên đi. Ta dạy ngươi câu khác, khí phách hơn."
 
-Tiểu gia hỏa gật mạnh đầu, "Nhanh lên!"
+Thằng nhóc gật đầu thật mạnh: "Mau lên!"
 
-Cố Xán nghiêm trang nói: "Mỗi ngày trên giường mát lạnh."
+Cố Xán nghiêm trang đọc: "Ngày ngày trên giường mát lạnh."
 
-Tiểu gia hỏa thẹn quá hóa giận, một cái tát đánh vào trên vai người kia, "Ngươi mới đái dầm đó!"
+Thằng nhóc thẹn quá hóa giận, vỗ một cái lên vai hắn: "Ngươi mới đái dầm!"
 
-Cố Xán đột nhiên nghi hoặc nói: "Đúng rồi, phu tử sẽ không đánh ngươi? Ngươi không phải thường xuyên khóc nhè về nhà sao? Nói lão phu tử kia là lão vương bát đản, thích nhất là dùng gậy đánh các ngươi?"
+Cố Xán chợt hỏi, vẻ khó hiểu: "Đúng rồi, phu tử không đánh ngươi à? Chẳng phải ngươi thường khóc nhè về nhà, bảo lão phu tử là lão vương bát đản, thích nhất cầm gậy đánh các ngươi sao?"
 
-Tiểu gia hỏa lắc lắc đầu vai, vui cười nói: "Cái này ngươi không biết, trường tư chúng ta đã đổi vị phu tử mới rồi, trước kia cái đó làm người ta chán ghét, đọc sách tốt, chưa bao giờ đánh không mắng, chỉ chuyên môn theo dõi mấy người chúng ta đọc sách không tốt, đánh tới chết, giống như chúng ta trộm đồ nhà hắn vậy, ta cũng muốn lớn lên một chút, không phải trẻ con, có mấy cân khí lực, liền vụng trộm đánh hắn một trận. Hôm nay vị này, tốt lắm, chưa từng đánh người, quản cũng không quản mấy người chúng ta, hôm nay thật sự là cuộc sống thoải mái."
+Thằng nhóc lắc vai, cười hí hửng: "Ngươi không biết rồi. Tư thục đổi phu tử mới. Lão trước kia đáng ghét lắm, đứa học giỏi thì chẳng bao giờ đánh mắng, cứ nhắm vào mấy đứa học dốt chúng ta mà đánh muốn chết, như thể chúng ta trộm đồ nhà lão. Ta còn định lớn thêm chút nữa, không còn là trẻ con, có chút sức lực rồi sẽ lén đánh lão một trận. Vị bây giờ tốt lắm, chưa từng đánh ai, cũng chẳng quản mấy đứa ta. Bây giờ sống thật sung sướng."
 
-Cố Xán cười cười, "Vậy ngươi càng ưa thích tiên sinh dạy học hiện giờ hơn?"
+Cố Xán cười: "Vậy ngươi thích tiên sinh bây giờ hơn?"
 
-Tiểu gia hỏa ngẩn ra một phen, "Họ Cố, ngươi hôm nay lúc ra cửa, đầu bị ván cửa kẹp đi? Sao luôn hỏi những vấn đề ngốc này? Đổi thành ngươi đi trường tư đọc sách, không thích tân phu tử? Hôm nay mấy chúng ta quậy nữa, chỉ cần không ầm ĩ đến những đứa trẻ ngoan ngoãn đó đọc sách, tân phu tử xưa nay không quản, đừng nói đánh, mắng cũng không mắng một câu, tốt với giặc!"
+Thằng nhóc ngẩn ra: "Họ Cố, sáng ra cửa ngươi bị cánh cửa kẹp đầu à? Sao cứ hỏi toàn chuyện ngốc thế? Đổi là ngươi đi học, chẳng lẽ không thích phu tử mới? Bây giờ mấy đứa ta quậy thế nào, chỉ cần đừng làm ồn lũ ngoan ngoãn đang đọc sách, phu tử mới chẳng bao giờ quản. Đừng nói đánh, đến mắng cũng không một câu. Tốt cực kỳ!"
 
-Cố Xán tiếp tục ngửa người ra sau, mỉm cười nói: "Chỉ quản phu tử của học sinh tốt, cũng coi như phu tử tốt sao? Vậy thiên hạ này, cần tiên sinh dạy học làm cái gì?"
+Cố Xán lại ngả người ra sau, mỉm cười: "Phu tử chỉ lo cho học trò giỏi, cũng tính là phu tử tốt sao? Vậy thiên hạ này cần tiên sinh dạy học làm gì?"
 
-Nhóc con than thở, "Họ Cố, đầu óc của ngươi thật sự hỏng mất rồi. Thật ra thì, trước kia ta vẫn còn rất muốn ngươi tốt với tỷ tỷ ta, lúc này, quên đi. Ta đọc sách thì không có tiền đồ gì, nếu tương lai tỷ phu không phấn đấu chút, về sau làm sao đây."
+Thằng nhóc thở dài: "Họ Cố, đầu óc ngươi hỏng thật rồi. Thật ra trước kia ta còn mong ngươi thành đôi với tỷ tỷ ta. Bây giờ thì thôi. Ta học hành chẳng có tiền đồ, tỷ phu tương lai mà không cố gắng, về sau biết làm sao?"
 
-Cố Xán cười nói: "Sao ngươi biết mình đọc sách không có tiền đồ, ta thấy ngươi cũng rất lanh lợi."
+Cố Xán cười hỏi: "Sao ngươi biết mình học hành không có tiền đồ? Ta thấy ngươi lanh lợi lắm mà."
 
-Tiểu gia hỏa cúi đầu, "Không riêng gì tân phu tử hiện tại, lão phu tử cũng nói ta bất hảo không chịu nổi như vậy, cũng chỉ có thể cả đời không có tiền đồ, lão phu tử mỗi lần mắng ta một lần, thước liền nện vào lòng bàn tay ta một lần, liền đếm đánh ta hăng say nhất, hận chết hắn."
+Thằng nhóc cúi đầu: "Chẳng riêng phu tử mới bây giờ, lão phu tử trước kia cũng bảo ta hư đốn không chịu nổi, cả đời chỉ có thể chẳng nên trò trống gì. Lão mắng ta một câu là thước lại nện xuống lòng bàn tay một lần. Đánh ta là hăng nhất. Ta hận chết lão."
 
-Cố Xán xoa xoa đầu tiểu tử kia, "Sau khi lớn lên, nếu như gặp hai vị phu tử ở trên đường, tân phu tử, ngươi có thể mặc kệ cũng không quản, dù sao hắn chỉ là lấy tiền làm việc, không tính là dạy học, nhưng nếu gặp vị lão phu tử kia, nhất định phải gọi hắn một tiếng tiên sinh."
+Cố Xán xoa đầu nó: "Lớn lên, nếu trên đường gặp hai vị phu tử, vị mới thì ngươi có thể mặc kệ. Dù sao người ấy chỉ lấy tiền làm việc, chẳng tính là dạy học. Nhưng nếu gặp lão phu tử kia, nhất định phải gọi một tiếng tiên sinh."
 
-Tiểu gia hỏa bỗng nhiên ngẩng đầu, nổi giận đùng đùng nói: "Dựa vào cái gì! Ta không!"
+Thằng nhóc ngẩng phắt đầu, nổi giận: "Dựa vào đâu! Ta không gọi!"
 
-Cố Xán ngẩng đầu nhìn trời: "Chỉ bằng vị tiên sinh này, còn ôm hi vọng với ngươi."
+Cố Xán ngẩng nhìn trời: "Dựa vào việc vị tiên sinh ấy vẫn còn hy vọng ở ngươi."
 
-Tiểu gia hỏa nghe được như lọt vào trong sương mù, nghẹn nửa ngày, thử hỏi: "Ngươi cũng bị phu tử tính tình cực kém hung hăng đánh?"
+Thằng nhóc nghe như lạc giữa mây mù. Nghẹn hồi lâu, nó mới dò hỏi: "Ngươi cũng từng bị phu tử tính tình tệ hại đánh thật đau à?"
 
-Cố Xán gật đầu nhẹ, nói khẽ: "Nhưng mà tính tình hắn rất tốt."
+Cố Xán khẽ gật, nhẹ giọng nói: "Nhưng tính tình người ấy rất tốt."
 
-Tiểu gia hỏa chậc chậc nói: "Đáng thương, thật đáng thương, không tốt hơn ta chỗ nào đâu, hắc, ta so với ngươi còn tốt hơn nhiều, lão phu tử không gặp, phu tử mới không đánh người."
+Thằng nhóc tặc lưỡi: "Đáng thương, thật đáng thương, chẳng hơn ta chỗ nào. Hê, ta còn sướng hơn ngươi nhiều, lão phu tử không gặp nữa, phu tử mới lại chẳng đánh người."
 
-Tiểu gia hỏa đứng lên, lau mặt, vụng trộm lau vai Cố Xán, chạy như bay chạy đi.
+Nó đứng dậy, quệt mặt, lén chùi tay lên vai Cố Xán rồi chạy biến.
 
-Cố Xán quay đầu nhìn lại, đều là nước mũi của thằng nhóc kia.
+Cố Xán ngoảnh nhìn, trên vai toàn là nước mũi của nó.
 
-Cố Xán lặng lẽ quấn áo, đánh xợt những dấu vết kia.
+Hắn lặng lẽ kéo áo, lau sạch những vệt ấy.
 
-Đứng lên, trở về tòa nhà, sau khi đóng cửa lại, cột chặt quạt xếp ở bên hông.
+Đứng dậy trở vào nhà, đóng cổng rồi, hắn buộc lại chiếc quạt xếp bên hông.
 
-Rất nhiều người đều đáng phải chết, hơn nữa, về sau đã được định trước sẽ ngày càng nhiều. Điều kiện tiên quyết là Cố Xán trước đây vẫn còn sống. Sau đó, hắn dùng cái gọi là việc thiện để từng bước tích góp thế lực, hỗ trợ cho việc khống chế nhân tâm bằng những thủ đoạn lừa dối, đồng thời lại dùng quy củ để giết người. Dù rằng cách làm này không quá sảng khoái, nhưng hắn có thể nói ra điều gì? Chuyện tốt ta cũng làm, người xấu ta cũng giết; hơn nữa, khi giết ngươi, Trần Bình An, hắn đều không tìm ra nửa điểm tật xấu!
+Rất nhiều người đáng chết. Hơn nữa, sau này chắc chắn sẽ càng ngày càng nhiều. Điều kiện trước hết là Cố Xán hắn vẫn còn sống. Sau đó, hắn sẽ dùng những việc gọi là việc thiện, từng bước tích góp thế lực, lấy đó hỗ trợ thủ đoạn lừa gạt, khống chế lòng người, rồi dùng quy củ giết người. Làm vậy tuy không mấy thống khoái, nhưng người khác còn nói được gì? Chuyện tốt ta cũng làm, kẻ xấu ta cũng giết. Hơn nữa, lúc giết ngươi, ngay cả Trần Bình An cũng chẳng tìm ra nửa điểm sai trái!
 
-Cố Xán lưng tựa cửa phòng.
+Cố Xán tựa lưng vào cổng.
 
-Chỉ là có chút thương tâm.
+Chỉ hơi buồn lòng.
 
-Bởi vì con sên nhỏ ngõ Nê Bình, thì ra thật sự đã chết.
+Bởi con sên nhỏ ở ngõ Nê Bình, hóa ra thật sự đã chết.
 
-Trong lòng Trần Bình An, trong lòng Cố Xán đều đã chết.
+Trong lòng Trần Bình An, trong lòng Cố Xán, đều đã chết.
 
-Nhưng mà khả năng khác làm cho Cố Xán thương tâm nhất là.
+Nhưng có lẽ điều khiến Cố Xán đau lòng nhất lại là một khả năng khác.
 
-Là mình chưa từng thay đổi.
+Chính hắn chưa từng thay đổi.
 
-Mà là Trần Bình An không còn là thiếu niên giầy rơm ngõ Nê Bình nữa, là Trần Bình An hắn thay đổi rất nhiều rất nhiều.
+Mà Trần Bình An đã không còn là thiếu niên giày rơm ở ngõ Nê Bình. Trần Bình An mới là người thay đổi rất nhiều, rất nhiều.
 
-Bất kể như thế nào, mặc kệ rốt cuộc là ai thay đổi.
+Dù thế nào, dù rốt cuộc người thay đổi là ai.
 
 Cố Xán.
 
 Xán.
 
-Người kia vô cùng hy vọng mỹ ngọc.
+Miếng ngọc đẹp mà người kia hết lòng mong đợi [?].
 
-Vĩnh viễn cũng sẽ không có.
+Vĩnh viễn sẽ không có.
 
 Sương phòng vang lên tiếng mở cửa.
 
-Cố Xán trong nháy mắt lấy xuống quạt xếp, đột nhiên mở ra, che lấp khuôn mặt.
+Cố Xán lập tức gỡ quạt xếp, xoạt một tiếng mở ra, che khuất mặt.
 
-Sau một lát, Cố Xán khép quạt gấp lại, tươi cười rạng rỡ, chào hỏi nói: "Tằng Dịch."
+Lát sau, hắn khép quạt, nụ cười rạng rỡ: "Tằng Dịch."
 
-Tằng Dịch cười gãi gãi đầu, ừ một tiếng.
+Tằng Dịch cười gãi đầu, ừ một tiếng.
 
-Thật ra trên trán và lòng bàn tay đều là mồ hôi.
+Thật ra trán và lòng bàn tay hắn đều đẫm mồ hôi.
 
-Cố Xán đi vào chính phòng, đọc sách.
+Cố Xán vào gian nhà chính, đọc sách.

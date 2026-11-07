@@ -1,5 +1,7 @@
 # Style guide biên tập — Kiếm Lai (từ chương 578)
 
+> Cập nhật 2026-11-07: chuẩn tham chiếu dịch hiện tại là **chương 1–300**, theo [hồ sơ văn phong](./translation-profile-kiem-lai.md) và [phân tích chi tiết](./style-analysis-kiem-lai-1-300.md). Áp dụng cho cả dịch từ bản Trung và dịch lại hoặc biên tập bản Việt có sẵn. Các số đếm Đ ở tài liệu này vẫn là khảo sát lịch sử chương 1–200, chưa đổi thành số đếm 300 chương. Những chỉ dẫn tách đoạn theo số từ và quy trình thay thế máy ở mục 7–8 (kể cả giới hạn không viết lại cả chương) không dùng làm quy trình cho bản dịch mới hoặc khi người dùng yêu cầu dịch lại; ưu tiên sự tự nhiên theo ngữ cảnh và soát với bản Trung khi có, hoặc bản Việt nguồn khi chỉ có bản Việt.
+
 Tài liệu cho agent biên tập. Số trong ngoặc là số lần xuất hiện đo bằng script: **Đ** = ch.1–200 (~2,6 triệu ký tự), **M** = ch.581–600 chưa sửa (~850 nghìn ký tự). Các quy tắc sửa được bằng máy nằm trong `scripts/style-lint.mjs`; khi đổi bảng ở đây phải đổi cả script.
 
 ## 1. Thứ tự ưu tiên khi các nguồn mâu thuẫn

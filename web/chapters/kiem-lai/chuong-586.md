@@ -1,465 +1,465 @@
 # Chương 586: Gặp lục địa giao long bên bờ sông lớn
 
-Bắc Yến quốc có địa thế bằng phẳng. Sau khi tân đế lên ngôi, ông đã chăm lo việc nước và phát triển hai khu vực chăn nuôi ngựa, vì vậy, kỵ quân của Bắc Yến có chiến lực vượt trội hơn hẳn Kinh Nam và Ngũ Lăng. Phía Bắc là Lục Oanh quốc, nơi nổi tiếng với nhiều truyền thuyết về tiên nhân, cũng như các tác phẩm văn chương kỳ ảo và tiểu thuyết quái dị, nơi đây còn liên quan đến các loại thủy tinh giao long.
+Bắc Yến quốc địa thế bằng phẳng. Sau khi lên ngôi, tân đế chăm lo chính sự, gây dựng hai vùng nuôi ngựa, khiến kỵ quân Bắc Yến mạnh hơn hẳn Kinh Nam và Ngũ Lăng. Phía bắc là Lục Oanh quốc, nổi tiếng với chuyện tiên nhân, những tác phẩm chí quái và tiểu thuyết kỳ dị, phần nhiều liên quan tới thủy tinh, giao long.
 
-Tùy Cảnh Rừng đội mũ có vải che mặt và mặc pháp bào trúc y, dù thời tiết đang nóng, ánh nắng chói chang, nhưng việc cưỡi ngựa ban ngày vẫn không gây khó khăn lớn cho nàng, ngược lại, người chăm sóc ngựa lại nhiều hơn một chút.
+Tùy Cảnh Rừng đội mũ che mặt, mặc pháp bào trúc y. Tuy trời nóng, nắng gắt, nàng cưỡi ngựa ban ngày cũng không quá vất vả, chỉ phải chăm nom ngựa nhiều hơn đôi chút.
 
-Hôm nay, hai kỵ sĩ dừng lại bên bờ sông dưới bóng cây râm mát. Nước sông trong xanh, bốn bề vắng lặng. Nàng tháo mũ có vải che mặt, bỏ giày vớ ra và cho hai chân vào nước, thở phào nhẹ nhõm.
+Hôm nay, hai người dừng dưới bóng cây bên sông. Nước trong xanh, bốn bề vắng lặng. Nàng tháo mũ, cởi giày tất, thả hai chân xuống nước, thở phào một hơi.
 
-Tiền bối ngồi không xa, lấy ra một cây quạt xếp bằng ngọc trúc, nhưng không vỗ để tạo gió mát, chỉ đơn giản là mở quạt ra và nhẹ nhàng lắc lư. Trên quạt có chữ viết như dòng nước giữa các bông lục bình. Nàng từng gặp tiền bối một lần và được biết rằng chiếc quạt này đến từ một tòa gọi là Xuân Lộ phố nằm trên núi, chứa đựng bùa chú bảo thuyền trong các văn tự của tiên gia.
+Tiền bối ngồi cách đó không xa, lấy ra cây quạt xếp nan ngọc trúc. Hắn không quạt lấy mát, chỉ mở quạt, thong thả lay nhẹ. Chữ trên mặt quạt như dòng nước len giữa đám lục bình [?]. Có lần nàng được tiền bối cho xem, biết cây quạt này mua ở phố Xuân Lộ, một nơi trên núi. Những văn tự tiên gia trên đó cất chứa phù lục bảo thuyền [?].
 
-Tùy Cảnh Rừng thực sự có phần lo lắng về thương tích của tiền bối, bởi bên trái đầu vai của ông đã bị một mũi tên từ phía một người tu đạo mạnh mẽ xuyên thủng, và còn bị vây quanh bởi phù trận. Nàng không thể tưởng tượng tại sao tiền bối lại có vẻ như không có việc gì, trong suốt đoạn đường, ông chỉ thường xuyên xoa nhẹ tay phải.
+Tùy Cảnh Rừng thật sự lo cho vết thương của tiền bối. Vai trái hắn bị mũi tên của tu sĩ lợi hại xuyên thủng, lại từng bị phù trận vây khốn. Nàng không hiểu vì sao hắn vẫn như không có chuyện gì, suốt dọc đường chỉ thường xuyên xoa tay phải.
 
-Tùy Cảnh Rừng quay đầu hỏi: "Tiền bối, là Tào Phú sư phụ cùng Kim Lân cung phái đến thích khách sao?"
+Nàng quay đầu hỏi: "Tiền bối, thích khách do sư phụ Tào Phú và Kim Lân cung phái tới sao?"
 
-Trần Bình An gật đầu, "Có khả năng lớn là như vậy. Đám thích khách này rất đặc trưng, đến từ một môn phái tu hành nổi tiếng nằm ở phía nam Bắc Câu Lô Châu. Trừ cái tên Cát Lộc sơn, nơi này không có đỉnh núi căn cơ rõ ràng, tất cả các thích khách đều bị gọi là "không mặt người". Dù bất kỳ ai từ tam giáo cửu lưu hay Bách gia tu sĩ cũng có thể gia nhập, nhưng nghe nói quy tắc khá nghiêm ngặt. Họ quy định cách gia nhập, cách giết người, và khoản thù lao cụ thể."
+Trần Bình An gật đầu: "Rất có thể. Đám thích khách này có đặc điểm riêng, xuất thân từ một môn phái nổi tiếng ở phía nam Bắc Câu Lô Châu. Ngoài cái tên Cát Lộc sơn, chẳng ai biết sơn môn căn cơ của họ ở đâu. Thích khách ở đó đều được gọi là ‘người không mặt’. Bất kể xuất thân tam giáo cửu lưu hay tu sĩ bách gia đều có thể gia nhập, nhưng nghe nói quy củ rất nghiêm. Gia nhập thế nào, giết người ra sao, thù lao bao nhiêu, đều có quy định."
 
-Trần Bình An tiếp tục: "Cát Lộc sơn có một quy tắc lớn nhất, đó là khi phái thích khách ra tay, chỉ được giết một lần. Nếu không thành công, chỉ lấy một nửa tiền đặt cọc. Dù số thương vong có nghiêm trọng đến đâu, họ cũng không đòi thêm nửa tiền còn lại. Hơn nữa, sau đó, Cát Lộc sơn sẽ không ra tay với những mục tiêu mà những lần ám sát không thành công."
+Hắn nói tiếp: "Quy củ lớn nhất của Cát Lộc sơn là mỗi vụ chỉ ra tay một lần. Không thành công thì chỉ lấy nửa khoản tiền đặt cọc, thương vong nặng tới đâu cũng không đòi nửa còn lại. Sau đó, Cát Lộc sơn cũng không nhận giết người mà họ từng ám sát thất bại nữa."
 
-Như vậy, Tùy Cảnh Rừng có thể an tâm rằng, ít nhất hiện tại, họ không cần lo về việc bị Cát Lộc sơn tấn công.
+Tùy Cảnh Rừng vì thế có thể yên tâm. Ít nhất trước mắt, hai người không cần lo Cát Lộc sơn lại tập kích.
 
-Nàng thở dài, với một chút thương cảm và áy náy: "Cuối cùng, còn là vì ta mà ra."
+Nàng thở dài, vừa buồn vừa áy náy: "Rốt cuộc vẫn là vì ta."
 
-Đừng nhìn vẻ bình thản của tiền bối trên đường đi, nhưng Tùy Cảnh Rừng nhạy cảm biết rằng, cuộc ám sát đó không phải là việc dễ dàng đối phó với tiền bối.
+Tiền bối dọc đường luôn bình thản, nhưng Tùy Cảnh Rừng nhạy cảm nhận ra, trận phục kích ấy tuyệt đối không dễ đối phó như vẻ ngoài của hắn.
 
-Trần Bình An khép quạt lại, từ tốn nói: "Trong con đường tu hành, phúc họa luôn đi đôi với nhau. Đại đa số các luyện khí sĩ đều trải qua như vậy. Khó khăn có lớn có nhỏ, nhưng gặp bất trắc lớn hay nhỏ đều tùy thuộc vào mỗi người. Ta đã từng thấy một đôi đạo lữ dưới cảnh vật trên núi. Nữ tu sĩ vì vài trăm khối Tuyết hoa tiền mà chậm chạp không thể phá vỡ bình cảnh, kéo dài khiến tình huống trở nên tồi tệ, lại còn lo lắng về sinh mạng. Họ đành phải mạo hiểm vào phía nam Hài Cốt ghềnh liều mạng cầu tài. Hai người đó, tâm tư dằn vặt, ngươi thấy không phải là cực khổ sao? Không chỉ là khổ, mà còn rất nhiều."
+Trần Bình An khép quạt, chậm rãi nói: "Trên đường tu hành, phúc họa thường đi liền nhau. Phần lớn luyện khí sĩ đều như thế. Khó khăn có lớn có nhỏ, tai họa đến mức nào lại tùy mỗi người. Ta từng gặp một đôi đạo lữ ở cảnh giới dưới [?]. Nữ tu sĩ chỉ vì thiếu vài trăm đồng tiền tuyết hoa mà mãi không phá được bình cảnh. Càng kéo dài, tình hình càng xấu, ngay cả tính mạng cũng đáng lo. Họ đành mạo hiểm tới phía nam ghềnh Hài Cốt, liều mạng cầu tài. Hai người bị giày vò như vậy, ngươi thấy có khổ không? Không những khổ, mà còn khổ lắm."
 
-Tùy Cảnh Rừng nở một nụ cười: "Tiền bối có phải vô tình gặp gỡ bọn họ và giúp họ một tay không?"
+Tùy Cảnh Rừng mỉm cười: "Tiền bối tình cờ gặp, rồi giúp họ một tay phải không?"
 
-Trần Bình An không nói gì thêm, Tùy Cảnh Rừng đã hiểu rõ đáp án.
+Trần Bình An không nói. Tùy Cảnh Rừng đã hiểu câu trả lời.
 
-Trần Bình An chỉ điểm quạt vào Tùy Cảnh Rừng.
+Hắn cầm quạt chỉ về phía nàng.
 
-Nàng hiểu ý, ngồi xuống, nhắm mắt lại, tĩnh tâm suy nghĩ, bắt đầu hô hấp thổ nạp, tu luyện theo quyển "Tốt nhất huyền huyền tập" chứa đựng khẩu quyết tiên pháp.
+Nàng hiểu ý, ngồi xuống nhắm mắt, tĩnh tâm, bắt đầu hô hấp thổ nạp theo khẩu quyết tiên pháp trong quyển "Tốt nhất huyền huyền tập".
 
-Người tu đạo, khi thổ nạp, xung quanh sẽ có những dao động khí cơ vi diệu, muỗi không dám lại gần, có thể tự chống cự lại cái lạnh của thời tiết nóng bức.
+Tu sĩ khi thổ nạp, quanh người sẽ có khí cơ dao động vi diệu, khiến muỗi không dám lại gần, cũng có thể tự chống đỡ nóng lạnh.
 
-Tùy Cảnh Rừng tuy tu đạo chưa thành, nhưng đã có được phong thái sơ khởi, điều này rất khó đạt được. Giống như Trần Bình An những năm trước luyện tập Hám Sơn quyền, dù quyền khung chưa vững chắc, nhưng năng lượng trong người đã bắt đầu chảy xuôi, bản thân chưa nhận ra, và vậy mà đã bị Mã Khổ Huyền lúc ấy xem thấu. Yếu tố này chứng tỏ Tùy Cảnh Rừng có thiên phú, chỉ cần không biết đến nhân duyên lạ kỳ nào đó, đã giúp nàng có được ba lời dạy sau này, rốt cuộc hơn ba mươi năm không thấy tung tích. Năm nay, rõ ràng là Tùy Cảnh Rừng đang gặp phải một kiếp nạn lớn trong con đường tu hành. Theo lý thuyết, người cao nhân đó, dù ở xa hàng triệu dặm, vẫn nên cảm nhận được một chút huyền diệu khó hiểu.
+Tùy Cảnh Rừng tuy chưa tu đạo thành công, đã có chút khí tượng ban đầu, chuyện này rất khó được. Cũng như năm xưa Trần Bình An luyện Hám Sơn quyền, quyền khung còn chưa vững mà khí cơ trong người đã bắt đầu lưu chuyển. Hắn chưa nhận ra, Mã Khổ Huyền lúc ấy đã nhìn thấu. Đủ thấy Tùy Cảnh Rừng có thiên phú. Chỉ không biết vì sao vị cao nhân kết duyên với nàng, lưu lại ba thứ truyền dạy [?], hơn ba mươi năm qua vẫn bặt vô âm tín. Năm nay rõ ràng nàng đang gặp đại kiếp trên đường tu hành. Theo lý, cao nhân ấy dù ở xa trăm vạn dặm, cũng nên cảm ứng được chút huyền cơ.
 
-Giọng nói và hình dáng của vị cao nhân đó thật kỳ quái, tương tự như quyển sách nhỏ mà Tùy Cảnh Rừng không thể đọc, nếu không sẽ làm rối loạn khí cơ, khiến đầu óc choáng váng.
+Giọng nói và dáng vẻ của vị cao nhân ấy đều kỳ lạ, cũng như quyển sách nhỏ kia: Tùy Cảnh Rừng không thể đọc, đọc vào sẽ rối loạn khí cơ, đầu óc choáng váng [?].
 
-Một vài năm trước, khi Tùy Cảnh Rừng hỏi thăm về vị lão nhân trong quý phủ, tất cả đều nói nhớ không đúng cắt, từ nhỏ đã đọc sách, đã có thể nhớ được là lão thị lang Tùy Tân Vũ, không ngoại lệ.
+Mấy năm trước, nàng từng hỏi những lão nhân trong phủ, ai cũng nói không nhớ rõ. Ngay cả lão thị lang Tùy Tân Vũ, người từ nhỏ đã đọc sách, trí nhớ tốt, cũng không ngoại lệ [?].
 
-Trần Bình An biết rõ rằng đây không phải là những thủ thuật bình thường nữa.
+Trần Bình An biết đây không còn là thủ đoạn bình thường.
 
-Sau khi Tùy Cảnh Rừng mở mắt, đã qua nửa canh giờ, ánh sáng lúc hoàng hôn chảy xuôi trên người nàng, pháp bào trúc y cũng phát tán linh khí, hai nguồn sáng hòa quyện nhau tăng thêm sức mạnh, như nước với lửa hòa quyện. Người bình thường chỉ có thể nhìn thấy điều mờ mịt, nhưng Trần Bình An có thể thấy nhiều hơn. Khi Tùy Cảnh Rừng ngừng vận chuyển khí cơ, hiện tượng kỳ lạ trên người nàng liền tan biến. Rõ ràng, bộ pháp bào trúc y đó là sự lựa chọn cẩn thận từ cao nhân, điều này khiến Tùy Cảnh Rừng có thể tu hành theo sách ghi chép của tiên pháp, có thể là thực sự muốn làm với tâm huyết chân thành.
+Nửa canh giờ sau, Tùy Cảnh Rừng mở mắt. Ánh hoàng hôn chảy trên người nàng, pháp bào trúc y cũng tỏa linh khí, hai thứ hòa vào nhau, tựa như thủy hỏa tương dung. Người thường chỉ thấy lờ mờ, Trần Bình An lại nhìn được nhiều hơn. Khi nàng ngừng vận chuyển khí cơ, dị tượng liền tan đi. Hiển nhiên, pháp bào trúc y được cao nhân lựa chọn kỹ lưỡng để nàng tu luyện tiên pháp ghi trong sách. Có lẽ người ấy thật sự đã bỏ nhiều tâm huyết.
 
-Khí chất cao xa, quang minh chính đại.
+Khí tượng cao xa, quang minh chính đại.
 
-Điều này khiến Trần Bình An càng tin tưởng rằng vị cao nhân đó thật sự không có tâm địa hiểm độc với Tùy Cảnh Rừng.
+Chuyện này càng khiến Trần Bình An tin vị cao nhân kia không mang ác ý với Tùy Cảnh Rừng.
 
-Tuy nhiên, họ còn cần tiến từng bước một, vì tu hành trên con đường này, phải thật cẩn thận, chỉ một sai lầm nhỏ cũng có thể gây ra thất bại nghiêm trọng.
+Nhưng vẫn phải đi từng bước, cẩn thận trên đường tu hành. Chỉ một sai lầm nhỏ cũng có thể chuốc lấy thất bại lớn.
 
-Hai người không chỉ không tận lực che giấu tung tích, mà còn để lại nhiều dấu vết, giống như ở Sái Tảo sơn trang nhỏ, nếu cứ thế thẳng tiến đến Lục Oanh quốc, vị cao nhân đó vẫn chưa xuất hiện, Trần Bình An chỉ có thể đưa Tùy Cảnh Rừng lên thuyền tiên gia, hướng về Hài Cốt ghềnh Phi Ma tông, sau đó đi đến Bảo Bình châu, đến núi Ngưu Giác bến đò. Theo ý nguyện của Tùy Cảnh Rừng, họ quyết định ký danh bên kia Thôi Đông Sơn, cùng tu luyện tại đó. Trần Bình An tin rằng, nếu thực sự có duyên, Tùy Cảnh Rừng sẽ gặp lại vị cao nhân kia, làm thầy trò nối tiếp mối đạo duyên.
+Hai người chẳng những không cố giấu tung tích, còn lưu lại nhiều dấu vết, chẳng hạn tại Sái Tảo sơn trang. Nếu đi thẳng tới Lục Oanh quốc mà cao nhân vẫn không xuất hiện, Trần Bình An chỉ đành đưa nàng lên thuyền tiên gia, tới Phi Ma tông ở ghềnh Hài Cốt, rồi sang Bảo Bình châu, tới bến đò núi Ngưu Giác. Theo ý nàng, hắn sẽ để nàng làm đệ tử ký danh bên Thôi Đông Sơn, tu hành ở đó. Trần Bình An tin rằng, nếu thật sự có duyên, nàng sẽ gặp lại cao nhân, nối tiếp đạo duyên thầy trò.
 
-Đến khi gặp Vương Độn lão tiền bối, Trần Bình An đặc biệt muốn biết một tin tức: tình hình nước Ngọc Tỳ bên kia Đại Triện kinh thành ra sao?
+Lúc gặp Vương Độn lão tiền bối, có một tin tức Trần Bình An đặc biệt muốn biết: tình hình kinh thành Đại Triện, bên phía nước Ngọc Tỳ, hiện giờ ra sao?
 
-Viên Đề Sơn Kiếm Tiên Kê Nhạc, liệu có phải đã cùng vị kia mười cảnh vũ phu giao đấu trước đây hay không?
+Kiếm tiên Kê Nhạc của Viên Đề sơn đã giao thủ với vị võ phu thập cảnh kia chưa?
 
-Tùy Cảnh Rừng mặc xong đôi giày, đứng dậy, ngẩng đầu nhìn lên bầu trời. Lúc trước, mặt trời còn nhô cao, thời tiết oi ả, giờ đây đã có mây đen kéo đến, báo hiệu một cơn mưa lớn sắp trút xuống.
+Tùy Cảnh Rừng xỏ giày, đứng dậy ngẩng nhìn trời. Ban nãy mặt trời còn cao, trời nóng oi ả, bây giờ mây đen đã kéo tới, sắp có mưa lớn.
 
-Trần Bình An đã đi trước đến nơi buộc ngựa, nhắc nhở: "Tiếp tục đi, khoảng một nén nhang nữa sẽ có mưa, ngươi nên chuẩn bị áo tơi ngay đi."
+Trần Bình An đi tới chỗ buộc ngựa trước, nhắc: "Lên đường thôi. Khoảng một nén nhang nữa sẽ mưa, ngươi chuẩn bị áo tơi đi."
 
-Tùy Cảnh Rừng chạy tới, mỉm cười hỏi: "Tiền bối có thể dự đoán thiên tượng sao? Lúc trước ở đình nghỉ chân, tiền bối cũng đã đoán trước được mưa sẽ đến. Cha ta nói người của Ngũ Lăng Quốc Khâm Thiên Giám mới có khả năng như thế."
+Tùy Cảnh Rừng chạy tới, cười hỏi: "Tiền bối biết xem thiên tượng sao? Lần trước ở đình nghỉ chân, ngươi cũng đoán được trời sắp mưa. Cha ta nói người trong Khâm Thiên giám Ngũ Lăng quốc mới có bản lĩnh ấy."
 
-Trần Bình An đội mũ rộng vành, khoác áo tơi trên vai, xoay người lên ngựa và nói: "Ngươi có muốn học cách nhận biết thiên tượng này không?"
+Trần Bình An đội nón rộng vành, khoác áo tơi, xoay người lên ngựa: "Muốn học xem thiên tượng không?"
 
 Tùy Cảnh Rừng gật đầu: "Đương nhiên!"
 
-Trần Bình An cười nói: "Ngươi đã làm việc ngoài đồng hơn mười năm, hàng năm tháng ngày cùng trời đất ăn xin, tự nhiên sẽ có khả năng học hỏi, rồi có thể cảm nhận tranh luận với trời đất."
+Trần Bình An cười: "Làm ruộng hơn mười năm, quanh năm ngửa tay xin trời đất miếng ăn, tự nhiên sẽ học được. Dần dần cũng biết nhìn sắc mặt trời đất."
 
-Tùy Cảnh Rừng không phản bác được.
+Tùy Cảnh Rừng không biết đáp thế nào.
 
-Trần Bình An thật ra chỉ nói được một nửa, nửa còn lại là liên quan đến tác phong của vũ phu. Hắn có thể dễ dàng cảm nhận được rất nhiều điều trong thiên nhiên, như gió thổi lá cây, muỗi vo ve, chuồn chuồn lướt nước, tất cả đều trở thành âm thanh đáng chú ý trong tai và mắt hắn. Với một người tu đạo như Tùy Cảnh Rừng mà nói, thì đó cũng chỉ là lời nói nhảm.
+Thật ra hắn mới nói một nửa. Nửa còn lại liên quan tới bản lĩnh võ phu. Hắn dễ dàng nhận thấy từng biến đổi trong tự nhiên: gió lay lá, muỗi vo ve, chuồn chuồn đạp nước, tất cả đều lọt vào tai mắt. Với người mới tu đạo như Tùy Cảnh Rừng, nói ra những chuyện ấy cũng bằng thừa.
 
-Một trận mưa lớn ập đến đúng hẹn.
+Mưa lớn đổ xuống đúng lúc đã định.
 
-Hai kỵ sĩ từ từ tiến về phía trước, cũng không cố gắng tránh mưa. Tùy Cảnh Rừng chạy ngược gió, giữa nắng và mưa, chưa từng kêu ca hay hỏi han gì. Rất nhanh, nàng nhận ra rằng chính việc tu hành cũng không hề dễ dàng. Nếu lúc cưỡi ngựa mà có thể giữ cho người mình không lắc lư, đồng thời tìm được cách hô hấp và thổ nạp, thì ngay cả trong cơn mưa lớn, nàng vẫn có thể giữ được ánh mắt thanh minh. Trong những ngày hè nóng bức, thậm chí nàng còn có thể nhìn thấy những dòng "nước chảy" nhỏ bé ẩn hiện trong sương mù và ánh trăng. Tiền bối nói rằng những thứ đó chính là thiên địa linh khí. Vì vậy, Tùy Cảnh Rừng thường dành thời gian cưỡi ngựa, tìm cách bắt gặp những thứ linh khí lấp lánh tuy thoáng qua, mặc dù nàng không thể bắt được, nhưng có phần nào đó trong trang phục của nàng có thể hấp thụ được.
+Hai người chậm rãi cưỡi ngựa, không cố tìm chỗ tránh mưa. Dọc đường dãi gió dầm mưa, phơi nắng, Tùy Cảnh Rừng chưa từng than thở hay hỏi han. Nàng mau chóng hiểu tu hành không dễ. Nếu trên lưng ngựa vẫn giữ thân người ổn định, tìm được nhịp hô hấp thổ nạp, thì ngay trong mưa lớn nàng cũng có thể giữ mắt sáng trong. Những ngày hè, thậm chí nàng còn thấy các dòng "nước chảy" nhỏ bé ẩn hiện giữa hơi sương và ánh trăng. Tiền bối bảo đó là linh khí trời đất. Bởi vậy, lúc cưỡi ngựa, nàng thường tìm kiếm những tia linh khí lấp lánh thoáng qua. Nàng chưa bắt được, nhưng pháp bào trên người có thể hấp thu một phần.
 
-Mưa không kéo dài lâu, nhưng đến và đi khá vội vã.
+Trận mưa đến vội, đi cũng vội, chẳng kéo dài bao lâu.
 
-Hai kỵ sĩ tháo bỏ áo tơi, tiếp tục lên đường.
+Hai người cởi áo tơi, tiếp tục lên đường.
 
-Trong lúc cấm đi lại vào ban đêm, hai kỵ sĩ nghỉ chân tại một tòa miếu thờ thần nước ven sông, không chỉ bởi vì khu vực này có sự kết hợp hài hòa giữa sơn và thủy, mà còn vì con sông mang tên Minh Hà, xa tít mù xa, với núi Nga Nga Sơn, miếu thờ sơn thần và thủy thần nằm không xa. Tiền bối nói đây là một cảnh đẹp hiếm có, nhất định phải đến xem. Tùy Cảnh Rừng thật sự không hiểu rõ, tại sao tiền bối lại yêu thích việc du lãm danh thắng như vậy, chỉ lo lắng những điều kỳ lạ trên núi có thể ẩn chứa mối nguy hiểm, nàng chỉ phải dấu việc đó trong lòng.
+Tới giờ giới nghiêm ban đêm, hai người nghỉ chân tại một tòa miếu Thủy thần bên sông [?]. Không chỉ vì nơi này sơn thủy hữu tình, mà con sông tên Minh Hà, xa xa là núi Nga Nga, miếu Sơn thần và miếu Thủy thần cách nhau cũng không xa. Tiền bối bảo đây là thắng cảnh hiếm có, nhất định phải xem. Tùy Cảnh Rừng không hiểu vì sao hắn thích du lãm danh thắng đến thế. Nàng chỉ lo nơi sơn thủy kỳ dị có thể giấu nguy hiểm, nhưng vẫn giữ nỗi lo trong lòng.
 
-Tại Bắc Yến Quốc, phố phường tấp nập với các cuộc thi cấy giun.
+Ở Bắc Yến quốc, khắp phố phường thịnh hành trò chọi "giun" [?].
 
-Nhiều người dân rời thành, hướng đến rừng núi hoang vắng, để bắt giun đêm qua tay bán lấy tiền. Văn nhân nhã sĩ cũng viết thơ phú về giun, khiến Bắc Yến Quốc truyền tụng nhiều, chủ yếu là châm biếm thời thế, mỉa mai xã hội, trong khi các văn nhân chí sĩ lo lắng, buộc phải tìm cách giải tỏa bằng thi ca. Những nhà quyền quý trong các khu phố nhỏ vẫn không biết đến sự mệt mỏi, tiếng giun vang vọng khắp nơi, từ triều đình đến dân gian.
+Nhiều người ra khỏi thành, vào rừng núi hoang vắng bắt "giun" ban đêm, qua tay bán lấy tiền. Văn nhân nhã sĩ cũng làm thơ phú về chúng, được truyền tụng khắp Bắc Yến, phần nhiều châm biếm thời thế. Chí sĩ ưu thời mẫn thế chỉ đành mượn thơ ca giãi lòng. Đám quyền quý trong phố ngõ vẫn chơi mãi không chán, tiếng "giun" vang từ triều đình tới dân gian [?].
 
-Khi hai kỵ vào thành, họ thấy có nhiều người từ bên ngoài xa vào, ai cũng mang theo lồng đựng giun, tạo nên một khung cảnh khá thú vị.
+Khi vào thành, hai người thấy nhiều người từ nơi xa tới, ai cũng mang lồng đựng "giun", trông rất thú vị [?].
 
-Khách sạn mà họ ghé thăm khá lớn, được cải tạo từ một trạm dịch, hiện do một người con nhà quyền quý ở kinh thành sở hữu. Ông ta đã mua lại với giá rẻ và tiến hành sửa chữa, mở rộng kinh doanh, vì vậy nhiều bức tranh văn nhân đẹp vẫn còn được treo trên tường. Phía sau có một hồ nước nhỏ.
+Khách điếm họ ghé khá lớn, vốn sửa từ một trạm dịch, nay thuộc về con cháu một nhà quyền quý kinh thành. Người ấy mua rẻ rồi tu sửa, mở rộng để buôn bán. Trên tường vẫn treo nhiều tranh đẹp của văn nhân, phía sau còn có một hồ nước nhỏ.
 
-Đêm hôm đó, Trần Bình An ra khỏi phòng, đi dạo bên hồ nước bên cạnh cây dương liễu. Khi hắn trở về phòng để luyện quyền thì thấy Tùy Cảnh Rừng đứng ở lối đi nhỏ với chiếc mũ che mặt. Trần Bình An nói: "Không có vấn đề gì lớn, một mình ngươi đi dạo không sao đâu."
+Đêm ấy, Trần Bình An ra khỏi phòng, dạo bên hồ, dưới những cây dương liễu. Lúc trở về luyện quyền, hắn thấy Tùy Cảnh Rừng đội mũ che mặt, đứng trên lối nhỏ, bèn nói: "Không có chuyện gì lớn đâu, ngươi đi dạo một mình cũng được."
 
-Tùy Cảnh Rừng gật đầu, nhìn theo bóng tiền bối rời đi, rồi nàng quay về phòng mình.
+Nàng gật đầu, nhìn bóng tiền bối đi xa rồi quay về phòng.
 
-Trần Bình An tiếp tục luyện tập, vận chuyển kiếm khí thập bát đình nhưng vẫn không thể phá vỡ được bình cảnh cuối cùng.
+Trần Bình An tiếp tục luyện, vận chuyển kiếm khí thập bát đình, vẫn không vượt qua được bình cảnh cuối cùng.
 
-Đôi khi Trần Bình An cũng tự hỏi không biết chất lượng luyện kiếm của mình có phải kém đến thế không?
+Đôi khi hắn cũng tự hỏi, tư chất luyện kiếm của mình thật sự kém đến thế sao?
 
-Năm đó, khi qua Đảo Huyền Sơn, những thiên tài trẻ tuổi ở đó dường như rất nhanh nắm bắt được tinh túy của kiếm khí thập bát đình.
+Năm xưa qua Đảo Huyền Sơn, đám thiên tài trẻ tuổi ở đó dường như đều rất nhanh nắm được tinh túy của kiếm khí thập bát đình.
 
-Tuy nhiên, Trần Bình An cũng tự an ủi mình rằng giữa thập bát đình có ba điểm "cực nhỏ kiếm khí" cản trở, đó chính là trở ngại lớn. Bình cảnh cuối cùng chính là bị ngăn cản ở đó, mỗi lần cố gắng vượt qua, khí cơ lại bị cản trở.
+Nhưng hắn cũng tự an ủi: giữa thập bát đình có ba chỗ "kiếm khí cực nhỏ" ngăn trở [?], đó mới là trở ngại lớn. Bình cảnh cuối cùng mắc ngay tại đó, mỗi lần thử vượt qua, khí cơ đều bị chặn lại.
 
-Dừng lại việc luyện quyền, Trần Bình An bắt đầu vẽ bùa. Chất liệu giấy bùa là loại bình thường nhất, nhưng so với những người hành đạo thông thường, hắn có thể sử dụng bột vàng và bạc để vẽ "mực nước". Trần Bình An đã mua rất nhiều vật dụng trên đường Xuân Lộ, chủ yếu là ba lượng tiền cho mỗi lọ, lọ đắt nhất có giá trị như một viên nhỏ thử tiền. Trên đường đi, Trần Bình An đã tốn không ít tiền cho hơn ba trăm bùa chú khác nhau, vì chứng minh rằng số lượng có thể thắng lợi vào một số thời điểm.
+Dừng luyện quyền, Trần Bình An bắt đầu vẽ bùa. Giấy bùa chỉ là loại thường nhất, nhưng hắn có thể dùng bột vàng, bột bạc làm "mực", khác với đạo nhân bình thường. Hắn đã mua nhiều vật liệu ở phố Xuân Lộ, phần lớn giá ba lượng bạc một lọ, lọ đắt nhất bằng một đồng tiền tiểu thử. Suốt dọc đường, hắn đã tốn không ít tiền vẽ hơn ba trăm tấm phù lục các loại, bởi trận vừa rồi chứng tỏ có lúc số lượng cũng có thể quyết định thắng thua.
 
-Tùy Cảnh Rừng cũng khá may mắn, từ tên sư phụ đó đã tìm thấy hai bộ bí tịch: một quyển bùa chú đồ phổ và một quyển chứa các trang sách về trận pháp rõ ràng, còn có một quyển tuỳ bút ghi chép các tâm đắc của người đó về phù chú. Trần Bình An đặc biệt coi trọng quyển này.
+Vận khí Tùy Cảnh Rừng khá tốt. Từ tên trận sư, nàng tìm được hai bộ bí tịch: một quyển đồ phổ phù lục, một quyển chép trận pháp rõ ràng, ngoài ra còn một quyển tùy bút ghi tâm đắc phù lục của hắn. Trần Bình An đặc biệt coi trọng quyển cuối.
 
-Chắc chắn, còn có những trang phục của một người hùng, một bộ giáp khá cao cấp, cùng với cung tên và tất cả các bùa chú.
+Đương nhiên còn chiến lợi phẩm từ tên hán tử: một bộ giáp phẩm cấp khá cao, cung tên cùng toàn bộ phù lục [?].
 
-Thêm vào đó là hai thanh phù đao của nữ thích khách, lần lượt mang tên "Sương Mai" và "Chiều Hà".
+Thêm đôi phù đao của nữ thích khách, lần lượt mang tên "Sương Mai" và "Chiều Hà".
 
-Đáng tiếc, về vấn đề tài chính, Trần Bình An không có nổi một viên Tuyết Hoa tiền.
+Đáng tiếc, riêng tiền bạc thì Trần Bình An không có nổi một đồng tiền tuyết hoa.
 
-Cuộc chiến bất ngờ này xảy ra gần với trận chiến Ngẫu Hoa Phúc Địa, tạo nên không khí giao tranh căng thẳng.
+Trận chém giết bất ngờ này gần giống trận chiến ở Ngẫu Hoa phúc địa, căng thẳng và hiểm nghèo [?].
 
-Mặc dù Trần Bình An bị thương rất nặng, nhưng cũng thu được không ít lợi ích.
+Trần Bình An tuy bị thương nặng, nhưng thu hoạch cũng không ít.
 
-Trong những lúc thư giãn cùng Tùy Cảnh Rừng khi chơi cờ, nàng đã tò mò hỏi: "Tiền bối thật ra là thuận tay trái sao?"
+Có lần nhàn rỗi đánh cờ, Tùy Cảnh Rừng tò mò hỏi: "Thật ra tiền bối thuận tay trái sao?"
 
-Trần Bình An nhẹ gật đầu: "Từ nhỏ là vậy. Nhưng khi luyện quyền và rời quê thì ta đã cố gắng giả vờ không phải."
+Trần Bình An khẽ gật đầu: "Từ nhỏ đã thế. Nhưng từ khi luyện quyền rồi rời quê, ta vẫn cố tỏ ra không phải."
 
-Đám thích khách tại Cát Lộc Sơn, người kiếm tu đang ngồi bên dòng sông yên tĩnh quan sát cuộc chiến, vì để đảm bảo an toàn nên đã nhiều lần xem xét thi thể kỵ sĩ Bắc Yến Quốc trên mặt đất. Hắn xác định Trần Bình An đã g**t ch*t kỵ tướng cầm đao bằng tay phải của hắn, từ đó mới nhận ra chân tướng. Hắn cũng biết rằng vị để lại những quân bài bí mật cho Cát Lộc Sơn, đã đối phó Trần Bình An bằng cách dùng thuật Phật gia, giam giữ tay phải của hắn. Bí thuật này mạnh mẽ nhưng để lại di chứng lớn, khiến Trần Bình An còn phải chịu ảnh hưởng đến nay.
+Trong đám thích khách Cát Lộc sơn, tên kiếm tu đứng bên sông lặng lẽ quan sát trận đánh. Để chắc ăn, hắn mấy lần xem xét thi thể kỵ binh Bắc Yến dưới đất, xác định Trần Bình An dùng tay phải cầm đao giết viên kỵ tướng, cho rằng đã nhận ra chân tướng. Hắn vận dụng lá bài bí mật của Cát Lộc sơn [?], dùng bí thuật Phật gia giam cầm tay phải Trần Bình An. Bí thuật uy lực lớn, di chứng cũng nặng, đến nay hắn vẫn còn chịu ảnh hưởng.
 
-Trần Bình An thực ra không hoàn toàn rõ ràng về bí thuật kỳ quái của những người tu sĩ trên núi.
+Thật ra, Trần Bình An không hiểu hết những bí thuật kỳ quái của tu sĩ trên núi.
 
-Vì vậy, nhìn như Trần Bình An may mắn, nhưng thực chất lại do đối phương đã tính sai.
+Bởi vậy, nhìn như hắn may mắn, thật ra là đối phương tính sai.
 
-Trên thực tế, đây là cách mà Trần Bình An hành tẩu giang hồ, tựa như hắn đã vĩnh viễn dấn thân vào một vòng vây giết chóc.
+Đây chính là cách Trần Bình An hành tẩu giang hồ, tựa như lúc nào cũng đang ở giữa một trận vây giết.
 
-Tùy Cảnh Rừng không nhịn được liền hỏi: "Tiền bối như vậy có không mệt mỏi sao?"
+Tùy Cảnh Rừng không nhịn được, hỏi: "Tiền bối sống như vậy không mệt sao?"
 
-Trần Bình An mỉm cười đáp: "Thói quen thành tự nhiên. Lúc trước ta đã từng nói với ngươi, những lý lẽ phức tạp nhìn có vẻ khiến người ta lao tâm lao lực, nhưng thực tế khi đã quen thuộc thì cảm thấy nhẹ nhõm hơn. Đến lúc ngươi ra quyền xuất kiếm, sẽ càng ngày càng tiếp cận cảnh giới không bị thiên địa ràng buộc. Điều này không chỉ đơn thuần là sức mạnh của một quyền hay một kiếm, mà còn là... sự hiểu biết về thiên địa, phù hợp với đại đạo."
+Trần Bình An mỉm cười: "Quen rồi sẽ thành tự nhiên. Ta từng nói với ngươi, những đạo lý phức tạp ấy thoạt nhìn rất hao tâm tổn sức, nhưng quen thuộc rồi lại thấy nhẹ nhõm. Đến khi xuất quyền, xuất kiếm, ngươi sẽ ngày càng gần cảnh giới không bị trời đất trói buộc. Chuyện này không chỉ nằm ở uy lực một quyền một kiếm, mà còn là… hiểu được trời đất, hợp với đại đạo."
 
-Lúc đó, Tùy Cảnh Rừng chắc chắn không thể hiểu rõ "thiên địa không ràng buộc" là như thế nào, cũng không thể lý giải được ý nghĩa sâu xa của "phù hợp với đại đạo".
+Khi ấy, Tùy Cảnh Rừng đương nhiên chưa hiểu thế nào là "không bị trời đất trói buộc", cũng không lĩnh hội được ý nghĩa sâu xa của "hợp với đại đạo".
 
-Sáng hôm sau, hai kỵ sĩ vượt qua hai ngọn núi tiếp giáp với thần miếu, tiếp tục lên đường.
+Sáng hôm sau, hai người cưỡi ngựa qua hai ngọn núi kề thần miếu, tiếp tục lên đường.
 
-Khoảng cách đến Bắc Câu Lô Châu, Đông Hải, đến quốc gia Lục Oanh đã không còn xa.
+Đã chẳng còn cách Lục Oanh quốc, gần Đông Hải của Bắc Câu Lô Châu, bao xa.
 
-Hai kỵ sĩ đi chậm lại, Trần Bình An cảm thán: "Thiên địa này lớn như một cái hầm lò, mặt trời như than nấu, vạn vật đều bị đốt cháy, con người không thể miễn cưỡng đâu."
+Hai người đi chậm lại. Trần Bình An cảm thán: "Trời đất như lò lớn, mặt trời là than đỏ, vạn vật đều bị nung đốt, con người cũng không tránh được."
 
-Tùy Cảnh Rừng có chút buồn ngủ, tuy vậy khi nghe lời nói của tiền bối, nàng lập tức tỉnh táo lại, hỏi: "Tiền bối, đây có phải là tiên gia thuyết pháp không? Có ý nghĩa gì sâu xa không?"
+Tùy Cảnh Rừng đang hơi buồn ngủ, nghe thế lập tức tỉnh táo: "Tiền bối, đây là lời thuyết pháp tiên gia sao? Có ý nghĩa sâu xa gì không?"
 
-Trần Bình An cười lắc đầu: "Đây là lời của bằng hữu tốt nhất của ta, từ người thầy dạy chúng ta việc đốt lò học được. Khi đó chúng ta còn trẻ, chỉ nghĩ đó là một câu nói thú vị. Lão nhân ấy bên cạnh ta chưa bao giờ bày tỏ những điều này. Thực tế mà nói, ông ấy hầu như không muốn nói chuyện với ta. Dù khi đi vào rừng sâu tìm kiếm thổ nhưỡng để đốt gốm, có khi ở lại đó cả tháng mà hai người cũng chỉ nói được hai ba câu."
+Trần Bình An cười lắc đầu: "Bằng hữu thân nhất của ta học được câu ấy từ lão nhân dạy chúng ta đốt lò. Khi đó còn nhỏ, chúng ta chỉ thấy câu này thú vị. Lão nhân chưa từng nói với ta những chuyện ấy, thật ra gần như chẳng muốn nói chuyện với ta. Có lần vào rừng sâu tìm đất nung gốm, ở suốt một tháng, hai người cũng chỉ nói đôi ba câu."
 
-Tùy Cảnh Rừng kinh ngạc nói: "Tiền bối sư môn còn muốn đốt tạo đồ sứ? Trên núi còn có tiên gia phủ đệ sao?"
+Tùy Cảnh Rừng kinh ngạc: "Sư môn tiền bối còn nung đồ sứ sao? Là phủ đệ tiên gia trên núi?"
 
-Trần Bình An cười nói: "Có chứ."
+Trần Bình An cười: "Có chứ."
 
-Tùy Cảnh Rừng cẩn thận hỏi: "Vậy có nghĩa là tiền bối chính là người có bạn tốt, không phải là người tu đạo thiên phú cao hơn sao?"
+Nàng dè dặt hỏi: "Vậy bằng hữu kia của tiền bối có tư chất tu đạo cao hơn sao?"
 
-Trần Bình An cười đáp: "Về tu hành tư chất thì khó mà nói. Dù vậy, về khả năng đốt gốm, ta chắc chắn không theo kịp hắn. Hắn nhìn một lần là sẽ biết, còn ta có khi lục lọi cả tháng cũng vẫn không bằng hắn."
+Trần Bình An cười đáp: "Tư chất tu hành thì khó nói. Nhưng nung gốm, ta chắc chắn không bằng hắn. Hắn nhìn một lần đã biết, ta có khi mày mò cả tháng vẫn không theo kịp."
 
-Tùy Cảnh Rừng lại hỏi: "Tiền bối, cùng người như vậy làm bạn, không cảm thấy áp lực sao?"
+Tùy Cảnh Rừng lại hỏi: "Làm bằng hữu với người như vậy, tiền bối không thấy nặng nề sao?"
 
 Trần Bình An chỉ cười.
 
-Hai kỵ sĩ đi qua Bắc Yến, mảnh đất xanh biếc giáp ranh hai nước, hướng đến bến đò tiên gia chỉ còn hơn hai trăm dặm.
+Hai người đi qua Bắc Yến, tới vùng đất xanh biếc giáp ranh hai nước. Bến đò tiên gia chỉ còn cách hơn hai trăm dặm.
 
-Bến đò có tên là Long Đầu Độ, là địa bàn của chính phái Cốc Vũ, tương truyền rằng tổ sư của Cốc Vũ đã từng một lần chơi cờ cùng Lục Oanh quốc hoàng đế, và đã thua.
+Bến đò tên Long Đầu độ, thuộc địa bàn Cốc Vũ phái. Tương truyền tổ sư Cốc Vũ từng đánh cờ với hoàng đế Lục Oanh quốc, kết quả thua cuộc.
 
-Mặc dù Cốc Vũ không có liên quan gì đến thần tiên, nhưng nơi đây là nơi sản xuất "Cốc Vũ Thiếp" và "Cốc Vũ Bài", rất phổ biến dưới núi. Cốc Vũ Thiếp được bán cho người có tiền trong thế tục, có tác dụng bảo vệ gia đình khỏi ma quỷ và sát khí. Còn Cốc Vũ Bài là vật treo bên hông, phẩm chất cao hơn, là vật thiết yếu cho những luyện khí sĩ không cao cảnh giới trong vùng Lục Oanh. Giá cả rất đắt, ngay cả các tướng trong triều cũng thường sở hữu một cái, thậm chí vua Lục Oanh cũng thường xuyên ban thưởng cho những công thần.
+Cốc Vũ phái tuy không liên quan tới thần tiên [?], lại sản xuất "Cốc Vũ thiếp" và "Cốc Vũ bài", đều rất thịnh hành dưới núi. Cốc Vũ thiếp bán cho người có tiền thế tục, dùng để giữ nhà, trừ tà quỷ sát khí. Cốc Vũ bài đeo bên hông, phẩm chất cao hơn, là vật thiết yếu với luyện khí sĩ cảnh giới thấp quanh Lục Oanh. Giá rất đắt, ngay cả tướng lĩnh triều đình cũng thường có một tấm, hoàng đế Lục Oanh còn hay lấy đó thưởng công thần.
 
-Long Đầu Độ là một bến đò lớn, xưa kia nằm trong vùng lãnh thổ của Đại Triện vương triều. Số lượng luyện khí sĩ rất thưa thớt, ngoài Đại Triện và Kim Lân Cung, không còn nơi nào khác. Đây là một trong những mấu chốt quan trọng nhất của Bắc Câu Lô Châu, mặc dù bản đồ Lục Oanh không lớn, nhưng triều đình và dân gian đều rất quen thuộc với các tu sĩ trên núi, khác hẳn so với phong tục ở bên ngoài.
+Long Đầu độ là bến đò lớn, xưa thuộc lãnh thổ vương triều Đại Triện. Vùng này luyện khí sĩ thưa thớt, ngoài Đại Triện và Kim Lân cung gần như chẳng còn nơi nào khác [?]. Đây lại là một đầu mối quan trọng của Bắc Câu Lô Châu. Lục Oanh quốc tuy nhỏ, từ triều đình tới dân gian đều quen thuộc với tu sĩ trên núi, phong tục khác hẳn nơi khác.
 
-Hai người đã bán ngựa cho một nhà tiêu cục lớn ở quận thành, sau đó tiếp tục đi bộ. Trần Bình An đưa cây gậy leo núi cho Tùy Cảnh Rừng.
+Hai người bán ngựa cho một tiêu cục lớn trong quận thành rồi đi bộ. Trần Bình An đưa gậy leo núi cho Tùy Cảnh Rừng.
 
-Bây giờ Trần Bình An ăn mặc càng ngày càng giản dị, chỉ là chiếc mũ rộng vành và áo thanh sam, không còn trâm, không mang theo rương trúc, hồ lô hay kiếm tiên.
+Bây giờ hắn ăn mặc ngày càng giản dị, chỉ đội nón rộng vành, mặc thanh sam, không cài trâm, không mang rương trúc, hồ lô hay thanh Kiếm Tiên.
 
-Còn Tùy Cảnh Rừng cũng ngày càng ít nói.
+Tùy Cảnh Rừng cũng ngày càng ít nói.
 
-Hai người dọc theo dòng sông cuồn cuộn hành tẩu, dòng sông rộng chừng vài dặm, đây không phải là dòng sông danh chấn mà nhiều người trong Lục Oanh có lẽ cả đời cũng không có cơ hội đến bờ bên kia.
+Hai người men theo dòng sông cuồn cuộn, mặt sông rộng vài dặm. Nó không phải dòng sông lừng danh, nhưng có lẽ nhiều người Lục Oanh cả đời cũng không có dịp sang bờ đối diện.
 
-Gió thổi nhẹ qua, dù thời tiết nóng cũng chẳng còn cảm giác.
+Vi phong thổi qua, cái nóng dường như cũng tan đi.
 
-Tùy Cảnh Rừng hỏi: "Tiền bối, nếu như vị cao nhân kia mãi không xuất hiện, ta hy vọng có thể trở thành đệ tử của ngươi, trước là ký danh đệ tử, đợi đến khi nào tiền bối cảm thấy ta có tư cách, sẽ làm lễ "Ký danh". Về phần tiền bối Thôi, nếu có nguyện ý truyền thụ ta tiên pháp hay hướng dẫn ta những điều sai lầm, ta sẽ không cưỡng cầu. Dù sao một mình tu hành ba mươi năm, ta cũng không ngại chờ đến khi tiền bối trở về."
+Tùy Cảnh Rừng hỏi: "Tiền bối, nếu cao nhân kia mãi không xuất hiện, ta mong được làm đệ tử của ngươi. Trước tiên cứ làm đệ tử ký danh, bao giờ ngươi thấy ta đủ tư cách thì cử hành lễ bái sư chính thức [?]. Vị Thôi tiền bối ấy có chịu truyền tiên pháp, chỉ điểm chỗ sai cho ta hay không, ta cũng không cưỡng cầu. Dù sao đã một mình tu hành ba mươi năm, ta không ngại đợi ngươi trở về."
 
-Trần Bình An quay đầu nhìn dòng nước chảy mạnh mẽ, mỉm cười: "Nếu không trở thành đệ tử của hắn, sau này ngươi sẽ hối hận, ta có thể cam đoan."
+Trần Bình An quay nhìn dòng nước chảy xiết, mỉm cười: "Không làm đệ tử của hắn, sau này ngươi sẽ hối hận. Chuyện này ta có thể cam đoan."
 
-Tùy Cảnh Rừng lắc đầu, cương quyết nói: "Sẽ không!"
+Tùy Cảnh Rừng lắc đầu, quả quyết: "Không đâu!"
 
-Trần Bình An nói: "Giả sử ngươi không thấy vị sư phụ kia từ nay về sau, ta có thể đảm bảo, khi ngươi nhận thức ông ấy, là một tiên nhân chân chính, về cả tu vi, tâm tính hay ánh mắt, vô luận là cái gì, đều mạnh hơn ta rất nhiều."
+Trần Bình An nói: "Giả sử từ nay ngươi không gặp lại vị sư phụ kia nữa, ta có thể bảo đảm, đến khi biết vị này, ngươi sẽ thấy hắn là tiên nhân thật sự. Tu vi, tâm tính hay mắt nhìn, bất kể mặt nào cũng hơn ta rất nhiều."
 
-Điều này dĩ nhiên không thể phủ nhận, hắn vẫn là đệ tử của ta.
+Đương nhiên, cũng không thể phủ nhận hắn vẫn là đệ tử của ta.
 
-Trước đây, Trần Bình An không bao giờ cảm thấy điều này là gì đặc biệt, nhiều khi cảm thấy đó như một gánh nặng, nhưng giờ nhìn lại, lại thấy... thật thoải mái.
+Trước kia, Trần Bình An chưa từng thấy chuyện này có gì đặc biệt, nhiều lúc còn coi là gánh nặng. Bây giờ nghĩ lại, lại thấy… thật thoải mái.
 
-Tùy Cảnh Rừng nghiêm túc nói: "Nhất định dưới đời này sẽ có những người như vậy sao? Ta không tin!"
+Tùy Cảnh Rừng nghiêm túc nói: "Trên đời nhất định có người như vậy sao? Ta không tin!"
 
-Trần Bình An đáp: "Tin hay không là tùy thuộc vào ngươi, tai nghe là giả, mắt thấy mới là thật. Khi nào ngươi gặp gỡ hắn, sẽ rõ ngay."
+Trần Bình An đáp: "Tin hay không tùy ngươi. Tai nghe là giả, mắt thấy mới thật. Gặp hắn rồi ngươi sẽ rõ."
 
-Tùy Cảnh Rừng với chiếc mũ che mặt, cầm gậy leo núi trong tay, có vẻ nửa tin nửa ngờ, có lẽ nàng cảm thấy hơi buồn bực. Nếu vị Thái tiên bối ấy thực sự pháp thuật như thần, là một tiên nhân trên núi, thì rốt cuộc cũng như thế nào trong cảnh giới tu hành?
+Tùy Cảnh Rừng đội mũ che mặt, cầm gậy leo núi, nửa tin nửa ngờ, có lẽ còn hơi buồn bực. Nếu vị Thái tiền bối ấy [?] thật sự thần thông quảng đại, là tiên nhân trên núi, thì rốt cuộc ở cảnh giới nào?
 
-Tùy Cảnh Rừng biết rõ việc tu hành thực sự là khoảng thời gian trôi qua chậm chạp, khi mà những người tu đạo trên núi có tuổi thọ lên đến hàng trăm năm, vậy có thật sự so với một người giang hồ hiểu biết tốt hơn không? Có nhiều chuyện cổ tích như vậy không? Khi lên núi, vào động phủ, khép cửa tu hành, rồi lại xuống núi rèn luyện, không chút nhiễm hồng trần, chỉ một mình lang thang, không dính dáng rắc rối mà trở về trên núi. Vậy thì việc tu đạo trường sinh thực sự có phải là không lo âu gì không? Hơn nữa, việc tu hành không chỉ giới hạn với những luyện khí sĩ thanh tịnh, trên núi vẫn có vô số tai ách, có khả năng gặp lúc thân tử đạo tiêu, oan nghiệt chồng chất, bình cảnh rất khó vượt qua, những phàm phu tục tử không cách nào lĩnh hội sự phong quang, tráng lệ kỳ tuyệt trên núi, đến khi trải qua hàng chục, thậm chí hàng trăm năm, liệu thật sự không cảm thấy chán nản sao?
+Nàng biết đường tu hành dài đằng đẵng. Người trên núi sống hàng trăm năm, liệu thật sự hiểu đời hơn người giang hồ sao? Có nhiều chuyện cổ tích như thế ư? Lên núi, vào động phủ, đóng cửa tu luyện, rồi xuống núi rèn luyện, không nhiễm hồng trần, một mình lang bạt, chẳng vướng rắc rối rồi lại trở lên núi. Chẳng lẽ tu đạo trường sinh thật sự không còn lo âu? Huống chi đâu phải luyện khí sĩ nào cũng được thanh tịnh. Trên núi vẫn đầy tai ách, có thể thân tử đạo tiêu, oan nghiệt chồng chất, bình cảnh khó vượt. Phàm phu tục tử không hiểu được phong cảnh kỳ tuyệt trên núi, nhưng ở đó mấy chục, thậm chí mấy trăm năm, thật sự không chán sao?
 
-Tùy Cảnh Rừng tâm trạng trở nên rối bời.
+Tâm tình Tùy Cảnh Rừng rối bời.
 
-Trần Bình An dừng bước, nhặt vài viên đá và ném tùy tiện xuống sông.
+Trần Bình An dừng bước, nhặt mấy viên đá, tiện tay ném xuống sông.
 
-Tùy Cảnh Rừng đứng đối diện với dòng nước, gió lớn thổi qua khiến mũ vải mỏng của nàng bay lật. Bộ quần áo bên một bên của nàng cũng vẫy phấp phới.
+Tùy Cảnh Rừng đứng nhìn dòng nước. Gió lớn thổi tung tấm vải mỏng trên mũ, vạt áo một bên cũng phấp phới.
 
-Dòng sông bên cạnh con đường có khá nhiều người qua lại, chủ yếu là những người luyện khí sĩ ở Long Đầu Độ.
+Con đường bên sông có không ít người qua lại, phần lớn là luyện khí sĩ tới Long Đầu độ.
 
-Một vị đại hán cưỡi ngựa đi ngang qua, đôi mắt sáng lên, bất ngờ ghìm ngựa lại, đập tay vào ngực rồi cười lớn nói: "Thưa phu nhân, sao không cùng đại gia nhậu nhẹt cho vui nhỉ! Cái người mặt trắng nhỏ bên cạnh ngươi trông có vẻ không hợp tác chút nào."
+Một đại hán cưỡi ngựa ngang qua, hai mắt sáng lên, đột ngột ghìm cương. Hắn vỗ ngực, cười lớn: "Vị phu nhân này, sao không theo đại gia uống rượu cho vui? Tên tiểu bạch kiểm bên cạnh ngươi chẳng có vẻ gì thú vị."
 
-Tùy Cảnh Rừng làm như không nghe thấy.
+Tùy Cảnh Rừng vờ như không nghe.
 
-Người đàn ông đó nhảy xuống, một tay chộp về phía Tùy Cảnh Rừng, nhưng chưa kịp thực hiện thì bị Trần Bình An ấn mạnh xuống, khiến hắn ngã vào dòng sông.
+Hán tử nhảy xuống ngựa, vươn tay chộp nàng. Chưa kịp tới nơi, hắn đã bị Trần Bình An ấn xuống, ném thẳng ra sông.
 
-Viên đá mà Trần Bình An ném xuống làm bọt nước văng lên không ít.
+So với mấy viên đá Trần Bình An vừa ném, lần này bọt nước bắn cao hơn nhiều [?].
 
-Người đàn ông kia vật lộn dưới nước, la hét, sau đó huýt sáo để gọi con ngựa trở lại, nhưng con ngựa không thèm quay lại, tiếp tục phi nước đại, không màng tới sĩ diện.
+Hán tử vùng vẫy kêu la dưới nước, rồi huýt sáo gọi ngựa quay lại. Con ngựa chẳng thèm ngoảnh đầu, cứ phi nước đại, không nể mặt chút nào.
 
-Tùy Cảnh Rừng tái mặt, hỏi: "Có phải lại có thích khách tới đây không?"
+Tùy Cảnh Rừng tái mặt: "Lại có thích khách sao?"
 
-Trần Bình An lắc đầu đáp: "Không phải, chỉ là một tên đại hán lang thang thôi."
+Trần Bình An lắc đầu: "Không, chỉ là một tên hán tử lang thang."
 
-Tùy Cảnh Rừng với vẻ mặt ủy khuất nói: "Tiền bối, nếu đi trên đường mà lại như thế này, thì khi lên thuyền tiên gia sẽ ra sao? Tất cả đều là người tu đạo, nếu có lòng dạ xấu, tiền bối không đi cùng, ta sẽ làm thế nào bây giờ?"
+Nàng ấm ức nói: "Đi đường còn gặp chuyện thế này, lên thuyền tiên gia thì sao? Trên đó toàn tu sĩ, nếu có kẻ lòng dạ xấu xa, tiền bối lại không ở bên, ta phải làm thế nào?"
 
-Trần Bình An trả lời: "Chẳng phải ta đã nói với ngươi rồi sao? Khi đến Long Đầu Độ, ta sẽ sắp xếp hết thảy."
+Trần Bình An đáp: "Chẳng phải ta nói rồi sao? Tới Long Đầu độ, ta sẽ thu xếp mọi chuyện."
 
-Tùy Cảnh Rừng thở dài: "Nhưng mà trên đường tu hành luôn thì có nhiều bất trắc như vậy."
+Tùy Cảnh Rừng thở dài: "Nhưng đường tu hành lúc nào cũng có nhiều bất trắc như thế."
 
-Trần Bình An không nói thêm gì, chỉ lặng lẽ đi tiếp.
+Trần Bình An không nói nữa, lặng lẽ đi tiếp.
 
-Tùy Cảnh Rừng đuổi theo, vai kề lại bên hắn, nàng hỏi: "Tiền bối, thuyền của tiên gia có gì khác với những chiếc thuyền bình thường trên sông?"
+Tùy Cảnh Rừng đuổi theo, đi sóng vai với hắn: "Tiền bối, thuyền tiên gia khác gì thuyền thường trên sông?"
 
-Trần Bình An gật đầu: "Cũng không khác lắm. Gặp phải gió lớn, thuyền sẽ lắc lư như thường, nhưng không có vấn đề gì lớn. Dù có thời tiết không thuận lợi như mưa bão, thuyền vẫn sẽ an toàn vượt qua. Có thể coi như thưởng thức phong cảnh đẹp. Đi thuyền giữa mây mù, sẽ thấy nhiều cảnh quan đẹp, có thể gặp được những tiên hạc bay lượn hay những môn phái tiên gia."
+Trần Bình An gật đầu: "Cũng không khác nhiều. Gặp gió lớn vẫn lắc lư, nhưng chẳng có gì đáng ngại. Dù mưa bão cũng vượt qua an toàn, cứ coi là ngắm cảnh. Đi thuyền giữa mây, có nhiều phong cảnh đẹp, còn có thể thấy tiên hạc bay lượn, những sơn môn tiên gia."
 
-Tùy Cảnh Rừng mỉm cười nói: "Tiền bối yên tâm, ta sẽ chăm sóc tốt cho bản thân."
+Tùy Cảnh Rừng cười: "Tiền bối yên tâm, ta sẽ tự chăm sóc mình cho tốt."
 
-Trần Bình An chậm rãi nói: "Đại đạo tựa như viên ngọc thô chưa được mài dũa, phải trải qua ma luyện. Mỗi lần vượt qua thử thách đều không dễ dàng. Nhưng nếu ta chịu đựng được, đó là bước gần hơn đến tu đạo thành công. Việc này cũng giống như ngươi trong quá trình tu hành. Vượt qua được, có nghĩa là ngươi sẽ không dễ dàng bỏ cuộc. Thế gian đầy rẫy trọng lực, người đời không tu tâm, chỉ cậy mạnh, rất nhiều người có thể tự mãn, nhưng trong đó có đúng sai. Ngươi cần tự mình suy nghĩ về điều đó. Người tốt cũng có khuyết điểm, kẻ xấu cũng có lý lẽ. Chỉ cần nhớ một điều, hãy hỏi bản tâm mình. Điều này ta từng học hỏi từ người mà ta đã từng muốn giết."
+Trần Bình An chậm rãi nói: "Đại đạo giống ngọc thô, phải mài giũa mới thành. Mỗi lần vượt qua thử thách đều không dễ, nhưng chịu được thì gần thêm một bước tới thành công trên đường tu đạo. Chuyện này cũng giống lúc ngươi tu hành, vượt qua được sẽ không dễ bỏ cuộc nữa. Người đời trọng sức mạnh mà không tu tâm, nhiều kẻ vì thế tự mãn, nhưng trong đó có đúng có sai [?]. Ngươi phải tự suy nghĩ. Người tốt cũng có khuyết điểm, kẻ xấu cũng có lý lẽ. Chỉ cần nhớ một chuyện: hỏi lại bản tâm. Đây là điều ta học từ một người từng muốn giết."
 
-Tùy Cảnh Rừng gật đầu: "Ta đã hiểu."
+Tùy Cảnh Rừng gật đầu: "Ta hiểu rồi."
 
-Trần Bình An bước đi một đoạn, chỉ vào con đường phía trước: "Thế gian có nhiều điều kỳ diệu. Khi ta và ngươi gặp nhau, ta chỉ ra cho ngươi con đường tu đạo mà thôi. Sự lựa chọn luôn tồn tại. Nếu như đổi vị đã tặng ngươi cơ duyên trước kia đi dạo, liệu hắn có thể tự mình truyền đạo cho ngươi không?"
+Đi thêm một quãng, Trần Bình An chỉ con đường phía trước: "Thế gian có nhiều chuyện kỳ diệu. Ta gặp ngươi, chỉ cho ngươi một con đường tu đạo. Lúc nào cũng có lựa chọn. Nếu đổi thành vị cao nhân tặng cơ duyên trước kia đi cùng ngươi, tự mình truyền đạo, sẽ thế nào?"
 
-"Cuối cùng, sẽ có hai Tùy Cảnh Rừng khác nhau. Càng nhiều lựa chọn, thì sẽ càng nhiều Tùy Cảnh Rừng."
+"Cuối cùng sẽ có hai Tùy Cảnh Rừng khác nhau. Càng nhiều lựa chọn, càng có nhiều Tùy Cảnh Rừng."
 
-Trần Bình An chỉ về một hướng khác: "Bây giờ ta đứng ở ngoài để quan sát cũng được, nhưng ngươi cũng vậy. Trên thực tế không ai biết rõ hai Tùy Cảnh Rừng nào sẽ thành tựu cao hơn, sống lâu hơn. Nhưng ngươi biết bản tâm là gì không? Bởi vì sự ra đời này, mỗi người đều có thể biết rõ."
+Hắn lại chỉ một hướng khác: "Bây giờ ta đứng ngoài nhìn, ngươi cũng có thể như vậy. Thật ra chẳng ai biết hai Tùy Cảnh Rừng ấy, ai thành tựu cao hơn, ai sống lâu hơn. Nhưng ngươi có biết bản tâm là gì không? Bởi sinh ra làm người, ai cũng có thể biết rõ [?]."
 
-Sau khoảng mười bước, Trần Bình An dừng lại và chỉ về một con đường khác, nói: "Nếu đi cùng nhau, dù phải chịu khổ hay hưởng phúc, ngươi cần phải kiên định bước chân. Khi đến một giai đoạn nào đó, nhất là sau khi phải chịu đựng đau khổ lớn, ngươi sẽ tự hoài nghi và nhìn xung quanh, nhận ra những cơ hội mà mình đã bỏ lỡ. Lúc đó, câu trả lời chính là bản tâm, và điều tiếp theo là tự vấn lương tâm."
+Đi chừng mười bước, Trần Bình An dừng lại, chỉ sang một con đường khác: "Đã cùng đi con đường này, chịu khổ cũng được, hưởng phúc cũng được, ngươi phải bước cho vững. Tới một lúc nào đó, nhất là vừa chịu nỗi khổ lớn, ngươi sẽ nghi ngờ mình, nhìn quanh rồi nhận ra những cơ hội đã bỏ lỡ. Khi ấy, câu trả lời chính là bản tâm, tiếp đó là tự vấn lương tâm."
 
-"Nhưng ta muốn nói với ngươi rằng, trong khoảnh khắc đó, mọi người có thể rơi vào cạm bẫy. Chúng ta đều có xu hướng tự thuyết phục mình bằng lý lẽ mà mình hiểu rõ nhất, điều này rất dễ dàng. Bởi vì chỉ cần một người còn sống, họ có thể nhịn nhục theo bất kỳ con đường nào, ai cũng có thể mang theo nỗi khổ riêng của mình. Khó khăn là ở chỗ bản tâm không thay đổi, khiến cho đạo lý cũng mất đi."
+"Nhưng ta muốn nói, ngay khoảnh khắc ấy, ai cũng có thể rơi vào cạm bẫy. Dùng đạo lý quen thuộc nhất để thuyết phục mình thì dễ lắm. Bởi chỉ cần còn sống, trên con đường nào con người cũng có thể nhẫn nhục, ai cũng gánh nỗi khổ riêng. Khó là giữ bản tâm không đổi, để đạo lý không mất đi [?]."
 
-Tùy Cảnh Rừng ngần ngại hỏi: "Nếu một người có bản tâm hướng về điều ác, càng thông suốt thì càng khó khăn, không phải là đường đời sẽ xấu đi sao? Nhất là loại người này mỗi lần đều có thể học hỏi lại từ bài học, chẳng lẽ càng ngày càng không tiến bộ?"
+Tùy Cảnh Rừng ngập ngừng: "Nếu bản tâm người ấy vốn hướng ác, càng thông suốt lại càng tai hại, đường đời chẳng phải càng đi càng xấu sao? Nhất là hạng người cứ rút được bài học sau mỗi lần như vậy, chẳng lẽ càng ngày càng không thể tiến bộ?"
 
-Trần Bình An gật đầu: "Đúng vậy. Chính vì thế, những lời này ta chỉ muốn nói với bản thân và những người bên cạnh. Những người bình thường không cần biết, chỉ cần có quyền và vũ lực là đủ."
+Trần Bình An gật đầu: "Đúng. Bởi vậy, những lời này ta chỉ muốn nói với bản thân và người bên cạnh. Với người ngoài thì không cần, có nắm đấm và võ lực là đủ [?]."
 
-Tùy Cảnh Rừng kinh ngạc lặng im.
+Tùy Cảnh Rừng kinh ngạc, không nói nên lời.
 
-Sau một hồi trầm mặc, hai người tiếp tục bước đi, Tùy Cảnh Rừng hỏi: "Giờ chúng ta phải làm sao?"
+Im lặng một hồi, hai người lại đi tiếp. Nàng hỏi: "Vậy chúng ta phải làm sao?"
 
-Trần Bình An với vẻ mặt lạnh nhạt đáp: "Đó là điều mà Nho gia và những người hiền triết cần suy nghĩ."
+Trần Bình An thản nhiên đáp: "Đó là chuyện Nho gia và các bậc thánh hiền cần suy nghĩ."
 
-"Tam giáo chư tử bách gia, vô số đạo lý như mưa rào đổ xuống nhân gian, có thời tiết khác nhau sẽ tạo ra tình huống khác nhau. Có thể là nắng hạn lâu ngày gặp trận mưa, nhưng cũng có thể là cơn đại hồng thủy."
+"Đạo lý của tam giáo, chư tử bách gia như mưa trút xuống nhân gian. Thời tiết khác nhau, kết quả cũng khác. Có thể là hạn lâu gặp mưa, cũng có thể thành một trận đại hồng thủy."
 
-"Điều chúng ta có thể làm là, luôn luôn tiến về phía trước, tâm hồn như hoa mộc, hướng mặt trời mà sống."
+"Chúng ta chỉ có thể cứ bước về phía trước, lòng như cây cỏ, hướng về mặt trời mà sống."
 
-Trên đường, một người trẻ tuổi trong nho sam vừa mới qua mắt họ, ngừng bước lại, quay đầu mỉm cười nói: "Tiên sinh nói rất đúng, nhưng cũng không phải là đúng tuyệt đối."
+Một người trẻ tuổi mặc nho sam vừa đi qua hai người bỗng dừng bước, ngoảnh đầu cười: "Tiên sinh nói rất đúng, nhưng cũng chưa hẳn hoàn toàn đúng."
 
-Trần Bình An dừng lại, quay lại cười đáp: "Giải thích như thế nào?"
+Trần Bình An dừng lại, quay người cười hỏi: "Nói thế nào?"
 
-Tùy Cảnh Rừng đứng ở sau lưng Trần Bình An, cảm thấy bất an.
+Tùy Cảnh Rừng đứng sau lưng hắn, trong lòng bất an.
 
-Người trẻ tuổi mỉm cười nói: "Trong các ngách hẻm trong phố phường, cũng có những đạo lý lớn. Chỉ cần phàm phu tục tử thực hiện lý tưởng này cả đời, người đó sẽ không phải cúi đầu trước thánh hiền, thần tiên hay Phật."
+Người trẻ tuổi mỉm cười: "Phố phường ngõ hẻm cũng có đạo lý lớn. Phàm phu tục tử chỉ cần cả đời làm được đạo lý ấy, liền không phải cúi đầu trước thánh hiền, thần tiên hay Phật tổ."
 
-Trần Bình An hỏi: "Nếu như một cú đấm xuống, người đó sẽ bị đánh bầm dập, thì đạo lý còn nằm ở đâu? Liệu điều đó có vô dụng? Nắm đấm của đạo lý có lớn không, phải chăng đó là sự hiển nhiên về đạo lý?"
+Trần Bình An hỏi: "Một quyền đánh tới, người ấy bị đánh bầm dập, đạo lý ở đâu? Chẳng phải vô dụng sao? Nắm đấm bên đạo lý có lớn hay không, chẳng lẽ tự nhiên đã có đạo lý [?]?"
 
-Người trẻ tuổi cười nói: "Đạo lý không chỉ để ăn cơm, cũng không phải chỉ để ngăn đòn. Cuộc đời đầy rẫy khổ sở là sự thật, nhưng nếu thế gian thái bình thì thật không thể thiếu gì? Tại sao như vậy nhiều người dù không có nắm đấm lớn, vẫn có thể an cư lạc nghiệp? Những người trên Hà Sơn truy cầu tuyệt đối, nhưng dưới núi vẫn sống yên ổn."
+Người trẻ tuổi cười: "Đạo lý đâu chỉ để ăn cơm hay đỡ đòn. Đời người nhiều khổ sở là thật, nhưng muốn thế gian thái bình, sao có thể thiếu đạo lý? Vì sao nhiều người không có nắm đấm lớn vẫn an cư lạc nghiệp? Trên núi theo đuổi điều tuyệt đối, dưới núi vẫn có thể sống yên ổn [?]."
 
-Trần Bình An mỉm cười hỏi: "Quyền lực kia thật đáng sợ, không cần phải bàn đến lý thuyết, nhưng vẫn có vô số kẻ yếu phụ thuộc vào bóng dáng của họ, vậy thì giải thích như thế nào đây? Nếu phủ nhận lý do này, phải chăng lý thuyết chỉ tồn tại trong tay một số ít người mạnh nhất?"
+Trần Bình An mỉm cười: "Quyền lực kia đáng sợ, chẳng cần giảng đạo lý, vẫn có vô số kẻ yếu nương bóng nó. Chuyện ấy giải thích thế nào? Nếu phủ nhận, chẳng lẽ đạo lý chỉ nằm trong tay một số ít người mạnh nhất?"
 
-Người trẻ tuổi lắc đầu: "Đó chỉ là biểu tượng. Tiên sinh rõ ràng đã có câu trả lời trong lòng, sao lại cứ nghi ngờ mãi thế?"
+Người trẻ tuổi lắc đầu: "Đó chỉ là bề ngoài. Trong lòng tiên sinh rõ ràng đã có đáp án, sao vẫn cứ nghi ngờ?"
 
 Trần Bình An chỉ cười.
 
-Người trẻ tuổi giới thiệu: "Tại hạ tên là Tề Cảnh Long, theo ghi chép trong gia phả của tổ sư Đường gia, tổ tiên ta là Lưu Cảnh Long. Liên quan đến gia thế của mình, ta sẽ không giải thích nhiều cùng tiên sinh."
+Người trẻ tuổi tự giới thiệu: "Tại hạ Tề Cảnh Long. Trong gia phả tổ sư đường, ghi tên Lưu Cảnh Long [?]. Chuyện gia thế, xin không giải thích nhiều với tiên sinh."
 
-Tùy Cảnh Rừng không hiểu gì cả, vì nàng chưa từng nghe đến cái tên "Lưu Cảnh Long".
+Tùy Cảnh Rừng chẳng hiểu gì, bởi nàng chưa từng nghe tên "Lưu Cảnh Long".
 
-Trần Bình An hỏi: "Vậy vừa đi vừa nói được không?"
+Trần Bình An hỏi: "Vừa đi vừa nói được không?"
 
-Tề Cảnh Long cười đuổi theo hai người, cùng nhau tiếp tục đi dọc theo sông.
+Tề Cảnh Long cười, bước theo, cùng hai người men bờ sông đi tiếp.
 
-Trần Bình An nói: "Về biểu tượng mà ngươi nói, ta mong Lưu tiên sinh có thể giải thích cho ta, mặc dù tâm trí ta đã có câu trả lời, nhưng ta vẫn mong muốn đáp án của Lưu tiên sinh có thể cùng nhau chứng thực."
+Trần Bình An nói: "Về cái bề ngoài tiên sinh vừa nói, mong Lưu tiên sinh giải thích cho ta. Dù trong lòng đã có câu trả lời, ta vẫn muốn nghe đáp án của tiên sinh để cùng kiểm chứng."
 
-Tề Cảnh Long gật đầu: "Nói về quyền lực, không bằng nói đó là một quy tắc. Quyền lực lớn chỉ thuộc về người hậu thế, phía trước còn có nhiều điều cần khám phá."
+Tề Cảnh Long gật đầu: "Nói là quyền lực, không bằng nói là quy củ. Quyền lực lớn chỉ là thứ đứng phía sau, trước nó còn nhiều chuyện cần tìm hiểu [?]."
 
-Trần Bình An nheo mắt, nhưng không nói gì thêm.
+Trần Bình An nheo mắt, không nói.
 
-Tề Cảnh Long tiếp tục nghiêm túc: "Sự mạnh mẽ chính thức nằm ở... quy tắc và quy luật. Biết rõ những điều này, và có thể lợi dụng chúng. Hoàng đế có phải là cường giả không? Tại sao khắp thiên hạ lại có những quốc gia phân chia, núi sông lại bị tàn phá? Tại sao có những người chết già, còn có những người không sống nổi đến già? Phú quý và quyền lực trong tay các thế gia, họ có phải là cường giả? Họ, khi khởi tạo triều đại, chính là những người đầu tiên trong tổ tông, họ đã tạo dựng sự nghiệp như thế nào? Bởi vì những người này không phải thực sự mạnh mẽ, mà chỉ nhờ quy tắc và thế lực mà vươn lên. Nếu không tuân theo quy tắc, họ sẽ bị diệt vong như hoa phù dung nở rồi tàn, không thể trường tồn như những người tu đạo không thể sống mãi."
+Tề Cảnh Long nghiêm túc nói tiếp: "Thứ thật sự mạnh là… quy củ và quy luật. Phải biết chúng, còn biết dùng chúng. Hoàng đế có phải cường giả không? Vì sao thiên hạ vẫn chia thành nhiều nước, sơn hà vẫn tan nát? Vì sao có người chết già, có người chẳng sống nổi tới già? Thế gia nắm phú quý quyền lực, có phải cường giả không? Tổ tiên khai sáng cơ nghiệp, những người đầu tiên dựng nên triều đại, đã làm bằng cách nào? Bởi họ không thật sự mạnh, chỉ nương vào quy củ và thế lực mà vươn lên. Không tuân quy củ, họ sẽ như phù dung sớm nở tối tàn, chẳng thể lâu bền, cũng như tu sĩ không thể sống mãi [?]."
 
-Sau đó, Tề Cảnh Long giải thích cho hắn những suy nghĩ của mình về những người xung quanh.
+Sau đó, Tề Cảnh Long giảng cho hắn những suy nghĩ của mình về người đời.
 
-Thứ nhất, cần phải hiểu rõ quy tắc, nắm bắt được sức mạnh và sự phức tạp của những quy tắc đó, càng nhiều càng tốt, và nhận biết những sơ hở bên dưới.
+Thứ nhất, phải hiểu quy củ, càng nhiều càng tốt, nắm được sức mạnh, chỗ phức tạp và cả sơ hở bên dưới chúng.
 
-Thứ hai, là tuân theo quy tắc, hoặc nói rằng phụ thuộc vào quy tắc.
+Thứ hai, tuân theo quy củ, hoặc nói là nương vào quy củ.
 
-Tương tự như những kẻ trung thần, những người ở trong chính quyền có thể phá hoại sự ổn định của đất nước.
+Cũng như trung thần và những kẻ trong triều có thể phá sự ổn định của đất nước [?].
 
-Thứ ba, có thể tự mình thiết lập quy tắc, đương nhiên cũng có thể phá vỡ chúng.
+Thứ ba, có thể tự đặt quy củ, đương nhiên cũng có thể phá bỏ.
 
-Thứ tư, là bảo vệ quy tắc.
+Thứ tư, giữ gìn quy củ.
 
-Người buôn bán nhỏ, vua chúa, những kẻ tu luyện; dù trong hoàn cảnh nào cũng không được ngoại lệ.
+Từ người buôn bán nhỏ tới đế vương, tu sĩ, bất kể ở đâu cũng không ngoại lệ.
 
-Trong bối cảnh này, quy tắc thực sự mạnh mẽ, sẽ che chở cho vô số kẻ yếu. Dĩ nhiên, quy tắc này vô cùng phức tạp, được hình thành từ nhiều yếu tố khác nhau trong xã hội, từ triều đình đến giang hồ, từ thành phố đến vùng quê.
+Trong tình thế ấy, quy củ thật sự mạnh sẽ che chở vô số kẻ yếu. Đương nhiên, những quy củ này vô cùng phức tạp, do nhiều thứ cùng tạo nên, trải từ triều đình tới giang hồ, từ thành thị tới thôn quê.
 
-Vì vậy, vua chúa phải hiểu rằng "nước có thể nâng thuyền cũng có thể lật thuyền", người tu đạo phải cảnh giác với mọi khả năng xấu xảy ra, và các kẻ quyền thế cũng phải lo lắng về viễn cảnh xấu xa; người giang hồ phải biết kiếm danh lợi, còn thương nhân phải truy cầu lợi nhuận. Do đó, những người tu hành cao như Nguyên Anh phải hợp nhất với đạo, những người ở Tiên Nhân cần có thực lực, còn những ai ở cảnh Phi Thăng phải nắm bắt được đạo trời; và tất cả những điều này không được trái ngược với những điều thánh hiền đã dạy, mà nên giúp họ mở ra con đường tiến lên cao hơn.
+Bởi vậy, đế vương phải hiểu "nước nâng thuyền, cũng có thể lật thuyền"; tu sĩ phải đề phòng tai họa, người quyền quý cũng phải lo ngày sa sút. Người giang hồ cầu danh lợi, thương nhân cầu lợi nhuận. Tu hành tới Nguyên Anh phải hợp đạo, tới Tiên Nhân cần thực lực, tới Phi Thăng phải nắm được thiên đạo [?]. Những chuyện ấy không nên trái lời thánh hiền dạy, mà nên giúp người ta mở đường tiến lên cao hơn.
 
-Tùy Cảnh Rừng nghe được, lòng không dám tùy tiện nói ra, rất nhanh đã mồ hôi ướt đẫm lòng bàn tay.
+Tùy Cảnh Rừng lắng nghe, không dám tùy tiện lên tiếng. Chẳng mấy chốc, lòng bàn tay nàng đã đẫm mồ hôi.
 
-Nàng vụng trộm nhìn sang thanh sam mũ rộng vành bên cạnh, hắn vẫn giữ sắc thái tự nhiên.
+Nàng lén nhìn người mặc thanh sam, đội nón rộng vành bên cạnh. Hắn vẫn bình thản.
 
-Trần Bình An hỏi: "Về ba giáo tôn chỉ, Lưu tiên sinh có chút nào lĩnh ngộ không?"
+Trần Bình An hỏi: "Tôn chỉ tam giáo, Lưu tiên sinh có lĩnh ngộ gì không?"
 
-Tề Cảnh Long đáp: "Có một chút, nhưng rất nông cạn. Phật giáo không chấp chặt điều gì, chỉ cầu người không dao sắc chém giết. Tại sao lại có sự phân chia giữa Tiểu Thừa và Đại Thừa? Chính vì trong thế gian, việc tu hành khó khăn, chưa đủ sức để giúp người khác. Đạo giáo thường cầu thanh tịnh; nếu trong thế gian ai cũng thanh tịnh, không d*c v*ng, thì hàng ngàn đời sẽ không có lo âu, thế gian sẽ yên bình thịnh vượng. Đáng tiếc là, những giáo lý của đạo tổ rất cao siêu, nhưng trên thực tế, không hoàn toàn được lòng dân, người thông minh chọn lựa cách khôn khéo để sống, khiến giáo lý trở nên xa rời. Phật giáo rất mênh mông, nhưng có bao nhiêu người có thể hiểu được? Còn thần tiên trong đạo giáo, họ không nhìn nhận người thế gian, dù là gà chó lên trời, liệu có thể mang theo bao nhiêu? Chỉ có Nho giáo, rất khó khăn, trên sách phép đạo lý giao thoa; tuy nói trên phương diện tổng thể như cây to cho bóng mát, nhưng nếu thật sự muốn nhìn lại, sẽ như khắp nơi đánh nhau, rất dễ làm cho người ta cảm thấy như mình bị lạc vào sương mù."
+Tề Cảnh Long đáp: "Có đôi chút, nhưng rất nông cạn. Phật gia không chấp trước, chỉ cầu con người đừng cầm dao sát sinh [?]. Vì sao phân Tiểu Thừa, Đại Thừa? Bởi tu hành nơi thế gian gian nan, sức mình chưa đủ độ người. Đạo gia cầu thanh tịnh. Nếu người đời đều thanh tịnh, không dục vọng, ngàn đời sẽ không lo âu, thiên hạ thái bình. Tiếc rằng giáo lý Đạo tổ quá cao, thật ra chưa thấm hết lòng người. Người thông minh chọn lối sống khôn khéo, càng khiến giáo lý xa rời nhân gian. Phật pháp mênh mông, mấy ai hiểu được? Thần tiên Đạo gia lại không nhìn xuống thế nhân; dù gà chó cùng lên trời, có thể mang theo bao nhiêu? Chỉ Nho gia là gian nan, trong sách đạo lý đan xen. Nhìn chung như cây lớn cho bóng mát, nhưng xem kỹ lại thấy khắp nơi tranh chấp, rất dễ khiến người ta như lạc giữa sương mù."
 
-Trần Bình An nhẹ gật đầu, hỏi: "Nếu ta nhớ không nhầm, Lưu tiên sinh không phải là đệ tử của Nho giáo, vậy trong con đường tu hành của ngươi, ngươi tìm kiếm "Thế gian vạn pháp không câu nệ ta" hay là "Tùy tâm sở dục không vượt khuôn"?"
+Trần Bình An khẽ gật đầu, hỏi: "Nếu ta nhớ không lầm, Lưu tiên sinh không phải đệ tử Nho gia. Vậy trên đường tu hành, tiên sinh cầu ‘vạn pháp thế gian không trói buộc được ta’, hay ‘tùy tâm sở dục mà không vượt khuôn phép’?"
 
-Tề Cảnh Long cười đáp: "Cái trước thật khó đạt được, đó cũng không phải là điều ta thực sự muốn, vì vậy ta chỉ là người sau. Tiên sinh đã từng nói "Bản tâm không thay đổi, đạo lý biến đổi", điều này rất hợp với ta. Người luôn thay đổi, thế gian này luôn biến đổi, ngay cả câu châm ngôn "Bất động như núi", mà trên thực tế, núi cao cũng đã và đang thay đổi. Vậy nên câu này của tiên sinh về "tùy tâm sở dục, không vượt khuôn", dẫu sao vẫn còn là một dạng tự do có hạn. Ngược lại, có rất nhiều người tu sĩ trên núi, nhất là những người càng gần đỉnh núi, càng siêng năng tìm kiếm sự tự do tuyệt đối. Không phải ta nghĩ những người này đều xấu, nhưng không thể đơn giản hóa mọi thứ như vậy. Thực sự, những người có thể thực sự đạt được tự do tuyệt đối lại chính là những cường giả chân chính."
+Tề Cảnh Long cười đáp: "Cái trước quá khó, cũng chẳng phải điều ta thật sự muốn. Cho nên ta chọn cái sau. Tiên sinh nói ‘bản tâm không đổi, đạo lý biến đổi’, rất hợp ý ta. Con người thay đổi, thế gian cũng thay đổi. Ngay cả câu ‘bất động như núi’, thật ra núi cao cũng đang đổi thay. Bởi thế, ‘tùy tâm sở dục mà không vượt khuôn phép’ chung quy vẫn là thứ tự do có giới hạn. Ngược lại, nhiều tu sĩ trên núi, nhất là những người càng gần đỉnh, càng tha thiết cầu tự do tuyệt đối. Ta không cho rằng họ đều xấu, chẳng thể nói đơn giản như vậy. Thật ra, người đạt được tự do tuyệt đối mới là cường giả chân chính."
 
-Tề Cảnh Long cảm khái: "Những người có được sự tự do tuyệt đối, đều không ngoại lệ, tất cả đều có một tâm trí cực kỳ mạnh mẽ, cùng với tu vi cực kỳ hùng mạnh, nói cách khác, họ đã đạt cực hạn trong tu hành của mình."
+Hắn cảm khái: "Những người có tự do tuyệt đối, không ai ngoại lệ, đều có tâm trí vô cùng mạnh mẽ và tu vi hùng hậu, nói cách khác là đã đi tới cực hạn trên con đường của mình."
 
-Sau khi Trần Bình An nhận được câu trả lời, hắn muốn hỏi về vấn đề mà ở bên Tùy Cảnh Rừng không thể hỏi tiếp, "Nếu như nói thế gian là một tấm bảng quy tắc bị buông lơi, khiến cho mọi thứ không ngừng giao động, vậy những người tu đạo đã không còn ở trong cái vòng tròn luẩn quẩn đó, thì nên làm gì bây giờ?"
+Nghe câu trả lời ấy, Trần Bình An hỏi tiếp chuyện trước đó không thể bàn sâu với Tùy Cảnh Rừng: "Nếu thế gian là tấm ván quy củ bị lỏng, mọi thứ không ngừng chao động, vậy người tu đạo đã ra khỏi vòng ấy nên làm gì?"
 
-Tề Cảnh Long không do dự, đáp: "Trước hết phải giữ vững bản thân, nếu có tâm huyết và sức mạnh, thì có thể từng bước một, đóng dấu từng đinh tán vào ván, hoặc là ngồi sang một bên, hợp tác lại."
+Tề Cảnh Long đáp không do dự: "Trước hết giữ vững mình. Có lòng, có sức, thì từng bước đóng thêm đinh tán vào ván, hoặc ngồi sang bên, cùng người khác hợp sức [?]."
 
-Tề Cảnh Long, với tâm trạng đang phấn chấn, nhìn về phía dòng sông đang cuộn trào, thở dài: "Trường sinh bất tử, hẳn là một chuyện rất tuyệt vời, nhưng liệu có thực sự là điều đáng mong muốn không? Ta còn chưa chắc."
+Tâm tình phấn chấn, hắn nhìn dòng sông cuồn cuộn, thở dài: "Trường sinh bất tử hẳn là chuyện tốt đẹp. Nhưng có thật đáng mong cầu không, ta vẫn chưa chắc."
 
-Khó khăn gì mới có thể giảng đạo lý.
+Giảng đạo lý khó biết bao.
 
-Thực tế, cả những người xấu cũng đã hiểu đạo lý, thậm chí còn am hiểu hơn.
+Thật ra, kẻ xấu cũng hiểu đạo lý, thậm chí còn hiểu sâu hơn.
 
-Thương Quân tiến lên theo kiểu "hồ quân", để tránh chiến tranh sinh sống, kiểm soát đại dương, giương buồm ra giữa dòng nước.
+Hồ quân Thương Quân dùng thân phận hồ quân, vì tránh chiến tranh để sống, nắm giữ vùng nước, giương buồm ra giữa dòng [?].
 
-Trần Bình An lo sợ gây ra sự cố, chỉ có thể thu tay lại.
+Trần Bình An sợ gây thêm chuyện, chỉ đành thu tay.
 
-Đó chính là lý thuyết của hồ quân, mà Trần Bình An nghe được.
+Đó là đạo lý của hồ quân mà hắn đã nghe.
 
-Tùy Cảnh Rừng giữa nơi phong ba bão tố, đã đánh bạc cho Trần Bình An rằng nàng sẽ luôn theo đuôi các ngươi.
+Giữa sóng gió, Tùy Cảnh Rừng đánh cược với Trần Bình An rằng nàng sẽ luôn đi theo bọn họ [?].
 
-Đó cũng là lý thuyết của Tùy Cảnh Rừng.
+Đó là đạo lý của Tùy Cảnh Rừng.
 
 Trần Bình An cũng đang lắng nghe.
 
-Đình nghỉ chân bên trong, lão thị lang Tùy Tân Vũ cùng Hồn Giang giao Dương Nguyên là hai người có thân phận hoàn toàn khác nhau, nhưng vô thức đều nói một câu có ý nghĩa tương tự.
+Trong đình nghỉ chân, lão thị lang Tùy Tân Vũ và Hồn Giang giao Dương Nguyên, hai người thân phận hoàn toàn khác nhau, lại vô tình nói những lời cùng một ý.
 
-Tùy Tân Vũ nói: "Nơi đây là khu vực Ngũ Lăng quốc", nhằm nhắc nhở đám giang hồ phỉ nhân không nên làm điều xằng bậy, thể hiện ý muốn theo đuổi quy củ vô hình để bảo vệ.
+Tùy Tân Vũ nói: "Nơi này là địa giới Ngũ Lăng quốc", nhắc đám giang hồ phỉ nhân chớ làm càn, mong được quy củ vô hình che chở.
 
-Quy củ này ngầm hàm chứa sự tôn nghiêm của hoàng đế Ngũ Lăng quốc và triều đình, cũng như nghĩa khí giang hồ. Đặc biệt, trong thâm tâm, nó còn mang dấu ấn của người đầu tiên Ngũ Lăng quốc, Vương Độn.
+Quy củ ấy ẩn chứa tôn nghiêm của hoàng đế, triều đình Ngũ Lăng quốc và nghĩa khí giang hồ. Sâu hơn nữa, nó còn mang dấu ấn của Vương Độn, đệ nhất nhân Ngũ Lăng quốc.
 
-Tại Kim Phi quốc, dưới chân núi Tranh Vanh, Trần Bình An đã hai lần đứng khoanh tay quan sát mà không can thiệp, một vị kiếm tiên lặng lẽ theo dõi, đồng ý với nguyên lý mà Trần Bình An theo đuổi, vì vậy cả hai lần, Trần Bình An đều được sống sót.
+Dưới chân núi Tranh Vanh ở Kim Phi quốc, Trần Bình An từng hai lần khoanh tay đứng nhìn. Một vị kiếm tiên lặng lẽ quan sát, tán thành đạo lý hắn giữ, bởi vậy cả hai lần hắn đều được sống.
 
-Lần trước tại Tùy Giá thành, Hỏa thần từ miếu của một vị Kim Thân thần biết rõ hành động của mình không mang lại ý nghĩa gì, vẫn quyết định hùng hồn chịu chết để giúp Trần Bình An. Bởi vì việc Trần Bình An làm là theo quy củ, mà Hỏa thần từ thấy có lý.
+Trước kia ở thành Tùy Giá, vị thần linh Kim thân trong miếu Hỏa thần biết việc mình làm chẳng ích gì, vẫn khẳng khái chịu chết để giúp Trần Bình An. Bởi hắn làm theo quy củ, vị Hỏa thần ấy thấy có đạo lý.
 
-Đỗ Mậu của Đồng Diệp tông có nắm đấm lớn không? Nhưng khi hắn muốn rời khỏi Đồng Diệp châu, cũng cần phải tuân thủ quy củ, hoặc là chui vào lỗ hổng quy củ, mới có thể đến Bảo Bình châu.
+Đỗ Mậu của Đồng Diệp tông có nắm đấm lớn không? Vậy mà muốn rời Đồng Diệp châu, hắn vẫn phải theo quy củ, hoặc tìm kẽ hở trong quy củ, mới tới được Bảo Bình châu.
 
-Người giang hồ Hồ Tân Phong của Ngũ Lăng quốc có nắm đấm nhỏ không nhỏ? Nhưng trước khi chết, hắn đã nói ra rằng hành động không kịp tuân theo quy củ. Tại sao lại nói như vậy? Bởi vì tại đây thật sự có quy củ của Ngũ Lăng quốc, và nếu Hồ Tân Phong nói như vậy, thì quy củ này đã tồn tại qua nhiều năm, để bảo vệ vô số người già, phụ nữ và trẻ em trong giang hồ. Những người mới tham gia vào giang hồ, tại sao họ cứ gặp rắc rối này mà lại bước ra một con đường máu? Bởi vì quy củ đối với họ như một hình thức đáp lễ lặng lẽ. Những người may mắn vượt qua đỉnh cao của giang hồ, sớm muộn gì cũng trở thành những lão nhân bảo vệ quy tắc đã có, trở thành những người bảo thủ không chịu thay đổi.
+Người giang hồ Ngũ Lăng quốc là Hồ Tân Phong có nắm đấm nhỏ không? Trước khi chết, hắn vẫn nhắc tới chuyện làm việc không theo quy củ [?]. Vì sao? Bởi Ngũ Lăng quốc thật sự có quy củ. Đã khiến Hồ Tân Phong nói như thế, hẳn quy củ ấy tồn tại nhiều năm, che chở vô số người già, nữ tử, trẻ nhỏ trong giang hồ. Vì sao người mới bước vào giang hồ, gặp đủ rắc rối mà vẫn có thể mở một đường máu? Bởi quy củ đã lặng lẽ đáp lại họ. Những kẻ may mắn lên tới đỉnh giang hồ, sớm muộn cũng trở thành lão nhân giữ quy củ cũ, thành người bảo thủ không chịu đổi thay.
 
-Phía trước có một bờ sông với nhà thuỷ tạ ngắm cảnh.
+Phía trước có một tòa thủy tạ ngắm cảnh bên sông.
 
-Trần Bình An dừng bước, ôm quyền chào hỏi: "Tạ Lưu tiên sinh đã giải thích rõ cho ta."
+Trần Bình An dừng bước, ôm quyền: "Đa tạ Lưu tiên sinh giải nghi cho ta."
 
-Tề Cảnh Long mỉm cười đáp: "Cũng xin cảm ơn Trần tiên sinh đã nhận thức mà nói như vậy."
+Tề Cảnh Long mỉm cười đáp: "Cũng đa tạ Trần tiên sinh đã hiểu mà nói những lời ấy [?]."
 
-Trần Bình An lắc đầu, ánh mắt sáng tỏ, thành tâm nói: "Rất nhiều việc, ta nghĩ rằng, cuối cùng không bằng Lưu tiên sinh nói rõ ràng hơn."
+Trần Bình An lắc đầu, ánh mắt sáng trong, thành khẩn nói: "Nhiều chuyện ta đã nghĩ tới, rốt cuộc vẫn không rõ ràng bằng lời Lưu tiên sinh."
 
-Tề Cảnh Long vẫy tay, "Cách nghĩ thế nào và cách làm như thế nào, vẫn là hai việc khác nhau."
+Tề Cảnh Long xua tay: "Nghĩ thế nào, làm thế nào, vẫn là hai chuyện khác nhau."
 
-Trần Bình An do dự một chút, thử dò hỏi: "Có thể mời ngài uống rượu không?"
+Trần Bình An do dự, thử hỏi: "Có thể mời tiên sinh uống rượu không?"
 
-Tề Cảnh Long suy nghĩ một chút, bất đắc dĩ lắc đầu: "Ta vẫn không uống rượu."
+Tề Cảnh Long nghĩ một chút, bất đắc dĩ lắc đầu: "Ta vẫn không uống rượu."
 
-Trần Bình An cảm thấy có chút ngại ngùng.
+Trần Bình An hơi ngượng.
 
-Tùy Cảnh Rừng thấy cảnh này, so với những cuộc trò chuyện giữa hai người, lại mê hoặc hơn nhiều.
+Tùy Cảnh Rừng thấy cảnh này, còn khó hiểu hơn cả cuộc trò chuyện của hai người vừa rồi.
 
-Trần Bình An kéo tay người kia, "Không có gì, chỉ cần có một lần uống rượu, về sau sẽ không cần bị ràng buộc nữa."
+Trần Bình An kéo tay hắn: "Không sao. Uống một lần, về sau sẽ chẳng câu nệ nữa."
 
-Tề Cảnh Long khó xử nói: "Được rồi, nếu không được, Trần tiên sinh uống rượu, ta thì uống trà."
+Tề Cảnh Long khó xử: "Thôi được, nếu không uống nổi thì Trần tiên sinh uống rượu, ta uống trà."
 
-Ba người đến tòa kè lao ra, khung cảnh bên sông lớn ngoài nhà thuỷ tạ.
+Ba người tới tòa thủy tạ nhô ra bên bờ sông lớn [?].
 
-Hai bên ngồi đối diện trên ghế dài, gió từ sông lớn thổi nhẹ, Tùy Cảnh Rừng cầm gậy leo núi, đứng ở bên ngoài nhà thuỷ tạ, không đi vào.
+Hai người ngồi đối diện trên ghế dài, gió sông nhè nhẹ thổi tới. Tùy Cảnh Rừng cầm gậy leo núi, đứng ngoài thủy tạ, không vào.
 
-Tề Cảnh Long giải thích: "Ta có một người bạn, tên là Lục Chuyết, là đệ tử của Vương Độn, lão tiền bối ở Sái Tảo sơn trang. Hắn đã gửi một bức thư nói rằng ta có thể trò chuyện với ngươi, vì vậy ta đã đến thử vận may."
+Tề Cảnh Long giải thích: "Ta có bằng hữu tên Lục Chuyết, đệ tử của Vương Độn lão tiền bối ở Sái Tảo sơn trang. Hắn gửi thư, bảo ta có thể trò chuyện với ngươi, nên ta tới thử vận may."
 
-Trần Bình An bỏ mũ rộng vành sang một bên, gật đầu: "Ngươi và người nữ quan kia trong cuộc chiến tại Chỉ Lệ sơn, đã xảy ra như thế nào? Ta cảm thấy hai người có lẽ đồng điệu, dù không thành bạn bè, cũng chẳng lý do gì để xảy ra một cuộc chiến sinh tử."
+Trần Bình An đặt nón sang bên, gật đầu: "Trận chiến giữa ngươi với vị nữ quan kia ở Chỉ Lệ sơn là thế nào? Ta thấy hai người có lẽ hợp tính, dù không thành bằng hữu cũng chẳng đến mức sinh tử tương tranh."
 
-Tề Cảnh Long cười nói: "Chỉ là hiểu lầm thôi. Nàng gặp một bọn giang hồ xấu xa, muốn tiêu diệt sạch sẽ, ta thấy có những người vô tội không đáng phải chết, nên mới ngăn cản. Sau đó là một trận ước chiến tại Chỉ Lệ sơn, nhưng thực ra chỉ là chuyện nhỏ. Nhưng chuyện nhỏ ấy lại không thể khiến ta và nàng lùi bước, cuối cùng đã không hiểu rõ đại đạo tranh chấp, không biết phải làm thế nào."
+Tề Cảnh Long cười: "Chỉ là hiểu lầm. Nàng gặp một đám giang hồ làm ác, muốn giết sạch. Ta thấy trong đó có người vô tội, tội chưa đáng chết, nên ngăn lại. Rồi mới có trận hẹn đấu ở Chỉ Lệ sơn. Thật ra chỉ là chuyện nhỏ, nhưng chuyện nhỏ ấy lại khiến cả ta lẫn nàng không thể lùi bước, rốt cuộc thành đại đạo tranh chấp mà chẳng biết phải làm sao [?]."
 
-Tề Cảnh Long hỏi: "Thế nào, tiên sinh và nàng là bằng hữu sao?"
+Hắn hỏi: "Sao vậy, tiên sinh là bằng hữu của nàng?"
 
-Trần Bình An gật đầu: "Đã từng gặp nhau tại một phúc địa để tu luyện."
+Trần Bình An gật đầu: "Từng gặp nhau lúc tu luyện trong một phúc địa."
 
-Tề Cảnh Long cười đùa: "Tiên sinh sẽ không vì bằng hữu mà can thiệp, đánh ta một lần đi?"
+Tề Cảnh Long đùa: "Tiên sinh không vì bằng hữu mà xen vào, đánh ta một trận đấy chứ?"
 
-Trần Bình An cười, lắc đầu: "Ai nói bằng hữu thì nhất định phải làm đúng sự tình suốt đời."
+Trần Bình An cười lắc đầu: "Ai bảo bằng hữu thì cả đời nhất định làm đúng mọi chuyện?"
 
-Cho dù là cực kỳ kính trọng Tống Vũ Thiêu tiền bối, ngày ấy ở ngôi chùa đổ nát, cũng không thể không biết lý do "Giết một trăm sơn tinh ma quỷ, tối đa oan uổng một vị, cái này cũng không xuất kiếm, chẳng lẽ lưu lại tai họa", vẫn phải một kiếm chém đầu hồ mị?
+Ngay cả Tống Vũ Thiêu tiền bối mà hắn vô cùng kính trọng, hôm ở ngôi chùa đổ nát, chẳng phải cũng giữ lý lẽ "Giết một trăm sơn tinh quỷ quái, nhiều lắm chỉ oan một kẻ; thế còn không xuất kiếm, chẳng lẽ để lại tai họa", quyết một kiếm chém đầu hồ mị đó sao [?]?
 
-Trần Bình An ngày ấy đã ra tay ngăn cản, còn ngăn cản cả một kiếm của Tống lão tiền bối.
+Ngày ấy Trần Bình An đã ra tay ngăn cản, chặn cả một kiếm của Tống lão tiền bối.
 
-Về phần Thư Giản hồ Cố Xán, thì càng không cần phải nhắc đến.
+Còn Cố Xán ở Thư Giản hồ, càng chẳng cần nói.
 
-Nhiều lý tưởng, có thể mang lại cho con người sự yên ổn, nhưng cũng có rất nhiều lý tưởng lại khiến người ta cảm thấy nặng nề.
+Có nhiều đạo lý khiến người ta an lòng, cũng có nhiều đạo lý khiến lòng người nặng trĩu.
 
-Bên ngoài nhà thuỷ tạ, trời lại có dấu hiệu mưa, trên mặt sông sương mù mịt mờ.
+Ngoài thủy tạ, trời lại sắp mưa, mặt sông mờ mịt hơi sương.
 
-Tề Cảnh Long nói không uống rượu chỉ uống trà, bất quá chỉ là cái cớ, bởi vì hắn chưa từng có cơ hội dùng vật chất để cảm nhận, nên mỗi lần xuống núi, chỉ có một cây phi kiếm thân thuộc làm bạn.
+Tề Cảnh Long nói không uống rượu, chỉ uống trà, thật ra cũng là cái cớ. Hắn chưa từng có dịp dùng vật ngoài thân để cảm nhận [?], mỗi lần xuống núi chỉ có một thanh phi kiếm bản mệnh làm bạn.
 
-Trần Bình An thấy hắn không muốn uống rượu, cũng chỉ cảm thấy mời rượu của mình có chút ngượng, không buộc phải đãi người ta nữa.
+Thấy hắn không muốn uống, Trần Bình An cảm thấy mình mời rượu hơi ngượng, cũng không cố ép khách.
 
-Tề Cảnh Long nhìn về phía mặt sông, mỉm cười nói: "Trời tối mưa phùn, mây mù bí ẩn khó chịu."
+Tề Cảnh Long nhìn mặt sông, cười nói: "Trời tối, mưa phùn, mây mù che kín, thật khó chịu."
 
-Trần Bình An uống rượu, quay đầu lại nói: "Rốt cuộc sau cơn mưa trời lại sáng."
+Trần Bình An uống rượu, quay đầu: "Rốt cuộc mưa rồi trời sẽ sáng."
 
-Tề Cảnh Long gật nhẹ đầu, chỉ là ngẩng đầu: "Nhưng mà chỉ sợ thời tiết sẽ thay đổi."
+Tề Cảnh Long khẽ gật đầu, ngẩng nhìn: "Chỉ sợ trời đổi."
 
-Trần Bình An mỉm cười nói: "Nhà thuỷ tạ nhỏ bé này có hai cái, biết đâu bên ngoài còn có thêm nhà thuỷ tạ nữa, có thể gặp gỡ ba người, huống chi trời đất bao la, sợ gì."
+Trần Bình An mỉm cười: "Trong thủy tạ nhỏ này đã có hai người, biết đâu bên ngoài còn thủy tạ khác, có thể gặp thêm ba người [?]. Huống chi trời đất bao la, sợ gì."
 
-Tề Cảnh Long ngồi nghiêm chỉnh, hai tay nhẹ nhàng đặt trên đầu gối, lúc này ánh mắt sáng lên, vươn tay ra, "Mang rượu tới!"
+Tề Cảnh Long ngồi ngay ngắn, hai tay đặt trên đầu gối. Bấy giờ mắt hắn sáng lên, đưa tay: "Mang rượu tới!"
 
-Trần Bình An ném một bầu rượu qua, ngồi xếp bằng, mặt tươi cười rạng rỡ nói: "Cái bầu rượu này, coi như cầu chúc Lưu tiên sinh phá cảnh đưa thân trên năm cảnh."
+Trần Bình An ném qua một bầu rượu, ngồi xếp bằng, cười rạng rỡ: "Bầu này coi như chúc Lưu tiên sinh phá cảnh, bước vào năm cảnh giới trên."
 
-"Cùng nàng tại Chỉ Lệ sơn một trận chiến, thu hoạch thật lớn, quả thực có chút hy vọng."
+"Đánh với nàng một trận ở Chỉ Lệ sơn, thu hoạch rất lớn, quả thật cũng có chút hy vọng."
 
-Tề Cảnh Long cũng học theo, ngồi xếp bằng, nhấp một miếng rượu, nhíu mày không ngừng, "Quả nhiên không uống rượu là đúng đắn."
+Tề Cảnh Long cũng ngồi xếp bằng, nhấp một ngụm, nhíu mày mãi: "Quả nhiên không uống rượu mới đúng."
 
-Trần Bình An cười nói: "Đợi ngươi uống thêm vài bầu, nếu còn không thích uống, coi như ta thua."
+Trần Bình An cười: "Đợi uống thêm vài bầu, nếu ngươi vẫn không thích thì coi như ta thua."
 
-Tề Cảnh Long lắc đầu không thôi, nhưng chỉ uống một ngụm nhỏ.
+Tề Cảnh Long lắc đầu liên tục, chỉ uống thêm một ngụm nhỏ.
 
-Trần Bình An đột nhiên hỏi: "Lưu tiên sinh năm nay bao nhiêu tuổi?"
+Trần Bình An chợt hỏi: "Năm nay Lưu tiên sinh bao nhiêu tuổi?"
 
-Chẳng hiểu sao, khi nhìn thấy vị này không phải là Nho gia đệ tử Bắc Câu Lô Châu mà lại nhớ tới năm đó Ngẫu Hoa phúc địa của Nam Uyển quốc, quốc sư Chủng Thu, và cả đứa trẻ trong con hẻm nhỏ, Tào Tình Lãng.
+Chẳng hiểu sao, gặp người Bắc Câu Lô Châu không phải đệ tử Nho gia này, hắn lại nhớ tới quốc sư Chủng Thu ở Nam Uyển quốc trong Ngẫu Hoa phúc địa, cùng đứa trẻ nơi con hẻm nhỏ, Tào Tình Lãng.
 
-Tào Tình Lãng dù sao cũng là người mà năm đó hắn rất muốn đưa ra khỏi Ngẫu Hoa phúc địa.
+Dù sao, Tào Tình Lãng cũng là người năm ấy hắn rất muốn đưa ra khỏi Ngẫu Hoa phúc địa.
 
-Tề Cảnh Long cười nói: "Nếu ở nhân gian phố phường, chính là năm trên tám mươi tuổi."
+Tề Cảnh Long cười: "Tính theo tuổi ngoài phố phường nhân gian, thì đã ngoài tám mươi."
 
-Bên ngoài nhà thuỷ tạ, Tùy Cảnh Rừng thì thầm, lão tiền bối đã từng nói với nàng về cảnh giới thần tiên trên núi, nhưng lại còn trẻ như vậy mà đã đạt được Ngọc Phác cảnh?!
+Ngoài thủy tạ, Tùy Cảnh Rừng thầm nhủ, lão tiền bối từng giảng cho nàng cảnh giới thần tiên trên núi, vậy mà người này còn trẻ đến thế đã đạt cảnh giới Ngọc Phác sao?!
 
-Thực ra không có gì kỳ quái.
+Thật ra cũng chẳng có gì lạ.
 
-Bởi lẽ giữa nhà thuỷ tạ "người đọc sách", chính là kiếm tu Lưu Cảnh Long của Bắc Câu Lô Châu.
+Bởi "người đọc sách" trong thủy tạ ấy chính là kiếm tu Lưu Cảnh Long của Bắc Câu Lô Châu.
 
-Một người mà từng khiến cho thiên hạ mạnh nhất sáu cảnh vũ phu Dương Ngưng Chân gần như tuyệt vọng.
+Người từng khiến Dương Ngưng Chân, võ phu lục cảnh mạnh nhất thiên hạ, gần như tuyệt vọng.
 
-Trần Bình An suy nghĩ một chút, gật đầu tán thành: "Lợi hại, lợi hại thật."
+Trần Bình An nghĩ một chút, gật đầu tán thưởng: "Lợi hại, thật lợi hại."
 
-Tề Cảnh Long sắc mặt cổ quái, đúng là uống một ngụm mạnh, lau miệng cười nói: "Ngươi vẫn chưa đến ba mươi tuổi mà đã chửi người thế này sao?"
+Sắc mặt Tề Cảnh Long cổ quái. Hắn uống một ngụm lớn, lau miệng cười: "Ngươi còn chưa tới ba mươi, đã mắng người như thế sao?"
 
-Tùy Cảnh Rừng như bị sét đánh, quay đầu nhìn về phía nhà thuỷ tạ, ngơ ngác hỏi: "Tiền bối không phải đã nói mình ba trăm tuổi sao?"
+Tùy Cảnh Rừng như bị sét đánh, ngoảnh đầu nhìn thủy tạ, ngơ ngác hỏi: "Chẳng phải tiền bối nói mình ba trăm tuổi sao?"
 
-Trần Bình An trợn tròn mắt: "Ta đã nói vậy sao?"
+Trần Bình An tròn mắt: "Ta có nói thế à?"
 
-Tùy Cảnh Rừng mặt mũi trở nên nghiêm trọng, trầm giọng nói: "Ít nhất hai lần!"
+Tùy Cảnh Rừng nghiêm mặt, trầm giọng: "Ít nhất hai lần!"
 
-Trần Bình An uống một hớp rượu, "Cái này không tốt lắm đâu."
+Trần Bình An uống một hớp: "Chuyện này không hay lắm."
 
-Tề Cảnh Long cũng theo đó mà uống một hớp, ánh mắt nhìn đối diện thanh sam kiếm khách và liếc nhìn bên ngoài mũ có vải che mặt nữ tử, hắn cười to nói: "Phải, không tốt lắm đâu."
+Tề Cảnh Long cũng uống theo, nhìn kiếm khách thanh sam đối diện rồi liếc nữ tử đội mũ che mặt bên ngoài, bật cười lớn: "Đúng, không hay lắm."
