@@ -6,25 +6,25 @@ Nhưng muốn từ Kinh Nam quốc đi về phía bắc, sang Yến quốc, lạ
 
 Dù vậy, hai người vẫn chọn con đường qua cửa ải nơi biên giới.
 
-Nhớ tới chuyện trước kia Ngũ Lăng quốc phái người thám thính Kinh Nam quốc, Tùy Cảnh Rừng có phần nghi ngờ.
+Nhớ tới chuyện trước kia Ngũ Lăng quốc phái người thám thính Kinh Nam quốc, Tùy Cảnh Trừng có phần nghi ngờ.
 
 Hôm ấy, lúc hoàng hôn buông xuống, hai người cưỡi ngựa lên một sườn núi, trông thấy ngôi làng ven sông phía dưới đang bập bùng lửa cháy.
 
-Tùy Cảnh Rừng cứ ngỡ tiền bối sẽ lặng lẽ quan sát một lát rồi đi vòng qua. Không ngờ một người một ngựa đã lao xuống sườn núi, chạy thẳng về phía ngôi làng. Nàng thoáng sững sờ, vội vung roi đuổi theo.
+Tùy Cảnh Trừng cứ ngỡ tiền bối sẽ lặng lẽ quan sát một lát rồi đi vòng qua. Không ngờ một người một ngựa đã lao xuống sườn núi, chạy thẳng về phía ngôi làng. Nàng thoáng sững sờ, vội vung roi đuổi theo.
 
 Vừa vào làng, cảnh tượng trước mắt chẳng khác nào địa ngục trần gian. Thi thể bị hành hạ nằm khắp nơi, y phục của phần lớn nữ tử đều rách nát. Nhiều nam tử trẻ tuổi mang những vết thương sâu hoắm, máu chảy không ngừng. Có người giãy giụa, cố gượng dậy, kéo lê một vệt máu rồi chết vì mất máu quá nhiều. Cảnh tượng thê thảm không sao tả xiết. Đám trẻ con còn chịu số phận thảm khốc hơn.
 
-Tùy Cảnh Rừng ngã xuống khỏi lưng ngựa, nôn thốc nôn tháo.
+Tùy Cảnh Trừng ngã xuống khỏi lưng ngựa, nôn thốc nôn tháo.
 
 Trần Bình An nhắm mắt lắng nghe. Một lát sau, hắn khẽ nói: "Không còn người sống."
 
-Tùy Cảnh Rừng không nghe rõ lời hắn, chỉ thấy trong bụng cuộn lên từng cơn.
+Tùy Cảnh Trừng không nghe rõ lời hắn, chỉ thấy trong bụng cuộn lên từng cơn.
 
-Trần Bình An quỳ xuống, đưa tay chạm vào vết máu trên đất, vê nhẹ rồi hất đi [?]. Hắn đứng dậy nhìn quanh, sau đó nhảy lên nóc nhà, lần theo dấu chân và dấu vó ngựa. Ánh mắt hắn dõi mãi về phía xa. Cuối cùng, hắn đáp xuống đất, tháo hồ lô dưỡng kiếm đưa cho Tùy Cảnh Rừng: "Chúng ta đuổi theo bọn chúng. Nhớ bảo vệ mình cho tốt. Để ngươi ở lại đây một mình chưa chắc đã an toàn. Cố theo kịp ta, ngựa hết sức thì đổi con khác."
+Trần Bình An quỳ xuống, đưa tay chạm vào vết máu trên đất, vê nhẹ rồi hất đi [?]. Hắn đứng dậy nhìn quanh, sau đó nhảy lên nóc nhà, lần theo dấu chân và dấu vó ngựa. Ánh mắt hắn dõi mãi về phía xa. Cuối cùng, hắn đáp xuống đất, tháo hồ lô dưỡng kiếm đưa cho Tùy Cảnh Trừng: "Chúng ta đuổi theo bọn chúng. Nhớ bảo vệ mình cho tốt. Để ngươi ở lại đây một mình chưa chắc đã an toàn. Cố theo kịp ta, ngựa hết sức thì đổi con khác."
 
 Nói rồi, Trần Bình An lao đi.
 
-Tùy Cảnh Rừng nén cơn choáng váng, nhảy lên lưng ngựa, thúc ngựa chạy như điên.
+Tùy Cảnh Trừng nén cơn choáng váng, nhảy lên lưng ngựa, thúc ngựa chạy như điên.
 
 May mà bóng thanh sam phía trước không mải miết truy đuổi, vẫn để ý tới nàng cùng sức ngựa.
 
@@ -32,7 +32,7 @@ Gần nửa canh giờ sau, tới một chỗ nước cạn trong sơn cốc, ha
 
 Tiền bối nói: "Đuổi kịp rồi. Tiếp theo đừng tiếc sức ngựa, cứ theo sát ta, tốt nhất đừng cách quá hai trăm bước. Nhưng phải cẩn thận, không ai biết sẽ xảy ra chuyện gì."
 
-Tùy Cảnh Rừng lập tức đổi sang con ngựa khác, buộc hồ lô dưỡng kiếm bên hông rồi tăng tốc.
+Tùy Cảnh Trừng lập tức đổi sang con ngựa khác, buộc hồ lô dưỡng kiếm bên hông rồi tăng tốc.
 
 Kỵ binh nhẹ có phép tắc nghiêm ngặt trong chuyện ăn uống và chăm sóc ngựa.
 
@@ -50,7 +50,7 @@ Kỵ binh Bắc Yến nhanh chóng tản ra, bỏ cung nỏ rút đao, cũng có
 
 Một viên kỵ tướng cầm trường thương thúc ngựa lao tới, đâm mạnh về phía bóng thanh sam. Trần Bình An thuận tay chém vào cổ một con ngựa bên cạnh, lập tức thu đao, mượn thế lùi chém giết tên kỵ binh phía sau. Mũi trường thương vừa lúc đâm tới trước người hắn.
 
-Tùy Cảnh Rừng vừa định hít sâu một hơi, hơi thở đã nghẹn lại.
+Tùy Cảnh Trừng vừa định hít sâu một hơi, hơi thở đã nghẹn lại.
 
 Ngay sau đó, nàng thấy bóng thanh sam chẳng biết bằng cách nào nghiêng người giữa không trung, đón thẳng mũi thương, mặc cho nó đâm vào ngực. Hắn xoay người, khiến cán thương xoắn mạnh trong tay viên kỵ tướng. Tên kia gầm lên, hai bàn tay bị nghiền nát, máu thịt be bét mà vẫn không chịu buông. Cán thương tiếp tục xoay, cọ xát dữ dội đến mức lộ cả xương trắng. Biết không ổn, viên kỵ tướng rốt cuộc đành bỏ thương. Nhưng người mặc thanh sam đã đứng vững trên lưng ngựa, một đao đâm thủng cổ hắn.
 
@@ -92,7 +92,7 @@ Nàng chậm rãi lướt tới. Hai bên trái phải bỗng xuất hiện hai 
 
 Hơn trăm nữ tử cầm đoản đao từ bốn phương tám hướng ào tới, vây đánh người trẻ tuổi mặc thanh sam.
 
-Chỉ có một nữ tử lướt khỏi chiến trường, chân điểm xuống như chuồn chuồn đạp nước, liên tục đổi hướng, lao về phía Tùy Cảnh Rừng trên lưng ngựa. Một luồng kiếm quang từ hồ lô dưỡng kiếm bay ra, xuyên thủng đầu nàng ta. Một tiếng nổ vang lên, nữ tử hóa thành làn khói xanh.
+Chỉ có một nữ tử lướt khỏi chiến trường, chân điểm xuống như chuồn chuồn đạp nước, liên tục đổi hướng, lao về phía Tùy Cảnh Trừng trên lưng ngựa. Một luồng kiếm quang từ hồ lô dưỡng kiếm bay ra, xuyên thủng đầu nàng ta. Một tiếng nổ vang lên, nữ tử hóa thành làn khói xanh.
 
 Phía bên kia, cuộc chém giết vô cùng khốc liệt.
 
@@ -128,7 +128,7 @@ Tên sát thủ thấp bé đang ngồi xổm dưới đất gật đầu, đứ
 
 Nữ tử hiển nhiên đã bị trọng thương, nói: "Không có ta câu giờ, ngươi vẽ xong phù trận được sao?!"
 
-Từ hồ lô dưỡng kiếm bên hông Tùy Cảnh Rừng, mười lăm thanh phi kiếm lướt ra [?].
+Từ hồ lô dưỡng kiếm bên hông Tùy Cảnh Trừng, mười lăm thanh phi kiếm lướt ra [?].
 
 Kiếm quang nhắm thẳng thái dương tên sát thủ thấp bé.
 
@@ -194,15 +194,15 @@ Phi kiếm của kiếm tu ở ngưỡng cửa cảnh giới Long Môn, dù sao 
 
 Tay phải bị thần thông giam cầm, vai trái lại trọng thương, thêm phù trận quấn quanh người khiến hồn phách rung chuyển. Vị kiếm tiên mặc thanh sam đã không còn sức phản kích.
 
-Nước mắt Tùy Cảnh Rừng chảy đầy mặt. Nàng ra sức vỗ hồ lô dưỡng kiếm: "Mau lên, đi cứu chủ nhân của các ngươi! Thử một lần thôi cũng được mà!"
+Nước mắt Tùy Cảnh Trừng chảy đầy mặt. Nàng ra sức vỗ hồ lô dưỡng kiếm: "Mau lên, đi cứu chủ nhân của các ngươi! Thử một lần thôi cũng được mà!"
 
 Nhưng hồ lô dưỡng kiếm bên hông nàng vẫn im lìm, không chút phản ứng.
 
-Không phải Tùy Cảnh Rừng tiếc mạng, không dám xông lên, mà nàng biết rõ, mình đi tới chỉ khiến tiền bối thêm nguy hiểm.
+Không phải Tùy Cảnh Trừng tiếc mạng, không dám xông lên, mà nàng biết rõ, mình đi tới chỉ khiến tiền bối thêm nguy hiểm.
 
 Nàng bắt đầu hối hận vì sự lạnh lùng và tính toán của bản thân.
 
-Nàng cắn răng thúc ngựa lao đi, tế ra ba chiếc trâm cài. Cùng lắm Tùy Cảnh Rừng này chết đi, tuyệt đối không thể để hắn phân tâm, làm lỡ việc giết địch thoát thân của tiền bối.
+Nàng cắn răng thúc ngựa lao đi, tế ra ba chiếc trâm cài. Cùng lắm Tùy Cảnh Trừng này chết đi, tuyệt đối không thể để hắn phân tâm, làm lỡ việc giết địch thoát thân của tiền bối.
 
 Khắp người đẫm máu, hồn phách chịu đủ giày vò, Trần Bình An vẫn hất tay trái, ném thanh phi kiếm sắp không giữ nổi trong lòng bàn tay ra, cười hỏi: "Chỉ thế thôi sao? Còn sát chiêu nào khác không?"
 
@@ -274,41 +274,41 @@ Thanh Kiếm Tiên bay về.
 
 Hắn đưa tay trái nắm lấy, chống kiếm hít sâu một hơi rồi ngoảnh đầu phun ra một ngụm máu bầm.
 
-Tùy Cảnh Rừng thúc ngựa chạy tới, xoay người xuống ngựa.
+Tùy Cảnh Trừng thúc ngựa chạy tới, xoay người xuống ngựa.
 
 Trần Bình An quay đầu: "Không sao."
 
 Nàng mở to mắt nhìn hắn. Trần Bình An cười nói: "Đối phương không còn hậu thủ."
 
-Bấy giờ Tùy Cảnh Rừng mới không nén nổi nước mắt. Nhìn vị kiếm tiên mặc thanh sam, nàng nức nở: "Chẳng phải tiền bối nói sa trường có quy củ của sa trường, giang hồ có quy tắc của giang hồ sao? Sao còn phải xen vào chuyện người khác? Nếu không can thiệp, hẳn đã chẳng có trận chém giết này…"
+Bấy giờ Tùy Cảnh Trừng mới không nén nổi nước mắt. Nhìn vị kiếm tiên mặc thanh sam, nàng nức nở: "Chẳng phải tiền bối nói sa trường có quy củ của sa trường, giang hồ có quy tắc của giang hồ sao? Sao còn phải xen vào chuyện người khác? Nếu không can thiệp, hẳn đã chẳng có trận chém giết này…"
 
 Trần Bình An ngồi xổm bên mép nước, dùng tay trái vốc nước rửa mặt. Thanh Kiếm Tiên dựng bên cạnh. Nhìn dòng nước chảy, hắn bình thản nói: "Ta đã nói với ngươi rồi, giảng bao nhiêu đạo lý phức tạp như vậy là để làm gì? Chính là để có thể xuất quyền, xuất kiếm."
 
-Tùy Cảnh Rừng ngồi xổm bên hắn, hai tay ôm mặt, khẽ nức nở.
+Tùy Cảnh Trừng ngồi xổm bên hắn, hai tay ôm mặt, khẽ nức nở.
 
 Trần Bình An nói: "Vận khí ngươi tốt, thử lục tìm thi thể đám thích khách kia xem, biết đâu nhặt được pháp bảo tiên gia."
 
-Tùy Cảnh Rừng bật cười trong nước mắt. Nàng lau mặt, đứng dậy chạy đi tìm chiến lợi phẩm.
+Tùy Cảnh Trừng bật cười trong nước mắt. Nàng lau mặt, đứng dậy chạy đi tìm chiến lợi phẩm.
 
 Chừng một nén nhang sau, hai người cưỡi ngựa rời sơn cốc, quay về phía ngôi làng.
 
 Trần Bình An khẽ cử động người. Cánh tay đã bắt đầu có lại cảm giác.
 
-Sắc mặt Tùy Cảnh Rừng sáng sủa hơn nhiều. Nàng hỏi: "Tiền bối, chúng ta quay lại làm gì?"
+Sắc mặt Tùy Cảnh Trừng sáng sủa hơn nhiều. Nàng hỏi: "Tiền bối, chúng ta quay lại làm gì?"
 
 Trần Bình An đáp: "Để dân làng được chết toàn thây."
 
-Tùy Cảnh Rừng gật đầu thật mạnh.
+Tùy Cảnh Trừng gật đầu thật mạnh.
 
 Rồi nàng lại có chút áy náy.
 
-Trần Bình An chậm rãi nói: "Đừng nghĩ vậy. Sức người có hạn. Như cha ngươi đứng nhìn từ xa, bản thân ông ấy không có lỗi, người ngoài không cần khắt khe trách móc đến thế. Có những người tâm ý vốn không sai, nhưng khả năng lại cách xa nhau [?]. Tùy Cảnh Rừng, ta thấy mình không có gì phải hối tiếc. Nhớ lấy, gặp kiếp nạn, ai cũng có lúc hữu tâm vô lực. Nếu còn sống được, về sau đừng quá áy náy. Bằng không, sớm muộn tâm cảnh cũng rạn nứt."
+Trần Bình An chậm rãi nói: "Đừng nghĩ vậy. Sức người có hạn. Như cha ngươi đứng nhìn từ xa, bản thân ông ấy không có lỗi, người ngoài không cần khắt khe trách móc đến thế. Có những người tâm ý vốn không sai, nhưng khả năng lại cách xa nhau [?]. Tùy Cảnh Trừng, ta thấy mình không có gì phải hối tiếc. Nhớ lấy, gặp kiếp nạn, ai cũng có lúc hữu tâm vô lực. Nếu còn sống được, về sau đừng quá áy náy. Bằng không, sớm muộn tâm cảnh cũng rạn nứt."
 
-Tùy Cảnh Rừng do dự, ngoảnh nhìn phía sau: "Tiền bối, tuy có chút thu hoạch, nhưng bị thương nặng như thế, ngươi không hối hận sao?"
+Tùy Cảnh Trừng do dự, ngoảnh nhìn phía sau: "Tiền bối, tuy có chút thu hoạch, nhưng bị thương nặng như thế, ngươi không hối hận sao?"
 
 Trần Bình An chỉ về phía sau: "Chuyện này, ngươi nên hỏi bọn họ."
 
-Tùy Cảnh Rừng không nhìn theo tay hắn, chỉ ngẩn ngơ nhìn hắn.
+Tùy Cảnh Trừng không nhìn theo tay hắn, chỉ ngẩn ngơ nhìn hắn.
 
 Bên ngôi làng ấy.
 
@@ -316,39 +316,39 @@ Từ hoàng hôn đến đêm khuya, rồi trời lại sáng.
 
 Hai người chậm rãi cưỡi ngựa rời đi, tiếp tục lên phía bắc.
 
-Tùy Cảnh Rừng im lặng rất lâu. Mãi đến khi thấy tiền bối tháo hồ lô dưỡng kiếm uống rượu, nàng mới hỏi: "Tiền bối, sao dọc đường ngươi lại dạy ta nhiều chuyện như vậy?"
+Tùy Cảnh Trừng im lặng rất lâu. Mãi đến khi thấy tiền bối tháo hồ lô dưỡng kiếm uống rượu, nàng mới hỏi: "Tiền bối, sao dọc đường ngươi lại dạy ta nhiều chuyện như vậy?"
 
 Trần Bình An không đáp, hỏi lại: "Ngươi thấy Vương Độn lão tiền bối ở Sái Tảo sơn trang thế nào?"
 
-Tùy Cảnh Rừng đáp: "Rất tốt."
+Tùy Cảnh Trừng đáp: "Rất tốt."
 
 Trần Bình An hỏi: "Vậy ngươi thấy các đệ tử do Vương Độn tiền bối dạy dỗ ra sao?"
 
-Tùy Cảnh Rừng nói: "Tuy chưa quen ba người ấy, nhưng ít nhất nhìn qua cũng không tệ."
+Tùy Cảnh Trừng nói: "Tuy chưa quen ba người ấy, nhưng ít nhất nhìn qua cũng không tệ."
 
 Trần Bình An gật đầu: "Vậy ngươi có nghĩ, có một Vương Độn, chẳng lẽ chỉ là Sái Tảo sơn trang thêm một vị trang chủ thôi sao? Ông ấy ảnh hưởng tới giang hồ Ngũ Lăng quốc, thậm chí cả Ngũ Lăng quốc, nhiều đến mức nào?"
 
 Hắn nói tiếp: "Cho nên ta nghĩ, sau này Ngũ Lăng quốc có thêm một tu sĩ, dù nàng không thường ở trong gia tộc, nhưng khi thay lão thị lang Tùy Tân Vũ, hoặc trở thành người đứng đầu đời tiếp theo, nàng vẫn là chỗ dựa thật sự của cả nhà. Khi ấy, liệu gia tộc có thể gây dựng được gia phong thật sự thuần chính hay không?"
 
-Tùy Cảnh Rừng nhìn hắn.
+Tùy Cảnh Trừng nhìn hắn.
 
 Trần Bình An nói: "Ta nghĩ là có."
 
 Cuối cùng, hắn mỉm cười: "Ta có núi Lạc Phách, ngươi có gia tộc Tùy thị. Làm người không thể quá tự phụ, cũng đừng quá tự ti. Chúng ta khó mà lập tức thay đổi thế đạo, nhưng chẳng phải vẫn đang từng chút một thay đổi nó đó sao?"
 
-Tùy Cảnh Rừng gật đầu.
+Tùy Cảnh Trừng gật đầu.
 
 Một lát sau, Trần Bình An quay đầu lại, dường như có chút băn khoăn.
 
-Tùy Cảnh Rừng không hiểu, hỏi: "Tiền bối, sao vậy?"
+Tùy Cảnh Trừng không hiểu, hỏi: "Tiền bối, sao vậy?"
 
 Trần Bình An lắc đầu, buộc lại hồ lô dưỡng kiếm: "Lúc trước ngươi định liều chết, đương nhiên không tốt. Nhưng ta còn muốn nói một chuyện hơi khô khan, nghe cũng khó hiểu: muốn chết thì phải chịu khổ, còn sống vì người khác lại chỉ khiến mình càng khó chịu [?]. Đừng để chuyện này thành gánh nặng trong lòng ngươi."
 
-Tùy Cảnh Rừng bỗng đỏ mặt, lớn tiếng hỏi: "Tiền bối, ta có thể thích ngươi không?!"
+Tùy Cảnh Trừng bỗng đỏ mặt, lớn tiếng hỏi: "Tiền bối, ta có thể thích ngươi không?!"
 
 Sắc mặt Trần Bình An vẫn tự nhiên, lòng phẳng như nước: "Thích ta là chuyện của ngươi. Dù sao ta cũng sẽ không thích ngươi."
 
-Tùy Cảnh Rừng như trút được gánh nặng, cười nói: "Không sao!"
+Tùy Cảnh Trừng như trút được gánh nặng, cười nói: "Không sao!"
 
 Trần Bình An dường như nhớ tới chuyện gì thú vị, nở nụ cười rạng rỡ. Không ngoảnh đầu, hắn giơ ngón tay cái về phía nàng: "Mắt nhìn không tệ."
 

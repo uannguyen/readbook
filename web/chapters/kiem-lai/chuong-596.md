@@ -248,7 +248,7 @@ Thời gian này hắn đã luyện khá nhiều, nhưng thể phách còn quá 
 
 Hoàng hôn hôm nay, Trần Bình An ngồi bên rương trúc, lại vẽ mấy loại bùa thông thường.
 
-Hắn đã liên tiếp vẽ bảy tám trăm đạo phù lục, theo những bí thuật Tùy Cảnh Rừng tìm được trên thi thể đám thích khách Cát Lộc sơn. Trong đó có ba loại uy lực sát phạt khá tốt, hắn học xong dùng được ngay. Một loại là bùa Thiên Bộ Đình Ty, thuộc bàng môn lôi pháp, đương nhiên không phải lôi phù chính tông, nhưng số lượng hắn vẽ ra cũng chẳng thể xem thường.[?] Một loại nữa là bùa sông lớn, thuộc thủy phù; cuối cùng là bùa dúm đất, thuộc thổ phù.[?]
+Hắn đã liên tiếp vẽ bảy tám trăm đạo phù lục, theo những bí thuật Tùy Cảnh Trừng tìm được trên thi thể đám thích khách Cát Lộc sơn. Trong đó có ba loại uy lực sát phạt khá tốt, hắn học xong dùng được ngay. Một loại là bùa Thiên Bộ Đình Ty, thuộc bàng môn lôi pháp, đương nhiên không phải lôi phù chính tông, nhưng số lượng hắn vẽ ra cũng chẳng thể xem thường.[?] Một loại nữa là bùa sông lớn, thuộc thủy phù; cuối cùng là bùa dúm đất, thuộc thổ phù.[?]
 
 Giấy vàng không đắt, ở trấn nhỏ cũng dễ mua. So với số tiền thần tiên hay đan sa tiên gia phải tiêu hao, giá giấy chẳng đáng bao nhiêu. Huống chi lúc ở gần phố Xuân Lộ, hắn còn mua rất nhiều chu sa trên núi, vẽ một nghìn đạo phù cũng vẫn đủ dùng.
 

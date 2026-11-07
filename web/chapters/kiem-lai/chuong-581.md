@@ -4,15 +4,15 @@ Trên Trà Mã cổ đạo, đoàn người cưỡi ngựa quay đầu, chậm r
 
 Tào Phú kinh ngạc hỏi:
 
-- Tùy bá bá, Cảnh Rừng đang làm gì vậy?
+- Tùy bá bá, Cảnh Trừng đang làm gì vậy?
 
 Lão thị lang Tùy Tân Vũ không khỏi cau mày, trong lòng vô cùng tức giận, nhưng vẫn cố giữ bình tĩnh, cười đáp:
 
-- Cảnh Rừng từ nhỏ chưa bao giờ thích ra khỏi nhà, có lẽ hôm nay gặp nhiều chuyện kinh hoàng nên mới có cử chỉ điên rồ. Tào Phú, ngươi cố gắng an ủi nó nhé.
+- Cảnh Trừng từ nhỏ chưa bao giờ thích ra khỏi nhà, có lẽ hôm nay gặp nhiều chuyện kinh hoàng nên mới có cử chỉ điên rồ. Tào Phú, ngươi cố gắng an ủi nó nhé.
 
 Tào Phú gật đầu, mỉm cười:
 
-- Tùy bá bá yên tâm, Cảnh Rừng bị kích động, đó là chuyện hết sức bình thường.
+- Tùy bá bá yên tâm, Cảnh Trừng bị kích động, đó là chuyện hết sức bình thường.
 
 Tùy Văn Pháp ngạc nhiên:
 
@@ -28,7 +28,7 @@ Tào Phú truyền âm cho vị hộ đạo nhân:
 
 Tào Phú đáp:
 
-- Trừ khi hắn muốn cướp Tùy Cảnh Rừng bằng được, bằng không mọi chuyện sẽ dễ hơn.
+- Trừ khi hắn muốn cướp Tùy Cảnh Trừng bằng được, bằng không mọi chuyện sẽ dễ hơn.
 
 Tiêu Thúc Dạ gật đầu:
 
@@ -40,7 +40,7 @@ Tào Phú cười chua chát:
 
 Tiêu Thúc Dạ cười nói:
 
-- Đúng là vậy thì còn có thể thế nào? Đánh một trận là được. Tùy Cảnh Rừng là người chủ nhân bất đắc dĩ mới phải đối phó, trên người nàng có một phần đại cơ duyên. Nếu nàng tình cờ tìm ra manh mối trước chúng ta, đừng do dự. Trên đường đại đạo, cơ duyên một khi bỏ qua thì đời này khó có lại. Nói cho cùng, chủ nhân cũng vì muốn tốt cho ngươi. Ngươi và Tùy Cảnh Rừng vốn đã có duyên phận sẵn, ngươi lại phát hiện món pháp bào quý trên người nàng, đây là cơ hội lớn, nên tranh thủ.
+- Đúng là vậy thì còn có thể thế nào? Đánh một trận là được. Tùy Cảnh Trừng là người chủ nhân bất đắc dĩ mới phải đối phó, trên người nàng có một phần đại cơ duyên. Nếu nàng tình cờ tìm ra manh mối trước chúng ta, đừng do dự. Trên đường đại đạo, cơ duyên một khi bỏ qua thì đời này khó có lại. Nói cho cùng, chủ nhân cũng vì muốn tốt cho ngươi. Ngươi và Tùy Cảnh Trừng vốn đã có duyên phận sẵn, ngươi lại phát hiện món pháp bào quý trên người nàng, đây là cơ hội lớn, nên tranh thủ.
 
 Tiêu Thúc Dạ liếc nhìn thư sinh mặc thanh sam:
 
@@ -48,7 +48,7 @@ Tiêu Thúc Dạ liếc nhìn thư sinh mặc thanh sam:
 
 Tào Phú gật đầu:
 
-- Đi từng bước một, xác định thân phận trước, không vội quyết định. Hình như Tùy Cảnh Rừng đã nghi ngờ chúng ta, thật kỳ lạ, sao nàng lại nhận ra được chứ?
+- Đi từng bước một, xác định thân phận trước, không vội quyết định. Hình như Tùy Cảnh Trừng đã nghi ngờ chúng ta, thật kỳ lạ, sao nàng lại nhận ra được chứ?
 
 Tiêu Thúc Dạ cười:
 
@@ -58,7 +58,7 @@ Tào Phú bất đắc dĩ:
 
 - Sư phụ ưu ái ta hơn con ruột, trong lòng ta cũng đã có quy định rõ ràng.
 
-Tiêu Thúc Dạ cười cười, có vài điều không tiện nói ra: thương cảm cho tình cảm của chủ nhân dành cho ngươi. Tào Phú, ngươi đừng được lợi còn khoe mẽ. Chủ nhân cũng chỉ là một vị nữ tu Kim Đan. Nếu không vì Tào Phú ngươi đến nay tu vi chưa cao, chưa đạt Quan Hải cảnh, còn xa mới tới Long Môn, thì hai thầy trò các ngươi đã sớm thành đạo lữ trên núi. Vì vậy nếu Tùy Cảnh Rừng thật sự thành nữ nhân của ngươi, nàng nhất định phải chịu đựng những điều đó. Biết đâu sau khi đoạt được trúc y trắng và trâm, ngươi sẽ tự tay biến nàng thành một bộ hồng phấn khô lâu.
+Tiêu Thúc Dạ cười cười, có vài điều không tiện nói ra: thương cảm cho tình cảm của chủ nhân dành cho ngươi. Tào Phú, ngươi đừng được lợi còn khoe mẽ. Chủ nhân cũng chỉ là một vị nữ tu Kim Đan. Nếu không vì Tào Phú ngươi đến nay tu vi chưa cao, chưa đạt Quan Hải cảnh, còn xa mới tới Long Môn, thì hai thầy trò các ngươi đã sớm thành đạo lữ trên núi. Vì vậy nếu Tùy Cảnh Trừng thật sự thành nữ nhân của ngươi, nàng nhất định phải chịu đựng những điều đó. Biết đâu sau khi đoạt được trúc y trắng và trâm, ngươi sẽ tự tay biến nàng thành một bộ hồng phấn khô lâu.
 
 Tiêu Thúc Dạ tin chắc sẽ có một ngày, Tào Phú không chút do dự mà đưa ra quyết định chính xác.
 
@@ -68,7 +68,7 @@ Tiêu Thúc Dạ tin chắc sẽ có một ngày, Tào Phú không chút do dự
 
 Nàng đứng lên, lại tiến gần người mặc thanh sam, nói khẽ:
 
-- Trần công tử, ta biết ngươi là tu sĩ chính thống trên núi, với ta và Tùy gia không có ác ý. Chỉ là lúc trước có chút thất vọng, không muốn so đo mà thôi. Nhưng Tào Phú tâm tư khó lường, có lẽ cố ý bẫy ta. Chỉ cần hôm nay ngươi cứu ta, ta nhất định báo ơn! Tùy Cảnh Rừng ta sẵn lòng làm trâu làm ngựa, bưng trà rót nước, cõng rương vác nặng.
+- Trần công tử, ta biết ngươi là tu sĩ chính thống trên núi, với ta và Tùy gia không có ác ý. Chỉ là lúc trước có chút thất vọng, không muốn so đo mà thôi. Nhưng Tào Phú tâm tư khó lường, có lẽ cố ý bẫy ta. Chỉ cần hôm nay ngươi cứu ta, ta nhất định báo ơn! Tùy Cảnh Trừng ta sẵn lòng làm trâu làm ngựa, bưng trà rót nước, cõng rương vác nặng.
 
 Người kia quay người, chầm chậm phe phẩy quạt xếp:
 
@@ -128,7 +128,7 @@ Tùy Tân Vũ tức giận nói năng lộn xộn.
 
 Tào Phú cười khổ:
 
-- Tùy bá bá, hay là thôi đi? Ta không muốn thấy Cảnh Rừng khó xử như vậy.
+- Tùy bá bá, hay là thôi đi? Ta không muốn thấy Cảnh Trừng khó xử như vậy.
 
 Thư sinh mặc áo xanh dùng quạt chống trán, vẻ mặt đau đầu:
 
@@ -154,7 +154,7 @@ Tào Phú truyền âm:
 
 Đao khách Tiêu Thúc Dạ nhẹ gật đầu:
 
-- Chuyện rất quan trọng. Pháp bào và trâm của Tùy Cảnh Rừng, nhất là khẩu quyết kia, rất có thể liên quan đến cơ duyên đại đạo của chủ nhân, nên không thể lùi bước. Lát nữa ta sẽ thăm dò. Nếu thật là kiếm tu Kim Đan của Kim Lân cung, ngươi mau chạy trốn bảo toàn tính mạng, ta sẽ giúp ngươi kéo dài thời gian. Còn nếu là giả thì không sao.
+- Chuyện rất quan trọng. Pháp bào và trâm của Tùy Cảnh Trừng, nhất là khẩu quyết kia, rất có thể liên quan đến cơ duyên đại đạo của chủ nhân, nên không thể lùi bước. Lát nữa ta sẽ thăm dò. Nếu thật là kiếm tu Kim Đan của Kim Lân cung, ngươi mau chạy trốn bảo toàn tính mạng, ta sẽ giúp ngươi kéo dài thời gian. Còn nếu là giả thì không sao.
 
 Hắn xoay cổ tay, quạt xếp nhẹ nhúc nhích, đồng tiền cũng lơ lửng bay lên, chậc chậc:
 
@@ -490,7 +490,7 @@ Thiếu niên gọi vài tiếng không được tỷ tỷ, hai người vội �
 
 Lão nhân giảm tốc độ ngựa, đi bên cạnh con gái, lo lắng nhíu mày:
 
-- Tào Phú bây giờ là tu sĩ trên núi, lão giả kia lại càng không phải Hồ Tân Phong so được, có thể là cao thủ hàng đầu. Không chừng hắn có thực lực như đại tông sư giang hồ, như Vương Độn lão tiền bối, về sau chúng ta phải làm sao? Cảnh Rừng, ta biết con oán cha mù quáng, không nhìn ra Tào Phú tâm hiểm ác, nhưng tiếp theo Tùy gia làm sao vượt qua cửa ải này, đó mới là chuyện quan trọng.
+- Tào Phú bây giờ là tu sĩ trên núi, lão giả kia lại càng không phải Hồ Tân Phong so được, có thể là cao thủ hàng đầu. Không chừng hắn có thực lực như đại tông sư giang hồ, như Vương Độn lão tiền bối, về sau chúng ta phải làm sao? Cảnh Trừng, ta biết con oán cha mù quáng, không nhìn ra Tào Phú tâm hiểm ác, nhưng tiếp theo Tùy gia làm sao vượt qua cửa ải này, đó mới là chuyện quan trọng.
 
 Nữ tử che mặt lời lẽ đạm mạc:
 
@@ -500,7 +500,7 @@ Lão nhân tức giận:
 
 - Cái kẻ giấu đầu hở đuôi cố ý diễn vẻ đáng thương! Ở đình nghỉ chân giả vờ không bản lĩnh thì không nói, vì sao lại để lộ thân phận về sau, làm vậy mà hàm hồ, nếu là nhân vật kỳ quái trong tiểu thuyết kiếm tiên, sao không dứt khoát giết hai người Tào Phú, hôm nay chẳng phải thả hổ về rừng để lại hậu hoạn sao?!
 
-Tùy Cảnh Rừng như thấy ấm ức, không kìm được tháo mũ che mặt, lộ khuôn mặt tuyệt mỹ, mắt nhìn phía trước, không để ý xung quanh, học khẩu khí của lão thị lang, vừa cười vừa nói:
+Tùy Cảnh Trừng như thấy ấm ức, không kìm được tháo mũ che mặt, lộ khuôn mặt tuyệt mỹ, mắt nhìn phía trước, không để ý xung quanh, học khẩu khí của lão thị lang, vừa cười vừa nói:
 
 - Ở đình nghỉ chân, chúng ta thấy chết không cứu thì không nói, người ta sau đó dù sao cũng đã cứu chúng ta một lần, hôm nay lại quay ra oán trách người ta làm chưa đủ. Chẳng phải là con cháu Tùy gia ăn hết lương tâm sao?
 
@@ -522,7 +522,7 @@ Lão nhân không nhịn nổi, một roi quất mạnh vào người con gái.
 
 Phía trước, hai thiếu niên thấy cảnh này lập tức quay đầu. Thiếu nữ một tay che miệng, nước mắt lặng lẽ rơi; thiếu niên thấy trời đất đảo lộn, không biết làm sao.
 
-Tùy Cảnh Rừng thờ ơ, chỉ nhíu mày:
+Tùy Cảnh Trừng thờ ơ, chỉ nhíu mày:
 
 - Con còn nghĩ điểm này không quan trọng, nếu bị thương, có thể rơi vào cảnh sống dở chết dở, nhưng cha là kỳ thủ nổi tiếng hơn mười năm, chút lý cờ đó cũng hiểu chứ?
 
@@ -542,13 +542,13 @@ Lão nhân cả giận:
 
 - Bớt châm chọc đi! Rốt cuộc cũng không phải tự mình lãng phí bản thân!
 
-Tùy Cảnh Rừng thở dài:
+Tùy Cảnh Trừng thở dài:
 
 - Vậy thì tìm cơ hội, giả vờ vị kiếm tiên họ Trần đang ở quanh chúng ta, vừa lúc để hai người Tào Phú nhìn thấy, làm họ nghi ngờ không dám đánh cược mạng với chúng ta.
 
 Lão nhân lộ vẻ vui mừng:
 
-- Kế này rất hay. Cảnh Rừng, chúng ta cần mưu tính cho khéo, cẩn thận hết sức, tự nhiên như trời sinh.
+- Kế này rất hay. Cảnh Trừng, chúng ta cần mưu tính cho khéo, cẩn thận hết sức, tự nhiên như trời sinh.
 
 Nàng lại lộ vẻ ảm đạm:
 

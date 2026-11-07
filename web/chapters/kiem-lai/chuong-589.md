@@ -6,7 +6,7 @@ Cố Mạch tựa lan can, lặng lẽ rơi nước mắt. Sư phụ từng nói
 
 Cố Mạch không buồn vì mất chỗ dựa. Là nữ quan tu sĩ một mạch Thái Hà, xuống núi trảm yêu trừ ma, chỉ cần chưa chết thì đừng về nhà trách sư trưởng. Còn chết rồi, lấy gì để oán trách? Cố Mạch thấy lời sư phụ tuy có phần vô lý, lại thật sự rất có lý.
 
-Tùy Cảnh Rừng đứng bên nàng.
+Tùy Cảnh Trừng đứng bên nàng.
 
 Vinh Sướng không lộ diện. Tề Cảnh Long đứng cách đó không xa. Thuyền xuôi nam sẽ đi ngang địa giới Đại Triện vương triều, coi như tiện đường cho hắn.
 
@@ -14,31 +14,31 @@ Nhưng chẳng mấy chốc, Tề Cảnh Long đã trở về phòng.
 
 Trên đất liền, Trần Bình An mặc thanh sam đã bắt đầu đi bộ lên phía bắc, hướng về cửa biển của đại độc.
 
-Trong gian phòng tiếp khách trên thuyền, Cố Mạch đã trở lại bình thường, thản nhiên theo Tùy Cảnh Rừng vào trong, tự rót một chén trà, chẳng khách khí chút nào. Thấy Tùy Cảnh Rừng tỏ ý muốn tự tu hành, nàng cứ như không trông thấy, mặt mày hớn hở. Tâm tư rối bời như Tùy Cảnh Rừng bây giờ mà còn tĩnh tâm thổ nạp được sao? Đùa gì chứ.
+Trong gian phòng tiếp khách trên thuyền, Cố Mạch đã trở lại bình thường, thản nhiên theo Tùy Cảnh Trừng vào trong, tự rót một chén trà, chẳng khách khí chút nào. Thấy Tùy Cảnh Trừng tỏ ý muốn tự tu hành, nàng cứ như không trông thấy, mặt mày hớn hở. Tâm tư rối bời như Tùy Cảnh Trừng bây giờ mà còn tĩnh tâm thổ nạp được sao? Đùa gì chứ.
 
 Cố Mạch hỏi: "Người họ Trần ấy không tặng ngươi mấy món tín vật đính ước à?"
 
-Tùy Cảnh Rừng mặc kệ câu hỏi chẳng chút giữ ý của nữ tu.
+Tùy Cảnh Trừng mặc kệ câu hỏi chẳng chút giữ ý của nữ tu.
 
-Cố Mạch liếc cây gậy leo núi trong tay nàng. Với tu vi Long Môn cảnh, nàng dễ dàng nhìn thấu phép che giấu vụng về ấy: "Chỉ có món này thôi sao? Chất liệu khá, dáng vẻ cũng được. Nhưng Tùy Cảnh Rừng ngươi đẹp đến vậy, hắn tặng thế này thật chẳng có thành ý. Không phải ta muốn nói ngươi đâu, cẩn thận đừng để lời ngon tiếng ngọt của hắn làm mê muội."
+Cố Mạch liếc cây gậy leo núi trong tay nàng. Với tu vi Long Môn cảnh, nàng dễ dàng nhìn thấu phép che giấu vụng về ấy: "Chỉ có món này thôi sao? Chất liệu khá, dáng vẻ cũng được. Nhưng Tùy Cảnh Trừng ngươi đẹp đến vậy, hắn tặng thế này thật chẳng có thành ý. Không phải ta muốn nói ngươi đâu, cẩn thận đừng để lời ngon tiếng ngọt của hắn làm mê muội."
 
-Tùy Cảnh Rừng tháo mũ che mặt, đặt gậy lên bàn rồi ngồi đối diện Cố Mạch, gục người xuống mặt bàn.
+Tùy Cảnh Trừng tháo mũ che mặt, đặt gậy lên bàn rồi ngồi đối diện Cố Mạch, gục người xuống mặt bàn.
 
 Cố Mạch đánh giá người ngọc Tùy gia, tấm tắc khen.
 
 Nữ tử thật sự xinh đẹp trên đời, nói hay không nói, đều là một phong cảnh.
 
-Đợi Tùy Cảnh Rừng đến tuổi đôi mươi, nhan sắc càng nảy nở, lúc ấy ai mà chịu nổi? Cố Mạch không nhịn được, đưa tay muốn sờ khuôn mặt mềm mại của nàng.
+Đợi Tùy Cảnh Trừng đến tuổi đôi mươi, nhan sắc càng nảy nở, lúc ấy ai mà chịu nổi? Cố Mạch không nhịn được, đưa tay muốn sờ khuôn mặt mềm mại của nàng.
 
-Tùy Cảnh Rừng gạt tay nàng ra, ngồi thẳng dậy, cau mày: "Cố tiên tử, xin tự trọng!"
+Tùy Cảnh Trừng gạt tay nàng ra, ngồi thẳng dậy, cau mày: "Cố tiên tử, xin tự trọng!"
 
 Cố Mạch liếc nàng, uống một ngụm trà rồi đặt chén xuống, hạ giọng: "Nghe nói ngươi đi cùng người họ Trần kia qua mấy nước. Ở đất khách, ngày thường tắm rửa thế nào? Còn nữa, ngươi vẫn có nguyệt sự, có thấy phiền không?"
 
-Tùy Cảnh Rừng lạnh nhạt: "Cố tiên tử là người tu đạo, hỏi mấy chuyện này không thấy không hợp sao?"
+Tùy Cảnh Trừng lạnh nhạt: "Cố tiên tử là người tu đạo, hỏi mấy chuyện này không thấy không hợp sao?"
 
 Cố Mạch cười hì hì: "Người tu đạo thì không phải người à? Nữ tử tu hành thì không còn là nữ tử sao? Ta chỉ hỏi thôi, chẳng tốn đồng tiền tuyết hoa nào, ngươi cũng không mất một đồng. Kể chút đi."
 
-Tùy Cảnh Rừng trầm giọng: "Tiền bối là chính nhân quân tử. Cố tiên tử, ta chỉ nói một lần, không muốn nghe lại những lời ấy nữa!"
+Tùy Cảnh Trừng trầm giọng: "Tiền bối là chính nhân quân tử. Cố tiên tử, ta chỉ nói một lần, không muốn nghe lại những lời ấy nữa!"
 
 Cố Mạch làm vẻ kinh hãi: "Ngươi giận rồi, lại bảo Vinh kiếm tiên giết ta sao?"
 
@@ -46,11 +46,11 @@ Nàng gục đầu xuống bàn, nghiêng người về trước, cuống quýt 
 
 Tiếng gõ cửa khẽ vang lên. Ngoài cửa, Vinh Sướng nói: "Là ta."
 
-Tùy Cảnh Rừng như trút được gánh nặng, vội đáp: "Mời vào."
+Tùy Cảnh Trừng như trút được gánh nặng, vội đáp: "Mời vào."
 
 Cố Mạch đã ngồi ngay ngắn, chậm rãi uống trà.
 
-Vinh Sướng dường như quen rồi, chẳng lấy làm lạ. Ngồi xuống, hắn nói với Tùy Cảnh Rừng: "Chúng ta sẽ xuôi xuống phía nam Bắc Câu Lô Châu, đến ghềnh Hài Cốt, rồi vượt biển du lịch Bảo Bình châu. Ta nói trước với ngươi đôi chút quy củ trên núi. Có lẽ hơi dài dòng, nhưng chẳng còn cách nào. Bảo Bình châu tuy nhỏ nhất Hạo Nhiên thiên hạ, kỳ nhân dị sĩ chưa chắc đã ít. Chúng ta phải nhập gia tùy tục."
+Vinh Sướng dường như quen rồi, chẳng lấy làm lạ. Ngồi xuống, hắn nói với Tùy Cảnh Trừng: "Chúng ta sẽ xuôi xuống phía nam Bắc Câu Lô Châu, đến ghềnh Hài Cốt, rồi vượt biển du lịch Bảo Bình châu. Ta nói trước với ngươi đôi chút quy củ trên núi. Có lẽ hơi dài dòng, nhưng chẳng còn cách nào. Bảo Bình châu tuy nhỏ nhất Hạo Nhiên thiên hạ, kỳ nhân dị sĩ chưa chắc đã ít. Chúng ta phải nhập gia tùy tục."
 
 Thật ra Vinh Sướng hơi mất tự nhiên.
 
@@ -60,13 +60,13 @@ Tính hắn thế nào, đám tu sĩ từng chết hoặc bị thương dưới 
 
 Là một kiếm tu Nguyên Anh có tiếng ở miền trung Bắc Câu Lô Châu, lại có không ít đệ tử đích truyền trong Phù Bình kiếm hồ, Vinh Sướng cũng như kẻ dưới phố phường cứ động đến là vung gậy, có điều hắn nhiều lần dùng kiếm để nâng tu vi [?].
 
-Nhưng đối với Tùy Cảnh Rừng, người chỉ có một nửa là tiểu sư muội, đương nhiên hắn phải kiên nhẫn hơn.
+Nhưng đối với Tùy Cảnh Trừng, người chỉ có một nửa là tiểu sư muội, đương nhiên hắn phải kiên nhẫn hơn.
 
-Tùy Cảnh Rừng kiên nhẫn nghe hắn giảng giải dài dòng.
+Tùy Cảnh Trừng kiên nhẫn nghe hắn giảng giải dài dòng.
 
 Cố Mạch không phải người ngoài, Vinh Sướng không đuổi nàng. Nàng cũng chẳng biết ý mà tự đi, cứ ngồi uống trà, thỉnh thoảng ngáp một cái. Thà nghe Vinh Sướng nói chuyện buồn tẻ còn hơn tự ra chỗ ngồi bên ngoài đợi [?].
 
-Vinh Sướng thở phào. Xem ra Tùy Cảnh Rừng đã học được khá nhiều quy củ trên núi từ người trẻ tuổi họ Trần.
+Vinh Sướng thở phào. Xem ra Tùy Cảnh Trừng đã học được khá nhiều quy củ trên núi từ người trẻ tuổi họ Trần.
 
 Hơn nữa, nàng khác tiểu sư muội hắn quen biết một trời một vực.
 
@@ -106,69 +106,69 @@ Hai "tu sĩ trẻ tuổi" từng tranh cao thấp với hắn, đương nhiên c
 
 Cố Mạch, sư tỷ Lưu Cảnh Long và Vinh Sướng, cảnh giới hiện giờ tuy khác, điểm cuối lại giống nhau. Họ có thể mong đến Ngọc Phác cảnh, nhưng cũng chỉ là một khả năng.
 
-Tùy Cảnh Rừng chợt hỏi người còn xa lạ trước mặt: "Vinh kiếm tiên, chúng ta ghé Kim Lân cung một chuyến được không?"
+Tùy Cảnh Trừng chợt hỏi người còn xa lạ trước mặt: "Vinh kiếm tiên, chúng ta ghé Kim Lân cung một chuyến được không?"
 
 Vinh Sướng cười đáp: "Không tiện đường, nhưng đi được."
 
-Tùy Cảnh Rừng hơi ngờ vực. Chẳng lẽ hắn định đưa nàng đi xa tới Kim Lân cung, rồi vội vã đuổi theo thuyền?
+Tùy Cảnh Trừng hơi ngờ vực. Chẳng lẽ hắn định đưa nàng đi xa tới Kim Lân cung, rồi vội vã đuổi theo thuyền?
 
 Vinh Sướng giải thích: "Trả tiền cho thuyền, bồi thường chút tổn thất cho hành khách, vòng thêm mấy ngày là được."
 
-Tùy Cảnh Rừng hỏi: "Nếu hành khách không muốn nhận tiền thì sao?"
+Tùy Cảnh Trừng hỏi: "Nếu hành khách không muốn nhận tiền thì sao?"
 
 Vinh Sướng cười: "Một kiếm tu Nguyên Anh đưa tiền cho họ, đáng lẽ họ phải thắp hương cảm tạ mới đúng."
 
-Tùy Cảnh Rừng lắc đầu.
+Tùy Cảnh Trừng lắc đầu.
 
 Vinh Sướng nghiêm mặt: "Những quy củ, kiêng kỵ ta vừa nói là để khi ra ngoài được yên ổn. Giờ thuyền vẫn ở Bắc Câu Lô Châu, đây cũng là quy củ của chúng ta."
 
-Tùy Cảnh Rừng cười: "Đợi tu đạo có thành tựu, ta sẽ tự đến Kim Lân cung đòi công đạo."
+Tùy Cảnh Trừng cười: "Đợi tu đạo có thành tựu, ta sẽ tự đến Kim Lân cung đòi công đạo."
 
 Lần này đến lượt Vinh Sướng lắc đầu.
 
 Cố Mạch cười mãi.
 
-Nghe nói Kim Lân cung có một tu sĩ Nguyên Anh chẳng rõ tên trấn giữ. Chiến lực người ấy hẳn chẳng ra sao. Nhưng Tùy Cảnh Rừng muốn tự giải quyết ân oán thì ít nhất cũng phải là kiếm tu ở bình cảnh Kim Đan.
+Nghe nói Kim Lân cung có một tu sĩ Nguyên Anh chẳng rõ tên trấn giữ. Chiến lực người ấy hẳn chẳng ra sao. Nhưng Tùy Cảnh Trừng muốn tự giải quyết ân oán thì ít nhất cũng phải là kiếm tu ở bình cảnh Kim Đan.
 
 Kiếm tu báo thù hay đòi công đạo thường phải một mình đối diện cả môn phái. Trước khi giao đấu với cường giả trong môn, còn phải phá đại trận, đâu giống chuyện một người một ngựa ra sa trường đấu tay đôi. Ở Bắc Câu Lô Châu, trong lịch sử chẳng biết đã có bao nhiêu kiếm tu cố chấp đi đòi công đạo như vậy.
 
-Tùy Cảnh Rừng mỉm cười: "Ta biết sẽ mất rất lâu, nhưng không sao."
+Tùy Cảnh Trừng mỉm cười: "Ta biết sẽ mất rất lâu, nhưng không sao."
 
 Vinh Sướng thầm nghĩ, cũng chưa chắc lâu như thế.
 
 Chỉ cần có một ngày, nàng lại trở thành tiểu sư muội trọn vẹn của Phù Bình kiếm hồ.
 
-Tùy Cảnh Rừng do dự, nhẹ giọng: "Vinh kiếm tiên, ta nghĩ đi xa rèn luyện vẫn nên cẩn thận hơn."
+Tùy Cảnh Trừng do dự, nhẹ giọng: "Vinh kiếm tiên, ta nghĩ đi xa rèn luyện vẫn nên cẩn thận hơn."
 
 Vinh Sướng khẽ cười, gật đầu: "Được."
 
 Cố Mạch gật đầu phụ họa: "Vinh kiếm tiên, cẩn thận nghe cho kỹ, ta còn muốn học nhiều châm ngôn giang hồ lắm."
 
-Tùy Cảnh Rừng mặc nàng trêu, tiếp tục nói: "Thái độ của Vinh kiếm tiên lúc đứng ở chỗ hành khách trên thuyền hơi rõ ràng quá. Tu vi giấu được, khí chất kiếm tiên lại khó che. Lọt vào mắt người có tâm, họ khó tránh đề phòng kỹ hơn. Nếu thật sự gặp đám liều mạng, có khi chúng sẽ kéo thêm đồng bọn, chuyện nhỏ thành chuyện lớn, chuyện lớn lại thành tai họa."
+Tùy Cảnh Trừng mặc nàng trêu, tiếp tục nói: "Thái độ của Vinh kiếm tiên lúc đứng ở chỗ hành khách trên thuyền hơi rõ ràng quá. Tu vi giấu được, khí chất kiếm tiên lại khó che. Lọt vào mắt người có tâm, họ khó tránh đề phòng kỹ hơn. Nếu thật sự gặp đám liều mạng, có khi chúng sẽ kéo thêm đồng bọn, chuyện nhỏ thành chuyện lớn, chuyện lớn lại thành tai họa."
 
 Nàng nghĩ ngợi, đỏ mặt nói: "Có lẽ tu vi ta thấp, lang bạt giang hồ một thời gian gặp mấy lần nguy hiểm, nên hơi thần hồn nát thần tính. Vinh kiếm tiên, xin đừng cho là ta ếch ngồi đáy giếng, nói năng xằng bậy."
 
 Cố Mạch không còn cười đùa nữa.
 
-Tùy Cảnh Rừng nói rất đúng. Chẳng riêng Vinh Sướng, ngay cả người tu hành hơn ba mươi năm như nàng cũng phải nghĩ lại.
+Tùy Cảnh Trừng nói rất đúng. Chẳng riêng Vinh Sướng, ngay cả người tu hành hơn ba mươi năm như nàng cũng phải nghĩ lại.
 
 Vinh Sướng mỉm cười: "Ta cũng đã cân nhắc chuyện này."
 
 Dù sao hắn cũng là kiếm tu Nguyên Anh, thường xuyên xuống núi, trải qua chẳng ít trận sinh tử.
 
-Những lời Tùy Cảnh Rừng nói thật sự không uổng.
+Những lời Tùy Cảnh Trừng nói thật sự không uổng.
 
-Xem ra tiểu sư muội trở thành Tùy Cảnh Rừng cũng chưa hẳn hoàn toàn là chuyện xấu.
+Xem ra tiểu sư muội trở thành Tùy Cảnh Trừng cũng chưa hẳn hoàn toàn là chuyện xấu.
 
 Lần đó, tiểu sư muội gây chuyện lớn khiến Phù Bình kiếm hồ trở mặt với Dương thị Vân Tiêu cung, Sùng Huyền thự. Sau nửa năm chìm dưới đáy hồ, sư phụ Ly Thải không cho nàng ra ngoài rèn luyện, bản thân nàng cũng không muốn đi. Nàng chỉ ở lại kiếm hồ tu hành, thích thanh tĩnh, chẳng hỏi chuyện đời. Về sau, không chỉ Ly Thải mà cả Phù Bình kiếm hồ đều bất an. Không phải vì tu vi nàng trì trệ, mà bởi nàng phá cảnh quá nhanh!
 
 Chỉ trong hai mươi năm ngắn ngủi, nàng vượt Long Môn, đến bình cảnh Kim Đan, rồi thẳng vào Nguyên Anh. Ly Thải có thể kiêu ngạo nói về đệ tử đắc ý, nàng đương nhiên cũng xứng góp mặt trong hàng ngũ người trẻ tuổi nổi bật của Bắc Câu Lô Châu. Nhưng ngay cả Vinh Sướng cũng cảm thấy bất ổn. Cứ tiếp tục nâng cảnh giới như vậy, sơ sẩy sẽ để lại tai họa ngầm rất lớn. Sư phụ Ly Thải đương nhiên hiểu hơn ai hết. Khi ấy, tiểu sư muội bắt đầu bế quan, còn Thái Hà nguyên quân Lý Dư lặng lẽ xuống núi, đi Ngũ Lăng quốc.
 
-Hôm nay Tùy Cảnh Rừng trả lại cho Cố Mạch chiếc trâm khắc chữ "Thái Hà dịch quỷ". Nhưng theo thỏa thuận riêng giữa nàng và Ly Thải kiếm tiên, Cố Mạch không mang trâm về sư môn mà giao Vinh Sướng giữ tạm. Cố Mạch không rõ nguyên do sâu xa, có lẽ vì Ly Thải kiếm tiên và sư phụ Lý Dư là bằng hữu thân thiết. Hơn nữa, nàng đang luyện hóa một thanh phi kiếm, đúng như Trần Bình An đoán, đó là di vật một vị kiếm tiên binh giải của Phù Bình kiếm hồ, được Ly Thải tặng lại. Bởi vậy, Cố Mạch rất thân cận với vị nữ kiếm tiên ấy.
+Hôm nay Tùy Cảnh Trừng trả lại cho Cố Mạch chiếc trâm khắc chữ "Thái Hà dịch quỷ". Nhưng theo thỏa thuận riêng giữa nàng và Ly Thải kiếm tiên, Cố Mạch không mang trâm về sư môn mà giao Vinh Sướng giữ tạm. Cố Mạch không rõ nguyên do sâu xa, có lẽ vì Ly Thải kiếm tiên và sư phụ Lý Dư là bằng hữu thân thiết. Hơn nữa, nàng đang luyện hóa một thanh phi kiếm, đúng như Trần Bình An đoán, đó là di vật một vị kiếm tiên binh giải của Phù Bình kiếm hồ, được Ly Thải tặng lại. Bởi vậy, Cố Mạch rất thân cận với vị nữ kiếm tiên ấy.
 
-Không chỉ vậy, hai quyển trong bộ 《Tốt Nhất Huyền Huyền Tập》 nay cũng chính thức thuộc về Tùy Cảnh Rừng. Sách giảng những căn bản của đại đạo thuật pháp. Tu sĩ bình thường có được gần như đã nắm một bộ bí tịch quý. Đến lúc nàng tu tới bình cảnh thứ hai, Vinh Sướng đã có thể nhận xét nàng tư chất xuất chúng, quả là kỳ tài [?]. Giữa các trang sách còn cẩn thận ghi khẩu quyết tu hành, xứng với danh "bí tịch Kim Đan", trong đó có cả mấu chốt của cảnh giới thứ năm.
+Không chỉ vậy, hai quyển trong bộ 《Tốt Nhất Huyền Huyền Tập》 nay cũng chính thức thuộc về Tùy Cảnh Trừng. Sách giảng những căn bản của đại đạo thuật pháp. Tu sĩ bình thường có được gần như đã nắm một bộ bí tịch quý. Đến lúc nàng tu tới bình cảnh thứ hai, Vinh Sướng đã có thể nhận xét nàng tư chất xuất chúng, quả là kỳ tài [?]. Giữa các trang sách còn cẩn thận ghi khẩu quyết tu hành, xứng với danh "bí tịch Kim Đan", trong đó có cả mấu chốt của cảnh giới thứ năm.
 
-Vinh Sướng còn giao lại cho Tùy Cảnh Rừng một lệnh bài ngọc đặc hữu của Phù Bình kiếm hồ. Lệnh bài vừa có ý nghĩa truyền thừa, vừa là vật hiếm, chỉ tu sĩ đạt cảnh giới thứ năm mới có [?]. Bản thân Vinh Sướng cũng chỉ có một tấm.
+Vinh Sướng còn giao lại cho Tùy Cảnh Trừng một lệnh bài ngọc đặc hữu của Phù Bình kiếm hồ. Lệnh bài vừa có ý nghĩa truyền thừa, vừa là vật hiếm, chỉ tu sĩ đạt cảnh giới thứ năm mới có [?]. Bản thân Vinh Sướng cũng chỉ có một tấm.
 
 Dọc đường vượt sông, khi qua phố Xuân Lộ, thuyền tạm dừng ở bến đò đơn sơ gần đó, cho hành khách lên bờ chừng hai canh giờ.
 
@@ -200,15 +200,15 @@ Tề Cảnh Long không khỏi cảm khái.
 
 So với Trần Bình An, mình xử lý chuyện này vẫn còn kém đôi chút. Có điều, đại thể thì hướng đi vẫn đúng.
 
-Tùy Cảnh Rừng dạo một vòng phố Xuân Lộ, tìm đến cửa hàng nhỏ tên Kiến Càng.
+Tùy Cảnh Trừng dạo một vòng phố Xuân Lộ, tìm đến cửa hàng nhỏ tên Kiến Càng.
 
 Khi nghe tiền bối nói chuyện với Lưu tiên sinh, nàng đã nghe hai người nhắc tới gia sản của hắn.
 
 Vinh Sướng đương nhiên luôn đi theo.
 
-Tùy Cảnh Rừng đội mũ che mặt, chống gậy leo núi bước vào. Chưởng quầy rất niềm nở, chu đáo, tâm tình vui vẻ, chỉ vài câu đã giới thiệu một lượt hàng hóa mà chẳng khiến người nghe phát ngán.
+Tùy Cảnh Trừng đội mũ che mặt, chống gậy leo núi bước vào. Chưởng quầy rất niềm nở, chu đáo, tâm tình vui vẻ, chỉ vài câu đã giới thiệu một lượt hàng hóa mà chẳng khiến người nghe phát ngán.
 
-Tùy Cảnh Rừng khẽ hỏi: "Vinh sư huynh, ta mượn huynh ít tiền được không?"
+Tùy Cảnh Trừng khẽ hỏi: "Vinh sư huynh, ta mượn huynh ít tiền được không?"
 
 Nay đã nhận lệnh bài ngọc của tổ sư, nàng gọi Vinh Sướng một tiếng sư huynh cũng không có gì sai.
 
@@ -232,13 +232,13 @@ Hơn nữa sư phụ Ly Thải luôn coi trọng nữ đệ tử, giữ quy củ
 
 Trong một trăm đồng tiền cốc vũ, một nửa là tiền riêng của sư phụ, nửa kia là phần được chia của tiểu sư muội đang bế quan.
 
-Tùy Cảnh Rừng chọn vài món ở Kiến Càng, chỉ tốn mười đồng tiền tuyết hoa.
+Tùy Cảnh Trừng chọn vài món ở Kiến Càng, chỉ tốn mười đồng tiền tuyết hoa.
 
 Sau đó nàng hỏi trong cửa hàng có bảo vật nào không, giá đắt một chút cũng chẳng sao.
 
 Vị chưởng quầy trẻ tuổi đến từ Chiếu Dạ thảo đường vẫn niềm nở như trước. Hắn giới thiệu bảo vật, nói xem không rồi không mua cũng chẳng hề gì [?]. Nhắc tới mấy món pháp bảo, hắn đặc biệt giới thiệu hai chiếc kim quan một lớn một nhỏ, giá lần lượt mười tám và mười sáu đồng tiền cốc vũ. Mua cả đôi sẽ bớt một đồng, tổng cộng ba mươi ba đồng.
 
-Tùy Cảnh Rừng hỏi: "Ta xem trước được không?"
+Tùy Cảnh Trừng hỏi: "Ta xem trước được không?"
 
 Chưởng quầy cười đáp: "Đương nhiên. Không vừa ý, không mua cũng chẳng sao."
 
@@ -252,11 +252,11 @@ Phía dưới lại viết: "Người trả giá cao được."
 
 Vinh Sướng thật khó liên hệ chủ cửa hàng với người trẻ tuổi thanh sam từng gặp ở Lục Oanh quốc, chẳng thấy nét nào tương đồng.
 
-Vừa thấy hai chiếc kim quan, Tùy Cảnh Rừng đã quyết định mua. Nàng không mặc cả, lập tức nhờ Vinh Sướng lấy ba mươi ba đồng tiền cốc vũ.
+Vừa thấy hai chiếc kim quan, Tùy Cảnh Trừng đã quyết định mua. Nàng không mặc cả, lập tức nhờ Vinh Sướng lấy ba mươi ba đồng tiền cốc vũ.
 
 Một tay giao tiền, một tay nhận hàng.
 
-Ôm hộp gỗ do Chiếu Dạ thảo đường chế tác, Tùy Cảnh Rừng bước ra cửa hàng, đi trên phố Lão Hòe. Bước chân nhẹ tênh, tâm tình nàng rất tốt.
+Ôm hộp gỗ do Chiếu Dạ thảo đường chế tác, Tùy Cảnh Trừng bước ra cửa hàng, đi trên phố Lão Hòe. Bước chân nhẹ tênh, tâm tình nàng rất tốt.
 
 Chưởng quầy trẻ tuổi cúi người, tiễn hai vị khách quý ra cửa, nhìn họ rời đi.
 
@@ -280,7 +280,7 @@ Ai ngờ nhanh như vậy đã bán được?
 
 Ra khỏi phố Lão Hòe, Vinh Sướng mỉm cười: "Mua đắt rồi."
 
-Tùy Cảnh Rừng hơi ngượng.
+Tùy Cảnh Trừng hơi ngượng.
 
 Nhưng nàng thật sự rất thích đôi kim quan.
 
@@ -290,7 +290,7 @@ Nàng khẽ nói: "Vinh sư huynh, ta nhất định không mua thêm nữa."
 
 Vinh Sướng lắc đầu, cười nói: "Đệ tử chúng ta mua đồ cũng nên rộng rãi một chút. Sư phụ từng chọn được một món pháp bảo xinh đẹp rất vừa ý, nhất quyết bắt người bán tăng giá, không tăng thì không mua. Khi ấy sư phụ chưa lộ thân phận, người kia sợ gặp phải kẻ khó dây vào. Sau biết người mua là sư phụ, hắn hối đến xanh mặt, đấm ngực giậm chân, nghĩ lẽ ra nên tăng giá ngay từ đầu."
 
-Tùy Cảnh Rừng cảm khái thật lòng: "Biết thế, ta đã đến Phù Bình kiếm hồ xem trước."
+Tùy Cảnh Trừng cảm khái thật lòng: "Biết thế, ta đã đến Phù Bình kiếm hồ xem trước."
 
 Vinh Sướng thở phào.
 
@@ -300,21 +300,21 @@ Về thuyền, vừa đặt đôi kim quan tinh xảo xuống, hai người đã
 
 Luyện được kiếm, tự nhiên vạn vật cũng luyện được.
 
-Truyền xong khẩu quyết dài nghìn chữ, Vinh Sướng thấy Tùy Cảnh Rừng nhắm mắt. Đến lúc mở mắt, nàng cười nói: "Ta nhớ kỹ rồi."
+Truyền xong khẩu quyết dài nghìn chữ, Vinh Sướng thấy Tùy Cảnh Trừng nhắm mắt. Đến lúc mở mắt, nàng cười nói: "Ta nhớ kỹ rồi."
 
 Hắn liền không nhắc lại nữa.
 
-Tiểu sư muội năm xưa và Tùy Cảnh Rừng bây giờ tuy tính tình khác xa, vẫn có chỗ giống nhau: trong chuyện tu đạo, đều không khiến người ta thất vọng.
+Tiểu sư muội năm xưa và Tùy Cảnh Trừng bây giờ tuy tính tình khác xa, vẫn có chỗ giống nhau: trong chuyện tu đạo, đều không khiến người ta thất vọng.
 
-Có điều vẫn cần Tùy Cảnh Rừng nghe Vinh Sướng nhắc lại một lần, để tránh sai sót.
+Có điều vẫn cần Tùy Cảnh Trừng nghe Vinh Sướng nhắc lại một lần, để tránh sai sót.
 
 Đúng lúc ấy, tiếng Cố Mạch đập cửa rầm rầm vang lên ngoài hành lang.
 
-Tùy Cảnh Rừng ra mở.
+Tùy Cảnh Trừng ra mở.
 
-Cố Mạch hấp tấp: "Tùy Cảnh Rừng, Tùy Cảnh Rừng! Ta nói ngươi một bí mật, có lẽ Lưu Cảnh Long bị đánh tráo rồi. Kẻ chúng ta thấy bây giờ rất có thể là người khác!"
+Cố Mạch hấp tấp: "Tùy Cảnh Trừng, Tùy Cảnh Trừng! Ta nói ngươi một bí mật, có lẽ Lưu Cảnh Long bị đánh tráo rồi. Kẻ chúng ta thấy bây giờ rất có thể là người khác!"
 
-Tùy Cảnh Rừng chẳng hiểu, chỉ quay sang nhìn Vinh Sướng.
+Tùy Cảnh Trừng chẳng hiểu, chỉ quay sang nhìn Vinh Sướng.
 
 Vinh Sướng bất đắc dĩ nói: "Đừng nói bậy."
 
@@ -328,11 +328,11 @@ May mà sau chuyến đi Long Đầu, tâm cảnh nàng đã gần trở lại v
 
 Hai vị tiên sinh thanh sam kia đã tốn không ít công sức.
 
-Đương nhiên, Tùy Cảnh Rừng cũng có công.
+Đương nhiên, Tùy Cảnh Trừng cũng có công.
 
-Vinh Sướng vừa đóng cửa, Cố Mạch liền kể mọi chuyện cho Tùy Cảnh Rừng.
+Vinh Sướng vừa đóng cửa, Cố Mạch liền kể mọi chuyện cho Tùy Cảnh Trừng.
 
-Tùy Cảnh Rừng đưa tay đỡ trán, chẳng muốn nói nữa.
+Tùy Cảnh Trừng đưa tay đỡ trán, chẳng muốn nói nữa.
 
 "Các ngươi tu vi cao như thế, sao lại chẳng hiểu chuyện?"
 
@@ -342,47 +342,47 @@ Tùy Cảnh Rừng đưa tay đỡ trán, chẳng muốn nói nữa.
 
 Cố Mạch nghi hoặc: "Là sao? Ngươi nói ta nghe đi, chẳng lẽ còn ẩn tình gì? Ta chỉ là cô nương ham chơi thôi, chuyện này không có kinh nghiệm bằng ngươi."
 
-Tùy Cảnh Rừng đỏ mặt: "Ngươi nói bậy gì thế!"
+Tùy Cảnh Trừng đỏ mặt: "Ngươi nói bậy gì thế!"
 
 Cố Mạch khẽ thở dài: "Thôi vậy."
 
 Nàng gục xuống bàn, nhìn biển mây ngoài cửa sổ.
 
-Tùy Cảnh Rừng bày đôi kim quan xinh xắn lên bàn, cũng gục xuống như nàng, má tựa lên cánh tay, duỗi một ngón khẽ chạm chiếc kim quan nhỏ như cái chén.
+Tùy Cảnh Trừng bày đôi kim quan xinh xắn lên bàn, cũng gục xuống như nàng, má tựa lên cánh tay, duỗi một ngón khẽ chạm chiếc kim quan nhỏ như cái chén.
 
 Cố Mạch nhẹ giọng: "Ta hơi nhớ sư phụ. Còn ngươi, cũng nhớ nam tử ấy lắm đúng không?"
 
-Tùy Cảnh Rừng khẽ đáp: "Ngươi không nói, ta lại không nhớ. Vừa nhắc tới, ta cũng không nghĩ nhiều như thế. Ngươi thấy lạ không?" [?]
+Tùy Cảnh Trừng khẽ đáp: "Ngươi không nói, ta lại không nhớ. Vừa nhắc tới, ta cũng không nghĩ nhiều như thế. Ngươi thấy lạ không?" [?]
 
 Cố Mạch bất đắc dĩ: "Sao ta hiểu được."
 
 Hai người đều im lặng.
 
-Cố Mạch bỗng phấn chấn, đứng dậy kéo ghế ngồi sát Tùy Cảnh Rừng, ghé tai thì thầm: "Tùy Cảnh Rừng, ta nói ngươi nghe, phép song tu có nhiều đường lối lắm, chẳng hề hạ lưu chút nào. Vốn là một nhánh chính thống của Đạo gia. Bằng không, sao đạo lữ trên núi phải kết thành phu thê, đúng không? Ta biết đôi chút, chẳng hạn như..."
+Cố Mạch bỗng phấn chấn, đứng dậy kéo ghế ngồi sát Tùy Cảnh Trừng, ghé tai thì thầm: "Tùy Cảnh Trừng, ta nói ngươi nghe, phép song tu có nhiều đường lối lắm, chẳng hề hạ lưu chút nào. Vốn là một nhánh chính thống của Đạo gia. Bằng không, sao đạo lữ trên núi phải kết thành phu thê, đúng không? Ta biết đôi chút, chẳng hạn như..."
 
-Nghe xong, Tùy Cảnh Rừng đẩy nàng ra, thẹn quá hóa giận: "Sao ngươi vô sỉ thế!"
+Nghe xong, Tùy Cảnh Trừng đẩy nàng ra, thẹn quá hóa giận: "Sao ngươi vô sỉ thế!"
 
 Cố Mạch ấm ức: "Nghe người ta kể thôi, chỉ là nghe kể thôi."
 
-Tùy Cảnh Rừng đỏ bừng mặt, bật dậy đuổi nàng ra ngoài.
+Tùy Cảnh Trừng đỏ bừng mặt, bật dậy đuổi nàng ra ngoài.
 
 Cửa đóng sầm.
 
-Cố Mạch ho khẽ, bắt chước giọng người họ Trần: "Cảnh Rừng, ta tới rồi, mở cửa."
+Cố Mạch ho khẽ, bắt chước giọng người họ Trần: "Cảnh Trừng, ta tới rồi, mở cửa."
 
-Tùy Cảnh Rừng giận dữ: "Cố Mạch!"
+Tùy Cảnh Trừng giận dữ: "Cố Mạch!"
 
-Cố Mạch vẫn giữ giọng ấy: "Cảnh Rừng à, sao không biết phép tắc như thế, phải gọi ta là tiền bối."
+Cố Mạch vẫn giữ giọng ấy: "Cảnh Trừng à, sao không biết phép tắc như thế, phải gọi ta là tiền bối."
 
-Tùy Cảnh Rừng nhìn quanh, vớ lấy gậy leo núi, mở cửa định đánh.
+Tùy Cảnh Trừng nhìn quanh, vớ lấy gậy leo núi, mở cửa định đánh.
 
 Cố Mạch đã chạy xa, thò đầu ở góc hành lang, cười tươi: "Ôi chao! Bộ dáng ngươi lúc này, ai thấy cũng phải ngẩn ngơ. Ta không tin đi cùng ngươi mà tiểu tử kia chẳng để ý. Chỉ là tu vi hắn cao, ngươi thấp, nên không phát hiện thôi [?]. Chẳng biết ngươi chịu thiệt hay được lợi lớn nữa."
 
-Tùy Cảnh Rừng tức đến muốn đuổi theo.
+Tùy Cảnh Trừng tức đến muốn đuổi theo.
 
 Cố Mạch đã về phòng, tâm tình rất tốt.
 
-Tùy Cảnh Rừng đóng cửa, tựa lưng vào đó, bất giác mỉm cười. Nàng ngồi lại bên bàn, cầm chiếc kim quan nhỏ như cái chén cùng một tấm gương đồng.
+Tùy Cảnh Trừng đóng cửa, tựa lưng vào đó, bất giác mỉm cười. Nàng ngồi lại bên bàn, cầm chiếc kim quan nhỏ như cái chén cùng một tấm gương đồng.
 
 Sau đó nàng tháo kim quan, cất gương đồng, bắt đầu cẩn thận đọc 《Tốt Nhất Huyền Huyền Tập》.
 
@@ -390,13 +390,13 @@ Người tu đạo chẳng biết ngày đêm.
 
 Ngay từ lúc mới bước vào con đường luyện khí, người ta đã thường quên mất thời gian trôi.
 
-Đêm ấy, Tùy Cảnh Rừng đặt sách xuống, quay nhìn ngoài cửa sổ.
+Đêm ấy, Tùy Cảnh Trừng đặt sách xuống, quay nhìn ngoài cửa sổ.
 
 Trăng soi ngô đồng, mưa rào chuối biếc, nhạn kêu trong thu phong, cỏ xuân dưới vó ngựa, tuyết rơi trên tiểu thuyền; thanh mai trúc mã, tài tử giai nhân, danh tướng bảo đao, mỹ nhân gương đồng...
 
 Thế gian có biết bao đôi tốt đẹp được trời xanh tác hợp.
 
-Tùy Cảnh Rừng ta cùng vị tiền bối ấy, có được như vậy không?
+Tùy Cảnh Trừng ta cùng vị tiền bối ấy, có được như vậy không?
 
 Tề Cảnh Long đang đọc quyển sách mua ở Phù Thủy [?], viết về đồ gốm sứ do các châu, các nước chế tác. Đây là sách do Quỳnh Lâm tông, nơi buôn bán đứng đầu Bắc Câu Lô Châu, khắc bản in.
 

@@ -50,7 +50,7 @@ Một chiếc đò của Phi Ma tông, từ bãi Hài Cốt vượt biển tới
 
 Một nữ tử dáng người thướt tha, đội mũ che mặt, tay cầm gậy leo núi bước xuống. Đi bên cạnh nàng là người hộ đạo đang để lộ khí tức Kim Đan.
 
-Đó là Tùy Cảnh Rừng, người theo vị kiếm tu Nguyên Anh xuất thân Phù Bình xuôi nam.[?]
+Đó là Tùy Cảnh Trừng, người theo vị kiếm tu Nguyên Anh xuất thân Phù Bình xuôi nam.[?]
 
 Từ khi đò vào địa phận Bảo Bình châu, nàng thường rời phòng lên mũi đò, ngắm cảnh sơn hà khác lạ.
 
@@ -62,19 +62,19 @@ Bắc Câu Lô Châu có không ít núi thuộc Ngũ Nhạc các nước, nhưn
 
 Nghe nói sơn thần Bắc Nhạc Ngụy Bách sắp bước vào Ngọc Phác, Vinh Sướng càng cảm thán. Sơn thần tọa trấn chính ngọn núi của mình cũng như thánh nhân ở trong tiểu thiên địa, phải tính cao thêm một cảnh giới mới đúng. Một khi Ngụy Bách thành Ngọc Phác, Đại Ly chẳng khác nào có thêm một vị thần linh kim thân Tiên Nhân cảnh. Chiến lực vẫn chưa phải chuyện quan trọng nhất. Quốc vận Đại Ly, linh khí sơn thủy cùng văn vận, võ vận của cả vùng Bắc Nhạc nhờ đó càng được củng cố, mới là chỗ đáng nói.
 
-Theo lời Tùy Cảnh Rừng, Ngụy Bách và vị tiền bối kia giao tình rất tốt.
+Theo lời Tùy Cảnh Trừng, Ngụy Bách và vị tiền bối kia giao tình rất tốt.
 
 Đêm đã sâu, đò ở núi Ngưu Giác không nhiều, chiếc đò Phi Ma tông vừa tới liền thu hút không ít ánh mắt.
 
 Đò sẽ ở đây một ngày, tới đêm mai mới tiếp tục lên đường, để khách từ Bắc Câu Lô Châu có dịp thăm thú vùng đất vốn là động thiên này. Nghe nói trên núi Ngưu Giác vừa mở một cửa hàng tiên gia, có nhặt được món hời hay không phải xem túi tiền cùng nhãn lực của mỗi người. Người quản sự đò Phi Ma tông cũng nhắc khách, Bắc Nhạc Bảo Bình châu chẳng giống Bắc Câu Lô Châu. Ở quận Long Tuyền có thánh nhân Nguyễn Cung xuất thân miếu Phong Tuyết tọa trấn, quy củ nghiêm ngặt, không thể tùy ý ngự phong, ngự kiếm. Ai xuống đò gây chuyện thì đừng trách Phi Ma tông khoanh tay đứng nhìn.
 
-Một nam tử bạch y phong thái như thần tiên đã đợi ở bến, bên tai đeo khuyên vàng lấp lánh. Hắn mỉm cười nhìn Tùy Cảnh Rừng và Vinh Sướng.
+Một nam tử bạch y phong thái như thần tiên đã đợi ở bến, bên tai đeo khuyên vàng lấp lánh. Hắn mỉm cười nhìn Tùy Cảnh Trừng và Vinh Sướng.
 
 Vài con linh tước bay lượn bên người hắn, thấp thoáng trong ánh sáng mờ.
 
 Vinh Sướng chẳng dò nổi sâu cạn của đối phương, nhưng thân phận thì rõ ràng: vị sơn thần có địa vị cao nhất Bảo Bình châu, Ngụy Bách.
 
-Tùy Cảnh Rừng bước nhanh tới, khẽ hỏi: “Ngài là Ngụy sơn thần phải không?”
+Tùy Cảnh Trừng bước nhanh tới, khẽ hỏi: “Ngài là Ngụy sơn thần phải không?”
 
 Ngụy Bách nhìn chiếc gậy leo núi trong tay nàng, phất tay cho đám linh tước bay đi, rồi mỉm cười gật đầu: “Ta nhận được phi kiếm truyền tin, nên tới đây đón hai người.”
 
@@ -88,11 +88,11 @@ Thiên quân Tạ Thực ở Bắc Câu Lô Châu, kiếm tiên Tào Hi ở Nam 
 
 Cho nên tới chỗ này, ai cũng đừng lấy cảnh giới của mình ra tự đắc, chỉ tổ làm trò cười.
 
-Tùy Cảnh Rừng hơi ngại: “Làm phiền Ngụy sơn thần rồi.”
+Tùy Cảnh Trừng hơi ngại: “Làm phiền Ngụy sơn thần rồi.”
 
 Ngụy Bách khoát tay, cười ôn hòa: “Tùy cô nương đừng khách khí. Tiếp theo, muốn dạo Bao Phục Trai trên núi Ngưu Giác trước, hay tới thẳng núi Lạc Phách?”
 
-Tùy Cảnh Rừng đáp: “Xin tới núi Lạc Phách trước.”
+Tùy Cảnh Trừng đáp: “Xin tới núi Lạc Phách trước.”
 
 Ngụy Bách khẽ gật đầu, thi triển thần thông, đưa hai người tới chân núi Lạc Phách.
 
@@ -108,13 +108,13 @@ Ngụy Bách giới thiệu: “Đây là Trịnh Đại Phong, người giữ s
 
 Trịnh Đại Phong đứng cạnh Ngụy Bách, xoa tay cười: “Là Tùy cô nương phải không? Có muốn vào nhà ta ngồi một lát không? Ta với Ngụy Bách làm bữa khuya, coi như đón khách phương xa. Ăn uống no rồi nghỉ lại một đêm cũng được. Nhà ta nhiều phòng rộng lắm, đừng nói một mình cô nương, dẫu dẫn theo vài bằng hữu cũng chẳng sao. À, ta họ Trịnh, cứ gọi Trịnh đại ca là được, không cần khách sáo.”
 
-Tùy Cảnh Rừng lúng túng, nhất thời chẳng biết đáp thế nào.
+Tùy Cảnh Trừng lúng túng, nhất thời chẳng biết đáp thế nào.
 
 Ngụy Bách bất đắc dĩ nói: “Tùy cô nương và Vinh kiếm tiên có thể nghỉ lại ăn khuya, cũng có thể lên núi ngay, đều được cả.”
 
 Hai người liền thấy hán tử lưng còng giẫm lên chân Ngụy Bách, nụ cười chẳng đổi: “Ăn một bữa khuya thôi, có gì phiền phức đâu.”
 
-Tùy Cảnh Rừng dè dặt đáp: “Vẫn xin lên núi trước. Ta còn vài chuyện muốn thưa kỹ với Ngụy sơn thần, có những việc bí mật, trong phi kiếm không tiện nói rõ.”[?]
+Tùy Cảnh Trừng dè dặt đáp: “Vẫn xin lên núi trước. Ta còn vài chuyện muốn thưa kỹ với Ngụy sơn thần, có những việc bí mật, trong phi kiếm không tiện nói rõ.”[?]
 
 Trịnh Đại Phong thở dài, ngón chân ấn thêm lên giày Ngụy Bách. Ngụy Bách vẫn thản nhiên, đáp nàng: “Được.”
 
@@ -136,11 +136,11 @@ Ngụy Bách vỗ vai an ủi: “Tuấn tú lịch sự thế này, lo gì khô
 
 Trịnh Đại Phong cợt nhả: “Trần Bình An nói câu này, ta còn thấy có sức nặng. Ngươi nói thì được mấy phần?”
 
-Tùy Cảnh Rừng vừa lên núi vừa ngắm xung quanh, trong lòng nghĩ, đây chính là chỗ của tiền bối.
+Tùy Cảnh Trừng vừa lên núi vừa ngắm xung quanh, trong lòng nghĩ, đây chính là chỗ của tiền bối.
 
 Vinh Sướng lại khó hiểu. Hắn không đoán nổi lai lịch hán tử lưng còng này. Rõ ràng đã là phế nhân, sao lại thân thiết với Ngụy Bách đến vậy? Quan trọng hơn, cả hai đều coi đó là chuyện hết sức tự nhiên.
 
-Tùy Cảnh Rừng đi chậm lại, chợt thấy một nữ tử trẻ tuổi đang luyện quyền từ trên núi đi xuống. Quyền thế quen thuộc khiến nàng chú ý, bèn nhìn kỹ dung mạo đối phương. Cũng đẹp, nhưng không quá nổi bật.
+Tùy Cảnh Trừng đi chậm lại, chợt thấy một nữ tử trẻ tuổi đang luyện quyền từ trên núi đi xuống. Quyền thế quen thuộc khiến nàng chú ý, bèn nhìn kỹ dung mạo đối phương. Cũng đẹp, nhưng không quá nổi bật.
 
 Trịnh Đại Phong cười chào: “Sầm muội tử, muộn thế này còn luyện quyền làm gì? Vất vả quá, Trịnh đại ca thấy muội gầy đi nhiều rồi.”
 
@@ -180,7 +180,7 @@ Tới lưng chừng núi, Chu Liễm đã mỉm cười đợi sẵn.
 
 Cả đoàn vào chỗ ở của Chu Liễm. Vinh Sướng liền cáo từ, theo Trịnh Đại Phong tới nơi khác nghỉ ngơi.
 
-Hắn chẳng lo Tùy Cảnh Rừng gặp nguy hiểm.
+Hắn chẳng lo Tùy Cảnh Trừng gặp nguy hiểm.
 
 Sơn thần, thủy thần đều có khí tượng riêng, nhìn cảnh sơn thủy quanh người cũng biết được phần nào.
 
@@ -298,11 +298,11 @@ Trước kia nhắc tới chuyện ấy, hắn, Chu Liễm và Ngụy Bách ch�
 
 Trong tiểu viện bên sườn núi.
 
-Chu Liễm cùng Ngụy Bách nghe Tùy Cảnh Rừng kể tỉ mỉ. Phần lớn là những việc Trần Bình An trải qua, chứng kiến dọc đường.
+Chu Liễm cùng Ngụy Bách nghe Tùy Cảnh Trừng kể tỉ mỉ. Phần lớn là những việc Trần Bình An trải qua, chứng kiến dọc đường.
 
 Ngụy Bách nhận chiếc gậy leo núi, định mang về núi Phi Vân gửi cho Thôi Đông Sơn. Gửi từ bên ấy thích hợp hơn để Chu Liễm gửi từ núi Lạc Phách.
 
-Ngoài chiếc gậy, Tùy Cảnh Rừng còn tự tay viết một phong mật thư. Trần Bình An đã dặn rõ những lời cần nhắn với Thôi tiền bối, nàng không muốn nói ra trước mặt Chu Liễm, Ngụy Bách.
+Ngoài chiếc gậy, Tùy Cảnh Trừng còn tự tay viết một phong mật thư. Trần Bình An đã dặn rõ những lời cần nhắn với Thôi tiền bối, nàng không muốn nói ra trước mặt Chu Liễm, Ngụy Bách.
 
 Chẳng phải nàng không tin hai người, chỉ là tính nàng như vậy.
 
@@ -310,7 +310,7 @@ Chẳng phải nàng không tin hai người, chỉ là tính nàng như vậy.
 
 Ngụy Bách nhận cả lá thư.
 
-Tùy Cảnh Rừng nhẹ nhõm hẳn.
+Tùy Cảnh Trừng nhẹ nhõm hẳn.
 
 Được thấy chỗ thần kỳ của vị Thôi tiên sinh mà tiền bối nhắc tới, nàng cũng yên lòng để đại sư huynh kiếm tiên Nguyên Anh hộ tống mình “du sơn ngoạn thủy” ở Bảo Bình châu.[?]
 
@@ -318,7 +318,7 @@ Nhưng nàng vẫn muốn ở lại núi Lạc Phách và quận Long Tuyền m�
 
 Lý do có rất nhiều. Chẳng hạn gặp Bùi Tiễn, đại đệ tử khai sơn của tiền bối; dạo cửa hàng tiên gia ở bến núi Ngưu Giác; hoặc tới núi Phi Vân thăm Ngụy sơn thần. Nơi này vốn là động thiên Ly Châu, một trong ba mươi sáu tiểu động thiên, sao không thong thả thưởng ngoạn? Thậm chí nàng có thể lên phía bắc thăm kinh thành Đại Ly trước, rồi quay lại bến Ngưu Giác, ở đây nghỉ thêm ít lâu.
 
-Sau đó, một tiểu nha đầu mặt mày xinh xắn như ngọc tạc dẫn Tùy Cảnh Rừng tới chỗ ở.
+Sau đó, một tiểu nha đầu mặt mày xinh xắn như ngọc tạc dẫn Tùy Cảnh Trừng tới chỗ ở.
 
 Ngụy Bách về núi Phi Vân, gửi tín vật cùng mật thư đi, rồi lại quay về tiểu viện Chu Liễm.
 
