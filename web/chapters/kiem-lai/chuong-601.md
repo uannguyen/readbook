@@ -1,209 +1,217 @@
 # Chương 601: Cách xa quê hương
 
-Thủy Tiêu Quốc là một hồ đầm nước nổi tiếng đã lâu, bao gồm kinh thành ở trong, tuyệt đại đa số châu quận thành trì, đều xây dựng ở trên hòn đảo lớn nhỏ không đồng nhất, cho nên vận chuyển đường thủy bận rộn, thuyền rất nhiều. Có một dòng suối lớn tên là nước đào hoa, thủy tính cực nhu, hai bờ sông khắp nơi trồng cây đào. Du khách trên đường nối liền không dứt, phần nhiều là danh lưu nhã sĩ nước láng giềng mộ danh mà đến.
+Thủy Tiêu quốc là một nước hồ đầm nổi tiếng từ lâu. Kể cả kinh thành, phần lớn thành trì các châu quận đều dựng trên những hòn đảo lớn nhỏ khác nhau, cho nên đường thủy tấp nập, thuyền bè rất nhiều. Có một dòng suối lớn đổ vào hồ, tên là Đào Hoa Thủy. Nước suối có tính rất nhu hòa, hai bờ trồng đầy cây đào. Du khách trên đường qua lại không ngớt, phần nhiều là nhã sĩ danh lưu các nước láng giềng tìm đến vì mến tiếng.
 
-Trần Bình An dọc theo dòng suối này, không đi thẳng tới một huyện thành ven hồ, mà rẽ ra một đường nhỏ, đi tới một chỗ thắng địa tiên gia, trạm hoa đào, người tu đạo, chỉ cần phá vỡ một mê chướng sơn thủy chướng nhãn pháp thô thiển, liền có thể đi vào cửa ra, sau khi tiến vào bí cảnh, tầm nhìn rộng mở trong sáng, trạm hoa đào độ có một tòa núi xanh, xung quanh núi xanh là một hồ nhỏ tĩnh mịch, hồ nước xanh biếc, phía trên cửa ra hàng năm có mây trắng lơ lửng, như đỉnh đầu một vị tiên nhân áo xanh mũ miện trắng như tuyết, độ thuyền lui tới, đều phải đi qua biển mây đó, phàm phu tục tử thường thường không thể thấy hình dáng độ thuyền.
+Trần Bình An men theo dòng suối, không đi thẳng tới huyện thành ven hồ mà rẽ sang đường nhỏ, đến một thắng địa tiên gia, bến đò Đào Hoa. Người tu đạo chỉ cần phá lớp mê chướng sơn thủy do một thuật che mắt đơn giản tạo nên là vào được bến đò. Bước vào bí cảnh, trước mắt lập tức rộng mở. Nơi đây có một ngọn thanh sơn, bốn phía là hồ nhỏ yên tĩnh, nước xanh thẫm. Trên bến đò quanh năm có mây trắng lơ lửng, tựa như vị tiên nhân thanh y đội chiếc mũ tuyết trắng. Thuyền bè đi về đều phải xuyên qua biển mây ấy, phàm phu tục tử thường không trông thấy hình dáng thật của chúng.
 
-Đào Hoa Độ thuộc phủ đệ của đại tiên gia đệ nhất Thủy Tiêu Quốc, Thải Tước phủ, trong phủ đều là nữ tu, quanh năm rèn luyện nước đào suối cùng với rất nhiều cỏ cây hoa cỏ tiên gia, cộng thêm một bí thuật độc môn di truyền từ thời thượng cổ, bện ra một loại pháp bào kiểu sơn môn, Thải Tước phủ dùng sức người sức của hắn, một năm bện pháp bào chỉ có sáu món, nghe nói tiên sư gia phả các đại sơn đỉnh cao Trung Bộ Bảo Bình Châu đã hẹn trước được trăm năm, phần lớn là chuẩn bị cho đệ tử đích truyền tổ sư đường gần bình cảnh dưới ngũ cảnh, làm một trong những hạ lễ tương lai Khánh Hạ chen thân vào trong ngũ cảnh.
+Bến đò Đào Hoa thuộc Thải Tước phủ, tiên phủ lớn nhất Thủy Tiêu quốc. Trong phủ toàn là nữ tu. Họ quanh năm tôi luyện nước suối Đào cùng các loại cỏ cây hoa lá tiên gia, lại dùng bí thuật độc môn truyền từ thời thượng cổ, dệt nên một loại pháp bào theo mẫu của sơn môn. Dốc hết nhân lực vật lực, mỗi năm Thải Tước phủ cũng chỉ làm được sáu món. Nghe nói các tiên sư có tên trong gia phả thuộc những đỉnh núi lớn miền trung Bảo Bình châu đã đặt hàng tới tận trăm năm sau. Phần nhiều là mua sẵn cho đệ tử đích truyền tổ sư đường sắp chạm bình cảnh cuối hạ ngũ cảnh, làm một trong những món quà chúc mừng ngày họ bước vào trung ngũ cảnh sau này.
 
-Đối với chuyện ngồi độ thuyền, Trần Bình An đã sớm quen thuộc, ở cửa ra treo tấm biển cao lầu gấm vóc "Xuân ở đầu suối", hỏi thăm công việc độ thuyền, trả tiền nhận một tấm thẻ gỗ đào có vẽ đồ án áp thắng tinh mỹ, ở giờ Tý tối nay khởi hành, đi hướng động thiên long cung, ven đường sẽ dừng lại khá nhiều, bởi vì sẽ ở rất nhiều cảnh điểm tiên gia dừng lại, để khách nhân rời thuyền du lịch sơn hà. Loại đường kiếm tiền này, thật ra con đường kiếm tiền dưới lòng đất Bảo Bình châu, cùng với Quế Hoa Đảo của Lão Long thành Phạm gia, đều có. Hành khách thích, lấy cảnh đẹp đẹp đẹp đẹp mắt, thuận tiện mua một ít đặc sản tiên gia các phương, phủ đệ địa phương tiên gia càng hoan nghênh, người đến người đi, đều là tiền thần tiên chân dài, độ thuyền kiếm chút tình hương khói tiên gia ven đường, nói không chừng còn có thể chia hoa hồng, một công ba việc.
+Chuyện đi thuyền, Trần Bình An đã sớm quen thuộc. Hắn tới tòa lầu lộng lẫy treo tấm biển “Xuân tại khê đầu” trong bến đò, hỏi rõ chuyến thuyền rồi trả tiền, nhận một thẻ gỗ đào vẽ đồ án áp thắng tinh xảo. Thuyền khởi hành giờ Tý đêm nay, đi Long Cung động thiên. Dọc đường sẽ dừng khá nhiều lần ở những danh thắng tiên gia, để khách xuống thuyền du lịch sơn hà.
 
-Thải Tước Phủ ở bến đò bên này chuyên môn mở ra một tòa Thiên Y Phường, du khách có thể thưởng thức trình tự làm việc do mười mấy đạo pháp bào dệt thành, không cần giao nộp tiền thần tiên, ai cũng có thể đi trong phường thưởng thức.
+Cách kiếm tiền này, thật ra cả đường Tẩu Long dưới lòng đất Bảo Bình châu lẫn đảo Quế Hoa của Phạm gia thành Lão Long đều có. Hành khách thích, vừa được ngắm cảnh đẹp, vừa tiện mua đặc sản tiên gia các nơi. Tiên phủ địa phương lại càng hoan nghênh, khách đến khách đi đều là tiền thần tiên mọc chân. Còn thuyền thì gây dựng được chút tình hương hỏa với các tiên gia ven đường, biết đâu còn được chia lời, một công ba việc.
 
-Trần Bình An đương nhiên sẽ không bỏ lỡ việc này, sau khi đi, cùng mọi người đi hành lang, mỗi một gian phòng đều có nữ tu tuổi thanh xuân đang cúi đầu bận rộn, càng đi đến phía sau phòng ốc, một món pháp bào bảo quang gần như hoàn thành càng sáng rực rỡ hào quang.
+Thải Tước phủ mở riêng một tòa Thiên Y phường tại bến đò. Du khách có thể vào xem hơn mười công đoạn dệt pháp bào, không cần nộp tiền thần tiên, ai cũng được vào thưởng thức.
 
-Trần Bình An thật ra có ý định mua một món, chỉ là mới đến giá, đối với chuyện pháp bào lại là ngoại môn hán, lo lắng trả giá không có kết quả, còn có thể làm oan đầu to, mua bán không ít trên núi, tiên sư gia phả đích xác thật càng thêm tiết kiệm tiền hơn so với dã tu sơn trạch, sở dĩ như thế, là ở chỗ không phải một chùy kia mua bán, người bán ra giá, sẽ nghĩ thêm mấy phần bối cảnh đỉnh núi tiên sư gia phả, về phần sơn trạch dã tu ăn bữa hôm lo bữa mai, đầu buộc ở đai lưng nói không chừng ngày nào đó sẽ rơi xuống đất, đỉnh núi tiên gia ai thích bớt kiếm tiền đổi nhân tình.
+Trần Bình An đương nhiên không bỏ qua. Hắn đi cùng mọi người, chầm chậm qua từng dãy hành lang. Trong gian phòng nào cũng có nữ tu trẻ tuổi cúi đầu bận rộn. Càng tới những gian nhà phía sau, pháp bào càng gần hoàn thành, bảo quang càng thêm rực rỡ.
 
-Trần Bình An tin tưởng Thải Tước phủ trong tay sẽ lưu lại một hai kiện pháp bào phẩm trật tốt nhất, cùng với một đám pháp bào trân tàng bảo khố chuẩn bị cho bất cứ tình huống nào, nhưng mà tu sĩ tầm thường mở miệng, Thải Tước phủ đương nhiên sẽ không để ý tới.
+Thật ra hắn có ý mua một món. Chỉ là mới tới nơi, lại chẳng am hiểu pháp bào, hắn sợ trả giá không xong còn bị mua đắt. Trong không ít vụ làm ăn trên núi, tiên sư có gia phả quả thật mua rẻ hơn sơn trạch dã tu. Bởi đó không phải chuyện mua bán một lần rồi thôi, lúc ra giá, người bán còn phải nghĩ tới đỉnh núi đứng sau vị tiên sư ấy. Còn sơn trạch dã tu sớm còn tối mất, đầu giắt bên đai lưng, chẳng biết ngày nào sẽ rơi xuống đất, có tiên gia nào chịu bớt tiền để đổi lấy nhân tình của họ?
 
-Trần Bình An có chút tiếc nuối Tề Cảnh Long không có bên cạnh, bằng không để người này giúp đỡ mở miệng, đến lúc đó muốn cái giá công đạo một chút với nữ tu Thải Tước phủ, không quá đáng.
+Hắn tin Thải Tước phủ hẳn có giữ lại một hai món pháp bào phẩm chất tốt nhất, cùng một số pháp bào cất trong bảo khố phòng khi cần tới. Nhưng tu sĩ bình thường mở miệng hỏi, đương nhiên người ta chẳng buồn để ý.
 
-Nếu Thải Tước phủ có tiên tử bối phận không thấp, vừa vặn ngưỡng mộ vị lục địa giao long Bắc Câu Lô Châu này, nhất định phải bán pháp bào giá gốc, Trần Bình An hắn cũng không ngăn được phải không?
+Nghĩ vậy, Trần Bình An hơi tiếc Tề Cảnh Long không ở bên cạnh. Nếu có hắn giúp mở lời, xin các nữ tu Thải Tước phủ một cái giá công đạo hơn đôi chút cũng đâu quá đáng.
 
-Thời điểm rời khỏi Thiên Y Phường, Trần Bình An tràn đầy phiền muộn, pháp bào một vật, phẩm trật thấp tới đâu, mặc cho ngươi là tiên gia Tông Tự Đầu, cho dù trong bảo khố sớm đã chất đống thành núi, cũng không chê nhiều.
+Lỡ trong phủ có vị tiên tử bối phận không thấp, vừa khéo ngưỡng mộ vị Lục Địa Giao Long của Bắc Câu Lô Châu này, nhất định bán pháp bào theo giá vốn, Trần Bình An hắn cũng không ngăn nổi, đúng không?
 
-Binh gia giáp hoàn có tiền cũng không mua được, bắt nguồn từ đây.
+Rời Thiên Y phường, hắn đầy vẻ tiếc nuối. Pháp bào dù phẩm trật thấp đến đâu, ngay cả tiên gia đã lập tông, bảo khố chất đầy như núi, vẫn chẳng chê nhiều.
 
-Tu đạo là trường sinh, quang âm du du, nóng lạnh vô kỵ, chỉ sợ vạn nhất kia, pháp bào tiên gia, giống với thần nhân Thừa Lộ, Kim Ô Kinh Vĩ, hương khói ba giáp của binh gia kia, đều là vì chống đỡ vạn nhất kia, tu sĩ xuống núi rèn luyện, có Vô Pháp Bào cùng binh giáp bàng thân, khác nhau một trời một vực.
+Giáp hoàn của Binh gia có giá mà không có hàng, cũng chính vì lẽ ấy.
 
-Trần Bình An vừa rời khỏi xưởng, liền có một vị nữ tu sĩ khí tượng không tầm thường chậm rãi đi về phía mình.
+Tu đạo cầu trường sinh, năm tháng đằng đẵng, chẳng ngại nóng lạnh, chỉ sợ chuyện vạn nhất. Pháp bào tiên gia cũng như ba loại giáp Thần Nhân Thừa Lộ, Kim Ô Kinh Vĩ và Hương Hỏa của Binh gia, đều dùng để chống đỡ cái vạn nhất ấy. Tu sĩ xuống núi rèn luyện, có pháp bào binh giáp hộ thân hay không, khác nhau một trời một vực.
 
-Nếu là địa đầu xà của Thải Tước Phủ tìm tới cửa.
+Trần Bình An vừa ra khỏi xưởng, một nữ tu khí tượng bất phàm đã chậm rãi đi tới.
 
-Trần Bình An liền dừng chân dừng bước, chủ động hành lễ.
+Lại là người của Thải Tước phủ, chủ nhân nơi đây, tìm đến tận cửa.
 
-Nữ tử tu sĩ sau khi hoàn lễ, cười nói: "Ta là chưởng luật tu sĩ của Thải Tước phủ tổ sư đường, Võ Chiếu, Chỉ Qua Võ, Sơn Quân Đình."
+Hắn dừng bước, chủ động hành lễ.
 
-Trần Bình An trong lòng nghi hoặc, không biết vị đại tu sĩ Thải Tước phủ rõ ràng lúc trước không ở trong phường vì sao phải tới gặp mình, vẫn là đi theo số hiệu tự báo danh, "Ta họ Trần, tên là người tốt."
+Nữ tu đáp lễ, cười nói: “Ta là tu sĩ chưởng luật tổ sư đường Thải Tước phủ, Vũ Quân [?]. Chữ Vũ gồm chữ Chỉ và chữ Qua, chữ sau là bộ Sơn bên cạnh chữ Quân.”
 
-Không đỏ mặt chút nào.
+Trần Bình An thầm nghi hoặc. Vị đại tu sĩ Thải Tước phủ này rõ ràng trước đó không ở trong phường, chẳng biết vì sao lại tìm đến mình. Hắn vẫn tự báo danh: “Ta họ Trần, tên Hảo Nhân.”
 
-Nhưng mà tên của vị nữ tu này ngụ ý thật tốt.
+Nửa điểm cũng không đỏ mặt.
 
-Không kém hơn Trần Hảo Nhân.
+Có điều, tên vị nữ tu này mang ý nghĩa thật tốt.
 
-Nữ tu kia thấy nhiều tu sĩ quá cảnh giấu đầu giấu đuôi, đối với việc này không để ý, hơi do dự, liền đi thẳng vào vấn đề hỏi: "Mạo muội hỏi một câu, Trần tiên sư có biết Lưu Cảnh Long, Lưu tiên sinh của Thái Huy Kiếm Tông không?"
+Chẳng kém Trần Hảo Nhân.
 
-Trần Bình An cười nói: "Bắc Câu Lô Châu ai không biết Lưu Cảnh Long?"
+Nữ tu đã gặp quá nhiều tu sĩ qua đường giấu giếm thân phận, cũng không để tâm. Hơi do dự, nàng liền hỏi thẳng: “Mạo muội hỏi một câu, Trần tiên sư có quen Lưu Cảnh Long, Lưu tiên sinh của Thái Huy Kiếm tông không?”
 
-Ở Bắc Câu Lô Châu, vẫn quen gọi tên tổ sư đường của Thái Huy Kiếm Tông là Tề Cảnh Long, mà không phải Tề Cảnh Long trước khi lên núi.
+Trần Bình An cười nói: “Ở Bắc Câu Lô Châu, ai không biết Lưu Cảnh Long?”
 
-Chuyện bí mật nơi đây, Trần Bình An không hỏi, Tề Cảnh Long cũng không nói tỉ mỉ.
+Người Bắc Câu Lô Châu vẫn quen gọi hắn theo tên ghi trong tổ sư đường Thái Huy Kiếm tông là Lưu Cảnh Long, thay vì cái tên Tề Cảnh Long có trước khi lên núi.
 
-Vũ Thực bật cười khanh khách.
+Chuyện riêng trong đó, Trần Bình An không hỏi, Tề Cảnh Long cũng chẳng kể kỹ.
 
-Câu trả lời này không có thành ý gì, nhưng hình như thật sự không tìm ra được sơ hở nào.
+Vũ Quân bật cười.
 
-Vũ Thực mỉm cười nói: "Phủ chủ của chúng ta hiện giờ đang bế quan, nhưng năm đó phủ chủ may mắn được cùng Lưu tiên sinh du lịch một thời gian, rất có ích cho việc tu hành, nên vẫn luôn cực kỳ khâm phục phẩm hạnh của Lưu tiên sinh, chỉ là những năm gần đây Lưu tiên sinh chưa từng đi ngang qua đỉnh núi, bị phủ chủ của chúng ta lấy làm tiếc."
+Câu trả lời ấy chẳng có mấy thành ý, nhưng hình như thật sự không bắt bẻ được gì.
 
-Trên thực tế Võ Chiếu cũng nói thật thật giả giả, Thải Tước phủ đương đại phủ chủ trẻ tuổi, theo bối phận xem như sư điệt của Võ Chiếu nàng, chỉ có điều thiên tư phải tốt hơn vị sư bá này của nàng quá nhiều, trên con đường tu hành, người giỏi làm đầu, tu sĩ Bắc Câu Lô Châu, rất nhận quyền đầu. Phủ chủ nhà mình chẳng những khâm phục, còn ái mộ vị Lưu Cảnh Long kia, cho nên lần này không phải bế quan, mà là theo lúc trước tế kiếm, xuất phát từ chút dấu vết Phù Lục quốc kia, phủ chủ vô cùng lo lắng đuổi theo người, tính toán trong lúc vô tình gặp gỡ. Chẳng qua loại chuyện này, vì kiêng kỵ tôn giả, Võ Chiếu đương nhiên không tiện nói thẳng.
+Nàng mỉm cười nói: “Phủ chủ chúng ta hiện đang bế quan. Năm xưa phủ chủ may mắn được cùng Lưu tiên sinh du lịch một thời gian, nhờ đó mà việc tu hành được lợi rất nhiều, từ trước tới nay vẫn hết sức khâm phục phẩm hạnh của tiên sinh. Chỉ tiếc mấy năm qua Lưu tiên sinh chưa từng đi ngang sơn môn, phủ chủ chúng ta vẫn lấy làm tiếc.”
 
-Trần Bình An nháy mắt hiểu rõ.
+Thật ra, lời Vũ Quân cũng có thật có giả. Vị phủ chủ trẻ tuổi đương nhiệm của Thải Tước phủ, xét bối phận là sư điệt của nàng, nhưng thiên tư hơn vị sư bá này quá nhiều. Trên đường tu hành, người đạt tới trước được tôn làm đầu, tu sĩ Bắc Câu Lô Châu rất coi trọng nắm đấm. Phủ chủ không chỉ khâm phục mà còn ái mộ Lưu Cảnh Long. Lần này nàng đâu có bế quan, mà lần theo chút dấu vết của lần tế kiếm trước đó ở Phù Cừ quốc, vội vã đuổi theo người ta, định làm ra một cuộc gặp gỡ tình cờ. Có điều, những chuyện như thế phải giữ thể diện cho bậc tôn trưởng, Vũ Quân đương nhiên không tiện nói thẳng.
 
-Phủ chủ bế quan, là đại sự hàng đầu của Tiên Phủ trên núi.
+Trần Bình An hiểu ngay.
 
-Nhưng mà khí tượng tường hòa Thải Tước phủ và Đào Hoa Độ không giống, còn nữa một vị tổ sư tổ luật tổ sư tổ đường chưa chắc là người có tu vi cao nhất trong một tòa tiên gia môn phái, nhưng thường thường là một ngọn núi có kinh nghiệm tu hành nhất, nếu thật là phủ chủ bế quan, Võ Chiếu tuyệt đối sẽ không tùy tùy tiện nói thẳng với một người bên ngoài. Hơn nữa những lời khách khí của phủ chủ Thải Tước phủ cùng Tề Cảnh Long, Trần Bình An liền hiểu được, khẳng định là vụng trộm chặn đường Lưu Cảnh Long về Bắc.
+Phủ chủ bế quan là đại sự hàng đầu của tiên phủ trên núi.
 
-Trần Bình An không cố ý che đậy toàn bộ nữa, đối phương tận khả năng lấy thành tâm đối đãi, Trần Bình An liền bánh ít đi, bánh quy lại, nói: "Ta cùng với Tề Cảnh Long quả thật quen biết."
+Nhưng cảnh tượng yên bình ở Thải Tước phủ và bến đò Đào Hoa chẳng giống như đang có chuyện ấy. Hơn nữa, vị tổ sư chưởng luật chưa chắc có tu vi cao nhất một môn phái tiên gia, nhưng thường là người dày dạn kinh nghiệm tu hành nhất. Nếu phủ chủ thật sự bế quan, Vũ Quân tuyệt đối không tùy tiện nói cho một người xứ khác. Lại thêm những lời khách khí về giao tình giữa phủ chủ với Tề Cảnh Long, hắn liền hiểu, hẳn là đã lặng lẽ đi chặn đường Lưu Cảnh Long trở về phương bắc rồi.
 
-Lại đổi lại xưng hô lúc hai người ở chung.
+Hắn cũng không cố giấu hết nữa. Đối phương đã hết sức thành tâm, hắn bèn có qua có lại, nói: “Ta với Tề Cảnh Long quả thật quen nhau.”
 
-Tâm thần Vũ Thực hơi chấn động, chẳng qua sắc mặt vẫn như thường.
+Lại đổi về cách gọi khi hai người ở cạnh nhau.
 
-Lúc trước tuy nàng có vài phần suy đoán, nhưng sau khi đối phương thừa nhận quen biết với Lưu Cảnh Long, vị Kim Đan Địa Tiên Võ Chiếu này, trong nháy mắt vẫn cảm nhận được một cỗ áp lực vô hình.
+Tâm thần Vũ Quân thoáng chấn động, sắc mặt vẫn như thường.
 
-Đạo lý rất đơn giản, lúc trước cảnh nội Phù Miểu quốc núi không cao nước không sâu của hàng xóm bên kia, Lưu Cảnh Long tế kiếm, cỗ khí tượng "quy củ" ai cũng không ngụy trang được, bị phủ chủ nhà mình liếc một cái nhìn thấu, kết luận thân phận.
+Trước đó nàng đã đoán được vài phần, nhưng lúc đối phương thừa nhận quen Lưu Cảnh Long, vị Địa tiên Kim Đan này vẫn lập tức cảm thấy một luồng áp lực vô hình.
 
-Lúc ấy ở bên cạnh phi kiếm bản mạng của Lưu Cảnh Long, rõ ràng lại có một vị Kiếm Tiên xuất kiếm theo, hơn nữa còn là một bội kiếm hai phi kiếm!
+Đạo lý rất đơn giản. Vừa rồi trong cảnh nội Phù Cừ quốc láng giềng, một nơi núi chẳng cao nước chẳng sâu, Lưu Cảnh Long tế kiếm, khí tượng “quy củ” không ai giả được ấy đã bị phủ chủ liếc mắt nhận ra, xác định thân phận.
 
-Đại Kiếm Tiên xuất kiếm tế chiến chết ở Kiếm Khí Trường Thành cùng với Lưu Cảnh Long.
+Bên cạnh phi kiếm bản mạng của Lưu Cảnh Long khi đó, rõ ràng còn có một vị kiếm tiên xuất kiếm theo. Hơn nữa, là một thanh bội kiếm cùng hai thanh phi kiếm!
 
-Vũ Thực cũng không phải kẻ ngốc.
+Người ấy đã cùng Lưu Cảnh Long xuất kiếm, từ xa tế vị đại kiếm tiên tử trận ở Kiếm Khí Trường Thành.
 
-Nếu vị kiếm khách áo đen trước mắt nhìn không ra sâu cạn này đến Đào Hoa độ, dù là triển lộ ra tu vi Địa Tiên kiếm tu, sau đó ở trước mặt la hét mình cùng Lục Địa Giao Long là hảo hữu chí giao, Võ Chiếu cũng sẽ không tin tưởng nửa phần.
+Vũ Quân đâu phải kẻ ngốc.
 
-Nhưng một vị kiếm tu xa lạ có thể cùng Lưu Cảnh Long tế kiếm trên đỉnh núi, cho dù ở trong hạt cảnh Thải Tước phủ, khóc lóc nói lão tử không nhận ra Lưu Cảnh Long, Võ Chiếu đánh chết cũng không tin.
+Vị kiếm khách hắc bào không rõ nông sâu trước mắt này tới bến đò Đào Hoa, dẫu phô ra tu vi kiếm tu Địa tiên, rồi la lên rằng mình là bạn chí giao của Lục Địa Giao Long, nàng cũng chẳng tin nửa phần.
 
-Trên núi Bắc Câu Lô Châu, vô luận là tiên sư gia phả cùng sơn trạch dã tu, đều không sợ con lục địa giao long này, bởi vì không có ai tin tưởng Lưu Cảnh Long sẽ lạm sát kẻ vô tội, ỷ thế h**p người, lấy lực áp người.
+Nhưng một kiếm tu xa lạ có thể cùng Lưu Cảnh Long tế kiếm trên đỉnh núi, dẫu đứng giữa địa phận Thải Tước phủ khóc lóc gào lên “Lão tử không quen Lưu Cảnh Long”, có đánh chết nàng cũng không tin.
 
-Nhưng mà đồng thời, mặc ngươi là tu sĩ thượng ngũ cảnh, không nói đến kết quả thắng bại cuối cùng, hoặc nhiều hoặc ít đều sẽ sợ Lưu Cảnh Long xuất kiếm.
+Trên núi Bắc Câu Lô Châu, từ tiên sư có gia phả tới sơn trạch dã tu, đều không sợ vị Lục Địa Giao Long này. Bởi chẳng ai tin Lưu Cảnh Long sẽ giết bừa người vô tội, cậy thế hiếp người, lấy sức đè người.
 
-Thích nhất là trăm vòng ngàn lần nhớ lại chuyện, kiếm tu Lưu Cảnh Long giảng đạo lý lề mề, đều lựa chọn xuất kiếm trước mặt, ai mà không lẩm bẩm, có phải mình không chiếm lý, thực sự mất đạo nghĩa hay không? Có thể từ nay về sau trở thành chuột chạy qua đường, mất đi rất nhiều thứ vốn là thiên kinh địa nghĩa che chở? Tu hành trên núi, thanh danh cực kỳ quan trọng, cho dù là tà tu ma đạo cũng không ngoại lệ. Sở thích tùy tâm sở dục lạm sát, tàn nhẫn ra tay với người có tình có thể hiểu được, một trời một vực.
+Nhưng đồng thời, dẫu là tu sĩ thượng ngũ cảnh, chưa bàn thắng thua cuối cùng ra sao, ít nhiều vẫn sợ hắn xuất kiếm.
 
-Đây chính là chỗ mạnh mẽ của Lưu Cảnh Long.
+Một kiếm tu thích nghĩ chuyện quanh co trăm lượt, giảng đạo lý dai dẳng như Lưu Cảnh Long, đến hắn mà còn chọn xuất kiếm ngay trước mặt, ai chẳng phải tự hỏi: có phải mình không chiếm lý, thật sự đã mất đạo nghĩa rồi không? Liệu từ nay có biến thành chuột chạy qua đường, mất đi bao sự che chở vốn tưởng là lẽ đương nhiên? Tu hành trên núi, thanh danh cực kỳ quan trọng, ngay cả tà tu ma đạo cũng không ngoại lệ. Thích giết chóc bừa bãi theo ý mình, với ra tay tàn nhẫn nhưng có nguyên do đáng thông cảm, cách nhau một trời một vực.
 
-Cho nên trong mười người trẻ tuổi Bắc Câu Lô Châu thế hệ này, người thứ nhất, cùng người thứ hai Từ Sàm, tính tình khác hẳn hai vị thiên chi kiêu tử, lại đều duy chỉ có đối với Lưu Cảnh Long nhìn với cặp mắt khác xưa, đối với bảy người sau Lưu Cảnh Long, đều có ấn tượng bình thường, nhất là hôm nay đệ tử duy nhất của đại kiếm tiên Bạch Thường đệ nhất phương Bắc Từ Sàm, liền công khai tuyên bố, Lưu Cảnh Long sau đó bảy người đều là phế vật, cái này ở năm đó từng dẫn tới một trận sóng to gió lớn, tương truyền xếp hạng thứ tư Hoàng Hi, còn tập sát Từ Sàm, chỉ là quá trình cùng kết quả đều là bí mật không nói ra, chỉ là Từ Sầm Dục vẫn như cũ chưa cần tu hành, thích giả trang thư sinh yếu ớt, mang theo hai vị tỳ nữ nâng kiếm, tiếp tục du sơn thủy gian, Hoàng Hi lại yên lặng mấy năm.
+Đó mới là chỗ mạnh của Lưu Cảnh Long.
 
-Trần Bình An hỏi: "Võ tiền bối, Thải Tước phủ có pháp bào dư thừa có thể bán không?"
+Cho nên trong mười người trẻ tuổi đứng đầu Bắc Câu Lô Châu thế hệ này, người đứng đầu và người thứ hai là Từ Huyễn, hai thiên chi kiêu tử tính tình khác hẳn nhau, lại đều chỉ nhìn riêng Lưu Cảnh Long bằng con mắt khác. Với bảy người xếp sau hắn, cả hai đều chẳng mấy xem trọng. Nhất là Từ Huyễn, đệ tử duy nhất của Bạch Thường, vị đại kiếm tiên đứng đầu phương bắc hiện nay, từng công khai nói bảy người sau Lưu Cảnh Long đều là phế vật. Năm đó, câu ấy đã dấy lên một trận sóng gió lớn. Tương truyền dã tu Hoàng Hi xếp thứ tư còn từng tập kích giết Từ Huyễn. Chuyện diễn ra và kết thúc thế nào đều là bí mật, không ai nói ra. Chỉ biết Từ Huyễn vẫn chẳng chăm chỉ tu hành, thích giả làm thư sinh yếu ớt, dẫn theo hai tỳ nữ nâng kiếm, tiếp tục thong dong du ngoạn sơn thủy. Còn Hoàng Hi lại im hơi lặng tiếng suốt mấy năm.
 
-Võ Chiếu cười nói: "Đương nhiên là có, nhưng giá cả không hề rẻ, pháp bào công khai một nửa trình tự đối với bên ngoài của Thiên Y Phường này chỉ là pháp bào hạng cuối thích hợp nhất cho tu sĩ Động Phủ cảnh mặc vào Thải Tước phủ, trên điều này, trong tay Thải Tước phủ chúng ta còn trân quý hai loại pháp bào, phân biệt cung cấp cho tu sĩ hai cảnh giới Quan Hải, Long Môn, cùng với Kim Đan, Nguyên Anh hai cảnh đại tu sĩ."
+Trần Bình An hỏi: “Vũ tiền bối, Thải Tước phủ có pháp bào dư để bán không?”
 
-Sở dĩ Vũ Thực chủ động hiện thân, chính là muốn biết bằng hữu của Lưu Cảnh Long rốt cuộc là thần thánh phương nào, nếu có thể lôi kéo một chút, dệt hoa trên gấm, thì càng lập được công lao không nhỏ cho Thải Tước Phủ.
+Vũ Quân cười nói: “Đương nhiên có, chỉ là giá không rẻ. Pháp bào trong Thiên Y phường, loại được công khai một nửa công đoạn cho người ngoài xem ấy, chỉ là hạng thấp nhất của Thải Tước phủ, thích hợp nhất cho tu sĩ Động Phủ cảnh mặc. Trên đó, chúng ta còn cất giữ hai loại pháp bào, một loại dành cho tu sĩ Quan Hải, Long Môn, một loại dành cho đại tu sĩ Kim Đan, Nguyên Anh.”
 
-Tu hành trên núi, người người trường thọ, cho nên đặc biệt chú ý đến một ân oán nhỏ như nước chảy dài.
+Nàng chủ động hiện thân, chính là muốn xem bằng hữu của Lưu Cảnh Long rốt cuộc là thần thánh phương nào. Nếu có thể kéo gần giao tình đôi chút, dệt hoa trên gấm, thì càng lập được công lao không nhỏ cho Thải Tước phủ.
 
-Hôm nay một nén hương hỏa nước chảy thành sông, nói không chừng chính là một phúc duyên lớn năm sau.
+Tu hành trên núi, ai cũng sống lâu, cho nên đặc biệt coi trọng việc ân oán kéo dài, như dòng nước nhỏ chảy mãi.
 
-Đương nhiên có một số lời nói cử chỉ lơ đãng ngay từ đầu, cũng có thể sẽ là thảm họa diệt môn trong tương lai.
+Một nén hương hỏa hôm nay thuận lẽ mà có, biết đâu lại là một mối phúc duyên lớn mai sau.
 
-Bắc Câu Lô Châu xưa nay vẫn như vậy.
+Đương nhiên, vài lời nói cử chỉ ban đầu chẳng ai để tâm cũng có thể trở thành thảm họa diệt môn trong tương lai.
 
-Cho nên đối phó chuyện nguyện ý chủ động mở miệng hỏi pháp bào, Võ Chiếu liền cảm thấy thoải mái hơn vài phần.
+Bắc Câu Lô Châu xưa nay vẫn thế.
 
-Thải Tước phủ giao thiệp với tu sĩ, am hiểu nhất dĩ nhiên là làm ăn lui tới.
+Cho nên đối phương chịu chủ động hỏi chuyện pháp bào, Vũ Quân liền nhẹ nhõm hơn mấy phần.
 
-Giả sử năm xưa phủ chủ nhà mình và Lưu Cảnh Long không có giao tình gì, Lưu Cảnh Long có thể đến Đào Hoa độ, có thể trò chuyện gì? Chẳng lẽ là tán gẫu đạo lý, luận bàn kiếm thuật?
+Giao thiệp với tu sĩ, Thải Tước phủ đương nhiên giỏi nhất chuyện làm ăn.
 
-Lần này là vì có Lưu Cảnh Long làm một cây cầu, Võ Chiếu mới nguyện ý xuống núi, bằng không vị tu sĩ xứ khác này tiến vào bến đò, mặc dù hắn mặc một kiện pháp bào quý hiếm bị nữ tu Thải Tước phủ nhìn ra phẩm cấp đại khái, Võ Chiếu cũng lựa chọn nhiều một chuyện không bằng bớt một chuyện, chỉ có thể làm như không thấy.
+Giả sử năm xưa phủ chủ và Lưu Cảnh Long không từng quen biết, dẫu hắn tới bến đò Đào Hoa, đôi bên có gì để nói? Chẳng lẽ ngồi giảng đạo lý, hay luận bàn kiếm thuật?
 
-Trần Bình An hỏi: "Xin hỏi Vũ tiền bối, hai bên giá bao nhiêu?"
+Lần này nhờ có Lưu Cảnh Long bắc cầu, Vũ Quân mới chịu xuống núi. Bằng không, vị tu sĩ xứ khác này có vào bến đò, dẫu nữ tu Thải Tước phủ nhìn ra đại khái phẩm trật chiếc pháp bào quý hiếm hắn mặc, nàng vẫn sẽ bớt việc được thì bớt, coi như không thấy.
 
-Võ Chiếu không trực tiếp đưa ra đáp án, cười mời nói: "Trần tiên sư có ngại không? Đào Hoa Độ chúng ta có một quán trà, lấy nước đào pha trà, lá trà cũng chỉ có ở hậu sơn Thải Tước Phủ, lão trà thụ tổng cộng chỉ có mười hai gốc, trước khi mưa sáng, giao cho sơn môn chăn nuôi một loại chim quý tộc thải tước hái xuống, lại lệnh tu sĩ lấy bí pháp xào thành đoàn, từng bị một vị đại văn hào ở trong tập thơ truyền thế, tự tay viết danh dự là "Tiểu Huyền Bích", nước sôi nước sôi có thủy triều lên xuống, đấu chuyển tinh di chi diệu, quán trà này không mở ra đối ngoại, chúng ta có thể đi bên kia nói chuyện."
+Trần Bình An hỏi: “Xin hỏi Vũ tiền bối, hai loại ấy giá bao nhiêu?”
 
-Trần Bình An đương nhiên là nhập gia tùy tục, khách tùy chủ tiện.
+Vũ Quân không đáp ngay, cười mời: “Trần tiên sư có ngại vừa đi vừa nói chuyện không? Bến đò Đào Hoa chúng ta có một quán trà, dùng nước Đào Hoa Thủy nấu trà. Lá trà cũng chỉ có ở hậu sơn Thải Tước phủ, tổng cộng vỏn vẹn mười hai gốc trà cổ. Trước tiết Thanh Minh và trước tiết Cốc Vũ, chúng ta giao cho một loài chim quý là thải tước do sơn môn nuôi dưỡng hái trà, rồi lệnh tu sĩ dùng bí pháp sao chế, ép thành bánh. Từng có một vị đại văn hào đích thân viết trong tập thơ truyền đời, khen trà là ‘Tiểu Huyền Bích’. Nước sôi pha ra trà có cái diệu của triều lên triều xuống, sao dời đẩu chuyển. Quán trà ấy không mở cho người ngoài, chúng ta có thể qua đó nói chuyện kỹ hơn.”
 
-Nếu như cái bánh trà này là vách tường huyền ảo, có thể cùng pháp bào kia cùng nhau bán, thì càng tốt hơn.
+Trần Bình An đương nhiên nhập gia tùy tục, khách theo ý chủ.
 
-Dù sao Trần Bình An hôm nay vẫn là người đi khắp nơi, mở cửa mua bán Bao Phục trai, vật hiếm thì quý, chỉ cần thế gian không có ta thì giá cả tự nhiên sẽ được tùy tiện mở.
+Nếu bánh trà Tiểu Huyền Bích có thể đem bán cùng pháp bào thì càng tốt.
 
-Loại kiếm lời ổn định vì có hy vọng buôn bán thật sự cứng rắn này, Trần Bình An ai đến cũng không cự tuyệt, tựa như năm đó ở thành bích họa mua những bộ sách thần nữ đồ lắp bản, đã cùng thiếu niên Bàng Lan Khê so đo nửa ngày, vì trả giá thành công, Trần Bình An thiếu chút nữa không làm việc vặt giúp việc cho tiểu nhị trong cửa hàng.
+Dù sao bây giờ hắn vẫn là một Bao Phục trai đi khắp bốn phương, mở cửa làm ăn. Vật hiếm thì quý, chỉ cần thiên hạ không có mà mình có, giá cả đương nhiên tùy mình ra.
 
-Đến quán trà yên tĩnh ít ỏi của khách nhân, Võ Chiếu và Trần Bình An đi thẳng tới một nhà thuỷ tạ lâm hồ, có nữ tu lộ diện, phụ trách pha trà, sau khi Võ Chiếu giới thiệu xong, Trần Bình An mới biết được đó là chưởng quầy của quán trà.
+Những vụ mua bán chắc lời, lại có hy vọng không cần nhún nhường như thế, Trần Bình An chẳng chê vụ nào. Cũng như năm xưa mua những bộ Thần Nữ Đồ bản phỏng nét tô màu ở thành Bích Họa, hắn đã cò kè với thiếu niên Bàng Lan Khê cả buổi. Để trả giá cho bằng được, hắn suýt vào hiệu làm tiểu nhị giúp việc vặt.
 
-Vũ Thực nói Thải Tước phủ kho tàng hai kiện pháp bào hạng nhất, mười sáu kiện pháp bào hạng trung, giá cả cách xa, mười lăm đồng Cốc Vũ tiền, cái sau chỉ năm đồng.
+Tới quán trà vắng vẻ, khách khứa lưa thưa, Vũ Quân và Trần Bình An đi thẳng vào một tòa thủy tạ ven hồ. Một nữ tu ra mặt, phụ trách nấu trà. Sau khi nghe giới thiệu, hắn mới biết đó chính là chưởng quầy.
 
-Trần Bình An cân nhắc một phen, pháp bào muốn mua, nhưng không phải hiện tại.
+Vũ Quân nói, trong kho Thải Tước phủ có hai món pháp bào hạng nhất, mười sáu món hạng trung. Giá chênh nhau rất xa, loại trước mười lăm đồng tiền cốc vũ, loại sau chỉ năm đồng.
 
-Không phải giật gấu vá vai đến mức mua không nổi một món pháp bào thượng đẳng Thải Tước phủ, Trần Bình An lần này du lịch, vẫn là luôn luôn kiếm tiền, cái khác không nói, Phù Trai lão Hòe phố tấc đất tấc vàng Xuân Lộ Phố, còn có tòa Ngọc Oánh Nhai từ Liễu Chất Thanh bên kia nửa mua nửa lừa mà đến, đều là có thể đổi lấy rất nhiều tiền của thần tiên, còn nữa vật đáng giá trên người Trần Bình An, vẫn là có một ít.
+Trần Bình An nghĩ một lát. Pháp bào phải mua, nhưng chưa phải bây giờ.
 
-Nhưng sau đó không thèm du lịch, sơn thủy xa xôi, pháp bào đối với Trần Bình An ngay từ đầu đã không phải vật cần thiết, cho nên không cần sốt ruột.
+Hắn không túng thiếu đến mức chẳng mua nổi một món pháp bào thượng đẳng của Thải Tước phủ. Chuyến du lịch này hắn vẫn luôn kiếm được tiền. Chưa nói chuyện khác, chỉ riêng Tỳ Phù trai trên phố Lão Hòe, nơi tấc đất tấc vàng của Xuân Lộ phố, cùng sườn dốc Ngọc Oánh nửa mua nửa lừa từ chỗ Liễu Chất Thanh, đều là gia sản đổi được rất nhiều tiền thần tiên. Huống chi trên người hắn vẫn còn vài món đáng giá.
 
-Trần Bình An cũng không quá mức rụt rè, trực tiếp hỏi Thải Tước phủ bên Võ Chiếu, có thể hỗ trợ dự lưu hai pháp bào hay không, hắn ở trong mấy năm gần đây, vô luận mua hay là không mua, đều sẽ cho Thải Tước phủ một câu trả lời rõ ràng.
+Nhưng sau đây hắn còn men theo Đại Độc đi xa, sơn thủy đằng đẵng. Pháp bào ngay từ đầu đã chẳng phải thứ nhất định phải có, không cần vội.
 
-Võ Chiếu thật ra sợ gặp phải một vị đại tài chủ, một hơi mua toàn bộ pháp bào cất trong kho của Thải Tước phủ, đến lúc đó bán mỗi một kiện chẳng khác nào lỗ một khoản.
+Hắn cũng không quá giữ kẽ, hỏi thẳng Vũ Quân xem Thải Tước phủ có thể giữ lại giúp hai món pháp bào hay không. Trong vài năm tới, dù mua hay không, hắn đều sẽ trả lời rõ ràng cho Thải Tước phủ.
 
-Dù sao pháp bào Thải Tước phủ chưa bao giờ lo nguồn tiêu thụ.
+Thật ra, Vũ Quân còn sợ gặp phải một vị đại tài chủ, mở miệng mua sạch pháp bào trong kho Thải Tước phủ. Khi ấy bán một món chẳng khác nào lỗ một khoản.
 
-Dù cùng đối phương vị khách quý trẻ tuổi họ Trần này, tích góp một phần tình hương khói, Thải Tước phủ đến cùng vẫn là thịt đau.
+Dù sao pháp bào của phủ chưa từng lo không bán được.
 
-Nhưng đối phương nói như thế, lại khiến cho tâm tình Võ Chiếu càng thêm nhẹ nhõm, giúp hắn dự lưu hai kiện mà thôi, mặc kệ mua bán có thành hay không, đối phương đều thiếu Thải Tước phủ một phần nhân tình.
+Dẫu có thể nhờ vậy mà kết chút tình hương hỏa với vị quý khách trẻ tuổi họ Trần này, Thải Tước phủ rốt cuộc vẫn xót của.
 
-Vì vậy Vũ Thực bình thường không thích trò chuyện nhiều, liền nói nhiều hơn một chút.
+Đối phương nói như thế lại khiến nàng càng nhẹ nhõm. Chỉ giữ giúp hai món thôi, bất kể mua bán có thành hay không, hắn đều đã nợ Thải Tước phủ một phần nhân tình.
 
-Điều này làm cho vị nữ tu chưởng quỹ trà quán kia hết sức ngạc nhiên, đối với người trẻ tuổi bối kiếm vẻ mặt ôn hoà kia, liền nhìn cao hơn một cái.
+Vì vậy, Vũ Quân vốn ít chuyện cũng nói nhiều hơn đôi chút.
 
-Võ Chiếu dù sao cũng là một vị chưởng luật lão tổ của một ngọn núi, bình thường mà nói là chưa từng tự mình nhúng tay vào chuyện làm ăn của Thải Tước phủ.
+Nữ tu chưởng quầy đang nấu trà hết sức ngạc nhiên, lại càng coi trọng người trẻ tuổi đeo kiếm, vẻ mặt ôn hòa kia.
 
-Trần Bình An là người kiên nhẫn vô cùng tốt, chỉ cần Võ Chiếu mở miệng nói chuyện, sẽ không cúi đầu uống trà, chỉ có Võ Chiếu nói lời tạm dừng, mới nâng chén chậm rãi uống, lúc nữ tu chưởng quầy đưa trà, đều sẽ nói một tiếng cảm ơn.
+Dù sao Vũ Quân cũng là lão tổ chưởng luật một đỉnh núi, bình thường chưa từng đích thân can dự chuyện làm ăn của Thải Tước phủ.
 
-Ngôn ngữ trên mặt có thể giả bộ.
+Trần Bình An rất kiên nhẫn. Chỉ cần nàng mở miệng, hắn sẽ không cúi đầu uống trà. Đợi lời nàng dừng một đoạn, hắn mới nâng chén chậm rãi uống. Mỗi lần nữ tu chưởng quầy đưa trà, hắn đều nói cảm ơn.
 
-Nhưng mà ánh mắt khí tượng lại khó có thể làm bộ.
+Lời nói, sắc mặt có thể giả được.
 
-Vị chưởng quầy nữ tu kia càng thêm chắc chắc người này, là một vị tiên sư gia phả xuất thân tiên gia hào phiệt đỉnh núi, ví dụ như vị Dương Ngưng Tính Vân Tiêu cung kia được đánh giá cực tốt.
+Ánh mắt cùng khí tượng lại khó làm ra.
 
-Trong lúc này, đương nhiên Võ Chiếu đã tạo ra pháp bào cho Thải Tước Phủ của mình vô cùng tinh diệu, tuyên dương một phen.
+Vị chưởng quầy càng chắc chắn hắn là tiên sư có tên trong gia phả, xuất thân từ một hào môn tiên gia trên đỉnh núi cao, cũng như Dương Ngưng Tính của Vân Tiêu cung, người có tiếng tăm rất tốt kia.
 
-Trọng khí trên núi Bắc Câu Lô Châu chế tạo, thuộc loại hoàn toàn xứng đáng hạng nhất, là linh bảo hộ giáp Tam Lang Miếu đúc, Hận Kiếm Sơn phỏng chế vật bản mệnh của các đại kiếm tiên, phi kiếm của Phật Quang Tự bị xích y, Tử Phi Y và Thanh Loan màu ngọc sáu màu, cùng với Hạc Hống vũ y do Đại Nguyên Vương Triều Sùng Huyền sở Vân Tiêu cung luyện chế, ngoài ra còn có bốn đỉnh núi, đều có kỳ vật, trong đó pháp bào do ngõ Lão Quân chế tạo, lượng tiêu cực to lớn, có một châu, chẳng qua pháp bào của ngõ Lão Quân gần như toàn bộ bị Quỳnh Tông lũng đoạn, giá cả vẫn không cao, rất nhiều, bất quá mỗi giáp của ngõ Lão Quân ra một kiện Oánh Nhiên bào, vẫn là lựa chọn đầu tiên của tất cả tu sĩ thượng ngũ cảnh bên ngoài Bắc Câu Lô Châu Kiếm Tiên.
+Trong lúc trò chuyện, đương nhiên Vũ Quân không quên hết lời khen ngợi pháp bào của Thải Tước phủ được chế tạo tinh diệu đến thế nào.
 
-Trừ cái đó ra, ngõ Lão Quân còn chuyên môn cung cấp "Đại duyệt giáp" hoàng đế quân chủ vương triều thế tục khoác trên người, có thể nói phú quý cực hạn, hoa mỹ dị thường.
+Nói đến chế tạo trọng khí trên núi Bắc Câu Lô Châu, những thứ xứng đáng đứng hàng đầu là linh bảo hộ giáp do Tam Lang miếu đúc, phi kiếm của Hận Kiếm sơn phỏng theo vật bản mạng các đại kiếm tiên, ba sắc cà sa Bị Xích Y, Tử Phi Y và Thanh Thao Ngọc Sắc của Phật Quang tự, cùng Hạc Sưởng Vũ Y do Vân Tiêu cung, Sùng Huyền thự của Đại Nguyên vương triều luyện chế. Ngoài ra còn bốn đỉnh núi khác, mỗi nơi đều có kỳ vật.
 
-Lại bị tu sĩ trên núi châm chọc là "Tú hoa y thường" nhìn không vừa mắt, nhưng vẫn được quân chủ nhân gian tôn sùng vô cùng.
+Trong đó, pháp bào ngõ Lão Quân bán chạy, số lượng bán ra cũng nhiều nhất cả châu. Có điều gần như toàn bộ pháp bào nơi đó đều bị Quỳnh Lâm tông độc quyền, giá luôn cao chót vót, đội lên rất nhiều. Nhưng Oánh Nhiên bào, mỗi giáp chỉ làm ra một món, vẫn là lựa chọn đầu tiên của mọi tu sĩ thượng ngũ cảnh Bắc Câu Lô Châu ngoài kiếm tiên.
 
-Kế tiếp chính là pháp bào Thải Tước Phủ của Vũ Chiếu.
+Ngõ Lão Quân còn chuyên cung cấp “Đại Duyệt giáp” cho đế vương các vương triều thế tục khoác lên người, có thể nói phú quý đến cực điểm, hoa mỹ vô cùng.
 
-Trần Bình An trong lòng hiểu rõ.
+Tu sĩ trên núi châm chọc đó là “áo thêu hoa”, chỉ đẹp mà không dùng được, nhưng quân chủ nhân gian vẫn hết sức tôn sùng.
 
-Thải Tước Phủ thua hạng Lão Quân, là chế tạo một môn bí pháp thượng thừa oản bào giống như thượng ngũ cảnh oanh nhiên bào, đây là cơ duyên cầu không được, lại chính là số lượng tu sĩ Thải Tước Phủ, cùng với nguồn gốc đông đảo thiên tài địa bảo. Thật ra hai thứ sau, có thể tranh thủ, ví dụ như cùng Bắc Câu Lô Châu kinh doanh làm đến Quỳnh Lâm Tông hợp tác lớn nhất, Thải Tước Phủ chỉ cần giữ lại bí thuật mấu chốt, Quỳnh Lâm Tông trợ giúp cung cấp tài bảo, chẳng qua kể từ đó Thải Tước Phủ rất dễ dàng bị Quỳnh Lâm Tông nắm giữ, một cái không cẩn thận, mấy trăm năm sau, sẽ biến thành môn phái phiên thuộc.
+Xếp sau những nơi ấy mới đến pháp bào Thải Tước phủ của Vũ Quân.
 
-Mà danh tiếng Quỳnh Lâm Tông tại Bắc Câu Lô Châu, thật sự không tính là tốt.
+Trần Bình An hiểu rõ trong lòng.
 
-Về Quỳnh Lâm tông tài nguyên cuồn cuộn này, tu sĩ các lộ trên núi từng biên soạn ra vô số "Câu đối", tặng cho Quỳnh Lâm tông cùng vị lão tổ sư dựa vào tiền thần tiên cứng rắn nặn ra Ngọc Phác cảnh kia.
+Thải Tước phủ thua ngõ Lão Quân trước hết ở bí pháp thượng thừa có thể chế tạo loại pháp bào như Oánh Nhiên bào dành cho thượng ngũ cảnh. Đó là cơ duyên cầu cũng chưa chắc có. Sau nữa là số lượng tu sĩ trong phủ và nguồn cung các loại thiên tài địa bảo. Hai chuyện sau thật ra có thể tìm cách. Chẳng hạn hợp tác với Quỳnh Lâm tông, nơi có chuyện làm ăn lớn nhất Bắc Câu Lô Châu: Thải Tước phủ chỉ giữ bí thuật then chốt, Quỳnh Lâm tông giúp cung cấp tài vật. Nhưng làm vậy, Thải Tước phủ rất dễ bị người ta nắm trong tay. Chỉ sơ sẩy một chút, mấy trăm năm sau đã biến thành môn phái phiên thuộc.
 
-Trừ hai tay áo Thanh Phong Quỳnh Lâm Tông truyền lưu rộng nhất kia, trên gối thêu hoa ngũ cảnh.
+Mà danh tiếng Quỳnh Lâm tông ở Bắc Câu Lô Châu thật sự chẳng tốt là bao.
 
-Kỳ thật còn có rất nhiều người tổn hại người.
+Các lộ tu sĩ trên núi từng đặt ra vô số “câu đối”, tặng tòa Quỳnh Lâm tông tiền vào như nước ấy cùng vị lão tổ sư dùng tiền thần tiên chất đống, cứng rắn đẩy mình lên Ngọc Phác cảnh.
 
-Quỳnh Lâm tông giá rẻ, Ngọc Phác cảnh vô địch thiên hạ.
+Ngoài câu lưu truyền rộng nhất: “Hai tay áo thanh phong Quỳnh Lâm tông, một chiếc gối thêu hoa thượng ngũ cảnh.”
 
-Đồng tẩu vô khi quỳnh lâm tông, nghiền áp kiếm tiên ngọc phác cảnh.
+Thật ra còn lắm câu độc miệng hơn.
 
-Chưa từng lừa người Quỳnh Lâm Tông, chân tài thực học thượng ngũ cảnh.
+“Hàng tốt giá rẻ Quỳnh Lâm tông, thiên hạ vô địch Ngọc Phác cảnh.”
 
-Nhà thuỷ tạ uống trà, gió lạnh hiu hiu, hai bên trò chuyện với nhau vui vẻ.
+“Già trẻ chẳng lừa Quỳnh Lâm tông, đè bẹp kiếm tiên Ngọc Phác cảnh.”
 
-Trần Bình An tính nghỉ ngơi ở đây, chờ đợi chiếc độ thuyền lúc lên đường đi hướng Long cung động thiên, liền nói một tiếng với Võ Chiếu, Võ Chiếu cười nói không sao, còn dặn dò vị nữ chưởng quầy kia sửa xong đãi khách.
+“Chưa từng lừa khách Quỳnh Lâm tông, tài thật học thật thượng ngũ cảnh.”
 
-Sau khi Võ Chiếu rời đi, Trần Bình An lại xin lỗi một tiếng, nói là đã quấy rầy, nữ tu trà quán có chút được sủng nhược kinh, nói một câu khách khí kiếm tiên uống trà, vẻ vang cho kẻ hèn này.
+Trong thủy tạ, thanh phong hiu hiu, hai bên uống trà chuyện trò vui vẻ.
+
+Trần Bình An muốn nghỉ lại đây, đợi chuyến thuyền giờ Tý đi Long Cung động thiên, bèn nói với Vũ Quân một tiếng. Nàng cười bảo không sao, còn dặn nữ tu chưởng quầy tiếp đãi chu đáo.
+
+Sau khi nàng rời đi, Trần Bình An lại cáo lỗi vì đã quấy rầy. Nữ tu quán trà được quan tâm mà hơi kinh ngạc, khách khí đáp rằng kiếm tiên ghé uống trà, nhà cỏ cũng được thơm lây.
 
 Đêm xuống.
 
-Trần Bình An ngồi một mình giữa nhà thuỷ tạ, nhắm mắt dưỡng thần.
+Trần Bình An một mình ngồi trong thủy tạ, nhắm mắt dưỡng thần.
 
-Thanh dạ vô trần, nguyệt sắc như ngân.
+Đêm trong không bụi, trăng sáng như bạc.
 
-Đêm khuya vắng người, trăng sáng tha hương, dễ dàng khiến người ta sinh ra chút nhớ nhung thường ngày giấu ở đáy lòng.
+Đêm khuya vắng người, trăng sáng quê người, dễ khơi dậy nhất những nỗi nhớ thường ngày giấu dưới đáy lòng.
 
-Tôi có ý niệm riêng, cách xa quê hương.
+Ta có người nhung nhớ, ở tận chốn quê xa.
 
-Trữ cô nương là như thế, Lưu Tiện Dương cũng là như thế. Về phần con sên nhỏ ngõ Nê Bình, đại khái càng như thế.
+Ninh cô nương là như thế, Lưu Tiện Dương cũng thế. Còn con sên nhỏ ở ngõ Nê Bình, có lẽ lại càng như thế.
+
+---
+
+Ghi chú đối chiếu: Bản Việt nguồn gọi cùng một nữ tu là Võ Chiếu, Vũ Thực và Vũ Chiếu. Nguyên tác chỉ dùng 武峮; bản này thống nhất “Vũ Quân” theo tên dùng trong đợt biên tập, đánh [?] ở lần đầu để lưu ý âm Hán Việt của chữ 峮 cần rà lại. Câu giới thiệu tên chuyển theo cấu tạo chữ trong bản Trung: 武 gồm 止, 戈; 峮 gồm 山, 君. Từ Huyễn (徐铉), Phù Cừ quốc (芙蕖国) và Ly Thải (郦采, ở chương trước) được đối chiếu với cách gọi đã có trong các chương của dự án.
