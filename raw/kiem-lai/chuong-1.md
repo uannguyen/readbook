@@ -1,17 +1,4 @@
----
-title: "剑来-第1章 惊蛰_笔趣阁"
-source: "https://www.biquge.tw/book/56184/17621918.html"
-author:
-published:
-created: 2026-11-07
-description: "剑来是作者烽火戏诸侯所著的类小说，本章节为第1章 惊蛰。更多《剑来》章节请到「笔趣阁网」免费全文在线阅读..."
-tags:
-  - "clippings"
----
-
-超小小中大超大
-
-## 第1章 惊蛰（1 / 1）
+# Chương 1: 惊蛰
 
 二月二，龙抬头。
 
