@@ -1,291 +1,291 @@
-# Chương 621: Trong cái này có chân ý
+# Chương 621: Trong đó có chân ý
 
-Trong hoàng hôn, Lý Liễu mang theo hộp đồ ăn đến trên núi, ở nhà tranh bên kia, Lý Nhị cùng Trần Bình An ở trên bàn ăn cơm.
+Trời nhá nhem tối, Lý Liễu xách hộp thức ăn lên núi. Trong nhà tranh, Lý Nhị và Trần Bình An ngồi cùng bàn ăn cơm.
 
-Hôm nay luyện quyền, Lý Nhị hiếm thấy chưa cho ăn quyền như thế nào, chỉ là cầm bức Hỏa Long Đồ vẽ đầy kinh mạch, huyệt vị đặt ở đất, cùng Trần Bình An cẩn thận kể lại lộ tuyến lưu chuyển khác nhau của mấy quyền chủng cổ xưa, thuần túy chân khí trong thiên hạ, đều tự chú ý cùng tinh diệu, nhất là trình bày năm trăm hai mươi khối cơ bắp bất đồng trên thân người, từ từng chỗ chi tiết cụ thể, tháo giải quyền lý, quyền ý, cùng với quyền chủng môn phái khác nhau rèn luyện gân cốt, rèn luyện chân khí pháp, đối với da thịt, gân cốt, kinh mạch mài giũa, đại khái lại có bí thuật độc môn áp đáy hòm nào, giải thích vì sao có tông sư luyện quyền đến chỗ sâu, sẽ đột nhiên tẩu hỏa nhập ma.
+Hôm nay luyện quyền, hiếm khi Lý Nhị chỉ cho Trần Bình An đỡ vài quyền. Hắn trải bức Hỏa Long đồ vẽ đầy kinh mạch và huyệt vị xuống đất, giảng kỹ đường vận chân khí thuần túy của mấy dòng quyền cổ. Mỗi dòng đều có chỗ tinh diệu và những điều riêng phải lưu tâm. Hắn lấy từng chỗ cụ thể trong năm trăm hai mươi bó cơ trên thân người để cắt nghĩa quyền lý, quyền ý. Từ cách rèn gân cốt và chân khí của các môn phái, hắn nói đến những bí thuật riêng dùng để mài giũa da thịt, gân xương, kinh mạch, rồi giải thích vì sao có tông sư luyện quyền đến chỗ thâm sâu lại đột nhiên tẩu hỏa nhập ma.
 
-Trần Bình An vẫn là lần đầu nghe nói võ phu cổ đại, thế mà còn chia cơ bắp làm hai loại lớn tùy ý cùng không tùy ý, về rèn luyện cơ thịt tốt bao nhiêu giống như "nơi man di", lệch về góc, học vấn lớn hơn nữa, võ phu tầm thường rất khó có thể chân truyền quyền cái quyền cọc chân truyền sư môn, hoàn toàn rèn luyện nó, cho nên mới có khác biệt về độ dày mỏng của võ phu cùng cảnh giới.
+Trần Bình An lần đầu nghe nói võ phu thời xưa đã chia cơ bắp thành hai loại lớn, một loại có thể tự ý điều khiển, một loại thì không. Có những chỗ trong phép rèn cơ thịt giống như vùng đất xa xôi, dễ bị bỏ qua. Học vấn càng sâu, võ phu tầm thường càng khó rèn luyện đến nơi đến chốn bằng các thế quyền và quyền cọc chân truyền của sư môn. Bởi vậy, võ phu cùng cảnh giới vẫn có căn cơ dày mỏng khác nhau.
 
-Thôi Thành dạy quyền, đại khai đại hợp, như thác nước lao thẳng xuống, có chút vô ý, ứng đối có sai lầm, Trần Bình An liền muốn sống không bằng chết, càng nhiều là lộ ra một loại bản năng, buộc Trần Bình An lấy tâm chí cứng cỏi đi cắn răng chống đỡ, trình độ lớn nhất là thể phách "Khai sơn", huống chi Thôi Thành hai lần giúp đỡ Trần Bình An ra quyền rèn luyện, nhất là lần đầu tiên ở trúc lâu, không chỉ đánh Trần Bình An ở trên thân thể, ngay cả hồn phách cũng chưa buông tha.
+Thôi Thành dạy quyền, đại khai đại hợp như thác đổ. Chỉ cần Trần Bình An sơ ý, ứng phó sai một chút là sống không bằng chết. Phần nhiều, lão buộc hắn cắn răng chống đỡ bằng ý chí và bản năng, nhờ đó mới có thể khai mở thể phách đến mức cao nhất. Hai lần Thôi Thành ra quyền rèn giũa hắn, nhất là lần đầu ở trúc lâu, lão đánh cả thân thể lẫn hồn phách.
 
-Cái này giống quyền ý Thôi Thành đưa ra mười cân, Trần Bình An ngươi phải ngoan ngoãn ăn hết mười cân quyền ý, thiếu một lượng cũng không được. Là Thôi Thành túm lấy Trần Bình An đi nhanh ở trên võ đạo đăng cao, lão tiền bối hoàn toàn mặc kệ "đứa trẻ" trong tay, có thể dưới lòng bàn chân nổi bọt, máu thịt be bét, xương trắng lõa lồ hay không.
+Thôi Thành đưa ra mười cân quyền ý thì Trần Bình An phải ngoan ngoãn chịu đủ mười cân, thiếu một lạng cũng không được. Lão tiền bối cứ túm hắn kéo đi thật nhanh trên đường võ đạo, chẳng màng đứa trẻ trong tay có phồng rộp lòng bàn chân, máu thịt be bét, thậm chí trơ cả xương trắng hay không.
 
-Trái lại Lý Nhị lần này dạy quyền, cũng có rèn luyện khí lực, chỉ là chiếu cố quyền lý truyền thụ căn bản, còn muốn Trần Bình An tự mình đi cân nhắc. Là Lý Nhị chỉ rõ con đường.
+Lý Nhị lần này cũng rèn khí lực cho hắn, đồng thời truyền thụ quyền lý căn bản. Những chỗ còn lại phải do Trần Bình An tự cân nhắc. Lý Nhị chỉ đường cho hắn đi.
 
-Hai người không phân cao thấp, chính là một cái trình tự trước sau có khác. Đúng như Lý Nhị nói, thay thế vị trí dạy quyền với Thôi Thành, Trần Bình An không thể có được quang cảnh võ học hôm nay.
+Cách dạy của hai người chẳng có cao thấp, chỉ khác nhau ở chỗ ai dạy trước, ai dạy sau. Đúng như Lý Nhị nói, nếu hắn đổi chỗ với Thôi Thành, Trần Bình An không thể có được võ học như hôm nay.
 
-Đến trên bàn cơm, Trần Bình An vẫn đang hỏi Lý Nhị về quỹ tích chuyển động của chân khí nào đó của bức Hỏa Long đồ kia.
+Tới lúc ngồi vào bàn ăn, Trần Bình An vẫn hỏi Lý Nhị về một đường vận chân khí trên bức Hỏa Long đồ.
 
 Lý Liễu không quấy rầy hai người, im lặng ngồi ở một bên.
 
-Chẳng biết lúc nào, bàn gỗ ghế dài, ghế trúc trong phòng đều đã đầy đủ.
+Chẳng biết từ lúc nào, trong phòng đã có đủ bàn gỗ, ghế dài và ghế trúc.
 
-Trần Bình An tò mò hỏi: "Lý thúc thúc, ngươi luyện quyền ngay từ đầu, đã mỏng như vậy?"
+Trần Bình An tò mò hỏi: "Lý thúc thúc, ngay từ đầu thúc đã luyện quyền kỹ đến thế sao?"
 
-Lý Nhị cười nói: "Không phải do ta thô, sư phụ bên kia sẽ nhìn chằm chằm tiến trình, sư phụ cũng mặc kệ những việc nhỏ không đáng kể trên đường tập võ, đến canh giờ nào đó, sư phụ cảm thấy nên có quyền ý mấy cân mấy lượng, nếu để cho sư phụ cảm thấy lười biếng lười biếng, tự có đau khổ ăn, ta còn tốt, dựa theo quy củ, cắm đầu khổ luyện là được. Trịnh Đại Phong năm đó liền tương đối thảm, ta nhớ rõ Trịnh Đại Phong mãi đến tận khi rời khỏi Ly Châu động thiên, còn có một hồn một phách bị giam giữ ở bên sư phụ. Không biết sau đó sư phụ trả lại cho Trịnh Đại Phong hay không, tuy nói là sư huynh đệ đồng môn, nhưng có chút vấn đề, vẫn là không tiện tùy tiện hỏi."
+Lý Nhị cười nói: "Ta luyện thô cũng chẳng sao, sư phụ sẽ để mắt xem ta tiến bộ đến đâu. Người chẳng bận tâm đến mấy chuyện vụn vặt trên đường tập võ, chỉ định đến lúc nào thì ta phải có mấy cân mấy lạng quyền ý. Để người thấy mình lười biếng thì tự khắc có khổ mà chịu. Ta còn đỡ, cứ theo quy củ cắm đầu khổ luyện là được. Trịnh Đại Phong năm đó mới khổ. Ta nhớ mãi đến khi hắn rời Ly Châu động thiên, sư phụ vẫn còn giữ một hồn một phách của hắn. Về sau người có trả lại hay không, ta cũng chẳng biết. Tuy là sư huynh đệ đồng môn, có những chuyện vẫn không tiện hỏi."
 
 Trần Bình An càng thêm nghi hoặc.
 
-Hồn phách không được đầy đủ thì còn luyện quyền thế nào được.
+Hồn phách không đủ thì luyện quyền thế nào được?
 
-Lý Nhị nhấp ngụm rượu, nói: "Nói với ngươi những thứ này cũng không sao, phương pháp luyện quyền của Trịnh Đại Phong, ngay ở chỗ hồn phách khác nhau, từng luồng hồn phách, luyện các loại, ba hồn bảy vía, liền cần ở trong mười ý niệm của mình luyện quyền, cho nên lúc sư đệ trông cửa, nhìn thấy thường xuyên buồn ngủ ngủ, lại không phải thật sự ngủ, vất vả luyện quyền mà thôi. Về phần sư muội Tô đ**m, lại có khác, coi trọng một cái luyện đêm cùng mộng luyện, sư đệ Thạch Linh Sơn, là đi hướng quang âm trường hà, rèn luyện thần hồn thể phách, thường xuyên chết đuối ở trong đó, may mà có thể được sư phụ vớt ra từ trong "thi thể" đó. Biện pháp đều là tốt, nhưng cuối cùng ai có thể đi đến chỗ cao nhất, vẫn phải xem tạo hóa của mình, nghe cách nói của sư phụ, con đường của mỗi người, không cẩn thận luyện thành phế nhân, không ở số ít."
+Lý Nhị nhấp ngụm rượu: "Nói với ngươi cũng chẳng sao. Trịnh Đại Phong dùng mỗi hồn mỗi phách để luyện một thứ. Ba hồn bảy vía là mười ý niệm, hắn phải luyện quyền trong cả mười. Cho nên lúc sư đệ ta trông cửa, trông như hay ngủ gật, kỳ thực đang khổ luyện. Sư muội Tô đ**m [?] lại luyện quyền ban đêm và trong mộng. Thạch Linh Sơn đi vào dòng sông thời gian rèn thần hồn và thể phách, thường chết đuối trong đó, may mà có sư phụ vớt lên. Cách nào cũng tốt, nhưng ai đi được tới chỗ cao nhất thì còn tùy tạo hóa. Theo lời sư phụ, trên con đường của mình, chẳng ít người sơ ý luyện đến mức thành phế nhân."
 
-Lý Liễu cười nói: "Trần Bình An, mẹ ta bảo ta hỏi ngươi, có phải cảm thấy bên kia cửa hàng keo kiệt, mới mỗi lần xuống núi đều không muốn qua đêm ở nơi đó hay không."
+Lý Liễu cười hỏi: "Trần Bình An, mẹ ta bảo ta hỏi ngươi, có phải ngươi thấy cửa hàng nhà ta keo kiệt nên lần nào xuống núi cũng chẳng muốn ở lại qua đêm không?"
 
-Trần Bình An bất đắc dĩ nói: "Nếu ta qua đêm ở bên kia, dễ dàng truyền ra chút lời đồn, hại thanh danh của ngươi ở trấn nhỏ không dễ nghe, cho dù bản thân Lý cô nương không thèm để ý, Liễu thẩm thẩm lại là phải thường xuyên giao tiếp với hàng xóm láng giềng, nhỡ đâu có thời điểm cãi nhau, người ngoài lấy chuyện này nói, Liễu thẩm thẩm còn không uất ức nửa ngày. Cho dù ngươi về sau gả cho người ta, vẫn là nhược điểm, Lý cô nương gả càng tốt, các phụ nhân nữ càng thích lật lại lịch cũ."
+Trần Bình An bất đắc dĩ nói: "Ta ở lại qua đêm, dễ có lời ra tiếng vào, không hay cho thanh danh của cô nương ở trấn nhỏ. Cô nương có thể chẳng để tâm, nhưng Liễu thẩm thẩm còn phải thường xuyên gặp gỡ hàng xóm. Mai kia lỡ cãi nhau, người ta đem chuyện đó ra nói, chẳng phải thẩm sẽ ấm ức cả buổi sao? Dù sau này cô nương lấy chồng, bọn họ vẫn có cớ để nói. Cô nương càng lấy được chồng tốt, mấy vị phụ nhân càng thích lôi chuyện cũ ra nhắc."
 
-Lý Liễu cười nói: "Lý là đạo lý này, nhưng ngươi tự nói với mẫu thân ta đi."
+Lý Liễu cười nói: "Lý lẽ thì phải rồi, nhưng ngươi cứ tự nói với mẹ ta đi."
 
-Về phần chuyện kết hôn, Lý Liễu chưa bao giờ nghĩ tới.
+Còn chuyện lấy chồng, Lý Liễu chưa từng nghĩ tới.
 
-Trần Bình An nhìn Lý Nhị, kế tiếp còn có một lần dạy quyền cuối cùng.
+Trần Bình An nhìn Lý Nhị. Vẫn còn một buổi dạy quyền cuối cùng.
 
-Lý Nhị muốn hắn trước dưỡng đủ tinh thần, nói là không nóng nảy, Trần Bình An luôn cảm thấy có chút không ổn.
+Lý Nhị bảo hắn cứ dưỡng sức cho đủ, không cần vội. Trần Bình An nghe mà vẫn thấy có gì đó không ổn.
 
-Lý Nhị hỏi: "Một ít tiền bối võ phu trong lịch sử Hạo Nhiên Thiên Hạ, quyền thế của bọn họ căn bản, có chút xấp xỉ với giáo đại long của ngươi, ngươi học trộm được ở đâu."
+Lý Nhị hỏi: "Trong lịch sử Hạo Nhiên thiên hạ, có mấy vị tiền bối võ phu dùng thế quyền căn bản khá giống kiểu rèn đại long của ngươi. Ngươi học lỏm ở đâu thế?"
 
 Trần Bình An uống ngụm rượu, cười nói: "Lý thúc thúc, không thể là quyền giá ta tự mình ngộ ra sao?"
 
 Lý Nhị cười cười.
 
-Ánh mắt kia, quả thực chính là cha vợ xuất thân lão giang hồ nhìn con rể kia, dạy người sau không chỗ che thân.
+Ánh mắt ấy chẳng khác gì một lão giang hồ làm cha vợ nhìn con rể, khiến người sau chẳng giấu được gì.
 
-Trần Bình An cũng không tiếp tục che đậy, nói: "Quyền giá này, là một vị lão tiên sinh Ngẫu Hoa phúc địa Đồng Diệp châu sáng tạo, tên là Chủng Thu, là quốc sư Nam Uyển quốc, ở thiên hạ đó, lão tiên sinh ở trên giang hồ được vinh dự là Văn thánh nhân võ tông sư, ta từng muốn mời lão tiên sinh cùng nhau rời khỏi Ngẫu Hoa phúc địa, chỉ tiếc lão tiên sinh lúc ấy băn khoăn rất nhiều, bản thân không muốn rời khỏi. Không biết về sau có sửa lại chủ ý hay không."
+Trần Bình An cũng thôi giấu giếm: "Quyền giá này do một vị lão tiên sinh ở Ngẫu Hoa phúc địa thuộc Đồng Diệp châu sáng tạo. Ông tên là Chủng Thu, quốc sư Nam Uyển quốc. Người giang hồ trong thiên hạ ấy gọi ông là văn thánh nhân, võ tông sư. Ta từng mời ông cùng rời Ngẫu Hoa phúc địa, tiếc là lúc ấy ông có nhiều điều băn khoăn, không muốn đi. Chẳng biết sau này ông có đổi ý không."
 
 Lý Nhị nói: "Hẳn là đến Hạo Nhiên Thiên Hạ."
 
-Lý Liễu nghĩ nghĩ, nhớ lại khí tượng nơi nào đó bên cạnh kinh thành Nam Uyển quốc, "Hiện nay Ngẫu Hoa phúc địa không bắt được người này, giao long cuộn mình trong hồ nước, không phải kế lâu dài."
+Lý Liễu nghĩ một lát, nhớ lại khí tượng ở một nơi gần kinh thành Nam Uyển quốc: "Ngẫu Hoa phúc địa bây giờ không giữ nổi người này. Giao long cuộn mình trong ao, nào phải kế lâu dài."
 
-Trần Bình An gật đầu nói: "Ta về sau trở về Lạc Phách Sơn, cùng Chủng tiên sinh nói chuyện một chút."
+Trần Bình An gật đầu: "Sau này về Lạc Phách sơn, ta sẽ nói chuyện với Chủng tiên sinh."
 
-Lý Nhị ăn xong rượu và thức ăn, liền xuống núi.
+Lý Nhị ăn uống xong liền xuống núi.
 
-Lý Liễu thì lưu lại trên Sư Tử Phong "Cùng lão thần tiên trên núi tu tập tiên thuật".
+Lý Liễu ở lại Sư Tử phong để "tu tập tiên thuật với lão thần tiên trên núi".
 
-Lý Liễu xách hộp thức ăn đi hướng phủ đệ của mình, mang theo Trần Bình An cùng nhau tản bộ.
+Lý Liễu xách hộp thức ăn về phủ đệ, rủ Trần Bình An đi dạo cùng.
 
-Lần này Sư Tử phong vô duyên vô cớ phong sơn, không riêng gì sơn môn bên kia không được ra vào, người tu đạo trên núi, cũng tương đương bị cấm túc, không cho phép bất luận kẻ nào tùy tiện đi lại.
+Lần này Sư Tử phong đột nhiên phong sơn. Sơn môn đóng kín, tu sĩ trên núi cũng như bị cấm túc, chẳng ai được tùy tiện đi lại.
 
 Cho nên hai người không gặp bất kỳ tu sĩ Sư Tử phong nào trên đường.
 
-Lý Liễu hỏi: "Đã rời khỏi đảo Phù Thủy động thiên Long cung, linh khí trên Sư Tử phong nhạt nhẽo hơn rất nhiều, có thể không thích ứng hay không?"
+Lý Liễu hỏi: "Rời đảo Phù Thủy trong Long cung động thiên rồi, linh khí ở Sư Tử phong loãng hơn nhiều, ngươi có thấy không quen không?"
 
-Trần Bình An cười nói: "Sẽ không. Ba địa địa phương tích tụ linh khí, thủy phủ, sơn từ cùng mộc trạch ở Phù Thủy đảo bên kia, hôm nay còn chưa rèn luyện xong, đây là ta từ khi làm tu sĩ tới nay, lần đầu ăn quá no. Ở trên đảo Phù Thủy, dựa vào những linh khí tràn đầy không giữ được đó, ta vẽ gần hai trăm tấm phù lục, quan hệ lầu các cận thủy, phù lục ngang ngược sông lớn chiếm đa số, tiên gia đan sa mua ở Xuân Lộ Phố đều cho ta một hơi dùng hết."
+Trần Bình An cười: "Không đâu. Ba nơi tích linh khí là thủy phủ, sơn từ và mộc trạch đến giờ vẫn chưa luyện hóa hết phần thu được ở đảo Phù Thủy. Từ khi làm tu sĩ, đây là lần đầu ta ăn no quá sức. Trên đảo, ta dùng chỗ linh khí dồi dào không giữ nổi ấy để vẽ gần hai trăm tấm phù. Vì lầu các ở gần nước nên phần lớn là phù dùng trên sông lớn. Chỗ đan sa tiên gia mua ở phố Xuân Lộ cũng bị ta dùng hết một lượt."
 
-Lý Liễu nói: "Những chuyện này đều là việc nhỏ, không cần quá cảm kích đảo Phù Thủy và Lý Nguyên, thật ra nếu Lý Nguyên đủ thông minh, hẳn là nên tặng khối ngọc bài "Tứ Thanh Vũ Tướng" kia cho Trần tiên sinh. Đáng tiếc tên này không phóng khoáng, giống như trời hạn gặp mưa, chỉ biết dùng hai tay nâng nước, không biết dời ra khỏi vại nước, sau khi mưa to, chỉ là giải khát nước một thời mà thôi."
+Lý Liễu nói: "Đều là chuyện nhỏ, tiên sinh chẳng cần quá cảm kích đảo Phù Thủy và Lý Nguyên. Nếu đủ thông minh, hắn nên tặng tiên sinh tấm ngọc bài Tứ Thanh Vũ Tướng kia. Tiếc là hắn không đủ rộng rãi. Hạn lâu gặp mưa mà chỉ biết khum tay hứng nước, chẳng biết mang vại ra. Mưa lớn qua đi cũng chỉ giải được cơn khát nhất thời."
 
-Trần Bình An lấy ra tấm mộc bài "nghỉ ngơi", "Lý Nguyên không biết vì sao dọc theo Tế Độc rời khỏi Thủy Long tông, tặng ta cái này, lễ khinh tình ý trọng, không kém tấm mộc bài "Vũ tướng" kia."
+Trần Bình An lấy tấm mộc bài "nghỉ ngơi" ra: "Chẳng biết vì sao Lý Nguyên lại men theo Tế Độc rời Thủy Long tông. Hắn tặng ta thứ này. Lễ nhẹ mà tình nặng, chẳng kém tấm ngọc bài Vũ Tướng kia."
 
-Lý Liễu liếc mộc bài thô ráp, lắc đầu, "Tấm thẻ bài này có thể giúp được Trần tiên sinh không? Nhất là hấp thu thủy vận linh khí, làm ít công to."
+Lý Liễu liếc tấm mộc bài thô ráp rồi lắc đầu: "Tấm bài này giúp được gì cho tiên sinh? Tấm ngọc bài kia, nhất là khi dùng để hấp thu linh khí thủy vận, bỏ ít công mà được nhiều."
 
-Trần Bình An thu hồi mộc bài, cười nói: "Nhưng mà sau này ta lại đến Bắc Câu Lô Châu và Tế Độc, có thể quang minh chính đại đi tìm Lý Nguyên uống rượu, chỉ là uống rượu là được. Nếu là tấm biển "Tướng mưa" kia, ta sẽ không nhận, mặc dù kiên trì nhận lấy, cũng sẽ có chút gánh nặng."
+Trần Bình An cất mộc bài, cười nói: "Sau này trở lại Bắc Câu Lô Châu, đi qua Tế Độc, ta có thể đường đường chính chính tìm Lý Nguyên uống rượu. Chỉ uống rượu thôi. Còn tấm ngọc bài Vũ Tướng, ta sẽ không nhận. Có miễn cưỡng nhận, trong lòng cũng khó tránh nặng nề."
 
 Lý Liễu trầm mặc một lát, chậm rãi nói: "Trần tiên sinh gần như có thể phá cảnh rồi."
 
 Trần Bình An gật đầu nói: "Hình như chỉ còn thiếu một quyền nữa."
 
-Lý Liễu đột nhiên nói: "Vẫn là ý tứ như vậy, trên đường tu hành, ngàn vạn đừng do dự, cùng bước đi vững chắc trên con đường võ học, tiến hành theo chất lượng, người tu đạo, cần một loại tâm tư khác, cơ duyên to lớn, đều phải dám cầu xin dám nhận, không thể sinh lòng khiếp ý, sợ hãi rụt rè, quá mức so đo phúc họa tương y răn dạy. Trần tiên sinh có lẽ sẽ cảm thấy đợi đến khi thuộc tính ngũ hành đầy đủ hết, kiếm đủ năm vật bản mạng, hoàn toàn trùng kiến trường sinh kiều, cho dù lúc ấy vẫn là ngưng lại tam cảnh, cũng không sao cả, trên thực tế, tâm cảnh người tu đạo như thế, liền rơi xuống tầm thường."
+Lý Liễu đột nhiên nói: "Ta vẫn có ý ấy. Trên đường tu hành, ngàn vạn lần đừng do dự. Luyện võ thì từng bước vững vàng mà tiến, tu đạo lại cần một tâm thế khác. Cơ duyên có lớn đến đâu cũng phải dám cầu, dám nhận, chớ sợ hãi rụt rè, quá bận lòng vì lời răn phúc họa nương nhau. Có lẽ tiên sinh nghĩ cứ đợi đủ năm vật bản mạng thuộc ngũ hành, dựng lại xong trường sinh kiều, đến lúc ấy vẫn dừng ở tam cảnh cũng chẳng sao. Tâm thế tu đạo như vậy đã rơi vào lối tầm thường rồi."
 
 Trần Bình An chậm rãi cân nhắc.
 
-Lý Liễu tiếp tục nói: "Nếu đã làm người tu đạo, nên có một phần siêu thoát tâm lý cách mặt đất vạn dặm. Tập võ là thuận thế đăng cao, tu hành là ngược dòng mà lên. Cho nên đợi đến khi chen thân võ phu Kim Thân cảnh, Trần tiên sinh nên tự mình suy nghĩ phương pháp phá vỡ bình cảnh của Luyện khí sĩ tam cảnh, tam cảnh Liễu Cân cảnh, từ xưa đã là Lưu Nhân cảnh, không lẽ Trần tiên sinh còn mong đợi mình một bước lên trời?"
+Lý Liễu nói tiếp: "Đã là tu sĩ, phải có một phần tâm khí siêu thoát, như cách mặt đất vạn dặm. Tập võ thuận thế mà lên, tu hành lại phải ngược dòng. Cho nên khi đã vào Kim Thân cảnh, tiên sinh nên tự nghĩ cách phá bình cảnh tam cảnh của luyện khí sĩ. Tam cảnh Liễu Cân từ xưa đã là cảnh giới giữ chân người. Chẳng lẽ tiên sinh còn mong một bước lên trời?"
 
 Trần Bình An cười lắc đầu, "Không dám nghĩ, cũng sẽ không nghĩ như vậy."
 
-Lý Liễu nói: "Trước khi ta quay về Sư Tử phong, Kim Giáp châu liền có võ phu lấy lục cảnh mạnh nhất thiên hạ chen thân Kim Thân cảnh, cho nên trừ võ miếu các nơi bản địa Kim Giáp châu, đều phải có cảm ứng, chúc mừng cho nó, thiên hạ tám châu còn lại, đều phải chia ra một phần võ vận, đi hướng Kim Giáp châu, một phân thành hai, một cho võ phu, một lưu lại ở châu võ phu. Dựa theo quy củ cũ, võ phu võ vận tương tự với linh khí tu sĩ, không phải là khí vận huyền diệu khó giải thích, Trung Thổ Thần Châu đồ sộ nhất, một châu có thể coi là bát châu, cho nên thường thường là võ phu Trung Thổ đạt được võ vận nhiều nhất ở Biệt châu, nhưng mà một khi võ phu ở Biệt châu phá cảnh, Trung Thổ Thần Châu đưa ra võ vận, cũng sẽ càng nhiều hơn, bằng không võ phu mạnh nhất trên đời này, sẽ chỉ bị Trung Thổ Thần Châu bao trọn."
+Lý Liễu nói: "Trước khi ta về Sư Tử phong, có một võ phu Kim Giáp châu lấy thân phận lục cảnh mạnh nhất thiên hạ bước vào Kim Thân cảnh. Các võ miếu trên khắp Kim Giáp châu đều cảm ứng, chúc mừng người ấy. Tám châu còn lại mỗi châu cũng phải chia một phần võ vận đưa tới Kim Giáp châu, rồi tách làm hai, một phần cho võ phu, một phần để lại châu của hắn. Theo lệ cũ, võ vận đối với võ phu cũng như linh khí đối với tu sĩ, có thể thu nhận được, chẳng phải thứ khí vận mơ hồ khó nói. Trung Thổ Thần Châu rộng lớn nhất, một châu sánh được với tám châu, cho nên võ phu Trung Thổ thường nhận được nhiều võ vận từ các châu khác nhất. Nhưng khi võ phu châu khác phá cảnh, Trung Thổ cũng phải chia nhiều võ vận hơn. Bằng không, võ phu mạnh nhất thiên hạ hẳn đều rơi vào tay Trung Thổ."
 
 Đây là một chuyện mới mẻ Trần Bình An chưa từng nghe nói.
 
-Lý Liễu trêu ghẹo nói: "Nếu là võ phu Kim Giáp châu kia, chậm chút nữa thời gian phá cảnh, chuyện tốt sẽ biến thành chuyện xấu, bỏ lỡ giao tình với võ vận. Xem ra người này không chỉ là võ vận cường thịnh, vận khí thật sự không tệ."
+Lý Liễu trêu: "Nếu võ phu Kim Giáp châu kia phá cảnh muộn hơn một chút, chuyện tốt đã hóa chuyện xấu, phần võ vận ấy cũng lỡ mất. Xem ra hắn có võ vận thịnh, vận may cũng chẳng kém."
 
-Trần Bình An nghe ra ngụ ý của Lý Liễu, ở trên Sư Tử Phong sơn, sau khi Lý thúc thúc cho ăn quyền, Trần Bình An hắn đã bắt đầu đuổi theo hơn nữa vượt qua trụ cột lục cảnh của vị thiên tài võ phu kia.
+Trần Bình An hiểu ý nàng. Sau khi được Lý thúc thúc cho ăn quyền ở Sư Tử phong, căn cơ lục cảnh của hắn đã đuổi kịp, thậm chí vượt qua võ phu thiên tài ấy.
 
-Vui thì đương nhiên là có, nhưng mừng rỡ như thế nào thì cũng chưa nói tới.
+Hắn đương nhiên vui, nhưng cũng chưa đến mức mừng rỡ.
 
-Trần Bình An tò mò hỏi: "Quy mô võ vận lưu chuyển trên bản đồ Cửu Châu này, tu sĩ đỉnh núi đều có thể nhìn thấy được?"
+Trần Bình An tò mò hỏi: "Võ vận luân chuyển khắp chín châu như vậy, tu sĩ đứng trên đỉnh núi đều trông thấy được sao?"
 
-"Việc đi hay ở võ vận thiên hạ, vẫn là nho gia văn miếu đều không khám phá được, chuyện không xen vào được, trước kia nho gia thánh nhân không phải không muốn xen vào, tính toán xen vào trong quy củ nhà mình, nhưng Lễ Thánh không gật đầu đáp ứng, thì không sao. Rất thú vị, Lễ Thánh rõ ràng là người tự tay chế định quy củ, lại giống như vẫn đối đầu với nho gia đời sau, rất nhiều lựa chọn có ích cho nho gia văn mạch phát triển, đều bị Lễ Thánh tự mình phủ định."
+"Võ vận thiên hạ đi hay ở, ngay Văn Miếu Nho gia cũng không nhìn thấu, càng không thể can thiệp. Xưa kia thánh nhân Nho gia từng muốn đưa chuyện này vào quy củ nhà mình. Lễ Thánh không gật đầu nên đành thôi. Chuyện thú vị là Lễ Thánh tự tay định ra quy củ, lại giống như luôn đi ngược ý Nho gia đời sau. Nhiều lựa chọn có lợi cho văn mạch Nho gia đều bị chính người bác bỏ."
 
-Lý Liễu êm tai nói ra, nói toạc ra rất nhiều thiên cơ: "Trừ phi là tu sĩ Phi Thăng cảnh đỉnh phong miễn cưỡng có thể thấy rõ thiên cơ, bằng không rất khó phát hiện dấu hiệu, tiếp đó chính là bảy mươi hai thánh hiền nho gia tọa trấn màn trời, thấy rõ ràng nhất, cái gọi là mạnh nhất thuần túy võ phu, chỉ là so sánh với võ phu đồng cảnh cửu châu cùng thời đại, cho nên Tào Từ cùng Trần tiên sinh loại võ phu này, nếu là ở lại cảnh giới nào đó thật lâu, toàn bộ võ phu cùng cảnh giới còn lại đều không cần hy vọng xa vời phần võ vận đó."
+Lý Liễu thong thả nói, hé lộ không ít thiên cơ: "Tu sĩ phải tới đỉnh Phi Thăng cảnh mới miễn cưỡng thấy được, bằng không khó nhận ra dấu hiệu. Bảy mươi hai thánh hiền Nho gia trấn giữ màn trời thì thấy rõ nhất. Cái gọi là võ phu thuần túy mạnh nhất chỉ là so với võ phu cùng cảnh giới, cùng thời ở chín châu. Cho nên nếu võ phu như Tào Từ và tiên sinh ở lại một cảnh giới quá lâu, những người đồng cảnh khác cũng chẳng cần mong phần võ vận ấy."
 
-Trần Bình An lắc đầu nói: "Ta so với Tào Từ, hôm nay còn kém xa lắm."
+Trần Bình An lắc đầu: "Hiện giờ ta còn kém xa Tào Từ."
 
-Lý Liễu cười nói: "Sự thật như thế, vậy cũng chỉ có thể nhìn xa hơn chút ít, đến cửu cảnh thập cảnh lại nói, chín, mười một cảnh chênh lệch, đó là cách biệt một trời một vực, huống chi đến thập cảnh, cũng không phải chỉ cảnh thật sự, trong đó tam trọng cảnh giới, chênh lệch cũng rất lớn. Đại Ly vương triều Tống Trường Kính, đến cửu cảnh mới thôi, cảnh giới không bằng cha ta, nhưng mà hôm nay khó mà nói, Tống Trường Kính tiên thiên khí thịnh, nếu cùng là thập cảnh khí thịnh, tính tình cha ta như vậy., Trái lại bị liên lụy, giao thủ, sẽ chịu thiệt, cho nên cha ta lúc này mới rời khỏi quê nhà, đến Bắc Câu Lô Châu, hôm nay Tống Trường Kính dừng lại ở khí thịnh, cha ta đã là quyền pháp Quy Chân, hai bên thật muốn đánh nhau, vẫn là Tống Trường Kính chết, nhưng hai bên nếu đều đến "Thần đến gần hai chữ "Thần đến" gần chỉ cảnh nhất, khả năng cha ta thua, sẽ càng lớn hơn nữa, đương nhiên nếu cha ta có thể dẫn đầu chen thân võ đạo cảnh giới thứ mười một trong truyền thuyết, Tống Trường Kính chỉ cần ra quyền, muốn sống cũng khó. Đổi hắn đến trước, cha ta cũng có kết cục giống vậy."
+Lý Liễu cười nói: "Sự thật là vậy, cứ nhìn xa hơn chút, đến cửu cảnh, thập cảnh rồi tính. Cửu cảnh và thập cảnh chỉ hơn kém nhau một bậc mà đã cách nhau như trời với vực. Huống hồ lên thập cảnh cũng chưa đến chỗ tận cùng của Chỉ Cảnh, ba tầng trong đó còn chênh nhau rất xa. Tính đến cửu cảnh, Tống Trường Kính của Đại Ly không bằng cha ta, bây giờ thì khó nói. Tống Trường Kính có khí thế bẩm sinh mạnh. Nếu cả hai cùng ở tầng Khí Thịnh của thập cảnh, tính tình cha ta trái lại khiến ông chịu thiệt khi giao thủ. Bởi vậy cha ta mới rời quê đến Bắc Câu Lô Châu. Bây giờ Tống Trường Kính vẫn dừng ở Khí Thịnh, quyền pháp cha ta đã tới Quy Chân. Thật sự đánh nhau, Tống Trường Kính vẫn sẽ chết. Nhưng nếu cả hai đều tới Thần Đáo, tầng gần chỗ tận cùng của Chỉ Cảnh nhất, cha ta lại dễ thua hơn. Dĩ nhiên, nếu cha ta bước vào võ đạo cảnh thứ mười một trong truyền thuyết trước, Tống Trường Kính chỉ cần ra quyền là khó sống. Hắn mà tới trước, cha ta cũng có kết cục như vậy."
 
 Trần Bình An nhẹ giọng hỏi: "Có phải nếu Lý thúc thúc ở lại Bảo Bình châu, thật ra hai người đều không có cơ hội hay không?"
 
 Lý Liễu gật đầu nói: "Tuy nói không có chuyện gì tuyệt đối, nhưng đại khái là như thế."
 
-Lý Liễu cười hỏi ngược lại, "Trần tiên sinh không hiếu kỳ những chân tướng này, là cha ta nói ra miệng, hay là tin tức do chính ta biết?"
+Lý Liễu cười hỏi: "Tiên sinh không tò mò xem những chuyện này do cha ta kể, hay tự ta biết được sao?"
 
-Trần Bình An lắc đầu nói: "Không cần biết những thứ này. Ta tin tưởng Lý cô nương cùng Lý thúc thúc, đều có thể xử lý tốt chuyện trong nhà cùng chuyện ngoài cửa."
+Trần Bình An lắc đầu: "Ta không cần biết. Ta tin Lý cô nương và Lý thúc thúc đều lo liệu được chuyện trong nhà lẫn ngoài cửa."
 
-Lý Liễu không biết sao nói: "Nếu Trần tiên sinh cảm thấy cho ăn quyền bị đánh còn chưa đủ, muốn ra một trận quyền sảng khoái, bên ta ngược lại có một nhân tuyển thích hợp, có thể gọi là tùy theo. Nhưng mà một khi đối phương ra tay, thì thích phân sinh tử."
+Lý Liễu chẳng rõ vì sao lại nói: "Nếu tiên sinh thấy chịu quyền còn chưa đủ, muốn đánh một trận cho thỏa, ta có một người thích hợp, gọi lúc nào cũng được. Có điều hễ ra tay là hắn thích phân sinh tử."
 
-Trần Bình An không do dự, trả lời: "Rất đủ rồi, vẫn là đợi lần sau du lịch Bắc Câu Lô Châu rồi nói sau."
+Trần Bình An đáp ngay: "Đủ lắm rồi. Chuyện này đợi lần sau ta du lịch Bắc Câu Lô Châu hãy tính."
 
-Một lần sau đó của Lý Nhị cho ăn quyền, Trần Bình An nhắm chừng bản thân cũng chưa chắc gánh vác được.
+Ngay lần cho ăn quyền tới của Lý Nhị, hắn đã chẳng chắc mình chịu nổi.
 
-Hơn nữa một khi chen thân võ đạo cảnh thứ bảy, Đại Độc đi sông lại đã kết thúc, càng nên lập tức nam phản Bảo Bình châu, Lạc Phách sơn còn có một đống lớn sự vụ cần hắn đi xử lý, tiếp tục như vậy, đương nhiên chính là lại nam hạ Lão Long thành, ngồi độ thuyền vượt châu, đi Đảo Huyền sơn.
+Huống hồ một khi bước vào võ đạo cảnh thứ bảy, chuyến đi dọc đại độc cũng đã xong, hắn càng nên lập tức xuôi nam về Bảo Bình châu. Lạc Phách sơn còn cả đống việc chờ hắn xử lý. Xong xuôi, hắn sẽ đi tiếp xuống Lão Long thành, lên độ thuyền vượt châu đến Đảo Huyền sơn.
 
-Lý Liễu nói: "Kỳ thực người kia, Trần tiên sinh cũng biết, lúc ấy hắn ở Bảo Kính sơn Quỷ Dị cốc."
+Lý Liễu nói: "Thật ra tiên sinh cũng biết người đó. Khi ấy hắn ở Bảo Kính sơn trong Quỷ Dị cốc."
 
-Trần Bình An bừng tỉnh đại ngộ.
+Trần Bình An chợt hiểu ra.
 
-Là quái nhân nhìn không ra sâu cạn nhưng lại mang đến cho Trần Bình An khí tức nguy hiểm thật lớn kia.
+Chính là quái nhân mà hắn không nhìn ra nông sâu, song vừa gặp đã thấy cực kỳ nguy hiểm.
 
-Trên người thiên chi kiêu tử Sùng Huyền Thự Dương Ngưng Tính, đều chưa từng có loại cảm giác này, hoặc là nói không nồng hậu bằng cái trước.
+Ngay thiên chi kiêu tử Dương Ngưng Tính của Sùng Huyền Thự cũng chưa từng khiến hắn có cảm giác ấy, hoặc ít ra không đến mức đó.
 
-Lý Liễu hỏi: "Trần tiên sinh có nghĩ tới một vấn đề hay không, dưới tình huống cảnh giới không tính là cách xa, người đối địch với ngươi, bọn họ cảm nhận thế nào?"
+Lý Liễu hỏi: "Tiên sinh có từng nghĩ, nếu cảnh giới đôi bên chẳng cách xa nhau, người đối địch với ngươi sẽ thấy thế nào không?"
 
-Trần Bình An sửng sốt một phen, lắc đầu nói: "Chưa bao giờ nghĩ tới."
+Trần Bình An ngẩn ra rồi lắc đầu: "Chưa từng nghĩ tới."
 
 Những năm này trên đường đi xa, chém giết quá nhiều, tử địch quá nhiều.
 
-Sau đó Trần Bình An nhớ tới đầu tiên, đó là Mã Khổ Huyền đã lâu không gặp mặt, một thiên tài tu đạo ở Bảo Bình châu ngang trời xuất thế, sau khi thành đích truyền của tổ đình binh gia Chân Võ sơn, chuyện phá cảnh, Mã Khổ Huyền thế như chẻ tre, năm đó đường cái Thải Y quốc sau khi bắt đôi chém giết, hai bên liền không có cơ hội gặp lại, nghe nói Mã Khổ Huyền lăn lộn mười phần phong sinh thủy khởi, đã được núi Bảo Bình châu vinh dự gọi là Lý Đoàn Cảnh, Ngụy Tấn sau công nhận thiên tư tu hành đệ nhất nhân, gần đây công báo tin tức, là hắn tự tay giết một vị lão tướng quân thiết kỵ hải triều, hoàn toàn báo thù nhà.
+Người đầu tiên hắn nhớ tới là Mã Khổ Huyền, thiên tài tu đạo đột nhiên xuất hiện ở Bảo Bình châu mà lâu rồi hắn chưa gặp. Sau khi thành đích truyền của Chân Võ sơn, tổ đình Binh gia, Mã Khổ Huyền phá cảnh như chẻ tre. Hai người từ trận chém giết trên đường cái Thải Y quốc năm nào đã không còn gặp nhau. Nghe nói Mã Khổ Huyền đang lên như diều gặp gió, được giới tu hành trên núi ở Bảo Bình châu công nhận là người có thiên tư tu hành cao nhất sau Lý Đoàn Cảnh và Ngụy Tấn. Công báo gần đây đưa tin hắn đích thân giết một vị lão tướng quân của thiết kỵ Hải Triều, báo xong thù nhà.
 
-Lý Liễu mỉm cười nói: "Nếu đổi lại là ta, cảnh giới không chênh lệch nhiều so với Trần tiên sinh, ta liền tuyệt không ra tay."
+Lý Liễu mỉm cười: "Đổi lại là ta, nếu cảnh giới không chênh mấy với tiên sinh, ta tuyệt đối không ra tay."
 
-Trần Bình An lắc đầu, "Lý cô nương khen trật rồi."
+Trần Bình An lắc đầu: "Lý cô nương quá lời rồi."
 
 Lý Liễu nói: "Quá mức khiêm tốn cũng không tốt."
 
-Trần Bình An nói: "Nói rõ công phu yếu thế của ta, hỏa hầu còn chưa đủ."
+Trần Bình An nói: "Vậy là công phu tỏ ra yếu thế của ta vẫn chưa đủ hỏa hầu."
 
 Lý Liễu nhịn không được cười nói: "Trần tiên sinh, cầu ngài chừa cho đối thủ một con đường sống đi."
 
-Trần Bình An cũng cười, "Chuyện này, thực sự không thể đáp ứng Lý cô nương."
+Trần Bình An cũng cười: "Chuyện này, ta thật sự không thể đáp ứng Lý cô nương."
 
-Bất tri bất giác đi tới đỉnh Sư Tử phong với Lý Liễu, thời gian lập tức không còn sớm, nhưng cũng chưa tới lúc ngủ say, có thể nhìn thấy trấn nhỏ chân núi bên kia không ít đèn đuốc, có mấy con tựa như rồng lửa nhỏ bé liên miên ánh sáng, đặc biệt bắt mắt, hẳn là nhà giàu nhà cửa ngõ phố, trấn nhỏ nơi khác, phần nhiều là đèn đuốc thưa thớt, tốp năm tốp ba.
+Chẳng hay chẳng biết, hai người đã lên tới đỉnh Sư Tử phong. Trời đã muộn, nhưng chưa đến lúc người ta ngủ say. Nhìn xuống trấn nhỏ dưới chân núi, vẫn thấy nhiều đèn đuốc. Mấy dãy đèn nối nhau như những con rồng lửa nhỏ, đặc biệt bắt mắt, hẳn là ngõ phố có nhà giàu. Những nơi khác, đèn chỉ lác đác dăm ba ngọn.
 
-Lý Liễu hỏi: "Trần tiên sinh đi qua đường xa như vậy, có biết động thiên phúc địa cùng rất nhiều sơn thủy bí cảnh chân chính sâu xa không?"
+Lý Liễu hỏi: "Tiên sinh đã đi xa đến vậy, có biết động thiên phúc địa và những bí cảnh sơn thủy thật sự từ đâu mà có không?"
 
-Trần Bình An gật đầu nói: "Từng có bằng hữu đề cập, nói không riêng gì Cửu Châu của Hạo Nhiên Thiên Hạ, cộng thêm ba tòa thiên hạ còn lại, đều là bản đồ thiên địa cũ sụp đổ sụp đổ, một ít bí cảnh, tiền thân thậm chí sẽ là đầu lâu, thi hài của rất nhiều viễn cổ thần linh, còn có những... ngôi sao ngã xuống ở trên mặt đất, từng là cung điện, phủ đệ của các thần linh."
+Trần Bình An gật đầu: "Từng có bằng hữu nhắc tới. Theo hắn, cả chín châu của Hạo Nhiên thiên hạ lẫn ba tòa thiên hạ còn lại đều là những mảnh vỡ của thiên địa cũ. Một số bí cảnh thậm chí vốn là đầu lâu, thi hài của thần linh viễn cổ. Còn những... ngôi sao rơi xuống mặt đất ấy, từng là cung điện, phủ đệ của các vị thần."
 
 Lý Liễu nói: "Bằng hữu này của ngươi cũng thật dám nói."
 
-Trần Bình An cười nói: "Thật ra lá gan nói lớn cũng lớn, cả người pháp bảo, dám một mình du lịch vượt châu, nói nhỏ cũng nhỏ, là người tu đạo cũng không dám cưỡi gió đi xa, hắn sợ mình cách đất quá cao."
+Trần Bình An cười: "Bảo gan lớn cũng phải, hắn mang đầy pháp bảo trên người, dám một mình du lịch vượt châu. Bảo gan nhỏ cũng đúng, hắn là tu sĩ mà chẳng dám ngự phong đi xa, sợ mình cách mặt đất quá cao."
 
 Lý Liễu hỏi: "Bằng hữu tốt?"
 
-Trần Bình An gật đầu nói: "Tính một cái."
+Trần Bình An gật đầu: "Cũng được tính là một người."
 
-Đỉnh núi gió mát, mang theo sơn dã hương thơm lúc hiện tại.
+Thanh phong trên đỉnh núi mang theo mùi thơm của cây cỏ mùa này.
 
 Lý Liễu trầm mặc một lát, thuận miệng hỏi: "Trần tiên sinh gần đây có đọc sách không?"
 
 Trần Bình An cười nói: "Có, một quyển..."
 
-Trần Bình An hơi tạm dừng, cảm khái nói: "Là một quyển sách quái lạ, kể rất nhiều chuyện xưa ngắn sinh tử, từ một đại yêu đắc đạo yêu thích luyện chế danh sơn."
+Hắn ngừng một chút rồi cảm khái: "Một quyển sách lạ, kể nhiều chuyện ngắn về sống chết, do một đại yêu đắc đạo thích luyện hóa danh sơn viết."
 
-Lý Liễu liền không có quá nhiều hứng thú, sống chết sinh tử, nàng từng gặp rất nhiều quá nhiều, khẳng định không thể ích lợi cho đại đạo của nàng bây giờ.
+Lý Liễu nghe vậy cũng chẳng mấy hứng thú. Chuyện sống chết nàng đã thấy quá nhiều, chắc chắn chẳng giúp gì cho đại đạo hiện giờ của nàng.
 
-Đối với nàng mà nói, cả đời này tựa như Dương lão đầu là một vị phu tử trường tư, để nàng đi học tập, không phải đạo đức học vấn, không phải văn chương thánh hiền, thậm chí không phải tu ra cái gì Phi Thăng cảnh, mà là về làm người như thế nào.
+Trong kiếp này, lão Dương giống như một vị phu tử dạy tư thục. Thứ lão muốn nàng học là cách làm người. Đạo đức, học vấn, văn chương thánh hiền hay cả việc tu đến Phi Thăng cảnh đều không phải điều lão muốn dạy nàng.
 
 Thật ra đây là một chuyện rất khó chịu.
 
-Lý Liễu cảm thấy mình chỉ có quan hệ tới khởi môn, ở chung cùng cha mẹ cùng đệ đệ Lý Hòe, mới quen, đi ra cửa, nàng đối đãi thế nhân thế sự, không khác gì trước kia đời đời kiếp kiếp.
+Lý Liễu cảm thấy chỉ khi khép cửa, ở cùng cha mẹ và đệ đệ Lý Hòe, nàng mới quen được với cách sống ấy. Bước ra ngoài cửa, nàng đối đãi với người đời và việc đời chẳng khác gì những kiếp trước.
 
-Trần Bình An nhìn ngọn đèn dưới núi, nhẹ giọng nói: "Từng nhìn thấy trên một bản bút ký của văn nhân, nói phàm phu tục tử, ngắn ngủi một đời, nửa đời ở trên giường đó mài hết sạch. Hình như người tu đạo cũng không kém, tu hành như ngủ hơn nửa đời. Nhưng tinh tế cân nhắc, chung quy vẫn là không giống nhau. Đứng ở những nơi khác nhau, đối đãi cùng một chuyện, có thể là một loại lòng người hai việc."
+Trần Bình An nhìn ánh đèn dưới núi, nhẹ giọng nói: "Ta từng đọc bút ký của một văn nhân. Ông bảo phàm phu tục tử sống một đời ngắn ngủi, đã tiêu hết nửa đời trên giường. Tu sĩ hình như cũng chẳng khác, tu hành như ngủ suốt hơn nửa đời. Song ngẫm kỹ thì chung quy vẫn khác. Cùng một chuyện, đứng ở hai nơi mà nhìn, lòng người có thể thấy thành hai việc."
 
-"Ta từng xem qua hai bản bút ký của văn nhân, đều có giảng quỷ quái và tình đời, một vị văn nhân từng thân cư cao vị, sau khi cáo lão về quê viết ra, một vị thư sinh nghèo túng khác, thất ý khoa cử, cả đời chưa từng tiến vào con đường làm quan. Ta xem qua hai bản bút trát này, ngay từ đầu cũng không có quá nhiều cảm xúc, chỉ là sau đó trên đường du lịch, nhàn rỗi không có việc gì, lại lật ra, liền tìm ra chút dư vị."
+"Ta từng đọc hai quyển bút ký, đều kể chuyện quỷ quái và tình đời. Một quyển do người từng làm quan lớn viết sau khi cáo lão về quê, quyển kia do một thư sinh nghèo túng, thi mãi không đỗ, cả đời chẳng bước chân vào quan trường. Lúc mới đọc ta cũng chẳng có mấy cảm xúc. Về sau đi đường, nhân lúc rảnh rỗi lật ra đọc lại, mới thấy có chút dư vị."
 
-"Đứng ở trên cao nhìn xa, càng nhìn càng toàn diện về nhân tính. Đứng gần nhìn kỹ, phân tích lòng người sẽ càng tỉ mỉ."
+"Đứng cao nhìn xa thì thấy được nhiều mặt của nhân tính. Đứng gần nhìn kỹ thì thấy lòng người đến từng chỗ nhỏ nhặt."
 
-Nói tới đây, Trần Bình An cảm khái nói: "Đại khái đây là đi vạn dặm đường, đọc vạn quyển sách là được."
+Nói đến đây, Trần Bình An cảm khái: "Có lẽ đó chính là đi vạn dặm đường, đọc vạn quyển sách."
 
-Trần Bình An đột nhiên cười lên, "Bằng hữu không dám ngự phong kia, học vấn pha tạp, khiến ta tự biết xấu hổ, từng ta thuận miệng hỏi hắn một vấn đề, nếu đầu đuôi ngõ nhỏ quê nhà ta, chân tường đều có một cây cỏ nhỏ, cách rõ ràng gần như vậy, lại thủy chung khô vinh không thể nhận ra, nếu khai khiếu, có thể thương tâm hay không. Hắn liền nghiêm túc cân nhắc vấn đề này, cho ta rất nhiều đáp án huyền diệu không thể tưởng tượng, nhưng ta vẫn nhịn cười, Lý cô nương, cô biết lúc ấy ta đang cười cái gì không?"
+Trần Bình An đột nhiên cười: "Vị bằng hữu không dám ngự phong kia biết đủ thứ, khiến ta tự thấy hổ thẹn. Ta từng thuận miệng hỏi hắn, nếu ở đầu và cuối ngõ nhỏ quê ta đều có một cây cỏ mọc dưới chân tường, cách nhau rõ ràng chẳng xa, mà lúc tươi lúc héo chẳng hề biết tới nhau, vậy nếu chúng khai khiếu, có buồn không? Hắn thật sự ngẫm nghĩ, đưa ra cho ta bao nhiêu câu trả lời huyền diệu đến khó tin. Ta cứ phải nhịn cười. Lý cô nương biết lúc ấy ta cười chuyện gì không?"
 
-Lý Liễu hiểu ý cười, "Ở ngõ Nê Bình đó, gà chó lui tới, nhất là gà mái thường xuyên mang theo một đám gà con, mỗi ngày mổ đông mổ tây, nơi nào sẽ có hoa cỏ."
+Lý Liễu hiểu ý, mỉm cười: "Ngõ Nê Bình gà chó chạy qua chạy lại. Nhất là gà mái, suốt ngày dẫn đàn con đi mổ chỗ này chỗ nọ. Lấy đâu ra hoa cỏ mà mọc?"
 
 Trần Bình An cười toe tóe, gật mạnh đầu.
 
-Lý Liễu đột nhiên thu liễm ý cười, xoay người chắp tay, "Cảm tạ tiên sinh dạy bảo."
+Lý Liễu đột nhiên thôi cười, xoay người chắp tay: "Đa tạ tiên sinh chỉ dạy."
 
-Trần Bình An sững sờ ở tại chỗ, không rõ Lý Liễu đây là làm cái gì? Ta chỉ là tán gẫu với Lý cô nương ngươi một chút, không lẽ cái này đều có thể ngộ ra thứ gì?
+Trần Bình An sững người, chẳng hiểu Lý Liễu đang làm gì. Ta chỉ nói dăm ba chuyện với cô nương, chẳng lẽ thế mà cũng ngộ ra được gì sao?
 
-Trần Bình An chỉ có một ý niệm trong đầu, mình quả nhiên không phải là bại hoại tu đạo gì, tư chất bình thường, cho nên lần này Sư Tử phong luyện quyền xong, càng cần cù tu hành hơn.
+Trần Bình An chỉ nghĩ, mình quả nhiên không có tư chất gì đặc biệt trên đường tu đạo. Lần này luyện quyền ở Sư Tử phong xong, càng phải siêng năng tu hành.
 
-Sau khi Lý Liễu đứng dậy, cáo từ một tiếng, đúng là mang theo hộp thức ăn ngự phong đi hướng cửa hàng chân núi.
+Lý Liễu đứng dậy cáo từ. Nàng xách hộp thức ăn, ngự phong về cửa hàng dưới chân núi.
 
-Trần Bình An không hiểu ra sao, quay về tòa thần tiên động phủ kia, chống đỡ căng thẳng đi hướng chỗ mặt gương, tiếp tục học đánh quyền ở ngọn núi kia, không cầu quyền ý tăng trưởng chút nào, chỉ cầu một cái tâm tĩnh thật sự.
+Trần Bình An chẳng hiểu ra sao, trở về động phủ tiên gia, ráng gượng đi tới chỗ mặt gương, tiếp tục luyện quyền trên ngọn núi ấy. Hắn chẳng cầu quyền ý tăng thêm, chỉ mong lòng thật sự tĩnh lại.
 
-Trong bóng đêm, phụ nhân ở sau quầy tiệm vải tính toán, lật sổ sách, tính đi tính lại, than thở, đã hơn nửa tháng, không có thu nhập quá nhiều, cũng không có lợi nhuận ba lượng bạc.
+Trong đêm, phụ nhân ngồi sau quầy tiệm vải, lật sổ tính đi tính lại rồi than thở. Đã hơn nửa tháng mà thu vào chẳng được bao nhiêu, lời chưa nổi ba lượng bạc.
 
-So với Trần Bình An lúc trước hỗ trợ ở cửa hàng, một hai ngày có thể kiếm được ba lượng bạc, thật sự là người so với người, sầu chết người. Cũng may ở trấn nhỏ, không có chi tiêu gì quá lớn.
+Hồi Trần Bình An giúp coi tiệm, một hai ngày đã kiếm được ba lượng. Đúng là đem người so với người chỉ thêm rầu lòng. May mà sống ở trấn nhỏ cũng chẳng phải tiêu pha gì nhiều.
 
-Phụ nhân nhìn ngọn đèn trên quầy, suy nghĩ xuất thần, sau đó quay đầu nhìn phía hán tử đứng bẹp dí cách đó không xa, cả giận nói: "Lý Nhị, ngươi chống ở đây làm gì, có thể làm ngọn đèn sai sử à?"
+Phụ nhân nhìn ngọn đèn trên quầy đến xuất thần rồi quay sang hán tử đang đứng im thin thít cách đó không xa, cáu: "Lý Nhị, ngươi đứng chôn chân ở đó làm gì? Đứng thế mà dùng thay đèn được à?"
 
 Lý Nhị lắc đầu.
 
 Hiểu.
 
-Gần đây số lần mua rượu hơi nhiều, nhưng cái này cũng không tiện oán hết một mình hắn đi, Trần Bình An lại uống không ít rượu.
+Gần đây quả thật mua rượu hơi nhiều, nhưng đâu thể đổ hết lên đầu hắn. Trần Bình An cũng uống không ít.
 
-Phụ nhân coi như nhìn thấu chút tâm tư nhỏ đó của Lý Nhị, căm tức nói: "Tiêu tiền đau lòng là một chuyện, chiêu đãi Trần Bình An là một chuyện khác, Lý Nhị thiếu ngươi kéo Trần Bình An lên người, ngươi có bản lãnh đem phần ngươi uống nôn ra, bán tiền trả ta, ta sẽ không oán ngươi! Cả ngày chỉ là mò mẫm, làm công việc vặt cho người ta, quanh năm suốt tháng, ngươi có thể kiếm được mấy lượng bạc?! Đủ ngươi uống rượu ăn thịt?"
+Phụ nhân nhìn thấu chút tâm tư của Lý Nhị, bực bội nói: "Xót tiền là một chuyện, đãi Trần Bình An là chuyện khác. Lý Nhị, ngươi bớt lôi Trần Bình An vào! Giỏi thì nôn chỗ rượu ngươi uống ra, bán lấy tiền trả ta, ta sẽ chẳng trách nữa. Suốt ngày làm mấy việc lặt vặt cho người ta, cả năm kiếm được mấy lượng bạc? Có đủ cho ngươi uống rượu ăn thịt không?"
 
 Lý Nhị rầu rĩ nói: "Trần Bình An sắp đi rồi, ta kiêng rượu nửa năm, được không?"
 
-Nào ngờ vừa nghe nói Trần Bình An muốn rời khỏi, phụ nhân càng tức giận không có chỗ để đi, "Khuê nữ gả không được, chính là vì liên lụy đến người làm cha như ngươi, ngươi có bản lãnh đi làm quan lão gia xem thử, xem ra bà mối cửa hàng chúng ta tới cửa cầu thân, có thể giẫm nát ngưỡng cửa nhà ta hay không?!"
+Nào ngờ nghe Trần Bình An sắp đi, phụ nhân càng giận, chẳng biết trút vào đâu: "Khuê nữ chẳng gả được là vì vướng người cha như ngươi. Có bản lĩnh thì làm quan lão gia cho ta xem! Đến lúc đó xem bà mối đến cầu thân có giẫm nát ngưỡng cửa nhà ta hay không!"
 
 Lý Nhị không hé răng.
 
-Phụ nhân ai oán nói: "Về sau nếu là Lý Hòe cưới vợ, kết quả nữ nhi gia chướng mắt gia thế chúng ta, xem ta có bảo ngươi mùa đông lăn ra sân mở quán trọ không!"
+Phụ nhân ai oán nói: "Sau này Lý Hòe cưới vợ mà nhà gái chê gia thế nhà ta, xem ta có đuổi ngươi ra sân ngủ giữa mùa đông không!"
 
 Lý Nhị gãi gãi đầu.
 
-Phụ nhân vừa muốn tắt đèn, đột nhiên nghe được tiếng mở cửa, lập tức chạy chậm ra khỏi quầy, tránh ở bên người Lý Nhị, run giọng nói: "Lý Liễu lên núi, không lẽ là kẻ trộm tới cửa? Đợi lát nữa nếu là cầu tài đến, Lý Nhị ngươi đừng làm loạn, những bạc vụn trong cửa hàng, cho kẻ trộm là được."
+Phụ nhân toan tắt đèn thì nghe tiếng cửa mở. Bà vội chạy khỏi quầy, nép bên Lý Nhị, run giọng nói: "Lý Liễu lên núi rồi, chẳng lẽ có trộm vào nhà? Nếu nó tới lấy tiền, ngươi đừng làm liều. Cứ đưa nó chỗ bạc vụn trong tiệm là được."
 
 Lý Nhị ừ một tiếng.
 
-May mà người mở cửa là con gái Lý Liễu của bà.
+May mà người mở cửa là Lý Liễu.
 
-Phụ nhân lập tức một cước dẫm lên mu bàn chân Lý Nhị, "Được thôi, nếu thật sự có một tên trộm, xem chừng khỉ gầy như cây trúc, dựa vào Lý Nhị ngươi cũng không đáng tin cậy! Đến lúc đó hai ta ai che chở ai, còn khó nói đây..."
+Phụ nhân lập tức giẫm lên mu bàn chân Lý Nhị: "Được lắm! Có trộm thật, với cái thân gầy như que trúc của ngươi, ta trông cậy được gì? Đến lúc đó ai che chở ai còn chưa biết đâu..."
 
 Phụ nhân lải nhải cằn nhằn hán tử.
 
-Tắt đèn, một nhà ba người đi hậu viện, phụ nhân không còn sức mắng người, đi ngủ trước.
+Tắt đèn xong, ba người về hậu viện. Phụ nhân đã hết sức mắng người, bèn đi ngủ trước.
 
-Lý Nhị cùng Lý Liễu ngồi ở trên một cái ghế dài, Lý Liễu bỗng dưng biến ra một bầu rượu tiên nhân, Lý Nhị lắc đầu.
+Lý Nhị và Lý Liễu ngồi trên ghế dài. Nàng bỗng lấy ra một bầu rượu tiên gia, Lý Nhị lắc đầu.
 
-Nếu thật sự là người mê rượu, nếu thật sự muốn uống rượu ngon, Lý Nhị cái gì cũng không uống được.
+Nếu hắn thật sự mê rượu, thật sự muốn uống rượu ngon, thì rượu gì mà hắn chẳng uống được?
 
 Lý Liễu lần này lại kiên trì nói: "Cha, phá lệ một lần."
 
-Lý Nhị có chút kỳ quái, tiếp nhận bầu rượu kia, nhưng chưa mở ra nê phong, nhỏ giọng cười nói: "Để lại, về cùng uống với Lý Hòe, hắn tuổi này, cũng có thể uống rượu rồi, đến lúc đó nói là lão tiên sư Sư Tử phong ban thưởng xuống."
+Lý Nhị hơi ngạc nhiên. Hắn nhận bầu rượu mà chưa bóc lớp đất niêm, khẽ cười: "Cứ để dành, chờ Lý Hòe về rồi cùng uống. Nó tới tuổi uống rượu rồi. Đến lúc đó cứ bảo là lão tiên sư ở Sư Tử phong ban cho."
 
 Lý Liễu cười không nói lời nào.
 
-Lý Nhị nói: "Mẹ ngươi thật ra từng nghĩ rất nhiều lần, về Bảo Bình châu bên kia, dù sao bên kia có thân thích, hàng xóm láng giềng đều là môn hộ đời đời quen thuộc, sẽ không giống bên này, chung quy là người ngoài, cho nên lúc mẹ ngươi nói ra khỏi miệng, ta đã đáp ứng. Nhưng về sau mẹ ngươi tự mình đổi ý, nói Lý Hòe tốt xấu ở thư viện học tập, lại bị người ta khi dễ, cũng sẽ không quá phận. Ngươi khác, rốt cuộc là con gái, nàng không yên lòng để ngươi một mình ở lại bên này, lại không muốn để ngươi xuống núi, chặt đứt phần duyên phận tiên gia nọ nàng nghĩ cũng không dám nghĩ."
+Lý Nhị nói: "Mẹ con đã nhiều lần nghĩ đến chuyện về Bảo Bình châu. Bên đó có bà con, hàng xóm cũng đều quen nhau mấy đời, chẳng như ở đây, rốt cuộc vẫn là người ngoài. Bởi thế, mẹ con vừa nói ra là cha đồng ý. Về sau bà ấy lại đổi ý. Lý Hòe dù sao cũng học ở thư viện, có bị người ta bắt nạt thì cũng chẳng đến mức quá đáng. Con thì khác, dù sao cũng là con gái. Mẹ không yên tâm để con ở lại đây một mình, lại chẳng muốn con xuống núi, cắt đứt duyên phận tiên gia mà chính bà ấy nghĩ cũng chẳng dám nghĩ tới."
 
-Lý Liễu gật gật đầu, vươn chân, nhẹ nhàng xếp chồng, hai tay mười ngón đan xen, nhẹ giọng hỏi: "Cha, cha có nghĩ tới, một ngày nào đó con sẽ khôi phục chân thân hay không, đến lúc đó thần tính sẽ xa xa vượt qua nhân tính, kiếp này đủ loại, sẽ nhỏ như hạt cải, có lẽ sẽ không quên cha mẹ các ngươi cùng Lý Hòe, nhưng nhất định không quan tâm các ngươi như bây giờ, đến lúc đó làm sao bây giờ? Thậm chí đến một khắc đó con, cũng sẽ không cảm thấy có chút thương cảm, các ngươi thì sao?"
+Lý Liễu gật đầu, duỗi chân rồi nhẹ nhàng gác chân này lên chân kia, hai tay đan vào nhau. Nàng khẽ hỏi: "Cha có từng nghĩ một ngày nào đó con sẽ khôi phục chân thân không? Đến lúc ấy thần tính sẽ lấn át nhân tính, mọi chuyện kiếp này chỉ còn nhỏ như hạt cải. Có lẽ con vẫn nhớ cha mẹ và Lý Hòe, nhưng chắc chắn chẳng còn quan tâm đến mọi người như bây giờ. Khi đó phải làm sao? Có khi đến lúc ấy con chẳng thấy buồn chút nào. Còn cha mẹ thì sao?"
 
-Lý Nhị cười nói: "Loại chuyện này đương nhiên nghĩ tới, cha cũng không phải kẻ ngốc thật sự. Làm sao bây giờ? Không có gì làm sao bây giờ, coi như là con gái đặc biệt tiền đồ, tựa như... Ừm, tựa như cha mẹ nông dân cả đời mặt hướng đất vàng lưng hướng lên trời, đột nhiên có một ngày, phát hiện con trai thi đỗ Trạng Nguyên, con gái trở thành nương nương trong hoàng cung, nhưng con trai không phải cũng vẫn là con trai, con gái không phải vẫn là con gái sao? Có thể sẽ càng ngày càng không có gì để nói, cha mẹ ở quê nhà trông coi lão môn lão hộ, con trai làm quan, phải ở phương xa lo nước lo dân, làm con gái của nương nương, khó được thăm người một chuyến, nhưng mà cha mẹ lo lắng và nhớ mong, vẫn còn đó. Con cái sống tốt, cha mẹ biết được bọn họ sống tốt, là được rồi."
+Lý Nhị cười: "Chuyện ấy đương nhiên cha từng nghĩ. Cha đâu phải kẻ ngốc. Phải làm sao ư? Chẳng phải làm sao cả, cứ coi như con gái nhà mình có tiền đồ lắm. Tựa như... ừm, tựa như hai vợ chồng nhà nông cả đời bán mặt cho đất, bán lưng cho trời, một hôm biết con trai đỗ trạng nguyên, con gái thành nương nương trong cung. Con trai vẫn là con trai, con gái vẫn là con gái chứ? Về sau có thể ngày càng ít chuyện để nói. Cha mẹ ở quê giữ nhà cũ, con trai làm quan xa, lo việc nước việc dân, con gái làm nương nương, khó lắm mới về thăm được một lần. Nhưng cha mẹ vẫn lo, vẫn nhớ. Con cái sống tốt, cha mẹ biết chúng sống tốt, thế là đủ rồi."
 
-Lý Liễu cúi đầu xuống, "Chỉ đơn giản như vậy sao?"
+Lý Liễu cúi đầu: "Chỉ đơn giản thế thôi sao?"
 
-Lý Nhị ừ một tiếng, "Không phức tạp như vậy, cũng không cần ngươi nghĩ phức tạp như vậy. Trước kia không nói với ngươi những thứ này, là cảm thấy ngươi nghĩ nhiều chút, cho dù là miên man suy nghĩ, cũng không phải chuyện xấu gì."
+Lý Nhị ừ một tiếng: "Chuyện chẳng phức tạp đến thế, con cũng đừng nghĩ phức tạp quá. Trước đây cha không nói với con vì thấy con nghĩ nhiều một chút, cho dù nghĩ lan man, cũng chẳng phải chuyện xấu."
 
-Lý Nhị do dự một phen, "Nhưng ta vẫn hy vọng thực sự có một ngày như vậy, ngươi cho dù là bướng bỉnh tính tình, giả vờ giả vịt, cũng phải đối với mẫu thân ngươi tốt hơn chút, mặc kệ ngươi cảm thấy mình thật sự là ai, đối với mẫu thân ngươi mà nói, ngươi vĩnh viễn là nàng hoài thai mười tháng, thật không dễ gì mới sinh ngươi ra, nuôi dưỡng khuê nữ nhà mình. Nếu ngươi có thể đáp ứng chuyện này, ta người làm cha này, liền thực không có yêu cầu."
+Lý Nhị do dự một lát: "Nhưng nếu thật có ngày ấy, cha vẫn mong con đối đãi với mẹ tốt hơn một chút. Dù phải gượng mình, phải làm ra vẻ cũng được. Bất kể con nghĩ mình thật sự là ai, đối với mẹ, con mãi là khuê nữ bà ấy mang thai mười tháng, vất vả sinh ra rồi nuôi lớn. Con đáp ứng được chuyện này, người làm cha như ta thật sự chẳng còn mong gì hơn."
 
 Lý Liễu nhẹ nhàng nói: "Được."
 
-Lý Nhị thở dài, "Đáng tiếc Trần Bình An không thích ngươi, ngươi cũng không thích Trần Bình An."
+Lý Nhị thở dài: "Tiếc là Trần Bình An không thích con, con cũng chẳng thích hắn."
 
 Lý Liễu oán giận nói: "Cha!"
 
-Lý Nhị nhếch miệng cười nói: "Cha chỉ nói một câu, buồn bực cái gì."
+Lý Nhị nhếch miệng cười: "Cha chỉ nói một câu, con cáu gì chứ."
 
-Đôi mắt Lý Liễu xinh đẹp, cười nheo lại một đôi trăng non.
+Lý Liễu cười, đôi mắt đẹp cong lên như hai vầng trăng non.
 
-Lý Nhị nói: "Biết Trần Bình An không ở bên này, còn có lý do gì, là hắn không có cách nào nói ra miệng sao?"
+Lý Nhị nói: "Con có biết Trần Bình An còn một lý do không ở lại đây, mà hắn chẳng thể nói ra không?"
 
-Lý Liễu nghi hoặc nói: "Hắn là đang cố kỵ cái gì? Sợ gây thêm phiền toái cho chúng ta?"
+Lý Liễu ngạc nhiên hỏi: "Hắn còn ngại chuyện gì sao? Sợ làm phiền nhà mình ư?"
 
-Lý Nhị lắc đầu, "Chúng ta một nhà đoàn viên, lại có một người ngoài. Trần Bình An hắn khổ gì cũng ăn được, duy chỉ có không gánh vác được cái này."
+Lý Nhị lắc đầu: "Nhà ta đoàn viên, chỉ mình hắn là người ngoài. Trần Bình An chịu khổ gì cũng được, duy có cảnh ấy thì chịu không nổi."
 
-Ngày đó Lý Liễu về quê về nhà.
+Hôm đó, Lý Liễu trở về nhà.
 
-Trần Bình An cười cáo từ rời đi.
+Trần Bình An mỉm cười cáo từ.
 
-Người trẻ tuổi mặc thanh sam đang tha hương, một mình đi trên đường cái, quay đầu nhìn cửa hàng, thật lâu không thu hồi tầm mắt.
+Người trẻ tuổi mặc thanh sam một mình đi trên đường cái nơi đất khách. Hắn ngoảnh nhìn cửa hàng, mãi chẳng dời mắt.

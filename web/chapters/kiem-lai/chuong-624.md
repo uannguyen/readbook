@@ -1,140 +1,140 @@
 # Chương 624: Cả hai phá cảnh
 
-Lý Nhị cho Trần Bình An lần cuối cùng cho bú quyền, rất khác biệt.
+Lần cuối Lý Nhị cho Trần Bình An ăn quyền khác hẳn mọi lần.
 
-Lý Nhị để Trần Bình An dốc sức mà làm, có thể không từ thủ đoạn, thử xem như thế nào ở dưới quyền hắn chống đỡ càng lâu.
+Lý Nhị bảo Trần Bình An cứ dốc hết sức, dùng cách nào cũng được, xem có thể chống đỡ quyền của hắn được bao lâu.
 
-Trần Bình An có chút nghi hoặc, hắn là võ phu bình cảnh, Lý Nhị lại là võ phu thập cảnh quy chân, mặc dù không từ thủ đoạn, ý nghĩa ở đâu?
+Trần Bình An hơi nghi hoặc. Hắn mới là võ phu đang ở bình cảnh, còn Lý Nhị đã là võ phu thập cảnh Quy Chân. Cho dù dùng mọi thủ đoạn thì có ích gì?
 
-Lý Nhị cười nói: "Ta lần này ra quyền, sẽ có chừng mực, chỉ đánh gãy chỗ nối tiếp lẫn nhau của ngươi, đơn giản mà nói, chính là ngươi chỉ để ý ra tay. Ngươi coi như là đánh nhau cùng một vị sinh tử đại địch, đối thủ ỷ vào cảnh giới cao hơn ngươi quá nhiều, liền sinh lòng khinh thị, đồng thời cũng không rõ nền móng của ngươi hôm nay, chỉ coi ngươi là một võ phu thuần túy nội tình không tệ, chỉ muốn trước mang ngươi hao hết chân khí thuần túy, sau đó chậm rãi hành hạ đến chết cho hả giận."
+Lý Nhị cười nói: "Lần này ta ra quyền có chừng mực, chỉ đánh vào lúc ngươi đang chuyển từ chiêu này sang chiêu khác. Ngươi cứ việc ra tay. Hãy coi như đang đánh nhau với một kẻ tử địch. Hắn ỷ cảnh giới cao hơn ngươi nhiều nên sinh lòng khinh thường, lại không biết ngươi có những gì trong tay, chỉ nghĩ ngươi là một võ phu thuần túy có căn cơ không tệ. Hắn muốn ngươi hao hết chân khí thuần túy trước, rồi mới từ từ hành hạ ngươi đến chết cho hả giận."
 
-Trần Bình An càng thêm khó hiểu, ngụ ý, chẳng lẽ là nói mình có thể ở ngoài ra quyền, cái gì mưu lợi, nham hiểm, thủ pháp hạ đẳng đều có thể dùng tới?
+Trần Bình An càng nghe càng khó hiểu. Ý Lý Nhị là ngoài quyền cước, hắn có thể dùng cả mưu mẹo, thủ đoạn nham hiểm hay hạ đẳng ư?
 
-Lý Nhị không giải thích nhiều hơn: "Đừng quá để bụng, bằng không khiến ta cảm thấy ngươi dám khinh thường tử địch, một quyền cuối cùng của ta, có thể khiến ngươi ho ra máu nửa năm ở trên Sư Tử phong."
+Lý Nhị không giải thích thêm: "Đừng nghĩ ngợi nhiều quá. Nếu ta thấy ngươi dám coi thường tử địch, quyền cuối cùng của ta có thể khiến ngươi nằm ho ra máu nửa năm trên Sư Tử phong."
 
-Lý Nhị xoay người đi hướng cửa ra, để Trần Bình An ở lại cửa nhà tranh.
+Lý Nhị xoay người đi về phía lối ra, để Trần Bình An lại trước cửa nhà tranh.
 
-Lý Nhị cầm trúc liễn trong tay, đứng ở một đầu thuyền nhỏ, bắt đầu nín thở ngưng thần. Nửa nén hương sau, Trần Bình An đi hướng cửa ra.
+Lý Nhị cầm cây sào trúc, đứng ở một đầu tiểu thuyền, nín thở ngưng thần. Nửa nén hương sau, Trần Bình An mới đi về phía lối ra.
 
 Lý Nhị liếc mắt, nhịn không được cười.
 
-Người trẻ tuổi chân trần, xắn ống quần lên, ngược lại không có cuốn lên tay áo.
+Người trẻ tuổi đi chân trần, xắn ống quần lên, riêng tay áo vẫn để nguyên.
 
-Không quên cõng thanh kiếm tiên Phù gia đắc cư ở Lão Long thành.
+Hắn cũng không quên đeo sau lưng thanh Kiếm Tiên có được từ Phù gia ở Lão Long thành.
 
 Lý Nhị gật đầu nói: "Lên thuyền."
 
-Trong khoảnh khắc, chốc chốc trúc trong tay Lý Nhị bổ xuống đầu, Trần Bình An sớm đã vê Phương thốn phù trong tay áo, cũng đã hư không tiêu thất, một cước giẫm lên vách đá đường thủy động phủ đá vôi, dựa thế b*n r*, mấy lần qua lại, đã nháy mắt rời xa một thuyền một người một trúc.
+Cây sào trúc trong tay Lý Nhị bổ xuống đầu trong chớp mắt. Trần Bình An đã vê sẵn Phương Thốn phù trong tay áo, lập tức biến mất. Hắn đạp một chân lên vách đá bên đường nước trong hang, mượn đà bắn đi. Chỉ mấy lần đổi hướng, hắn đã bỏ xa chiếc thuyền, người chống thuyền và cây sào.
 
-Khi Trần Bình An đáp xuống trên mặt nước, cong lưng đạp nước, trượt ra ngoài, một tay ấn nước, mang theo một trận gợn sóng, một người chợt dừng lại, hai bức họa phù lục cùng hoành lưu phù trong nước, linh quang của phù đảm nổ tung vỡ ra, cổ tay Trần Bình An hơi vặn chuyển, tay phải nhiều ra một thanh đoản đao, khắc dấu hai chữ triêu lộ, cùng một thanh mộ hà chưa hiện thân khác, đều lấy tự cắt Lộc sơn thích khách.
+Trần Bình An đáp xuống mặt nước, khom lưng đạp nước trượt đi. Hắn chống một tay xuống nước, làm gợn sóng rồi đột ngột dừng lại. Hai lá phù dưới nước, trong đó có Hoành Lưu phù, chợt nổ tung ở chỗ phù đảm, linh quang bắn ra. Trần Bình An khẽ xoay cổ tay. Tay phải hắn đã có thêm một thanh đoản đao khắc hai chữ Triêu Lộ. Thanh Mộ Hà còn chưa lộ diện. Cả hai đều lấy được từ thích khách Cắt Lộc sơn. [?]
 
-Phía trước trúc liễn nhìn như rơi xuống đất, nhưng không có chân chính chạm đến mặt đất, cương khí chẳng những không có trên mặt đất bổ ra khe rãnh, ngược lại ngay cả bụi đất cũng không có giương lên chút nào, đây là quyền ý của một vị võ học chỉ cảnh đại tông sư thu phóng, đã đến cảnh giới tùy tâm sở dục.
+Ban nãy cây sào trúc tưởng chừng đã bổ xuống đất, thật ra chưa hề chạm tới. Cương khí chẳng những không xẻ đất thành rãnh mà còn không làm tung lên một hạt bụi. Một vị đại tông sư võ học ở Chỉ cảnh đã có thể thu phóng quyền ý tùy tâm sở dục.
 
-Phía trước thuyền nhỏ, mặt nước dâng cao, đá vụn bắn tung tóe, có một bộ áo xanh, thân hình nhanh như điện chớp, thẳng tắp vọt tới, hai tay cầm đao.
+Trước mũi tiểu thuyền, nước dâng lên, đá vụn bắn tung tóe. Một bóng thanh sam lao thẳng tới nhanh như chớp, hai tay cầm đao.
 
-Lý Nhị thu hồi trúc liễn, quay đầu nhìn lại, cười nói: "Lòe loẹt, trái lại là rất dọa người."
+Lý Nhị thu sào, ngoảnh đầu nhìn rồi cười: "Lòe loẹt, trông cũng dọa người đấy."
 
-Lý Nhị tùy tiện chọc vào trúc liễn, thuyền nhỏ dưới chân chậm rãi đi về phía trước, Trần Bình An quay đầu tránh thoát trúc liễn kia, tay áo bên trái vê Phương thốn phù, chợt lóe rồi biến mất.
+Lý Nhị tiện tay chọc sào, tiểu thuyền dưới chân chậm rãi tiến lên. Trần Bình An nghiêng đầu tránh mũi sào, vê Phương Thốn phù trong tay áo trái rồi thoắt cái biến mất.
 
-Lòng bàn tay nắm chặt trúc cương của Lý Nhị buông lỏng, lại nắm chặt, đã không xoay người, cũng không quay đầu, trúc liễn liền đâm về phía sau, Trần Bình An xuất hiện ở phía sau mình, bị trực tiếp đâm trúng ngực, ầm ầm lao vào đáy nước, nếu không phải Trần Bình An hơi nghiêng người, mới chỉ là áo xanh cắt rách, lộ ra một chút rãnh máu xương trắng, bằng không ngoài miệng nói là Lý Nhị "khinh địch" ra tay có chừng mực, nhắm chừng một trúc liễn này có thể trực tiếp c*m v** ngực Trần Bình An.
+Lý Nhị nới bàn tay đang nắm sào rồi siết lại. Chẳng cần xoay người hay ngoảnh đầu, hắn đâm sào ra sau, trúng ngay ngực Trần Bình An vừa xuất hiện ở đó, đánh hắn ầm một tiếng xuống đáy nước. May mà Trần Bình An kịp nghiêng người, chỉ rách thanh sam và hở một đường máu thấy cả xương trắng. Bằng không, người ngoài miệng bảo sẽ ra tay chừng mực vì "khinh địch" kia e rằng đã đâm cây sào xuyên thẳng vào ngực hắn.
 
-Thuyền nhỏ dưới chân Lý Nhị tiếp tục chậm rãi đi về phía trước, căn bản không cần chống sào, võ phu thuần túy thập cảnh, đó là cái gọi là "Thần khí che kín, người là hoàn nhân", một khi xuất ra khí thịnh thật sự, Lý Nhị tùy tùy tiện là có thể mang cả con đường thủy phủ đầy cương khí quyền ý.
+Tiểu thuyền dưới chân Lý Nhị vẫn chậm rãi tiến lên, chẳng cần chống sào. Võ phu thuần túy thập cảnh đạt đến mức "thần khí không lọt ra ngoài, bản thân là một hoàn nhân". Một khi thật sự thi triển tu vi Khí Thịnh, Lý Nhị có thể tùy tay phủ kín cả đường nước bằng cương khí và quyền ý.
 
-Lý Nhị cười cười, được thôi, coi như tiểu tử ngươi chiếm địa lợi, một ngụm dùng tới mấy chục tấm thủy phù, đồng thời nổ tung, miễn cưỡng có thể tính là dời sông lấp biển.
+Lý Nhị mỉm cười. Được thôi, coi như tiểu tử ngươi chiếm địa lợi. Một hơi dùng mấy chục lá thủy phù, cho nổ tung cùng lúc, miễn cưỡng cũng tính là dời sông lấp biển.
 
-Lý Nhị nhẹ nhàng nắm chặt trúc liễn, ông ông tác hưởng, cương khí đại chấn, một người một thuyền, tiếp tục đi về phía trước, không nhanh không chậm, giọt nước không gần người và thuyền.
+Lý Nhị khẽ siết cây sào trúc. Sào rung lên ong ong, cương khí chấn động dữ dội. Một người một thuyền vẫn đi tới, chẳng nhanh chẳng chậm. Không giọt nước nào bén được vào người hay thuyền.
 
-Lý Nhị dậm chân một cái, đáy nước vang lên tiếng sấm rền, Lý Nhị Tiểu kinh ngạc, cũng không quản Trần Bình An dưới đáy nước nữa, từ đuôi thuyền đi tới đầu thuyền, liếc mắt nhìn vách tường phía xa, thuyền nhỏ dưới chân như mũi tên, ném tới một trúc liễn.
+Lý Nhị giậm chân, đáy nước vang lên một tiếng sấm rền. Hơi ngạc nhiên, hắn mặc Trần Bình An dưới đáy nước, đi từ đuôi lên mũi thuyền rồi liếc vách đá đằng xa. Tiểu thuyền lao đi như tên bắn. Hắn ném cây sào trúc tới.
 
-Âm thần lặng yên không một tiếng động đi xa, dùng Đà Bi Phù của Quỷ Phủ cung sớm ẩn nấp trên vách tường, lúc trước rất nhiều là thủ thuật che mắt.
+Âm thần đã lặng lẽ đi xa, dùng Đà Bi phù của Quỷ Phủ cung nấp sẵn trên vách đá. Phần lớn động tĩnh trước đó chỉ để che mắt.
 
 Không ngờ vẫn bị Lý Nhị dễ dàng nhìn thấu.
 
-Âm thần chỉ đành tránh khỏi trúc liễn thế đại lực trầm, vừa động này đã hiện ra chân thân, là một người trẻ tuổi áo trắng thắt lưng buộc quạt, cho dù chạy trốn có chút chật vật, vẫn như cũ mang theo ý cười, thân hình mờ mịt, giống như thần tiên trên núi, lúc rời khỏi vách đá, hai ngón tay âm thần Trần Bình An kết kiếm quyết, từ chỗ mi tâm lướt ra một thanh kiếm quang tuyết trắng, là vật bản mạng Mùng Một của vật bản mạng chưa hoàn toàn luyện hóa kia, tuy không phải phi kiếm bản mạng của kiếm tu, nhưng mà sau khi trải qua đoạn đường lấy Trảm Long đài mài kiếm phong, một lần nữa hiện thế, khí thế liền như cầu vồng.
+Âm thần đành tránh cây sào đang lao tới với sức nặng ngàn cân. Vừa động đậy đã lộ thân hình một người trẻ tuổi bạch y, bên thắt lưng giắt quạt. Dù chạy trốn có phần chật vật, người ấy vẫn mỉm cười, thân hình mờ ảo như thần tiên trên núi. Vừa rời vách đá, âm thần của Trần Bình An khép hai ngón tay kết kiếm quyết. Một luồng kiếm quang trắng như tuyết lướt ra từ mi tâm, chính là Mùng Một, vật bản mạng còn chưa luyện hóa hoàn toàn. Tuy không phải phi kiếm bản mạng của kiếm tu, nhưng đã được mài lưỡi trên Trảm Long đài suốt dọc đường, lúc xuất hiện trở lại liền có khí thế như cầu vồng.
 
-Trúc trâm của Lý Nhị lúc trước vẫn không chạm tới vách đá, cánh tay hơi cong, thu trúc lại, đánh cho phi kiếm kia run rẩy không ngừng, đụng vào vách đá, nhưng một cây trúc bình thường lưu chuyển quyền ý, lại không hư hao chút nào.
+Cây sào của Lý Nhị vẫn chưa chạm vách đá. Hắn khẽ co tay thu sào, đánh cho phi kiếm run lên bần bật rồi va vào vách đá. Cây trúc tầm thường có quyền ý lưu chuyển bên trong lại chẳng hề hư hại.
 
 Lý Nhị cười nói: "Còn nữa?"
 
-Một thanh phi kiếm sắc bén cực có khí tượng kiếm tiên, từ phía sau đâm về phía sau lưng Lý Nhị.
+Một thanh phi kiếm sắc bén, mang khí tượng của kiếm tiên, đâm tới sau lưng Lý Nhị.
 
 Lý Nhị căn bản không thèm để ý, tự có quyền ý dư thừa như thần linh che chở, vốn là bảo giáp không thể phá vỡ nhất trên đời này.
 
-Lý Nhị ồ một tiếng, "Chỉ là kiếm mô phỏng chế tạo ở Hận Kiếm sơn?"
+Lý Nhị ồ một tiếng: "Chỉ là kiếm phỏng chế của Hận Kiếm sơn?"
 
-Bởi vì thanh phi kiếm đang hung hăng kia bị quyền ý tùy tiện b*n r*.
+Thanh phi kiếm đang hung hăng lao tới đã bị quyền ý đánh bật ra dễ dàng.
 
 Thanh phi kiếm thứ ba tốc độ nhanh nhất, lao thẳng về phía ót Lý Nhị.
 
-Cùng lúc đó, thanh kiếm thứ nhất như phi kiếm bạch hồng, muốn tiếp tục dây dưa cận thân.
+Cùng lúc đó, thanh phi kiếm đầu tiên lại hóa thành một vệt cầu vồng trắng, áp sát để tiếp tục dây dưa với hắn.
 
 Lý Nhị cũng có chút bất đắc dĩ, "Vậy thì có chút đáng ghét."
 
-Lý Nhị buông trúc liễn ra, chợt lóe rồi biến mất, ngay sau đó, trong tay nắm lấy ba thanh phi kiếm, trong lòng bàn tay tóe lên tia lửa sáng lạn.
+Lý Nhị buông sào, thoắt cái đã biến mất. Ngay sau đó, ba thanh phi kiếm đã nằm trong tay hắn, tóe lửa sáng rực trong lòng bàn tay.
 
-Đợi khi Lý Nhị quay về thuyền nhỏ, cây trúc kia tựa như huyền đình không trung, căn bản không có hạ xuống, thật sự là Lý Nhị một đi một về, quá nhanh.
+Khi Lý Nhị trở về tiểu thuyền, cây sào trúc vẫn như đang treo giữa không trung, chưa kịp rơi xuống. Hắn đi rồi về nhanh đến vậy.
 
-Lý Nhị một tay cầm ba thanh phi kiếm, lòng bàn tay đặt lên trúc liễn, đẩy mạnh, chiếc thuyền nhỏ dưới chân lắc lư.
+Lý Nhị một tay giữ ba thanh phi kiếm, tay kia đặt lên cây sào rồi đẩy mạnh. Tiểu thuyền dưới chân hắn lắc lư.
 
-Trúc liễn hơi nghiêng bay vút đi, trực tiếp xuyên thủng bụng Trần Bình An, ghim hắn vào đáy nước, thế đi của trúc liễn kinh thế hãi tục, chẳng những húc cho cả người Trần Bình An dán chặt vào sau lưng, trúc liễn vẫn xuyên qua bụng như trước.
+Cây sào trúc bay chếch đi, đâm xuyên bụng Trần Bình An rồi ghim hắn xuống đáy nước. Thế sào kinh người, cả thân thể Trần Bình An bị ép sát vào phía sau mà sào vẫn xuyên qua bụng hắn. [?]
 
 Lý Nhị ra tay tàn nhẫn.
 
 Trần Bình An ứng đối càng thêm hung ác.
 
-Bàn tay vỗ mạnh xuống đáy nước, tựa như rút cả người mình ra khỏi cây gậy trúc, bằng vào Phương thốn phù, nháy mắt đã không thấy bóng dáng.
+Hắn vỗ mạnh tay xuống đáy nước, tựa như rút cả người khỏi cây sào rồi mượn Phương Thốn phù, nháy mắt đã mất dạng.
 
-Lý Nhị cười cười, không đánh chó mù đường, đã nói rồi, trong lòng phải có lòng khinh thị.
+Lý Nhị mỉm cười. Không đánh chó cùng đường. Đã nói là phải có lòng khinh địch kia mà.
 
-Trần Bình An có một điểm tốt, không biết đau, hoặc là nói, trước khi chết, ra tay đều sẽ rất ổn.
+Trần Bình An có một chỗ tốt là không biết đau. Hay nói đúng hơn, chừng nào chưa chết, hắn ra tay vẫn rất vững.
 
-Có một số người được gọi là thiên tài võ phu, bị thương càng nặng, càng chiến càng dũng, nhưng cũng khó tránh khỏi sẽ có chút di chứng, không phải sau đại chiến, mà là ở trong đại chiến, thuộc loại lấy quyền ý đổi chiến lực, nếu là chém giết hai bên, cảnh giới tương đương, loại người này đương nhiên có thể sống đến cuối cùng, bởi vì võ phu thuần túy, không thể chỉ có dũng khí huyết khí, thất phu chi nộ, nhưng mà nếu nửa điểm cũng không có, thì không nên đi con đường võ đạo này. Nhưng một khi cảnh giới hai bên thoáng kéo ra một chút, hành động như vậy, lợi hại đều có, có lẽ kết quả tốt nhất, chính là thành công cùng người mạnh hơn đổi mạng.
+Có những võ phu được gọi là thiên tài, thương thế càng nặng, càng đánh càng hăng. Nhưng cách ấy cũng khó tránh khỏi hậu quả ngay trong trận đánh, thuộc loại lấy quyền ý đổi lấy sức đánh. Nếu hai bên chém giết mà cảnh giới tương đương, hạng người ấy đương nhiên có thể sống đến cuối cùng. Võ phu thuần túy chẳng thể chỉ cậy huyết khí và cơn giận của kẻ thất phu, nhưng thiếu hẳn những thứ ấy thì cũng chẳng nên đi con đường võ đạo. Một khi cảnh giới hai bên chênh nhau đôi chút, lối đánh đó có lợi có hại. Kết quả tốt nhất có lẽ là đổi được mạng mình lấy mạng người mạnh hơn.
 
-Võ nhân chém giết, nhìn như buồn tẻ chán nản, đều tự đổi thương phân sinh tử, thủ đoạn không nhiều, kì thực khắp nơi huyền cơ, quyền quyền có ý tứ.
+Võ phu chém giết, nhìn qua tưởng đơn điệu, chẳng có mấy thủ đoạn, chỉ lấy thương đổi thương để phân sống chết. Kỳ thực đâu đâu cũng có huyền cơ, quyền nào cũng có chỗ đáng xem.
 
-Nhất là sau khi chen thân thập cảnh, trời cao đất rộng, rất có kỳ quan, phong quang vô cùng.
+Nhất là khi đã bước vào thập cảnh, trời cao đất rộng, kỳ quan phong cảnh nhiều vô kể.
 
-Tống Trường Kính dã tâm bừng bừng, bố cục lớn, đối với võ học thuần túy, có thể bỏ qua giang sơn, bỏ long ỷ, chấp niệm nặng nề, hơn xa tông sư tầm thường, ra quyền sở cầu, là muốn dạy những tiên nhân đỉnh núi kia, đi xuống núi, hướng Tống Trường Kính hắn cúi đầu dập đầu.
+Tống Trường Kính dã tâm bừng bừng, mưu tính sâu xa. Vì võ học thuần túy, hắn có thể bỏ cả giang sơn lẫn long ỷ. Chấp niệm ấy nặng hơn xa tông sư tầm thường. Hắn ra quyền chỉ mong những vị tiên nhân trên đỉnh núi kia chịu xuống núi, cúi đầu quỳ lạy trước mặt hắn.
 
 Cho nên khí thịnh.
 
 Lý Nhị tự nhận ở cảnh giới tầng một này, quả thật thua Tống Trường Kính không ít.
 
-Sau khi võ phu thuần túy đăng đỉnh, mặc cho ngươi quyền chủng trăm ngàn, võ đảm khác nhau, thật ra đại khái cũng chỉ có hai con đường có thể đi, một con đường, như ngang bằng mở phúc địa, một thân quyền ý, rộng lớn vô ngần, diện tích lãnh thổ mở rộng, khí thịnh là điều quan trọng nhất. Một con đường, như là tiên nhân mở động thiên, càng dễ về với thực, dưới chân không đường, liền tiếp tục lăng không hướng chỗ cao mà đi. Lý Nhị không phải không muốn ở khí thịnh cảnh đi nhiều một chút, chỉ là bản thân tâm tính sai khiến, quyền ý lại đủ thuần túy, nếu là cố ý đánh hai chữ khí thịnh, ích lợi không lớn, không bằng thuận thế trực tiếp chen thân quy chân.
+Võ phu thuần túy một khi đã lên đến đỉnh, mặc cho quyền pháp muôn ngàn, võ đảm mỗi người mỗi khác, đại khái cũng chỉ có hai đường để đi. Một đường như mở phúc địa trên mặt đất, mở mang cương vực cho quyền ý rộng lớn vô ngần, lấy Khí Thịnh làm trọng. Một đường như tiên nhân mở động thiên, càng dễ trở về với cái chân thực. Dưới chân đã hết đường thì tiếp tục lăng không mà lên cao. Lý Nhị cũng muốn đi thêm một đoạn ở Khí Thịnh cảnh, chỉ là với tâm tính và quyền ý đã đủ thuần túy của hắn, cố cầu hai chữ Khí Thịnh cũng chẳng thu được bao nhiêu. Chi bằng thuận thế bước thẳng vào Quy Chân.
 
-Lúc trước uống rượu tán gẫu với Trần Bình An, Lý Nhị nghe nói Lạc Phách Sơn có một diệu nhân tên là Chu Liễm, tên hiệu Võ Phong Tử, chém giết với người ta, nhất định phân sinh tử, nhưng mà ngày thường, tính tình tán đạm như tiên nhân.
+Trước đây, lúc uống rượu với Trần Bình An, Lý Nhị nghe nói núi Lạc Phách có một người rất lạ tên Chu Liễm, biệt hiệu Võ Phong Tử. Hễ chém giết với người khác, hắn nhất định phải phân sống chết, còn ngày thường tính tình lại nhàn tản, đạm bạc như tiên nhân.
 
-Trần Bình An cân nhắc nhiều, ý tưởng vòng vo, cực ít nói chuẩn xác, đề cập Chu Liễm, lại nói Chu Liễm kia là võ phu thuần túy nhất sẽ không tẩu hỏa nhập ma nhất.
+Trần Bình An suy nghĩ nhiều, trong đầu lắm vòng vèo, hiếm khi nói chắc một chuyện. Thế mà nhắc đến Chu Liễm, hắn lại bảo đó là võ phu thuần túy ít có khả năng tẩu hỏa nhập ma nhất.
 
-Lý Nhị liền cảm thấy Chu Liễm người này tất nhiên là thiên tài không xuất thế.
+Lý Nhị liền cho rằng Chu Liễm nhất định là thiên tài hiếm thấy.
 
-Trong mắt một vị võ phu thập cảnh thiên tài.
+Đó là lời đánh giá trong mắt một vị thiên tài võ phu thập cảnh.
 
-Tương lai nếu có cơ hội, có thể gặp Chu Liễm một lát.
+Về sau nếu có dịp, hắn muốn gặp Chu Liễm một lần.
 
-Lý Nhị thu hồi trúc liễn, tiện tay ném ba thanh phi kiếm, tiếp tục chống thuyền đi chậm.
+Lý Nhị thu sào, tiện tay ném ba thanh phi kiếm ra rồi lại thong thả chống thuyền.
 
-Lúc trước ra tay hơi nặng, vị hán tử thuần phác này có chút áy náy, sau đó ứng phó Trần Bình An xuất quỷ nhập thần, hoa dạng chồng chất, liền cố ý thu lại cân bằng nắm tay, một quyền trong đó, chỉ đánh cho Trần Bình An khảm vào thạch bích, nhưng không có đem trúc liễn trong tay đổi chỗ khác, đánh xuyên bụng đối phương, chẳng những như thế, thuyền nhỏ dưới chân tiếp tục tiến lên, để lại người trẻ tuổi khẳng định còn có thể tiếp tục ra tay kia ở lại phía sau, để hắn chuyển đổi một hơi chân khí thuần túy.
+Ban nãy ra tay hơi nặng, hán tử thuần phác này cũng có chút áy náy. Lúc đối phó với Trần Bình An xuất quỷ nhập thần, hết trò này đến trò khác, hắn cố ý thu bớt lực tay. Có một quyền chỉ đánh Trần Bình An lún vào vách đá, hắn không đổi tay cầm sào để đâm xuyên bụng đối phương. Tiểu thuyền vẫn tiến lên, bỏ lại sau lưng người trẻ tuổi chắc chắn còn sức ra tay, để hắn có thời gian đổi một hơi chân khí thuần túy.
 
-Lý Nhị trước giờ cảm thấy chuyện tập võ, thực không có quá nhiều hoa mỹ, cần cù chăm chỉ rèn luyện thể phách, chẳng qua chỉ là hai chữ chịu khổ.
+Lý Nhị trước giờ vẫn thấy tập võ chẳng có gì hoa mỹ. Chăm chỉ rèn luyện thể phách, nói cho cùng chỉ có hai chữ chịu khổ.
 
-Cùng hoa màu kia quản lý ruộng đất, không khác lắm, chẳng qua ruộng hoa thu hoạch tốt xấu, còn phải xem sắc mặt lão thiên gia, võ phu luyện quyền, có thể đi bao xa, đều phải xem bản thân.
+Cũng chẳng khác làm ruộng là bao. Có điều mùa màng tốt xấu còn phải trông sắc mặt ông trời, còn võ phu luyện quyền có thể đi bao xa thì phải xem chính mình.
 
 Lý Nhị quay đầu nhìn lại, thấy được một màn cổ quái.
 
-Trần Bình An mặc vào một thân pháp bào Kim Lễ, lại khoác thêm một kiện pháp bào màu đen Bách Tình Thao Thiết, lúc này còn không bỏ qua, ngay cả pháp bào tuyết hoa của quỷ vật thành Nhiễm Nhi kia, Thải Tước phủ thập phần hoa lệ.
+Trần Bình An mặc pháp bào Kim Lễ, khoác thêm pháp bào đen Bách Tình Thao Thiết. Chừng ấy vẫn chưa đủ. Hắn mặc luôn pháp bào tuyết hoa của quỷ vật thành Nhiễm Nhi và cả pháp bào hoa lệ của Thải Tước phủ.
 
-Pháp bào, đều mặc vào, cũng may thế gian pháp bào sau khi tiểu luyện, có thể theo tâm ý tu sĩ, biến hóa chút, nhưng nguyên bản một bộ thanh sam, hơn nữa bốn món pháp bào này, có thể không lộ ra mập mạp? Thấy thế nào, Lý Nhị đều cảm thấy không được tự nhiên, nhất là món bên ngoài cùng vẫn là quần áo cô nương gia mặc, Trần Bình An ngươi có phải có chút quá đáng hay không?
+Bốn món pháp bào đều khoác cả lên người. May mà pháp bào sau khi tiểu luyện có thể đổi dáng đôi chút theo tâm ý tu sĩ. Nhưng bên trong vốn đã có một chiếc thanh sam, thêm bốn lớp pháp bào, sao tránh khỏi trông cồng kềnh? Lý Nhị nhìn kiểu gì cũng thấy không thuận mắt, nhất là món ngoài cùng vốn là y phục của cô nương. Trần Bình An ngươi có hơi quá rồi không?
 
 Nhưng lựa chọn này không tính là sai.
 
-Nếu ngay từ đầu đã mặc pháp bào, lấy cảnh giới võ phu hôm nay của Trần Bình An, sẽ chậm trễ quyền ý chảy xuôi, có lẽ ra tay chậm một nhịp, chính là một hồi sinh tử chuyển biến.
+Nếu mặc pháp bào ngay từ đầu, với cảnh giới võ phu hiện giờ của Trần Bình An, quyền ý sẽ lưu chuyển chậm đi. Có khi chỉ chậm tay nửa nhịp đã đủ đổi sống thành chết.
 
 Bây giờ trọng thương, thì đã là chuyện khác.
 
 Dù sao có thể chống đỡ thêm một hai quyền.
 
-Lý Nhị dừng thuyền ở bên thủy kính, tay cầm trúc liễn leo lên mặt kính giữa hồ.
+Lý Nhị dừng thuyền bên thủy kính, cầm sào trúc bước lên mặt kính giữa hồ.
 
 Lý Nhị nhìn về phía lối vào động đá vôi.
 
@@ -148,105 +148,105 @@ Một lát sau, thân hình Trần Bình An chợt cất cao.
 
 Thì ra dưới chân hắn đang giẫm lên một con quái vật khổng lồ màu xanh biếc, là một con giao long.
 
-Thủy long này quả nhiên hoàn toàn xứng đáng thủy pháp của tu sĩ thủy pháp, trên thân thể giao long, lấy Tuyết Nê phù đánh vào đáy, lại lấy hơn trăm tấm Đại Giang Hoành Lưu phù làm long cốt, nối liền chặt chẽ, tựa như còn dùng một chút, như là lá bùa linh quang của tấm "Phù lục" cổ quái nhưng đồ sộ này, chính là đạo quyết luyện vật thượng thừa mà Hỏa Long chân nhân muốn Trần Bình An cân nhắc nhiều hơn của hai môn đạo pháp luyện chế tam sơn, cộng thêm tiên nhân Kỳ Vũ bi tiên quyết của Bích Du cung, đều không nên chỉ là thủ đoạn luyện vật, cho nên lúc này cột sống giao long, như hai sợi dây thừng quấn quanh lẫn nhau, càng thêm chắc chắn, nhất là luyện sơn pháp, nhất là thủy luyện pháp, lại lấy giáo chân ý Đại Long quyền làm bút điểm mắt, mơ hồ, giao long dưới chân người trẻ tuổi này, liền có khí tượng tiên gia tích thổ thành núi, mưa gió hưng thịnh.
+Thủy pháp làm nên con giao long này quả nhiên xứng với một tu sĩ chuyên về thủy pháp. Trần Bình An dùng Tuyết Nê phù làm nền, lại lấy hơn trăm lá Đại Giang Hoành Lưu phù làm xương rồng, ghép nối kín kẽ. Linh quang của lá "phù lục" vừa quái lạ vừa đồ sộ này dường như còn đến từ đôi chút vận dụng hai phép thượng thừa mà Hỏa Long chân nhân muốn hắn nghĩ kỹ hơn: đạo quyết luyện vật dùng để luyện tam sơn và tiên quyết trên bia Kỳ Vũ của tiên nhân Bích Du cung. Hai phép ấy đâu chỉ có thể dùng để luyện vật. Cột sống giao long lúc này giống hai sợi dây bện vào nhau, càng thêm vững chắc, một bên là pháp luyện núi, một bên là pháp thủy luyện. Lại lấy chân ý Đại Long quyền làm bút điểm mắt, con giao long dưới chân người trẻ tuổi đã thấp thoáng khí tượng tiên gia, tích đất thành núi, gọi gió nổi mưa. [?]
 
-Thế gian vạn sự suy nghĩ nhiều.
+Chuyện trên đời, cứ chịu khó nghĩ thêm.
 
-Cuối cùng cũng được Trần Bình An tạo ra con quái vật lớn này.
+Cuối cùng Trần Bình An cũng tạo được con quái vật khổng lồ này.
 
 Trần Bình An theo thói quen tay phải cầm đao.
 
 Kỳ thực là thuận tay trái.
 
-Giao long dưới chân lao về phía Lý Nhị Thủy Kính, nơi nó đi qua, làm bắn lên sóng lớn ngập trời.
+Giao long dưới chân hắn lao về phía Lý Nhị trên thủy kính, đi đến đâu sóng lớn tung lên ngập trời đến đó.
 
-Lý Nhị nhếch khóe miệng, lấy đuôi trúc nhẹ nhàng điểm đất, "Làm màu mè, không thành sự."
+Lý Nhị nhếch miệng, khẽ chấm đuôi sào xuống đất: "Màu mè, chẳng làm nên chuyện."
 
-Lý Nhị nhẹ nhàng nhảy lên, vung cây gậy trúc, đập mạnh xuống đất, cho dù giao long cách thủy kính còn có mấy chục trượng sóng lớn, vẫn bị cương khí chém làm hai, chỉ dựa vào quán tính tiếp tục lao tới.
+Lý Nhị nhẹ nhàng nhảy lên, vung sào đập mạnh xuống đất. Con giao long cuốn theo sóng lớn còn cách thủy kính mấy chục trượng đã bị cương khí chém làm đôi, chỉ còn mượn đà mà lao tiếp.
 
-Lý Nhị quét ngang ra ngoài, Trần Bình An xuất hiện ở một bên tay trái Lý Nhị, chợt cúi đầu, thân hình như muốn ngã xuống đất, kết quả một người thân hình vặn chuyển, tránh thoát càn quét trúc liễn lôi cuốn theo thế phong, Trần Bình An mặt hướng trúc liễn chợt lóe rồi biến mất, tay áo lật chuyển, từ ba chỗ khiếu huyệt phân biệt lướt ra ba thanh phi kiếm, một người gấp gáp đạp đất, đoản đao tay phải, đâm về phía ngực Lý Nhị, tay áo trái lặng yên trượt ra thanh đoản đao thứ hai.
+Lý Nhị quét ngang sào ra. Trần Bình An xuất hiện bên trái hắn, đột ngột cúi đầu, thân hình tưởng như sắp ngã xuống đất. Hắn lại vặn người tránh cây sào đang quét tới lôi theo tiếng gió, thoắt cái biến mất ngay trước mũi sào. Tay áo lật lên, ba thanh phi kiếm lần lượt lướt ra từ ba khiếu huyệt. Trần Bình An gấp gáp đạp đất, dùng đoản đao tay phải đâm về phía ngực Lý Nhị. Từ tay áo trái, thanh đoản đao thứ hai lặng lẽ trượt ra.
 
-Lý Nhị căn bản không nhìn ba thanh phi kiếm kia, một cước đá trúng ngực Trần Bình An, người sau trượt ra ngoài hơn mười trượng, hai đầu gối khụy xuống, mũi chân vặn xuống đất, tăng thêm lực đạo, mới không đến mức buông ra hai tay đoản đao.
+Lý Nhị chẳng buồn nhìn ba thanh phi kiếm, đá trúng ngực Trần Bình An. Hắn trượt ra ngoài hơn mười trượng, khụy hai gối, xoáy mũi chân xuống đất để ghìm lại, mới không tuột mất hai thanh đoản đao trong tay.
 
-Hai vai nhoáng lên một cái, bỗng nhiên đứng lại, ngạnh sinh sinh đẩy lui Lý Nhị Quyền còn sót lại ở chỗ ngực.
+Hai vai hắn nhoáng lên, thân hình đột ngột dừng lại, gắng sức đẩy lui quyền kình Lý Nhị còn sót ở ngực.
 
-Rốt cuộc là người mặc pháp bào bốn món.
+Dù sao cũng đang khoác bốn món pháp bào.
 
-Lý Nhị nói: "Đã sớm nói với ngươi, võ kỹ khoa chân múa tay, mới có thể nghĩ loạn quyền đánh chết lão sư phụ, lão sư phụ không cần chống đỡ, chỉ là một chút."
+Lý Nhị nói: "Đã bảo ngươi từ lâu rồi. Dùng võ kỹ khoa chân múa tay mà mong loạn quyền đánh chết lão sư phụ ư? Lão sư phụ chẳng cần chống đỡ, chỉ điểm nhẹ một cái là đủ."
 
-Lý Nhị tiện tay ném trúc liễn, chìm vào mặt kính hơn một thước.
+Lý Nhị tiện tay ném sào trúc. Cây sào lún vào mặt kính hơn một thước.
 
-Con giao long thú vị kia, vừa mới ngưng tụ trên mặt kính một lần nữa, bị trúc liễn đâm một cái, liền tan thành từng mảnh hóa thủy, rất nhiều phù lục vốn đã vỡ vụn ra vết rạn, hoàn toàn hóa thành bột mịn.
+Con giao long thú vị kia vừa ngưng tụ trở lại trên mặt kính đã bị sào đâm trúng, tan ra thành nước. Bao nhiêu lá phù vốn đã rạn nứt, giờ đều hóa thành bột mịn.
 
 Trần Bình An bắt đầu dịch bước.
 
-Lý Nhị theo đó thay đổi quỹ tích một chút, vẫn vừa vặn xuất hiện ở trước người Trần Bình An, một gối húc người sau bay lên trời, Lý Nhị nhìn như thong thả tiến lên, tới bên cạnh Trần Bình An, một quyền đánh ra, đánh cho chân khí ngưng trệ, pháp bào vang lên từng trận tiếng nổ, Trần Bình An ngã vào trong hồ nước ngoài mấy chục trượng, như một cục đá múc nước trôi, lại trượt ra xa bảy tám trượng trên mặt hồ.
+Lý Nhị cũng đổi hướng đôi chút, vừa vặn lại xuất hiện trước mặt Trần Bình An, lên gối húc hắn bay lên trời. Lý Nhị trông như đang thong thả tiến tới, nhưng đã đến bên cạnh hắn, một quyền đánh cho chân khí ngưng trệ, pháp bào nổ liên hồi. Trần Bình An rơi xuống hồ cách đó mấy chục trượng, như hòn đá ném lướt mặt nước, lại trượt thêm bảy tám trượng.
 
-Lý Nhị bắt đầu nhanh chân chạy như điên, mỗi một bước đều giẫm bốn phía dưới chân, hồ nước linh khí vỡ nát, lao thẳng đến chỗ Trần Bình An rơi xuống nước.
+Lý Nhị bắt đầu chạy như bay. Mỗi bước đều giẫm nát linh khí nước hồ quanh chân, lao thẳng tới chỗ Trần Bình An rơi xuống.
 
-Thân hình chợt lướt ngang, Lý Nhị lấy vai đâm vào ngực Trần Bình An sử dụng một tấm Phương thốn phù.
+Lý Nhị đột ngột lướt ngang, dùng vai đâm vào ngực Trần Bình An đang thi triển Phương Thốn phù.
 
-Trần Bình An như bị thiết chùy nện ở ngực, âm thần xuất khiếu đi xa, lấy một loại quyền pháp cổ quái tự nhiên mà vậy, nhìn như vẽ hồ nhưng chậm, hồ hình cung tương sinh, gần như tròn, thực ra làm người ta hoa cả mắt, thế mà lại trực tiếp giúp Trần Bình An tháo đi tuyệt đại bộ phận quyền cương, đợi cho Trần Bình An ổn định thân hình, âm thần lại quay về thể phách, hành văn liền mạch lưu loát.
+Trần Bình An thấy ngực như bị thiết chùy nện trúng. Âm thần xuất khiếu đi xa, thuận thế thi triển một môn quyền pháp kỳ lạ. Trông như chậm rãi vẽ những nét cong, hết nét này nối nét khác, gần thành vòng tròn, kỳ thực nhanh đến hoa mắt. Môn quyền ấy gỡ được phần lớn quyền cương cho Trần Bình An. Hắn vừa đứng vững, âm thần đã trở về thân thể. Từ đầu đến cuối liền mạch, chẳng hề ngưng trệ.
 
 Lý Nhị không truy kích, gật đầu, vậy là được rồi.
 
-Nếu không tập võ lại tu đạo, sẽ chỉ làm một chuyện tu đạo, cản trở võ học đăng cao, hai bên luôn xung đột, chính là hỏng việc hại người.
+Bằng không, vừa tập võ vừa tu đạo chỉ khiến tu đạo cản trở bước tiến của võ học. Hai bên cứ xung đột với nhau thì hỏng cả việc lẫn người.
 
-Lần này Lý Nhị luyện quyền, việc phải làm, đó là để cho Trần Bình An đi tìm điểm cân bằng huyền diệu khó giải thích kia, người tập võ không thể bị quyền ý mang đi, nếu đã là Luyện khí sĩ, càng không thể sâu trong nội tâm, sẽ cảm thấy quyền ý của mình bởi vậy mà không thuần túy, người tập võ, chỉ dựa vào hai quyền là đủ, cũng không phải nói mọi sự không để ý, tông sư chân chính, nên có vạn pháp trong người, đều là đại khí tượng trong tay ta.
+Lần này Lý Nhị cho ăn quyền chính là để Trần Bình An tìm được chỗ cân bằng huyền diệu khó nói ấy. Người tập võ không thể để quyền ý dắt mình đi. Đã là luyện khí sĩ, lại càng không thể trong thâm tâm cho rằng vì thế mà quyền ý không còn thuần túy. Người tập võ dựa vào hai nắm đấm là đủ, nhưng chẳng có nghĩa mọi chuyện khác đều mặc kệ. Tông sư chân chính có vạn pháp trong người, đưa tay là có thể dùng, đó mới là đại khí tượng.
 
 Nhân thân tiểu thiên địa, ta tức lão thiên gia.
 
 Cái gì không thể quản, cái gì không quản được?
 
-Nếu Trần Bình An đã đi ra bước đầu tiên phương hướng không sai.
+Trần Bình An đã bước được bước đầu tiên theo đúng hướng.
 
 Lý Nhị liền thả lỏng ra quyền.
 
 Quyền không nặng, nhưng nhanh hơn.
 
-Không cho Trần Bình An ngươi cơ hội đảo lộn ý niệm chút nào.
+Không cho Trần Bình An ngươi có lấy một thoáng để chuyển ý.
 
-Võ phu chúng ta, võ phu chúng ta, đối quyền với Lý Nhị ta, đại đạo mênh mông, vậy tiểu tử ngươi phải lấy ra một chút đồ vật thế gian không có bất cứ võ nhân nào!
+Võ phu chúng ta đi trên đại đạo mênh mông. Đã đối quyền với Lý Nhị ta, tiểu tử ngươi phải đưa ra được một thứ mà không võ phu nào khác trên đời có!
 
 Có.
 
-Chỉ ăn thêm mấy quyền.
+Thì chỉ phải ăn thêm mấy quyền.
 
 Không có.
 
 Cứ nằm dưỡng thương đi!
 
-Bên bến đò, Lý Liễu đi lại trên đường nước, nhìn những dấu vết chém giết kia, về phần động tĩnh bên kia thủy kính, càng không cần nhìn, nàng đã biết rõ ràng.
+Lý Liễu từ bến đò men theo đường nước, xem những dấu vết chém giết. Còn động tĩnh bên thủy kính, chẳng cần nhìn nàng cũng biết rõ.
 
-Ở trong năm tháng dài đằng đẵng trước kia, Lý Liễu đối với võ phu thuần túy cũng không xa lạ, từng chết bởi tay võ phu cảnh giới thứ mười, cũng từng tự tay đánh giết võ phu cảnh giới thứ mười, về đường lối luyện quyền của võ phu hiểu biết rất nhiều, khó mà nói Trần Bình An chịu đựng như thế, đặt ở trong lịch sử Hạo Nhiên Thiên Hạ, thì có bao nhiêu ghê gớm, nhưng làm một vị võ phu cảnh giới thứ sáu, đã sớm ăn nhiều nắm tay đủ phân lượng như vậy, thực sự không nhiều lắm.
+Trong năm tháng đằng đẵng trước đây, Lý Liễu chẳng xa lạ gì với võ phu thuần túy. Nàng từng chết dưới tay võ phu thập cảnh, cũng từng tự tay giết võ phu thập cảnh, hiểu rất nhiều về đường lối luyện quyền. Khó nói Trần Bình An chịu đựng được đến thế, đặt vào lịch sử Hạo Nhiên thiên hạ, là ghê gớm tới đâu. Nhưng võ phu lục cảnh từng ăn nhiều quyền nặng đến vậy quả thật chẳng có mấy người.
 
-Đỉnh núi cảnh giới thứ chín thế gian, võ phu cảnh giới thứ mười, cùng Cố Hữu không thu đệ tử đích truyền như vậy, chung quy số ít.
+Trong số võ phu cửu cảnh đã tới đỉnh và võ phu thập cảnh trên đời, người không thu đệ tử đích truyền như Cố Hữu rốt cuộc chỉ là số ít.
 
-Muốn học cha hắn, võ học tông sư rèn luyện thể phách đệ tử như vậy, càng không ít, chỉ tiếc cũng phải có đệ tử gánh vác mới được, có vài người là thể phách gánh không được, có vài người là tâm tính không qua được, đương nhiên càng nhiều hơn, vẫn là hai người đều không làm nên chuyện gì, không có tiền bối minh sư nguyện ý nâng đỡ, thậm chí là kéo dài, cũng không thể đăng đường nhập thất, chết sống bước không qua ngưỡng cửa, cũng có chút nhìn như phá cảnh, trên thực tế là người cho quyền, truyền quyền mất pháp độ chân chính, đệ tử qua ngưỡng cửa, lại tựa như gãy cánh tay thiếu cái chân, Tâm Kính đánh ra tì vết nhỏ bé không thể phát hiện, cho nên vừa đến bát cảnh, cửu cảnh, đủ loại tai hoạ ngầm đã hiển lộ không thể nghi ngờ.
+Tông sư võ học muốn rèn thể phách cho đệ tử như cha nàng thì không ít, tiếc là còn phải có đệ tử chịu nổi mới được. Có người thể phách không chịu nổi, có người tâm tính không vượt qua được. Đương nhiên, nhiều hơn cả vẫn là kẻ thiếu cả hai. Dù có tiền bối, minh sư bằng lòng nâng đỡ, thậm chí dìu dắt từng bước, họ vẫn không vào được cửa, sống chết chẳng qua nổi ngưỡng. Cũng có người trông như đã phá cảnh, kỳ thực người cho quyền, truyền quyền không giữ được đúng phép. Đệ tử qua ngưỡng cửa mà chẳng khác nào gãy tay thiếu chân, tâm cảnh bị đánh ra một tì vết nhỏ đến mức chẳng nhận thấy. Đến bát cảnh, cửu cảnh, đủ thứ tai họa ngầm mới lộ ra hết.
 
-Lý Liễu đến cuối đường thủy động đá vôi, không tiếp tục đi về phía trước, bắt đầu quay đầu xoay người tản bộ.
+Lý Liễu đi tới cuối đường nước trong hang đá vôi thì dừng lại, xoay người thong thả đi về.
 
-Lý Liễu đến bến đò bên kia, ở biên giới sơn thủy cấm chế của tòa động phủ thần tiên này, nhìn về phong cảnh xa xa ngoài Sư Tử phong.
+Trở lại bến đò, Lý Liễu đứng ở rìa sơn thủy cấm chế của động phủ, nhìn phong cảnh xa xa ngoài Sư Tử phong.
 
-Lý Liễu loáng thoáng, đã nhận ra một tia dị tượng.
+Lý Liễu lờ mờ nhận ra một chút dị tượng.
 
-Ánh mắt hắn ta nâng lên, nhìn về phía màn trời.
+Nàng ngước mắt nhìn lên màn trời.
 
-Nho gia bảy mươi hai văn miếu bồi tự thánh hiền, từ xưa đã là tồn tại đáng thương họa địa nhất.
+Bảy mươi hai vị thánh hiền Nho gia được thờ trong Văn miếu, từ xưa đã đáng thương nhất vì bị giới hạn trong một cõi.
 
-Bất sinh bất tử, quy củ trùng trùng, năm này qua năm khác, nhìn nhân gian, tuyệt đối không cho phép tùy ý nhúng tay thế sự.
+Không sinh không tử, quy củ tầng tầng lớp lớp. Họ nhìn nhân gian năm này qua năm khác, tuyệt đối không được tùy ý nhúng tay vào thế sự.
 
-Lý Liễu có một đời rơi vào Tây Bắc châu, lấy thân phận tông môn chi chủ Tiên Nhân cảnh đỉnh phong, từng ở chỗ màn trời Lưu Hà châu kia, cùng một vị thánh hiền nho gia tọa trấn trên không bản đồ nửa châu, tán gẫu vài câu.
+Có một đời Lý Liễu đến châu ở phía tây bắc, làm chủ một tông môn với tu vi Tiên Nhân cảnh đỉnh phong. Nàng từng nói chuyện vài câu ở màn trời Lưu Hà châu với một vị thánh hiền Nho gia tọa trấn bầu trời trên nửa châu.
 
-Trong mắt các thánh hiền như đi thuyền hư không lại tịch nhiên bất động này, tựa như phàm phu tục tử ở đỉnh núi, nhìn sơn hà dưới chân, cho dù là bọn họ, chung quy thị lực có cạn kiệt, cũng sẽ nhìn không rõ hình ảnh, chẳng qua nếu vận chuyển viễn cổ thần thông chưởng quan sơn hà, đó là ngọc bội minh văn trên thân vị nam tử nào đó phố phường, cô gái nào đó đầu đầy tóc đen xen lẫn một sợi tóc bạc, cũng có thể mảy may hiện rõ, thu hết đáy mắt.
+Các vị thánh hiền ấy như ngồi trên thuyền giữa hư không, lặng lẽ bất động. Nhìn xuống chẳng khác người phàm đứng trên đỉnh núi ngắm sơn hà dưới chân. Dù là bọn họ, tầm mắt cũng có lúc không vươn tới, cảnh vật nhìn chẳng rõ. Nhưng hễ vận thần thông viễn cổ chưởng quan sơn hà, thì đến chữ khắc trên ngọc bội của một nam tử ngoài phố hay một sợi bạc lẫn trong mái tóc đen của một cô nương, họ cũng thấy rõ mồn một.
 
-Chỉ là thần thông như vậy, nhìn nhân gian ngàn năm qua ngàn năm, cuối cùng có thể nhìn thấy một ngày mệt mỏi.
+Chỉ là có thần thông như thế, nhìn nhân gian hết nghìn năm này tới nghìn năm khác, rồi cũng đến ngày thấy mỏi mệt.
 
-Huống chi chức trách của bọn họ, là muốn giám sát những đại tu sĩ Phi Thăng cảnh kia, cùng với một đám tu sĩ thượng ngũ cảnh tu đạo, cũng phải có một nơi trong lòng hiểu rõ, để tránh người tu đạo, thuật pháp không cố kỵ, tai họa nhân gian.
+Huống chi chức trách của họ là trông chừng các đại tu sĩ Phi Thăng cảnh. Cả những tu sĩ thượng ngũ cảnh khác, họ cũng phải nắm được phần nào hành tung để khỏi có kẻ thi triển thuật pháp bất chấp kiêng kỵ, gây họa nhân gian.
 
-Những đại tu sĩ đang ở trong động thiên phúc địa, nếu rời khỏi tiểu thiên địa, tựa như từng chiếc đèn đuốc đặc biệt bắt mắt sáng lên, như phàm tục phu tử trên đỉnh núi kia đều có thể nhìn thấy, tự nhiên sẽ bị thánh hiền tọa trấn màn trời lập tức lưu tâm, gắt gao nhìn thẳng. Nếu có việc thất lễ trái lệ, thánh hiền sẽ phải ra tay ngăn trở. Nếu tất cả theo khuôn phép cũ, thì không cần bọn họ hiện thân.
+Đại tu sĩ rời khỏi động thiên phúc địa chẳng khác nào một ngọn đèn sáng rực bật lên. Người phàm đứng trên đỉnh núi còn nhìn thấy, huống chi các vị thánh hiền tọa trấn màn trời. Họ sẽ lập tức để mắt, nhìn chằm chằm không rời. Có việc thất lễ, trái quy củ, thánh hiền sẽ ra tay ngăn lại. Nếu mọi việc đều theo phép cũ, họ chẳng cần hiện thân.
 
-Lúc ấy thánh hiền nho gia từng có vài câu nói với Lý Liễu, cuối cùng mỉm cười nói hắn giải sầu lớn nhất, đó là cách mỗi mười năm, liền đi nhìn một quận huyện nào đó của một châu nào đó của một quốc gia, lập ở một chỗ văn bia hương ước đầu thôn, nhìn một lần gió thổi nắng chiếu mỗi mười năm, mưa tuyết cọ rửa, trên tấm bia đá đó có biến hóa rất nhỏ của thế nhân nhân nào không sao cả.
+Khi ấy, vị thánh hiền Nho gia nói với Lý Liễu vài câu, cuối cùng mỉm cười bảo thú giải sầu lớn nhất của mình là cứ mười năm lại nhìn một tấm bia ghi hương ước dựng ở đầu thôn, tại một quận huyện nào đó của một nước trên một châu. Cứ mười năm lại xem một lần, xem gió thổi, nắng chiếu, mưa tuyết xói mòn, xem những thay đổi nhỏ nhặt trên tấm bia chẳng mấy ai ở đời để tâm tới.
 
 Lý Liễu không phản bác được.
 
@@ -254,36 +254,36 @@ Thánh hiền tịch mịch.
 
 Nhân gian không biết.
 
-Ước chừng một canh giờ sau, Lý Liễu thần du vạn dặm thu hồi suy nghĩ, cười quay đầu nhìn lại.
+Chừng một canh giờ sau, Lý Liễu đang thả tâm thần đi xa vạn dặm mới thu lại suy nghĩ, mỉm cười ngoảnh đầu.
 
-Có người chống thuyền quay về, là Trần Bình An có chút thê thảm.
+Có người chống thuyền quay về. Là Trần Bình An, bộ dạng khá thê thảm.
 
-Lý Nhị ngồi trên thuyền nhỏ, nói: "Khẩu khí này trước hết phải chống đỡ, dù sao cũng phải đợi đến khi những võ vận kia tới Sư Tử phong mới được, bằng không ngươi sẽ không có cách nào làm thành sự kiện kia."
+Lý Nhị ngồi trên tiểu thuyền, nói: "Hơi này trước hết phải giữ cho vững. Dù sao cũng phải đợi võ vận tới Sư Tử phong. Bằng không ngươi chẳng làm được chuyện kia."
 
 Trần Bình An gật gật đầu.
 
-Lý Nhị hỏi: "Thật sự không hối hận? Lý Liễu có lẽ biết một ít biện pháp cổ quái, giữ được một đoạn thời gian."
+Lý Nhị hỏi: "Thật sự không hối hận? Có lẽ Lý Liễu biết vài cách lạ, có thể giữ lại thêm một thời gian."
 
-Trần Bình An lắc đầu nói: "Không được. Hám Sơn Quyền là Bắc Câu Lô Châu Cố Hữu tiền bối sáng chế, trên đường du lịch, tiền bối lại dạy ta ba quyền, cuối cùng tiền bối cho dù thân tử qua đời, vẫn muốn tặng võ vận cho ta. Cho nên không hối hận."
+Trần Bình An lắc đầu: "Thôi. Hám Sơn quyền do Cố Hữu tiền bối ở Bắc Câu Lô Châu sáng tạo. Trên đường du lịch, tiền bối còn dạy ta ba quyền. Đến cuối cùng, dù đã qua đời, tiền bối vẫn muốn tặng võ vận cho ta. Ta không hối hận."
 
 Lý Nhị không nói gì nữa.
 
-Một thuyền hai người tới bến đò, Lý Liễu mỉm cười nói: "Chúc mừng Trần tiên sinh, võ học tu đạo Lưỡng Phá Kính."
+Tiểu thuyền chở hai người cập bến. Lý Liễu mỉm cười nói: "Chúc mừng Trần tiên sinh cùng lúc phá cảnh cả võ học lẫn tu đạo."
 
-Trần Bình An nhếch miệng cười, lúc trước cố ý đè ép chân khí cùng linh khí, động tác thoáng một cái này, lập tức liền phá công, lại một lần nữa trở nên mặt đầy vết máu.
+Trần Bình An nhếch miệng cười. Ban nãy hắn cố đè chân khí và linh khí xuống, chỉ một động tác ấy đã khiến công phu đổ bể, mặt lại đầy máu.
 
 Trần Bình An đi qua đạo sơn thủy cấm chế ở cửa động phủ, nhẹ nhàng nắm tay, ngửa đầu nhìn lại.
 
-Trên Sư Tử Phong trời quang vạn dặm, bỗng nhiên ngưng tụ một mảnh biển mây màu vàng, sau đó trời giáng cam lâm, từng tia từng sợi chậm rãi rơi xuống, cực kỳ chậm chạp.
+Trên Sư Tử phong, trời đang quang đãng vạn dặm, bỗng tụ lại một biển mây vàng. Cam lâm từ trời giáng xuống, từng sợi rơi thật chậm.
 
 Trần Bình An nhẹ giọng nói: "Mùng Một, Mười Lăm."
 
-Hai thanh phi kiếm lướt qua, chợt lóe rồi biến mất, huyền đứng ở chỗ cao trước người Trần Bình An, như hai bậc thang.
+Hai thanh phi kiếm lướt ra rồi thoắt cái dừng lơ lửng trên cao trước mặt hắn, tựa như hai bậc thang.
 
-Một bộ thanh sam bối tiên kiếm, bắt đầu lên cao chạy vội, giẫm lên hai bậc thang phi kiếm, từng bước lên trời.
+Trần Bình An mặc thanh sam, lưng đeo Kiếm Tiên, bắt đầu chạy lên cao. Hắn giẫm lên hai bậc thang phi kiếm, từng bước lên trời.
 
-Cách biển mây màu vàng cùng mưa rào vũ vận mấy chục trượng, đột nhiên dừng bước, Trần Bình An một thân quyền ý mãnh liệt lưu chuyển, như thần linh trên trời, lấy Vân Chưng Đại Trạch Thức ra quyền hướng lên cao.
+Còn cách biển mây vàng và màn mưa võ vận mấy chục trượng, Trần Bình An đột ngột dừng bước. Quyền ý cuộn trào khắp người, hắn tựa thần linh trên trời, dùng Vân Chưng Đại Trạch thức đánh một quyền lên cao.
 
-Một quyền qua đi, đánh lui biển mây võ vận và cam lâm, ầm ầm phân tán ở Bắc Câu Lô Châu.
+Quyền ấy đánh lui biển mây võ vận và cam lâm. Cả hai ầm ầm tản ra khắp Bắc Câu Lô Châu.
 
-Trần Bình An sức cùng lực kiệt hít sâu một hơi, lau mồ hôi trên trán, xoay người th* d*c, có chút tầm mắt mơ hồ, vẫn quay đầu nhìn về phía nam, nhẹ giọng cười nói: "Cố tiền bối, lúc trước không dám nói với người, trúc lâu quê nhà ta có người, nói Hám Sơn quyền này của chúng ta, toàn là chút mùi đất, không sao cả, cũng chỉ có quyền ý căn bản, coi như tạm được. Một quyền vừa rồi của ta, chính là hắn truyền cho ta. Cố tiền bối xin yên tâm, năm đó ta không phục, chờ lần này ta về quê, nhất định phải nói chuyện với hắn, hôm nay là Kim Thân cảnh, như thế nào cũng có thể chịu thêm hai quyền, có thể nói thêm hai câu."
+Sức cùng lực kiệt, Trần Bình An hít sâu một hơi, lau mồ hôi trên trán rồi xoay người, thở dốc. Tầm mắt đã hơi mờ, hắn vẫn ngoảnh về phía nam, khẽ cười: “Cố tiền bối, trước đây ta chẳng dám nói với người. Ở trúc lâu quê ta có người chê Hám Sơn quyền của chúng ta toàn mùi đất, chẳng có gì hay, chỉ có quyền ý căn bản là tạm được. Quyền vừa rồi chính là do người ấy truyền cho ta. Cố tiền bối cứ yên tâm. Năm đó ta không phục. Lần này về quê, ta nhất định phải nói chuyện với người ấy. Nay đã vào Kim Thân cảnh, thế nào ta cũng chịu thêm được hai quyền, nói thêm được hai câu.”

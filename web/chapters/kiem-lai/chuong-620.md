@@ -1,70 +1,70 @@
 # Chương 620: Một bầu rượu một bàn đồ ăn
 
-Một đám phụ nhân thiếu nữ ở bên nước giặt quần áo, chỗ sơn thủy tiếp giáp, lan nha ngâm suối, trên núi tùng bách um tùm.
+Một nhóm phụ nhân và thiếu nữ đang giặt áo bên suối. Dưới chân núi, những ngọn lan ngâm mình trong dòng nước. Tùng bách mọc um tùm trên sườn núi.
 
-Phụ nhân được Trần Bình An gọi là Liễu thẩm thẩm, cùng con gái bà Lý Liễu cùng nhau trải quần áo ở trên phiến đá xanh bên dòng suối.
+Phụ nhân mà Trần Bình An gọi là Liễu thẩm thẩm đang cùng con gái Lý Liễu trải quần áo lên phiến đá xanh bên suối.
 
-Trấn nhỏ chân núi Sư Tử Phong, bốn năm trăm hộ, người không ít, nhìn như giáp giới với Sư Tử phong, thực ra cách nhau một đường, cách biệt một trời, hầu như ít có giao tiếp, trăm ngàn năm trôi qua, đều đã quen rồi, huống chi con đường lên núi Sư Tử phong, cách trấn nhỏ có chút khoảng cách, có bướng bỉnh đùa giỡn trẻ con nữa, nhiều nhất chính là chạy đến sơn môn bên kia dừng bước, có ai dám mạo phạm tiên trưởng thanh tu trên núi, sau chuyện sẽ bị trưởng bối xách về nhà, đè ở trên băng ghế dài, đánh cho mông nở hoa ngao ngao khóc.
+Trấn nhỏ dưới chân Sư Tử phong có đến bốn năm trăm hộ. Nom thì ở sát ngọn núi, vậy mà chỉ cách một con đường đã như hai cõi, đôi bên hiếm khi qua lại. Bao đời nay vẫn thế. Huống chi đường lên núi cũng cách trấn một quãng. Lũ trẻ nghịch ngợm đến đâu cũng chỉ dám chạy tới sơn môn rồi dừng lại. Đứa nào dám quấy rầy các tiên trưởng thanh tu trên núi, về nhà thể nào cũng bị người lớn xách lên ghế dài, đè ra đánh cho khóc oai oái.
 
-Ở trấn nhỏ có thể lăn lộn được người người quen mặt, hoặc là làm việc ở nha môn huyện thành trong nhà, ở bên ngoài kiếm được nhiều tiền, về quê tạo nên một tòa nhà lớn, hoặc là vãn bối trong nhà là mầm móng đọc sách, hoặc là chính là góa phụ xinh đẹp trước cửa nhiều thị phi, tiếp theo chính là Liễu thẩm thẩm mở cửa hàng nghênh đón đưa đi làm ăn như vậy, phố phường hương dã, miệng không tha người, thường thường cũng không được người ta bỏ qua, thường thường thường qua lại, liền đều quen biết dì cả họ Liễu, phụ nhân trấn nhỏ này, trước kia luôn thích chê cười phụ nhân họ Liễu., Đối với con trai nàng thường xuyên nói, là con trai của thư viện lớn đọc sách, không ai tin tưởng, ngay cả phụ nhân rốt cuộc có sinh ra một đứa con trai có nắm giữ hay không, cũng không muốn tin tưởng, khuê nữ đẹp thì đã sao, còn không phải khuê nữ đã gả ra ngoài giội nước ra ngoài, bằng không đã có con gái xinh đẹp như vậy, mộ tổ bốc lên khói xanh, nghe nói đi trên Sư Tử phong sơn, làm nha hoàn cho lão thần tiên nào đó, nếu lại có đứa con có hi vọng có công danh, lợi ích to lớn đều cho một mình nàng chiếm hết, bọn họ còn sống thế nào? Trong lòng có thể thoải mái?
+Ở trấn nhỏ, những người ai cũng quen mặt thường là nhà có người làm việc trong nha môn huyện, kẻ ra ngoài kiếm được tiền về xây nhà lớn, nhà có con cháu giỏi đọc sách, hoặc góa phụ xinh đẹp có lắm lời thị phi trước cửa. Còn có người mở tiệm, ngày ngày đón khách như Liễu thẩm thẩm. Người phố chợ chẳng chừa ai ngoài miệng, mà ai cũng có phen bị người ta đem ra bàn tán. Qua lại lâu ngày, mọi người đều quen dì cả họ Liễu. Phụ nhân trong trấn trước kia hay chê cười bà. Bà thường kể con trai đang đọc sách ở thư viện lớn, chẳng ai tin, đến chuyện bà thật sự có một đứa con trai cũng có người chẳng muốn tin. Khuê nữ đẹp thì đã sao? Con gái gả đi như bát nước hắt ra ngoài. Có con gái xinh đẹp như thế, nghe nói lại lên Sư Tử phong làm nha hoàn cho một vị lão thần tiên, mộ tổ đã bốc khói xanh rồi. Nếu còn thêm con trai có hy vọng đỗ đạt, mọi cái lợi đều về tay bà cả, người khác sống thế nào? Trong lòng làm sao dễ chịu được?
 
-Gần đây tiệm vải bên kia, có một hậu sinh tuổi trẻ nhìn hết sức quen mặt, mấy lần giúp đỡ cửa hàng gánh nước, lễ số chu đáo, nhìn giống như là người đọc sách, khí lực không nhỏ, còn có thể giúp một ít lão bà nương tuổi đã cao lấy nước, còn nhận ra người, hôm nay sau khi chào hỏi nói chuyện phiếm, ngày hôm sau có thể thân thiện gọi người. Vừa tới trấn trên, liền chọn không ít lễ vật đăng môn. Nghe nói là thân thích bà con xa của Lý Mộc Oanh, các phụ nhân thấy không giống, quá nửa là thân thích của khuê nữ Lý Liễu, một ít phụ nhân gia cảnh tương đối giàu có, còn chạy tới cửa hàng bên kia tận mắt nhìn thấy, kết quả không những không bới móc ra được tật xấu của hậu sinh người ta, ngược lại người người ở bên kia chi tiêu không ít bạc, mua không ít vải về nhà, đọc vài câu cho nam nhân trong nhà đọc mấy câu đàn bà phá gia.
+Gần đây ở tiệm vải có một hậu sinh trẻ tuổi nom rất quen mặt. Hắn đã mấy lần gánh nước giúp tiệm, lễ số chu đáo, trông như người đọc sách mà sức lực cũng chẳng nhỏ, còn giúp cả mấy phụ nhân lớn tuổi lấy nước. Hắn lại nhớ mặt người. Hôm nay mới chào hỏi nói chuyện, hôm sau đã thân thiện gọi tên. Vừa đến trấn, hắn đã chọn không ít lễ vật mang đi thăm hỏi. Nghe nói hắn là bà con xa của Lý Mộc Oanh, các phụ nhân thấy chẳng giống, đoán quá nửa có liên quan đến khuê nữ Lý Liễu. Vài người nhà khá giả còn tìm tới tiệm xem tận mắt. Rốt cuộc chẳng bới ra được tật xấu nào của hậu sinh, ngược lại ai nấy đều bỏ không ít bạc mua vải, về nhà bị hán tử nhà mình mắng mấy câu đàn bà phá của.
 
-Nếu là hậu sinh kia miệng lưỡi trơn tru, chỉ lo giúp cửa hàng kiếm tiền lòng dạ hiểm độc, thì cũng thôi đi, các nàng đại khái có thể kết phường, ở sau lưng đâm sống lưng Liễu phụ nhân kia, tìm con rể trong mắt mất tiền như vậy, không thể lên mặt bàn, giáp mặt tổn hại phụ nhân kia cùng cửa hàng vài câu cũng có thể nói rõ, nhưng mà sau khi các phụ nhân thầm oán vài câu cho hán tử nhà mình, quay đầu tự mình sờ lấy vải vóc, giá tiền không rẻ, nhưng cũng thực không tính là lừa người, các nàng mỗi người đều là quen giao tiếp củi gạo dầu muối, cái này còn không phân ra được tốt xấu? Người trẻ tuổi kia giúp đỡ các nàng chọn lựa vải bông, tơ lụa..., Tuyệt đối không cố ý để cho các nàng đi đắt, nếu thật sự có duyên gặp mặt, chọn đắt thì cũng không tính là thực tế, hậu sinh còn muốn ngăn cản các nàng tiêu tiền oan uổng, hậu sinh kia mắt có thể bén, đều là theo tư thái, trang phục, tóc tai để bán vải, trong những gia đình phụ nữ này có nữ nhi, nhìn thấy, cũng cảm thấy tốt, thật sự có thể làm nổi bật lên tuổi trẻ của mẫu thân, giá cả vừa phải, hàng so với ba nhà, cửa hàng bên kia rõ ràng là giảm giá mà ra tay.
+Nếu hậu sinh kia chỉ khéo miệng, lo kiếm tiền bất lương cho tiệm thì các nàng đã có thể tụm lại sau lưng phụ nhân họ Liễu, chê bà kiếm đứa con rể hám tiền, chẳng ra thể thống gì, thậm chí còn có cớ nói móc cả người lẫn tiệm ngay trước mặt. Thế nhưng nghe hán tử nhà mình càm ràm vài câu, các nàng tự tay sờ lại vải vóc, giá tuy chẳng rẻ mà cũng không thể bảo là bị lừa. Họ quen lo củi gạo dầu muối, lẽ nào không phân được tốt xấu? Lúc chọn vải bông, tơ lụa, hậu sinh chẳng cố xui ai mua thứ đắt tiền. Gặp người có duyên, thấy mua món đắt mà không thiết thực, hắn còn khuyên đừng phí tiền. Hắn tinh mắt, biết chọn vải theo dáng người, y phục, kiểu tóc. Con gái các nàng thấy cũng khen đẹp, thật sự tôn được nét trẻ trung của mẫu thân. Giá lại vừa phải. Hỏi qua ba nhà, rõ ràng tiệm ấy bán rẻ hơn.
 
-Vì thế các phụ nhân không cảm thấy bà nương, tìm một người con rể tốt không thể trèo cao, dù sao ăn mặc cũng không sáng sủa, ngôn ngữ với người, lại không có phong cách của người đọc sách, khi nói chuyện phiếm với người khác, nhìn người đều là nhìn người, ánh mắt không chính mà xấu xa, loại đạo lý thô thiển này, trong phố phường là để ý nhất.
+Bởi vậy, các phụ nhân không thấy phụ nhân họ Liễu kiếm được một chàng rể tốt đến mức người thường không với tới. Hậu sinh ăn mặc giản dị, nói chuyện không làm bộ ra vẻ người đọc sách. Lúc trò chuyện, hắn nhìn thẳng vào người đối diện, ánh mắt ngay thẳng. Đạo lý mộc mạc ấy, người phố chợ lại để ý hơn cả.
 
-Cho nên cửa hàng Lý gia chọn một người con rể như vậy, sẽ không tốt đến mức khiến hàng xóm láng giềng đỏ mắt ghen tị, nhưng cũng không thể không thừa nhận, một hậu sinh trẻ tuổi như vậy, người không kém, có thể sống lâu dài.
+Nếu Lý gia chọn một người con rể như thế, láng giềng cũng chẳng đến nỗi đỏ mắt ghen tị. Nhưng họ phải thừa nhận, hậu sinh ấy tính nết được, có thể cùng người ta sống lâu dài.
 
-Con rể nhà người ta không tính quá tốt, nhưng lại không kém, trong lòng các phụ nhân liền có chút khác biệt.
+Con rể nhà người ta chẳng tốt đến mức khiến mình ghen tị, song cũng chẳng kém. Trong lòng các phụ nhân dần có cái nhìn khác.
 
-Lý Liễu nghe mẫu thân tâm tình thoải mái nói chuyện phiếm với người ta, vừa xắn áo vừa nghĩ những chuyện này, do việc nhỏ suy nghĩ về đại sự. Việc nhỏ xảy ra ở cửa hàng cùng trấn nhỏ, đại sự thậm chí không chỉ là một tòa hạo nhiên thiên hạ.
+Lý Liễu nghe mẫu thân vui vẻ trò chuyện, vừa xắn tay áo vừa nghĩ đến những chuyện ấy. Từ việc nhỏ ở tiệm vải và trấn nhỏ, nàng nghĩ đến chuyện lớn, lớn đến mức một tòa Hạo Nhiên thiên hạ cũng chưa chắc đã đủ.
 
-Nàng kiếp này kiếp này rơi vào Ly Châu động thiên, vốn là an bài tỉ mỉ cửa hàng Dương gia bên kia, nàng biết lần này, sẽ không giống nhau lắm, bằng không sẽ không cách cửa hàng Dương gia gần như vậy, trên thực tế cũng là như thế. Năm đó nàng theo cha nàng Lý Nhị đi hướng cửa hàng bên kia, Lý Nhị ở phía trước làm tạp dịch tiểu nhị, nàng đi hậu viện, Dương lão nhân là lần đầu nói mấy lời nặng nề với nàng, nói nàng nếu vẫn dựa theo biện pháp tu hành trước kia, nhiều lần thay đổi thân phận túi da, bước nhanh lên núi, chỉ ở đỉnh núi đảo quanh., Lại tích góp từng tí một mười đời nữa qua ngàn năm, vẫn như cũ là gà mờ ngay cả người cũng không ra gì, vẫn sẽ mãi ở lại bình cảnh Tiên Nhân cảnh, lui một bước mà nói, cho dù đời này tu ra Phi Thăng cảnh thì có thể như thế nào? Nắm đấm có thể lớn bao nhiêu? Lại lui một bước mà nói, thư viện học viện Nho gia nhiều thánh nhân như vậy, thực cho Lý Liễu ngươi cơ hội thi triển tay chân? Chống đỡ chết một lần xong, liền lại chết. Như vậy tuần hoàn chết đi sống lại, ý nghĩa không lớn, chỉ có thể là mỗi một lần chết, liền tích góp một khoản công đức, hoặc là phá hỏng quy củ, bị văn miếu ghi sổ một lần.
+Kiếp này nàng đến Ly Châu động thiên vốn do cửa hàng Dương gia sắp đặt kỹ lưỡng. Nàng biết lần này sẽ khác, bằng không đã chẳng ở gần cửa hàng đến vậy. Quả nhiên là thế. Năm ấy nàng theo cha đến tiệm, Lý Nhị làm tiểu nhị tạp dịch ở phía trước, còn nàng vào hậu viện. Lần đầu tiên Dương lão nhân nặng lời với nàng. Lão nói, nếu nàng vẫn tu như trước, hết lần này đến lần khác thay túi da, mau chóng lên núi rồi chỉ quanh quẩn trên đỉnh, thì tích góp thêm mười đời, trải ngàn năm, nàng vẫn là kẻ non nớt, đến làm người cũng chẳng ra sao, vẫn mắc ở bình cảnh Tiên Nhân cảnh. Lùi một bước mà nói, đời này có tu tới Phi Thăng cảnh thì sao? Nắm đấm có thể lớn đến đâu? Lùi thêm một bước, thư viện, học cung Nho gia có bao nhiêu thánh nhân, thật sự sẽ để Lý Liễu ngươi thi triển tay chân ư? Cùng lắm gắng gượng được một phen rồi lại chết. Cứ chết đi sống lại như thế có ích gì. Mỗi lần chết, hoặc tích được một khoản công đức, hoặc phạm quy củ, để Văn Miếu ghi thêm một món nợ.
 
-Lý Liễu ở Ly Châu động thiên những năm qua, không quá xuất đầu lộ diện, cho hàng xóm láng giềng phía tây trấn nhỏ ấn tượng, trừ bộ dạng xinh đẹp chút, dung mạo giống mẫu thân nàng, nhưng tính tình lại giống Lý Nhị, tay chân chịu khó, ngôn ngữ không nhiều, giống như sẽ không có chuyện đáng giá lấy ra nói nữa, đã không có bạn bè bạn bè bạn bè cùng lứa đặc biệt cần tốt, cũng không có chỗ để trưởng bối có thể chỉ trích.
+Mấy năm ở Ly Châu động thiên, Lý Liễu hiếm khi lộ diện. Trong mắt láng giềng phía tây trấn, nàng chỉ có dung mạo đẹp như mẫu thân, tính tình lại giống Lý Nhị, chịu khó làm việc, ít lời. Ngoài ra chẳng có chuyện gì đáng nhắc. Nàng không có bằng hữu đồng lứa đặc biệt thân thiết, cũng chẳng có điều gì để trưởng bối chê trách.
 
-Lý Liễu trái lại thường xuyên sẽ đi trường tư bên kia đón Lý Hòe tan học, nhưng chưa bao giờ nói chuyện với vị Tề tiên sinh kia.
+Lý Liễu thường tới trường tư đón Lý Hòe tan học, nhưng chưa bao giờ trò chuyện với Tề tiên sinh.
 
-Lúc Tề tiên sinh dạy học, nhìn thấy thiếu nữ ngoài học đường, cũng sẽ liếc mắt nhìn một cái, nhiều nhất chỉ là cười nhẹ nhàng gật đầu.
+Tề tiên sinh đang dạy học mà thấy thiếu nữ ngoài cửa, cũng chỉ liếc nhìn, nhiều lắm là mỉm cười khẽ gật đầu.
 
-Hình như chỉ là lấy lễ đối đãi, hoặc là xem như là người?
+Hình như chỉ là lấy lễ đối đãi. Hay là thật sự coi nàng như một người bình thường?
 
-Lý Liễu gặp nhiều thiên kỳ bách quái trên thế gian, cộng thêm thân phận nền móng của nàng, đã sớm quen coi thường nhân gian, ban đầu cũng không nghĩ nhiều, chỉ coi vị sơn chủ thư viện này là nho gia thánh nhân tầm thường tọa trấn tiểu thiên địa.
+Lý Liễu đã gặp đủ chuyện lạ trên đời. Với thân phận và lai lịch của mình, nàng sớm quen nhìn xuống nhân gian, ban đầu cũng chẳng nghĩ nhiều, chỉ coi vị sơn chủ thư viện này là một thánh nhân Nho gia bình thường tọa trấn tiểu thiên địa.
 
-Lý Liễu từng hỏi cửa hàng Dương gia, vị này quanh năm suốt tháng chỉ có thể nói đạo lý trên sách với dân dã mông đồng dạy học tiên sinh, biết hay không biết lai lịch của mình, Dương lão nhân năm đó chưa đưa ra đáp án.
+Lý Liễu từng hỏi ở cửa hàng Dương gia, vị tiên sinh quanh năm chỉ giảng đạo lý trong sách cho lũ trẻ quê ấy có biết lai lịch của nàng không. Dương lão nhân khi đó chẳng trả lời.
 
-Tề tiên sinh lần duy nhất nói chuyện với nàng, là lần đó tới nhà, cùng cha hắn Lý Nhị uống rượu.
+Tề tiên sinh chỉ nói chuyện với nàng một lần, vào hôm đến nhà uống rượu với cha nàng, Lý Nhị.
 
-Thời điểm nàng cầm mấy đĩa đồ ăn phụ tùng rượu thô, Tề tiên sinh cùng nàng cười nói một ít ngôn ngữ, "Lý Liễu, chúng ta sinh giữa thiên địa, thật ra không có khác biệt quá lớn, chỉ là một hồi học hành đi xa không có cơ hội trở lại cố hương, cuối cùng quyết định chúng ta là ai, không phải túi da ngày càng mục nát, sẽ chỉ là chúng ta nghĩ như thế nào, thậm chí không ở chỗ chúng ta muốn cái gì, muốn đi nơi nào, cũng chỉ là công phu học vấn trên hai chữ "làm sao", cuộc đời ngắn ngủi, chung quy có lực không thể giúp ta dừng bước, đến lúc đó quay đầu nhìn lại, tuyến đường lúc đến, chính là từng bước một như thế nào, đi ra một cái gì đó."
+Khi nàng bưng vài đĩa thức ăn nhắm cùng rượu thô lên, Tề tiên sinh mỉm cười nói: “Lý Liễu, chúng ta sinh ra giữa trời đất, thật ra chẳng khác nhau mấy. Đều là một chuyến đi xa cầu học, không có dịp trở lại cố hương. Rốt cuộc ta là ai chẳng do túi da ngày một mục nát này quyết định, mà do ta nghĩ thế nào. Thậm chí còn chẳng nằm ở chỗ ta muốn gì, muốn đến đâu. Công phu học vấn chỉ ở hai chữ ‘làm sao’. Một đời ngắn ngủi, cuối cùng có lúc sức chẳng theo kịp lòng, ta đành dừng bước. Bấy giờ ngoảnh nhìn đường đã qua, mới thấy từng bước chân của mình đã đi thành một con đường thế nào.”
 
-Sau đó Tề tiên sinh nhẹ nhàng cầm lên bát trắng đựng rượu ngon gia sản, "Phải kính các ngươi, mới có chúng ta, có phương thiên địa này, càng có Tề Tĩnh Xuân ta có thể ở đây uống rượu."
+Tề tiên sinh nhẹ nâng bát sứ trắng đựng rượu ngon nhà làm: “Phải kính các ngươi. Có các ngươi mới có chúng ta, có trời đất này, mới có Tề Tĩnh Xuân ta ngồi uống rượu ở đây.”
 
 Tề tiên sinh uống một hơi cạn sạch.
 
-Lý Liễu không nói gì thêm, chỉ là cũng uống một chén theo.
+Lý Liễu chẳng nói thêm, cũng uống theo một chén.
 
-Lúc ấy trong phòng, phụ nhân tiếng ngáy như sấm, đứa nhỏ tên là Lý Hòe đang nhẹ nhàng nói mê, có lẽ là nằm mơ còn đang lo lắng hôm nay chơi đùa, thiếu việc học chưa làm, sáng mai đến trường tư nên tìm cái cớ gì, cũng may tiên sinh nghiêm khắc bên kia lừa dối qua ải.
+Trong nhà, phụ nhân ngáy như sấm, đứa nhỏ Lý Hòe khe khẽ nói mê. Có lẽ trong mơ nó còn lo hôm nay mải chơi, việc học chưa xong, sáng mai đến trường tư phải kiếm cớ gì mới qua được cửa vị tiên sinh nghiêm khắc ấy.
 
-Đi cùng mẫu thân trở về cửa hàng, Lý Liễu kéo giỏ trúc, trên đường có nam tử phố phường huýt sáo.
+Lý Liễu xách giỏ trúc theo mẫu thân về tiệm. Dọc đường có nam tử trong trấn huýt sáo.
 
-Phụ nhân đang lẩm bẩm Lý Hòe tên không có lương tâm này, sao lâu như vậy cũng không gửi phong thư trở về, có phải ở bên ngoài giương oai liền quên mẹ hay không, chỉ là lại lo lắng Lý Hòe một mình ở bên ngoài, ăn không đủ no mặc không ấm, bị người ta bắt nạt, người bên ngoài, cũng không phải cãi nhau cái miệng là xong việc, Lý Hòe nếu chịu thiệt, bên người lại không ai giúp hắn chống lưng, nên làm cái gì bây giờ.
+Phụ nhân đang lẩm bẩm mắng Lý Hòe không có lương tâm, lâu thế chẳng gửi thư về, hay là ở ngoài tha hồ làm oai rồi quên mẹ. Mắng vậy mà bà lại lo con một mình ở ngoài ăn chẳng đủ no, mặc chẳng đủ ấm, bị người ta bắt nạt. Người bên ngoài đâu phải cứ cãi mấy câu là xong. Lý Hòe chịu thiệt mà bên cạnh không có ai chống lưng thì làm thế nào?
 
-Lý Liễu liền lấy ngôn ngữ trấn an mẫu thân, phụ nhân liền quay đầu đi nói nàng không tim không phổi nhất, Lý Hòe đó là cách xa nhà, mới không có cách nào hiếu kính cha mẹ, ngươi làm tỷ tỷ ngược lại tốt, một mình ở trên núi hưởng phúc, do cha mẹ ở chân núi mỗi ngày kiếm chút tiền vất vả.
+Lý Liễu lên tiếng an ủi, phụ nhân liền quay sang trách nàng mới là đứa vô tâm nhất. Lý Hòe ở xa, không có cách nào hiếu kính cha mẹ. Ngươi làm tỷ tỷ thì hay rồi, một mình hưởng phúc trên núi, mặc cha mẹ dưới chân núi ngày ngày vất vả kiếm mấy đồng.
 
-Lý Liễu có chút bất đắc dĩ, giống như loại chuyện này, quả nhiên vẫn là Trần Bình An càng thạo nghề hơn chút, dăm ba câu liền có thể làm cho người ta an tâm.
+Lý Liễu hơi bất đắc dĩ. Những chuyện như thế, quả nhiên Trần Bình An vẫn thạo hơn, dăm ba câu đã làm người ta yên lòng.
 
-Trên mặt kính động phủ Sư Tử Phong.
+Trên mặt gương trong động phủ Sư Tử phong.
 
-Lý Nhị hôm nay không sốt ruột để cho Trần Bình An ra quyền, ngược lại phá lệ nói lên chuyện quyền lý.
+Hôm nay Lý Nhị chẳng vội bảo Trần Bình An ra quyền, phá lệ giảng về quyền lý.
 
-Lý Nhị đi thẳng vào vấn đề nói: "Người tập võ chúng ta, kỹ kích diễn võ, xét đến cùng, ôn dưỡng chính là khí lực chém giết phá địch, trẻ con phố phường trẻ con, nhắm chừng đều mong mình một quyền hạ xuống, đánh tường nứt gạch, làm người ta mất mạng, thiên tính cho phép. Cho nên Lý Nhị ta chưa bao giờ tin cái gì nhân tính bản thiện, chẳng qua nho gia quản giáo tốt, làm người ta tin, luôn cảm thấy làm người tốt đến cùng như thế nào cũng không rõ ràng, là chuyện tốt, về phần làm hay không không nói tới nó, cho nên ác nhân hành hung, nhiều võ phu ỷ thế h**p người, cũng quá nửa hiểu được mình là đang làm việc trái với lương tâm. Đây là công đức của người đọc sách."
+Lý Nhị nói thẳng: “Người tập võ chúng ta luyện cách đánh, diễn võ, xét đến cùng là nuôi sức để chém giết, phá địch. Đến trẻ con phố chợ cũng mong một quyền nện xuống, tường vỡ gạch nứt, đánh người mất mạng. Tính trời là thế. Cho nên Lý Nhị ta chưa bao giờ tin người sinh ra đã thiện. Chẳng qua Nho gia dạy dỗ giỏi, khiến người ta tin làm người tốt là chuyện nên làm, dù chưa chắc biết phải làm thế nào, có chịu làm hay không lại là chuyện khác. Thành ra kẻ ác hành hung, võ phu cậy thế hiếp người, quá nửa vẫn biết mình đang làm việc trái lương tâm. Đấy là công đức của người đọc sách.”
 
-Lý Nhị nhếch miệng cười, "Đừng nhìn ta không đọc sách, là một dã phu thô bỉ cả ngày phân cao thấp với hoa màu, đạo lý vẫn là có hai ba cái như vậy. Chẳng qua người tập võ thường ít lời, thôn dã thiện gọi mèo, thường thường không giỏi bắt chuột. Sư đệ Trịnh Đại Phong của ta, trong việc này, sẽ không thành, cả ngày như đàn bà, lải nhải. Không có cách nào khác, người chỉ cần thông minh, sẽ không nhịn được phải nghĩ nhiều hơn, đừng thấy Trịnh Đại Phong không có hành động chính đáng, thật ra học vấn không nhỏ, đáng tiếc quá tạp, không đủ thuần túy, nắm tay sẽ dính nước bùn, không mau lên được."
+Lý Nhị nhếch miệng cười: “Đừng thấy ta chẳng đọc sách, chỉ là hán tử quê mùa cả ngày so hơn thua với hoa màu, ta cũng biết hai ba đạo lý. Chẳng qua người tập võ thường ít lời. Mèo nhà quê kêu lắm thường chẳng giỏi bắt chuột. Sư đệ Trịnh Đại Phong của ta ở khoản ấy chẳng được, cả ngày lải nhải như đàn bà. Cũng chẳng có cách nào, người thông minh khó nhịn được mà nghĩ thêm mấy chuyện. Đừng thấy Trịnh Đại Phong chẳng đứng đắn, học vấn hắn không nhỏ. Tiếc là quá tạp, thiếu thuần túy, quyền ra như dính bùn, chẳng nhanh lên được.”
 
-"Khó có được dạy quyền, hôm nay nói nhiều với Trần Bình An ngươi chút, chỉ một lần này."
+“Hiếm khi dạy quyền, hôm nay ta nói thêm với Trần Bình An ngươi mấy câu. Chỉ lần này thôi.”
 
-Lý Nhị nhìn Trần Bình An đứng ở cách đó không xa, Lý Nhị nâng mũi chân, nhẹ nhàng v**t v* mặt đất, "Ngươi ta đứng ở hai nơi, ngươi đối mặt Lý Nhị ta, cho dù là lấy lục cảnh, giằng co một vị võ phu thập cảnh, vẫn phải có một người đứng ở thế bất bại, cảnh giới cách xa, không phải nói không thể thua ta, mà là giằng co cùng cường địch, thân quyền chưa động tâm trước loạn, chưa chiến thua trước, đã là tìm chết."
+Lý Nhị nhìn Trần Bình An đứng cách đó không xa, nhấc mũi chân khẽ miết mặt gương: “Ngươi và ta đứng hai chỗ. Ngươi lấy lục cảnh đối mặt một võ phu thập cảnh như ta, vẫn phải đứng cho vững ở thế bất bại. Cảnh giới chênh lệch, ngươi có thể thua ta. Nhưng gặp cường địch mà thân chưa động, quyền chưa ra, tâm đã loạn, chưa đánh đã nhận thua thì khác gì tìm chết.”
 
 Lý Nhị nhìn như không có chút động tác nào.
 
@@ -74,21 +74,21 @@ Nước chảy bốn phía mặt kính to lớn, lại xuất hiện một chút
 
 Đây là do quyền ý của Lý Nhị gây nên.
 
-"Có lòng hiếu thắng cầu sinh kia, cũng không phải muốn người làm mãng phu không biết nặng nhẹ, thân lui quyền ý tăng, liền không tính nhượng bộ nửa bước."
+“Có lòng cầu thắng, cầu sống chẳng có nghĩa phải làm mãng phu không biết nặng nhẹ. Thân lui mà quyền ý vẫn tăng, vậy là chưa nhượng nửa bước.”
 
-Lý Nhị gật gật đầu, tiếp tục nói: "Phàm phu tử phố phường phàm tục, nếu là ngày thường gần thêm bạch nhận, tự nhiên không sợ côn bổng, cho nên võ phu thuần túy《 Đại Đạo 》, tìm kiếm thêm bạn cùng thế hệ, luận bàn quyền thuật, hoặc là đi hướng sa trường, ở trong đao thương kiếm kích, lấy một địch mười phá trăm, trừ người, càng có rất nhiều binh khí thêm thân, luyện chính là một mắt quan bốn đường, tai nghe tám hướng, càng vì tìm được một viên võ đảm. Mặc cho ngươi là ai, cũng dám ra quyền."
+Lý Nhị gật đầu, nói tiếp: “Người bình thường ở phố chợ, ngày ngày quen thấy lưỡi đao trần, tự nhiên chẳng sợ côn bổng. Võ phu thuần túy đi đường của mình, nên tìm thêm người đồng đạo luận bàn quyền thuật, hoặc ra sa trường, giữa đao thương kiếm kích lấy một địch mười, phá trăm. Ngoài người ra còn phải đối phó đủ loại binh khí. Luyện cho mắt nhìn bốn phía, tai nghe tám hướng, cốt để có được một viên võ đảm. Bất kể đứng trước ai cũng dám ra quyền.”
 
-Lý Nhị cười nói: "Chưa học công phu thật, chịu khổ bị đánh trước. Không đơn giản là muốn võ phu rèn luyện thể phách, gân cốt cứng cỏi, cũng là lúc hy vọng thực lực có chênh lệch, không có chút sợ hãi. Nhưng nếu học thành một thân kỹ kích sát nhân thuật, liền trầm mê trong đó, cuối cùng có một ngày, phải chịu sự mệt mỏi của nó."
+Lý Nhị cười: “Chưa học công phu thật, trước hết phải chịu khổ, chịu đòn. Ngoài rèn thể phách và gân cốt, còn để khi gặp người mạnh hơn, trong lòng chẳng sợ. Nhưng học được một thân bản lĩnh giết người rồi mê mải trong đó, sớm muộn cũng bị chính nó làm khổ.”
 
-Trần Bình An gật đầu nói: "Quyền cao không ra."
+Trần Bình An gật đầu: “Quyền cao thì không ra.”
 
-Trần Bình An nhanh chóng bổ sung một câu, "Không dễ dàng ra."
+Hắn vội nói thêm: “Không dễ dàng ra quyền.”
 
-Lý Nhị lúc này mới thu tay, bằng không Trần Bình An chỉ có một cách nói "quyền cao không ra", nhưng mà phải chịu một quyền rắn chắc, ít nhất cũng nên là Thập Cảnh khí thịnh khởi.
+Bấy giờ Lý Nhị mới thu tay. Nếu Trần Bình An chỉ nói “quyền cao thì không ra”, hẳn sẽ ăn một quyền chắc nịch, ít nhất cũng là thập cảnh tầng Khí Thịnh.
 
-Luyện quyền tập võ, vất vả một lần, nếu là chỉ nghĩ có thể không ra quyền liền không ra quyền, cũng không ra gì.
+Vất vả luyện quyền tập võ một phen, nếu chỉ nghĩ tránh được thì không ra quyền, cũng chẳng ra gì.
 
-Lý Nhị đứng tại chỗ, hô hấp như thường, vươn ra cánh tay trái, lấy tay phải vỗ nhẹ cổ tay trái, cánh tay, các đốt ngón tay cùng cơ thịt khắp nơi, chậm rãi nói: "Gân cốt con người, như long mạch sơn căn, cơ thịt khắp nơi như sơn nhạc quần phong, rèn luyện gân cốt, rèn luyện thể phách, chịu đựng mỗi một địa giới nhỏ bé, đem một trong vô số những chi tiết nhỏ, mài giũa đến mức tận cùng, sau đó thêm vào, cũng không xung đột, một quyền đi xuống, cửa thành không mở cũng phải mở, sơn nhạc không vỡ cũng phải vỡ!"
+Lý Nhị đứng nguyên chỗ, hơi thở vẫn đều. Hắn duỗi tay trái, lấy tay phải vỗ nhẹ lần lượt cổ tay, cánh tay, khớp ngón tay và các chỗ có cơ thịt, chậm rãi nói: “Gân cốt người ta như long mạch, căn núi, cơ thịt như núi cao, đỉnh lớn. Rèn gân cốt, luyện thể phách là mài giũa từng chỗ nhỏ. Mài từng chi tiết trong vô số chi tiết đến tận cùng rồi góp lại, chẳng chỗ nào xung đột. Một quyền đánh xuống, cửa thành không mở cũng phải mở, núi lớn không vỡ cũng phải vỡ!”
 
 Lý Nhị thu tay phải lại, tay trái chợt rung lên.
 
@@ -96,240 +96,240 @@ Cương phong gào thét, thổi cho quần áo của Trần Bình An bay phất
 
 Nước chảy quanh mặt kính càng chảy ngược.
 
-Lý Nhị nói thế, Trần Bình An nghe lọt tai nhất, cái này cùng phủ đệ Luyện khí sĩ tận lực mở nhiều, tích tụ linh khí, là hiệu quả tương tự.
+Trần Bình An nghe lời ấy rất lọt tai. Cũng giống luyện khí sĩ cố mở thêm nhiều phủ đệ để tích tụ linh khí.
 
-Muốn chính là tranh đấu nhìn như ngồi ngang hàng cùng cảnh, ta lại có thể lấy nhiều thắng ít, dốc hết sức đánh mười hội.
+Đánh nhau nhìn qua là cùng cảnh, ngang sức, nhưng hắn lại có thể lấy nhiều thắng ít, lấy sức phá mười thế.
 
-Lý Nhị chậm rãi kéo ra một quyền giá.
+Lý Nhị thong thả mở một thế quyền.
 
-Cuối cùng quyền giá trở thành một hình thái, Lý Nhị nói: "Chân, mắt, mắt, khung, kình, khí, ý, nội ngoại hợp nhất, đây chính là cái mà Luyện khí sĩ gọi là tự thành tiểu thiên địa, những võ phu chúng ta, một ngụm thuần túy chân khí, chính là một mũi thiết kỵ, mở mang bờ cõi, Luyện khí sĩ lại là truy cầu thủ thổ có công, hùng thành cự trấn, bài binh bố trận. Đương nhiên, những điều này là Trịnh Đại Phong nói, ta cũng không nghĩ ra những lời hoa mỹ này."
+Quyền giá vừa thành, Lý Nhị nói: “Chân, mắt, mắt [?], khung, kình, khí, ý, trong ngoài hợp nhất, là thứ luyện khí sĩ gọi là tự thành tiểu thiên địa. Với võ phu chúng ta, một ngụm chân khí thuần túy là một đội thiết kỵ đi mở cõi. Luyện khí sĩ lại cầu giữ đất lập công, dựng thành lớn, bày binh bố trận. Dĩ nhiên đây là lời Trịnh Đại Phong. Ta nào nghĩ ra được mấy lời hoa mỹ ấy.”
 
-Lý Nhị nhẹ nhàng dậm chân, "Chân không khí lực, chính là quỷ dựng tường, lúc đầu tập võ, một bước đi nhầm, chính là vẽ bùa quỷ. Nghĩ cũng đừng nghĩ cảnh giới "Thần khí che kín, người là hoàn nhân" kia."
+Lý Nhị khẽ dậm chân: “Chân không có lực thì chẳng khác quỷ dựng tường. Lúc mới học võ, đi sai một bước là thành vẽ bùa quỷ. Cái cảnh giới ‘thần khí tràn đầy, người được trọn vẹn’ ấy, nghĩ cũng đừng nghĩ.”
 
-Lý Nhị tiện tay vươn ngón tay, nhẹ nhàng gấp khúc, chỉ chỉ hai mắt mình, "Tập võ đăng đường nhập thất, sẽ luyện đôi mắt sáng tỏ, liệu địch trong lòng, xem quyền trong mắt."
+Lý Nhị tiện tay co ngón lại, chỉ vào hai mắt mình: “Tập võ đã bước qua ngưỡng cửa thì phải luyện cho mắt sáng. Trong lòng liệu địch, ngoài mắt nhìn quyền.”
 
-Trong nháy mắt, Trần Bình An bị hai nắm đấm nổi trống ở ngực, bay ngược ra ngoài, thân hình ở không trung phiêu chuyển một cái, hai tay nắm đất, năm ngón tay như móc câu, trên mặt gương thế mà lại nở rộ ra hai chuỗi đốm lửa, Trần Bình An lúc này mới dừng lại thân hình đảo lui, chưa rơi vào trong nước.
+Trong nháy mắt, hai nắm đấm nện vào ngực Trần Bình An như đánh trống. Hắn bay ngược, xoay người giữa không trung, hai tay bấu xuống, năm ngón cong như móc. Mặt gương bật ra hai vệt tia lửa. Hắn mới ghìm được đà, không rơi xuống nước.
 
-Lý Nhị đứng ở vị trí Trần Bình An lúc trước đứng, nói: "Một quyền này của ta không nặng cũng không nhanh, ngươi vẫn không thể ngăn trở, vì sao? Bởi vì mắt và tâm, đều luyện còn chưa đủ, đối địch với cường giả, sinh tử một đường, rất nhiều bản năng, đã có thể cứu mạng, cũng sẽ hỏng việc. Động tác vừa rồi của ta, Trần Bình An ngươi phải theo bản năng nhìn ngón tay cùng hai mắt của ta, đó là bản năng của con người, cho dù Trần Bình An ngươi đủ cẩn thận, vẫn là chậm chút, nhưng một điểm này, đó là võ phu sinh tử lập phán, chém giết từng đôi với người, không phải cơ hội du lịch sơn thủy, sẽ không cho ngươi cơ hội cẩn thận cân nhắc. Lại tiến thêm một bước, tâm tới tay không tới, cũng là tập võ bệnh nặng."
+Lý Nhị đứng ngay chỗ Trần Bình An vừa đứng: “Quyền này không nặng, cũng chẳng nhanh, vì sao ngươi vẫn không đỡ được? Vì mắt và tâm luyện chưa đủ. Gặp cường địch, sinh tử chỉ cách một đường, bản năng có thể cứu mạng, cũng có thể hỏng việc. Vừa rồi ngươi theo bản năng nhìn ngón tay và hai mắt ta. Người ta vốn thế. Dù ngươi đã đủ cẩn thận vẫn chậm mất một chút. Với võ phu, một chút ấy đủ định sinh tử. Đánh giết tay đôi đâu phải du ngoạn sơn thủy, chẳng cho ngươi thong thả cân nhắc. Nói thêm một bước, tâm đã tới mà tay chẳng tới, cũng là tật lớn của người tập võ.”
 
-Lý Nhị nói tới đây, hỏi: "Trần Bình An ngươi có phải cảm thấy mình coi như nhìn người cẩn thận hay không? Thời thời khắc khắc, cũng đủ cẩn thận từng li từng tí?"
+Lý Nhị hỏi: “Trần Bình An, ngươi có thấy mình nhìn người khá kỹ, lúc nào cũng đủ cẩn thận không?”
 
-Trần Bình An lấy bàn tay lau đi vết máu nơi khóe miệng, gật gật đầu.
+Trần Bình An đưa tay lau máu nơi khóe miệng, gật đầu.
 
-Lý Nhị nói: "Đây là tệ nạn của quyền ý ngươi khiếm khuyết, luôn cảm thấy kỹ năng này dài, đủ rồi, hoàn toàn tương phản, xa xa chưa đủ. Ngươi hôm nay hẳn là còn chưa rõ lắm, thế gian bát cảnh, võ phu cửu cảnh liều mạng chém giết, thường thường chết bởi trên con đường mình am hiểu nhất, vì sao? Chỗ ngắn, liền càng thêm cẩn thận, ra quyền ở chỗ lâu, liền khó tránh khỏi tự mãn mà không tự biết."
+Lý Nhị nói: “Đấy là chỗ thiếu trong quyền ý của ngươi. Ngươi cứ tưởng đây là sở trường, đã đủ dùng rồi. Thật ra còn xa mới đủ. Ngươi bây giờ hẳn chưa biết, võ phu bát cảnh, cửu cảnh trong thiên hạ khi liều mạng chém giết thường chết ở chính chỗ mình thành thạo nhất. Vì sao? Ở chỗ sở đoản, người ta dè dặt hơn. Ra quyền ở chỗ sở trường, khó tránh khỏi tự mãn mà chẳng hay.”
 
-Lý Nhị tiếp theo bày ra một quyền giá, chiêu thức mở đầu với quyền.
+Lý Nhị lại bày quyền giá, mở đầu bằng một thế quyền.
 
-Chính là trường đại long mà Trần Bình An cực kỳ quen thuộc, cùng với Thần Nhân Lôi Cổ Thức am hiểu nhất.
+Chính là cọc Đại Long mà Trần Bình An đã quá quen, cùng Thần Nhân Lôi Cổ thức hắn giỏi nhất.
 
-Lý Nhị nói: "Võ thư ngạn ngữ ba đầu sáu tay là thần thông, không phải là chuyện đùa nơi phố phường. Thiên hạ quyền phân trăm ngàn, có quyền chiêu quyền pháp khác nhau, xem như căn bản, cọc làm nền tảng, chiêu thức là mặt tiền cửa, kết hợp ba thứ lại, liền có khác biệt về quyền chủng, có vô số quyền phổ thế gian. Ngươi từng đi không ít giang hồ, hẳn biết, phố phường, thích xưng hô người giang hồ bình thường là võ tướng thức, chính là lý này."
+Lý Nhị nói: “Nhà võ có câu ba đầu sáu tay mới là thần thông, đâu phải lời đùa phố chợ. Quyền trong thiên hạ chia trăm ngàn lối, quyền chiêu, quyền pháp mỗi nơi mỗi khác. Xét đến gốc, lấy cọc làm nền, chiêu thức làm mặt tiền, ba thứ hợp lại thành các loại quyền khác nhau, nên thế gian mới có vô số quyền phổ. Ngươi đi giang hồ không ít, hẳn biết dân phố chợ thích gọi hạng người giang hồ tầm thường là võ bả thức. Đạo lý cũng ở đây.”
 
-Lý Nhị thân thể giãn ra, tùy tay đánh ra một quyền Thần Nhân Lôi Cổ Thức, cũng là Thần Nhân Lôi Cổ Thức, ở trên tay Lý Nhị đánh ra, nhìn như nhu hòa, nhưng tràn đầy khí phách, rơi ở trong mắt Trần Bình An, thế mà lại là đánh ra với mình, cách biệt một trời.
+Lý Nhị duỗi người, tiện tay đánh một quyền Thần Nhân Lôi Cổ thức. Cùng một thế quyền, từ tay Lý Nhị đánh ra trông có vẻ nhu hòa mà đầy khí phách. Trần Bình An nhìn vào, thấy khác một trời một vực với quyền của mình.
 
-Lý Nhị lại đánh ra một quyền Thần Nhân Lôi Cổ Thức, lại có quyền ý khác nhau rất lớn, dồn dập như sấm, chợt dừng quyền, cười nói: "Võ phu đối địch, chỉ cần cảnh giới không quá chênh lệch, quyền lý khác nhau, chiêu số ngàn vạn, thắng bại liền có ngàn vạn loại khả năng. Chẳng qua một khi trở thành võ kỹ thức, chính là khoa chân múa tay, đánh cho đẹp mắt mà thôi, quyền sợ trẻ con? Loạn quyền đánh chết lão sư phụ? Lão sư phụ không đáng đánh, chỉ là một chút, hô quát khoe khoang võ Bả Thức nửa ngày, liền chết hẳn."
+Lý Nhị đánh thêm một quyền Thần Nhân Lôi Cổ thức. Quyền ý đã khác hẳn, dồn dập như sấm. Hắn chợt thu quyền, cười nói: “Võ phu đối địch, chỉ cần cảnh giới không chênh nhau quá xa, quyền lý mỗi người mỗi khác, chiêu số thiên biến vạn hóa, thắng bại cũng có ngàn vạn khả năng. Nhưng nếu thành võ bả thức, chỉ còn khoa tay múa chân cho đẹp mắt. Quyền sợ người trẻ ư? Loạn quyền đánh chết lão sư phụ ư? Lão sư phụ không chịu nổi đòn thì chỉ cần để võ bả thức hô hét khoe khoang một hồi đã chết hẳn.”
 
 Trần Bình An đột nhiên nghiêng đầu.
 
-Lý Nhị đã đứng ở trước người, một quyền mười cảnh, cứ như vậy vắt ngang ở một bên má Trần Bình An.
+Lý Nhị đã đứng ngay trước mặt hắn. Một quyền thập cảnh dừng ngang bên má Trần Bình An.
 
-Lý Nhị cười nói: "Dạy thì hiểu, hiểu rồi lại làm được, rất không tệ."
+Lý Nhị cười: “Dạy thì hiểu, hiểu rồi lại làm được, khá lắm.”
 
-Một quyền này vẫn như cũ "không nhanh" nhưng khí lực không nhỏ, nếu Trần Bình An không thể tránh thoát, vậy hôm nay cho quyền dừng ở đây, lại nên Lý Nhị hắn chống cương quay về.
+Quyền này vẫn “không nhanh”, nhưng lực đạo chẳng nhỏ. Nếu Trần Bình An không tránh được, hôm nay chỉ mớm quyền đến đó, lại đến lượt Lý Nhị chống sào đưa hắn về.
 
-Lý Nhị thu hồi quyền, Trần Bình An tuy tránh thoát một quyền vốn nên rắn chắc rơi ở trên trán, vẫn bị cương phong nhỏ mịn ở trên mặt cắt ra một cái rãnh máu, chảy máu không ngừng.
+Lý Nhị thu quyền. Trần Bình An tránh được cú đấm lẽ ra nện thẳng vào trán, nhưng cương phong vẫn rạch một đường trên má hắn, máu chảy không ngừng.
 
-Lý Nhị nói: "Tiểu tử ngươi am hiểu trộm quyền, giúp ngươi mớm quyền lâu như vậy, ngươi tới học ý tứ quyền cái của ta, thử xem."
+Lý Nhị nói: “Tiểu tử ngươi giỏi học lỏm quyền. Ta mớm quyền lâu thế rồi, thử học lấy ý trong quyền giá của ta xem.”
 
-Trần Bình An gật gật đầu, học Lý Nhị đánh ra một quyền.
+Trần Bình An gật đầu, bắt chước Lý Nhị đánh ra một quyền.
 
-Lý Nhị đứng ở một bên, theo Trần Bình An ra quyền mà đi, chỉ ra một ít tì vết của quyền giá, giữa đường một cước nhẹ nhàng đá vào bắp chân Trần Bình An, lại lấy hai ngón tay khép lại, ở cổ tay, khuỷu tay cùng đầu vai Trần Bình An nhẹ nhàng gõ mấy chỗ, cuối cùng nói: "Đừng học quyền giá chết, thể phách mỗi người khác biệt rất nhiều, chỉ riêng chiều cao của ta và ngươi đã có khác biệt, ngươi tuy cố ý hóa quyền thành bản thân, làm chút thay đổi, vẫn là kém rất nhiều ý tứ. Tử lực không đủ quý, lực lượng quyền ý cao nhất, cao hơn một chữ sống, quyền là sống, tương đương là tính mạng thứ hai của võ phu thuần túy chúng ta, so với dương thần thân ngoại thân của luyện khí sĩ kia xuất khiếu đi xa, quan trọng hơn là âm thần."
+Lý Nhị đứng bên, theo dõi từng động tác, chỉ ra mấy chỗ còn vướng trong quyền giá. Nửa chừng hắn khẽ đá vào bắp chân Trần Bình An, lại khép hai ngón tay gõ nhẹ lên cổ tay, khuỷu tay và đầu vai. Sau cùng hắn nói: “Đừng học cứng nhắc theo quyền giá. Thể phách mỗi người một khác, chỉ riêng ta và ngươi đã khác chiều cao. Ngươi có ý biến thế quyền thành của mình, cũng sửa đôi chỗ, nhưng vẫn thiếu cái ý trong đó. Sức cứng chẳng đáng quý. Chỗ cao nhất của quyền ý nằm ở một chữ ‘sống’. Quyền sống chẳng khác nào tính mạng thứ hai của võ phu thuần túy chúng ta, còn quan trọng hơn âm thần hay dương thần xuất khiếu đi xa của luyện khí sĩ.”
 
 Trần Bình An nhắm mắt lại, sau một lát, ra quyền một lần nữa.
 
-"Hướng đúng rồi."
+“Đúng đường rồi.”
 
-Lý Nhị gật gật đầu, "Luyện quyền không phải tu đạo, mặc cho ngươi cảnh giới cất cao thật mạnh, nếu không từ chỗ nhỏ bé bắt tay vào làm, như vậy gân cốt mục nát, khí huyết suy bại, tinh thần không tốt, những việc nên có này, một người cũng chạy không thoát, võ Bả Thức dưới núi luyện quyền thương thân, nhất là Ngoại gia quyền, chẳng qua là lấy tính mạng để đổi khí lực, quyền không thông huyền, chính là tự tìm đường chết. Võ phu thuần túy, cũng chỉ có thể dựa vào quyền ý để phụng dưỡng tính mạng, chỉ là cái đồ chơi này, nói không rõ được."
+Lý Nhị gật đầu: “Luyện quyền khác tu đạo. Cảnh giới có lên mạnh đến đâu, nếu chẳng bắt đầu từ chỗ nhỏ, gân cốt mục, khí huyết suy, tinh thần sa sút, không tránh được món nào. Võ bả thức dưới núi luyện quyền đến hại thân, nhất là luyện ngoại gia quyền, chẳng qua lấy tính mạng đổi sức lực. Quyền không thông huyền thì khác gì tự tìm đường chết. Võ phu thuần túy chỉ có thể dựa vào quyền ý mà nuôi lại tính mạng. Có điều chuyện ấy chẳng thể nói cho rõ bằng lời.”
 
-Nói tới đây, Lý Nhị ngồi xếp bằng, đưa tay gọi Trần Bình An cùng nhau ngồi xuống.
+Nói đến đây, Lý Nhị ngồi xếp bằng, đưa tay gọi Trần Bình An ngồi xuống cùng.
 
-Lý Nhị trầm mặc hồi lâu, tựa như là nhớ tới một ít chuyện cũ, có chút cảm khái, "Ngoài tả thực, giống bên ngoài", đây là Trịnh Đại Phong năm đó sau khi học quyền giảng, lăn qua lộn lại lẩm bẩm rất nhiều lần, ta không suy nghĩ nhiều, cũng nhớ kỹ, ngươi nghe một chút xem, có ích lợi gì không. Trịnh Đại Phong và con đường học quyền của ta, không giống nhau lắm, quyền lý hai bên thật ra không cao thấp, nếu ngươi có cơ hội..., Trở về Lạc Phách Sơn, có thể tâm sự với hắn, Trịnh Đại Phong chỉ là một thân quyền ý thấp hơn ta, mới tỏ ra quyền pháp không bằng sư huynh này của ta. Trịnh Đại Phong vừa học quyền những năm qua, vẫn thầm oán sư phụ bất công, luôn cho rằng sư phụ giúp sư huynh đệ chúng ta chọn con đường học quyền, là cố ý muốn Trịnh Đại Phong hắn một bước chậm, từng bước chậm, về sau thật ra chính hắn đã nghĩ thông suốt, chẳng qua ngoài miệng không nhận mà thôi. Cho nên ta rất phiền cái miệng rách kia của hắn, một người trông cửa lớn suốt ngày, ngoài miệng lại không ai giữ cửa, cho nên lúc luận bàn với nhau, đánh không ít hắn."
+Lý Nhị im lặng hồi lâu, tựa như nhớ chuyện cũ, rồi cảm khái nói: “‘Ngoài tả thực, giống bên ngoài’ [?], đấy là lời Trịnh Đại Phong năm ấy học quyền xong cứ lẩm bẩm đi lẩm bẩm lại. Ta chẳng nghĩ nhiều, nghe mãi cũng nhớ. Ngươi nghe thử xem có ích gì không. Đường học quyền của ta và hắn không giống nhau, quyền lý thật ra chẳng phân cao thấp. Có dịp về Lạc Phách sơn, ngươi có thể nói chuyện với hắn. Chỉ vì quyền ý Trịnh Đại Phong kém ta, quyền pháp mới nom chẳng bằng sư huynh. Những năm đầu học quyền, hắn vẫn oán sư phụ bất công, tưởng sư phụ chọn đường cho hai sư huynh đệ là cố tình để hắn chậm một bước rồi bước nào cũng chậm. Về sau hắn đã nghĩ thông, chỉ ngoài miệng chẳng chịu nhận. Ta bực cái miệng ấy lắm. Suốt ngày trông cửa lớn mà miệng mình chẳng ai giữ cửa. Cho nên lúc luận bàn, ta đánh hắn không ít.”
 
-Lý Nhị hai tay nắm chặt, thân thể hơi nghiêng về phía trước, chỉ là một động tác theo thói quen như vậy, đã có khí tượng hùng vĩ như núi cao sau lưng.
+Lý Nhị nắm hai tay, hơi nghiêng người về trước. Chỉ một động tác quen thuộc ấy đã có khí tượng như núi lớn sừng sững sau lưng.
 
 Đều là quyền ý.
 
-Lý Nhị chậm rãi nói: "Luyện quyền tiểu thành, lúc ngủ say, một thân quyền ý chậm rãi chảy xuôi, gặp địch tỉnh trước, như có thần linh phù hộ người luyện quyền. Ngủ cũng như thế, càng đừng nói tỉnh táo, cho nên người tập võ, cần cái gì pháp bảo bên người? Cái này cùng kiếm tu không cần vật nó công phạt, đạo lý tương tự."
+Lý Nhị chậm rãi nói: “Luyện quyền đến mức tiểu thành, ngay cả lúc ngủ say, quyền ý vẫn chậm rãi lưu chuyển. Hễ có địch tới, người luyện quyền sẽ tỉnh trước, tựa như được thần linh phù hộ. Ngủ còn như vậy, huống chi lúc tỉnh. Thế nên người luyện võ cần gì pháp bảo hộ thân? Cũng như kiếm tu chẳng cần mượn ngoại vật để đánh địch, đạo lý đều như nhau.”
 
-Lý Nhị cười cười, một quyền nhẹ nhàng đánh lên mặt kính, sau đó buông quyền làm chưởng, lại hư nắm đấm, nói: "Đỉnh đầu thanh thiên cước trảo xuống đất, thu quyền như ôm trẻ con, đây là cương nhu cùng tế, một mặt theo đuổi cực đoan nào đó, chưa bao giờ là quyền lý chân chính. Về lâu dài, luyện quyền càng lâu, càng có thể thế thế tương liên, thu phóng tự nhiên. Vì sao ta cảm thấy Thần Nhân Lôi Cổ Thức Thôi Thành này là hảo quyền? Thậm chí có thể xem như một trong những quyền pháp tốt nhất trên đời này? Bởi vì nhìn như hung ác, nhưng lại được ý tứ thật sự của "Người đánh quyền", không phải người theo quyền."
+Lý Nhị mỉm cười, nhẹ đánh một quyền lên mặt gương. Hắn mở quyền thành chưởng rồi lại hờ nắm tay: “Đầu đội trời xanh, ngón chân bấu đất, thu quyền như ôm trẻ con. Đấy là cương nhu giúp nhau. Chỉ mải theo một đầu cực đoan, xưa nay chẳng phải quyền lý chân chính. Luyện lâu, các thế quyền sẽ nối liền, thu phóng tự nhiên. Vì sao ta khen Thần Nhân Lôi Cổ thức của Thôi Thành là thế quyền hay, thậm chí thuộc hàng hay nhất trên đời? Vì nhìn thì hung mãnh, nhưng nắm được cái ý người điều khiển quyền, chứ chẳng phải để quyền dẫn người đi.”
 
-Trần Bình An có chút nghi hoặc, cũng có chút tò mò, chỉ là vấn đề trong lòng, không thích hợp hỏi ra miệng.
+Trần Bình An vừa thắc mắc vừa tò mò, có điều câu hỏi trong lòng chẳng tiện nói ra.
 
-Bởi vì Trần Bình An muốn biết, ở trong mắt Lý Nhị, Thôi lão tiền bối lầu hai Lạc Phách Sơn là một võ phu thuần túy như thế nào.
+Hắn muốn biết trong mắt Lý Nhị, Thôi lão tiền bối trên lầu hai Lạc Phách sơn là một võ phu thuần túy thế nào.
 
-Nói tới Thần Nhân Lôi Cổ Thức, tự nhiên muốn nói chuyện vị lão nhân kia một chút, Lý Nhị nhìn về phương xa, nói: "Lão tiền bối Thôi Thành, là kỳ nhân, hắn truyền quyền cho ngươi, có thể nói là chân truyền, không chỉ là cho quyền giáo quyền, Thôi Thành nhìn như chỉ truyền thụ cho ngươi quyền pháp chí cương chí mãnh, thực ra không tính là tâm tính lưu thủy cứng rắn gì với Trần Bình An ngươi, đó là hỗ trợ lẫn nhau. Đây chính là phong phạm tông sư nhất đẳng. Lý Nhị ta thì không được."
+Nhắc Thần Nhân Lôi Cổ thức, tự nhiên phải nhắc đến vị lão nhân ấy. Lý Nhị nhìn xa, nói: “Lão tiền bối Thôi Thành là kỳ nhân. Lão truyền quyền cho ngươi mới gọi là chân truyền, đâu chỉ mớm quyền, dạy quyền. Trông như lão chỉ dạy ngươi quyền pháp chí cương chí mãnh, thật ra lối quyền ấy vừa hay bù đắp cho tâm tính vốn chẳng quá cứng rắn của Trần Bình An ngươi. Hai bên bổ trợ nhau. Đấy mới là phong phạm tông sư bậc nhất. Lý Nhị ta làm không được.”
 
-Nói tới đây, Lý Nhị lắc đầu, lặp lại: "Ta khẳng định không được."
+Nói đến đây, Lý Nhị lắc đầu, nhắc lại: “Ta nhất định không làm được.”
 
 Trần Bình An thở dài.
 
-Chỉ nói dày vò hành hạ, năm đó ở lầu hai trúc lâu, thật sự là ngay cả Trần Bình An loại không sợ đau này, cũng phải ngoan ngoãn nằm ở trên giường gỗ lầu một, cuộn chăn lên trộm khóc một lần.
+Năm ấy ở lầu hai trúc lâu, chỉ riêng nỗi giày vò đã khiến người chẳng sợ đau như Trần Bình An có lần phải ngoan ngoãn nằm trên giường gỗ dưới lầu, trùm chăn khóc trộm.
 
-Lý Nhị nói: "Cho nên ngươi học quyền, thật đúng là chỉ có thể để Thôi Thành trước dạy quyền lý căn bản, Lý Nhị ta giúp đỡ may vá quyền ý, lúc này mới đúng đường. Ta dạy ngươi trước, Thôi Thành lại đến, đó là mười cân khí lực trồng trọt, chỉ được bảy tám cân hoa màu thu hoạch. Không có gì thú vị, tiền đồ không lớn."
+Lý Nhị nói: “Cho nên ngươi học quyền, phải để Thôi Thành dạy quyền lý căn bản trước, Lý Nhị ta đến sau vá chỗ thiếu trong quyền ý. Thế mới đúng đường. Ta dạy trước rồi Thôi Thành đến sau, khác gì bỏ mười cân sức trồng trọt mà chỉ thu bảy tám cân hoa màu. Chẳng có gì thú vị, tiền đồ cũng chẳng lớn.”
 
 Trần Bình An lại có một vấn đề mới.
 
-Vì sao Lý Nhị không luận bàn quyền pháp cùng Thôi Thành.
+Vì sao Lý Nhị không luận bàn quyền pháp với Thôi Thành?
 
-Sau khi Lý Nhị rời khỏi Ly Châu Động Thiên, trong lúc đó đã trở về quận Long Tuyền một chuyến.
+Sau khi rời Ly Châu động thiên, Lý Nhị từng quay lại quận Long Tuyền một chuyến.
 
-Nhưng hai vị võ phu thập cảnh cũng đứng ở đỉnh võ học thiên hạ vẫn chưa giao thủ.
+Nhưng hai vị võ phu thập cảnh cùng đứng trên đỉnh võ học thiên hạ chưa từng giao thủ.
 
 Chỉ tiếc Lý Nhị không nói chuyện này.
 
-Lý Nhị vỗ vỗ đầu gối, đứng dậy cười nói: "Nói cũng phải rồi. Lời nói hôm nay, so với ta đến Bắc Câu Lô Châu mấy năm nay gộp lại, còn nhiều hơn. Như vậy kế tiếp ta chỉ lấy thực lực võ phu cửu cảnh, lãnh giáo Hám Sơn Quyền ngươi. Yên tâm, sẽ không xen lẫn nắm tay thập cảnh. Nhưng ta khuyên ngươi đừng cao hứng quá sớm, cửu cảnh này rất rắn chắc. Cửa hàng bên kia, Liễu thẩm thẩm ngươi muốn giữ ngươi ở lại thêm vài ngày, ta không tiện đáp ứng, chậm trễ ngươi đi đường phải không? Nhưng nếu cho ăn quyền là ngươi tự tìm, đánh cho ngươi ba hai tháng, chỉ có thể chậm rãi dưỡng thương, đi đường cũng khó, Trần Bình An ngươi không thể trách người khác."
+Lý Nhị vỗ đầu gối, đứng dậy cười nói: “Nói thế đủ rồi. Hôm nay ta nói còn nhiều hơn mấy năm ở Bắc Câu Lô Châu cộng lại. Tiếp theo ta chỉ dùng thực lực võ phu cửu cảnh để lĩnh giáo Hám Sơn quyền của ngươi. Yên tâm, chẳng chen quyền thập cảnh vào. Có điều đừng mừng sớm, cửu cảnh này chắc lắm. Liễu thẩm thẩm muốn giữ ngươi ở tiệm thêm mấy ngày, ta không tiện đáp ứng, kẻo chậm đường ngươi đi. Nhưng ngươi đã tự tìm đến ăn quyền, bị đánh đến mức hai ba tháng chỉ có thể từ từ dưỡng thương, đi đường cũng khó, thì Trần Bình An ngươi chớ trách người khác.”
 
 Trần Bình An trợn mắt há hốc mồm.
 
 Vậy cũng được?
 
-Kết quả một quyền tới nơi.
+Một quyền đã tới.
 
-Cho dù trong lòng Trần Bình An đã biết không ổn, ý đồ lấy hai tay đón đỡ, vẫn là một quyền này đánh cho một đường quay cuồng, trực tiếp ngã xuống mặt kính, rơi vào trong nước.
+Trần Bình An tuy biết không ổn, vội đưa hai tay lên đỡ, vẫn bị quyền ấy đánh lăn một mạch qua mặt gương, rơi xuống nước.
 
-Hôm nay Thôi Thành chẳng những chưa dạy quyền cho Bùi Tiền, ngược lại mặc vào một bộ nho sam, không còn chân trần, còn mặc giày Trần Như Sơ giúp lão nhân sớm chuẩn bị sẵn, đi khỏi lầu hai, đứng ở lầu một bên kia, hai tay chắp sau lưng, nhìn những văn tự trên vách tường trúc lâu, là những chữ Lý Hi Thánh trước kia vẽ bùa viết thành, chữ vô cùng tốt, Thôi Thành làm lão gia chủ Bảo Bình châu Thôi thị, tôn tử Thôi Sàm năm xưa học vấn, dù sao đều là trụ cột lão nhân đánh xuống, đương nhiên biết văn chương thế gian cao thấp, chữ tốt xấu.
+Hôm nay Thôi Thành không dạy quyền cho Bùi Tiền. Lão thay nho sam, xỏ đôi giày Trần Như Sơ đã chuẩn bị, rồi xuống lầu một. Hai tay chắp sau lưng, lão nhìn những chữ Lý Hi Thánh từng viết lên vách trúc lâu khi vẽ phù. Chữ rất đẹp. Thôi Thành là lão gia chủ Thôi thị Bảo Bình châu, học vấn của cháu nội Thôi Sàm năm xưa cũng do lão đặt nền. Văn chương cao thấp, nét chữ đẹp xấu, đương nhiên lão nhìn ra.
 
-Những văn tự trúc lâu này, ý tứ rất nặng, bằng không cũng không cách nào khiến cả tòa Lạc Phách Sơn đều trầm xuống vài phần.
+Những chữ trên trúc lâu ấy có sức nặng. Bằng không, sao khiến cả Lạc Phách sơn trầm xuống mấy phần được.
 
-Bằng không hắn cũng không cách nào ở trên Lạc Phách Sơn, không là kẻ điên đáng thương điên khùng gần trăm năm kia nữa, thậm chí còn có thể bảo trì một phần tâm cảnh thanh minh.
+Cũng nhờ vậy mà ở Lạc Phách sơn, lão thôi làm kẻ điên đáng thương đã sống dở điên dở dại gần trăm năm, thậm chí còn giữ được phần nào tỉnh táo.
 
-Bùi Tiền đã đi chơi, phía sau theo con đuôi nhỏ bé Chu Mễ, nói là muốn đi ngõ Kỵ Long một chuyến, xem xem không có Bùi Tiền nó, làm ăn có bồi thường tiền hay không, còn phải cẩn thận lật xem sổ sách, miễn cho Thạch Nhu chưởng quầy ký danh này lấy việc công làm việc tư.
+Bùi Tiền đã đi chơi, sau lưng có cái đuôi nhỏ Chu Mễ Lạp. Nàng bảo muốn tới ngõ Kỵ Long xem thiếu Bùi Tiền nàng thì tiệm có lỗ vốn không, còn phải lật sổ sách cho kỹ, kẻo chưởng quầy ký danh Thạch Nhu lấy của công làm việc tư.
 
-Lão nhân không ngăn cản, đứa nhỏ to xác, không có chút hoạt bát tinh thần phấn chấn, không lẽ còn học theo lão bất tử bọn họ, cả ngày không khí trầm lặng?
+Lão nhân chẳng ngăn. Trẻ con tuổi ấy không hoạt bát, chẳng lẽ học theo đám lão bất tử bọn họ, ngày ngày ủ rũ?
 
-Thôi Thành đẩy cửa trúc lầu một ra, bên trong vừa là thư phòng, cũng bày một cái giường gỗ.
+Thôi Thành đẩy cửa trúc lầu một. Bên trong vừa là thư phòng, vừa có một chiếc giường gỗ.
 
-Bị nha đầu Trần Như Sơ thu thập sạch sẽ, không nhiễm một hạt bụi nhỏ nào.
+Trần Như Sơ đã dọn sạch, chẳng vương một hạt bụi.
 
-Thôi Thành sau khi rời khỏi phòng, đi bộ một chuyến tới thư viện Lâm Lộc Phi Vân Sơn, sau khi trở về ngồi ở bàn đá bên vách núi, Trần Như Sơ không theo Bùi Tiền xuống núi, trên núi nhiều việc, nàng đúng giờ chuẩn chút, việc bận nhiều việc không xong, thấy Thôi lão tiên sinh rời khỏi trúc lâu, Trần Như Sơ liền nhanh chóng đi bưng một hộp thức ăn sơn đỏ tới, dọn sạch bầu rượu bát đĩa, Thôi Thành cười hỏi sao không có hạt dưa, nữ đồng váy hồng phấn thẹn đỏ mặt cười, từ trong túi lấy ra mấy hạt dưa lớn đặt ở trên bàn.
+Ra khỏi phòng, Thôi Thành đi bộ một chuyến đến thư viện Lâm Lộc trên Phi Vân sơn. Trở về, lão ngồi bên bàn đá cạnh vách núi. Trần Như Sơ chẳng theo Bùi Tiền xuống núi. Việc trên núi nhiều, nàng đến giờ nào làm việc nấy, cứ bận mãi chẳng hết. Thấy Thôi lão tiên sinh ra khỏi trúc lâu, nàng vội bưng hộp thức ăn sơn đỏ tới, bày bầu rượu cùng bát đĩa lên bàn. Thôi Thành cười hỏi sao không có hạt dưa. Nữ đồng váy hồng đỏ mặt cười, lấy trong túi mấy hạt dưa lớn đặt lên bàn.
 
-Trần Linh Quân vẫn thích dạo chơi một mình mù quáng, hôm nay thấy lão đầu nhi ngồi ở trên ghế đá uống rượu một mình, dùng sức dụi dụi mắt, mới phát hiện mình không nhìn lầm.
+Trần Linh Quân vẫn thích một mình đi dạo lung tung. Hôm nay thấy lão đầu ngồi ghế đá uống rượu một mình, hắn dụi mắt mấy lần mới biết mình không nhìn lầm.
 
-Trần Linh Quân cũng không dám lôi kéo làm quen với lão đầu này, đối phương chính là loại người có thể một quyền đánh chết mình ở quận Long Tuyền.
+Trần Linh Quân chẳng dám sáp lại làm quen. Lão là hạng người có thể đánh chết hắn ngay ở quận Long Tuyền chỉ bằng một quyền.
 
-Nào ngờ Thôi Thành vẫy tay, "Tới ngồi."
+Nào ngờ Thôi Thành vẫy tay: “Lại ngồi.”
 
-Trần Linh Quân vẻ mặt đau khổ, "Lão tiền bối, ta không đi qua, có phải là muốn đánh người hay không?"
+Trần Linh Quân nhăn nhó: “Lão tiền bối, ta không sang thì ngài đánh người đấy à?”
 
-Thôi Thành gật gật đầu.
+Thôi Thành gật đầu.
 
-Trần Linh Quân lập tức chạy vội tới, đại trượng phu co được dãn được, nếu không mình làm sao sống đến ngày nay ở quận Long Tuyền, dựa vào tu vi?
+Trần Linh Quân lập tức chạy tới. Đại trượng phu co được duỗi được. Bằng không, hắn dựa vào đâu mà sống đến hôm nay ở quận Long Tuyền? Tu vi chắc?
 
-Thôi Thành cười nói: "Thường hay thường xuyên, cố ý thua tiền, chơi rất vui mà."
+Thôi Thành cười: “Thỉnh thoảng cố ý thua tiền, chơi vui lắm nhỉ.”
 
-Trần Linh Quân mở trừng hai mắt, "Cái gì?"
+Trần Linh Quân mở to mắt: “Cái gì?”
 
-Thôi Thành thấy hắn giả ngu, cũng không nói thêm gì nữa, thuận miệng hỏi: "Trần Bình An không khuyên ngươi, vạch rõ giới tuyến với thuỷ thần huynh đệ của ngươi?"
+Thấy hắn giả ngốc, Thôi Thành chẳng nói thêm, chỉ thuận miệng hỏi: “Trần Bình An không khuyên ngươi vạch rõ ranh giới với vị thủy thần huynh đệ kia sao?”
 
-Trần Linh Quân lắc đầu, nhẹ nhàng nâng tay áo lên, lau mặt bàn còn sạch sẽ hơn so với mặt gương, "Hắn còn là người tốt hơn cả ta, nói bừa nói chuyện ném tiền, sẽ không nói như vậy với ta. Còn giúp ta phùng mặt giả làm người mập."
+Trần Linh Quân lắc đầu, nâng tay áo lau mặt bàn vốn đã sạch hơn mặt gương: “Hắn còn tốt hơn ta, đâu nói bừa những lời làm mất tiền ấy với ta [?]. Hắn còn giúp ta phồng má giả làm người béo.”
 
-Thôi Thành nói: "Trần Bình An lần này đi Bắc Câu Lô châu du lịch, một nửa là vì ngươi, dọc theo Tế Độc đi vạn dặm sông không phải là chuyện dễ dàng gì."
+Thôi Thành nói: “Lần này Trần Bình An đi Bắc Câu Lô Châu, một nửa là vì ngươi. Tẩu thủy vạn dặm men theo Tế Độc đâu phải việc dễ.”
 
 Trần Linh Quân trầm mặc không nói.
 
-Thôi Thành cầm một chén rượu còn đang trống lên, rót rượu, đưa cho tiểu đồng áo xanh ngồi đối diện.
+Thôi Thành cầm một chén không, rót rượu rồi đưa cho tiểu đồng thanh y ngồi đối diện.
 
-Trần Linh Quân nơm nớp lo sợ nói: "Lão tiền bối, không phải phạt quán bar? Ta ở Lạc Phách Sơn, mỗi ngày đều cẩn trọng, làm trâu làm ngựa, thực không làm nửa điểm chuyện xấu."
+Trần Linh Quân nơm nớp hỏi: “Lão tiền bối, đây chẳng phải chén rượu phạt chứ? Ta ở Lạc Phách sơn ngày nào cũng cẩn thận làm trâu làm ngựa, thật chưa làm nửa chuyện xấu.”
 
-Thôi Thành cười nói: "Ngươi cứ uống đi."
+Thôi Thành cười: “Ngươi cứ uống đi.”
 
-Trần Linh Quân tiếp nhận chén rượu, đáng thương, nhấp một ngụm rượu nhỏ.
+Trần Linh Quân đón chén, rụt rè nhấp một ngụm nhỏ.
 
-Thôi Thành hỏi: "Trần Bình An đối đãi ngươi như thế, ngươi tương lai có thể một nửa đối đãi người khác như thế không?"
+Thôi Thành hỏi: “Trần Bình An đối đãi với ngươi như vậy, mai sau ngươi có thể đối đãi với người khác được một nửa như thế không?”
 
-Trần Linh Quân nhỏ giọng nói: "Đại khái có thể chứ?"
+Trần Linh Quân nói nhỏ: “Có lẽ được chứ?”
 
-Thôi Thành cười nói: "Thế là đủ rồi."
+Thôi Thành cười: “Thế là đủ rồi.”
 
-Lúc này đến phiên Trần Linh Quân nghi hoặc: "Vậy là đủ rồi?"
+Đến lượt Trần Linh Quân ngạc nhiên: “Vậy đã đủ rồi?”
 
 Thôi Thành cười không nói.
 
-Trần Linh Quân nói thầm: "Ngươi cũng không phải Trần Bình An, nói không làm không chuẩn."
+Trần Linh Quân lẩm bẩm: “Ngài đâu phải Trần Bình An. Ngài nói cũng chưa chắc đã tính.”
 
-Thôi Thành trêu ghẹo nói: "Đánh cuộc?"
+Thôi Thành trêu: “Đánh cược không?”
 
-Trần Linh Quân k** r*n lên: "Ta thật không có nhiều tiền nhàn rỗi! Chỉ còn lại có chút ít vợ con kiên trì, chút của cải ấy, một đồng tiền cũng không động được, thật không động đậy được!"
+Trần Linh Quân kêu rên: “Ta thật chẳng còn tiền dư! Chỉ còn chút vốn dành để cưới vợ nuôi con. Chỗ của cải ấy một đồng cũng không đụng được, thật đấy!”
 
-Thôi Thành nói: "Có nghĩ tới hay không, vì sao giả vờ rất sợ ta, thật ra không sợ ta như vậy? Thật sự có người và chuyện mà mình không cách nào ứng phó, nói không chừng còn dám mời ta hỗ trợ?"
+Thôi Thành hỏi: “Ngươi từng nghĩ vì sao mình làm ra vẻ rất sợ ta, thật ra lại chẳng sợ đến thế chưa? Gặp người hay việc ngươi không đối phó nổi, biết đâu ngươi còn dám đến nhờ ta giúp?”
 
-Trần Linh Quân cúi đầu, một tay nắm chặt, đảo quanh chén rượu, nhẹ giọng nói: "Bởi vì ta người tốt lão gia kia thôi."
+Trần Linh Quân cúi đầu, một tay xoay chén rượu, nói khẽ: “Bởi lão gia nhà ta là người tốt.”
 
-Thôi Thành lại hỏi, "Vậy ngươi có nghĩ tới hay không, Trần Bình An sao lại nguyện ý để ngươi ở lại Lạc Phách Sơn, đối với ngươi, không kém chút nào so với đối với đối với người khác."
+Thôi Thành hỏi tiếp: “Vậy ngươi từng nghĩ vì sao Trần Bình An chịu để ngươi ở lại Lạc Phách sơn, đối với ngươi chẳng kém gì với người khác chưa?”
 
-Trần Linh Quân rầu rĩ nói: "Hắn là người tốt."
+Trần Linh Quân rầu rĩ: “Hắn là người tốt.”
 
-Thôi Thành cười nói: "Bởi vì ngươi ở trong mắt Trần Bình An hắn, cũng không kém."
+Thôi Thành cười: “Vì trong mắt Trần Bình An, ngươi cũng chẳng kém.”
 
-Trần Linh Quân nhỏ giọng nói: "Cái rắm."
+Trần Linh Quân lẩm bẩm: “Cái rắm.”
 
-Thôi Thành: "Cái gì?"
+Thôi Thành hỏi: “Cái gì?”
 
-Trần Linh Quân lập tức ngẩng đầu, hai tay cầm ly rượu, khuôn mặt tươi cười sáng lạn nói: "Lão gia tử, hai chúng ta đi một người?"
+Trần Linh Quân lập tức ngẩng đầu, hai tay nâng chén, cười tươi rói: “Lão gia tử, hai huynh đệ ta làm một chén nhé?”
 
-Kết quả Trần Linh Quân tự mình cứng đờ ở bên kia.
+Nói xong chính hắn cứng người.
 
 Hai huynh đệ ta?
 
 Muốn chết không phải sao?
 
-Ài, chút giang hồ khí này của mình, luôn làm trò cười cho người ta không nói, còn muốn mạng.
+Ôi, chút khí giang hồ của mình đã làm người ta cười, có khi còn lấy mạng mình.
 
-Trần Linh Quân đánh chết cũng không ngờ, Thôi Thành chẳng những không tức giận, ngược lại nâng chén cười nói: "Vậy thì đi một người."
+Trần Linh Quân đánh chết cũng chẳng ngờ Thôi Thành không nổi giận. Lão lại nâng chén cười nói: “Vậy thì làm một chén.”
 
 Uống rượu xong, Trần Linh Quân vẫn đứng ngồi không yên.
 
-Thôi Thành cũng không lưu tiểu vương bát đản này lại lâu, "Trần Bình An không quá thân cận với người bên cạnh, nói lời khách khí, cho nên ngươi có thể nghĩ nhiều một chút, có phải quá coi thường mình hay không, trên người ngươi luôn có một số việc, là Trần Bình An đều cảm thấy hắn cũng không làm được."
+Thôi Thành chẳng giữ tên tiểu vương bát đản ấy lâu: “Trần Bình An chẳng nói lời khách sáo với người thân cận bên mình. Ngươi nên nghĩ thử, có phải đã xem thường mình quá không? Có những chuyện ngươi làm được mà chính Trần Bình An cũng thấy hắn làm không nổi.”
 
-Trần Linh Quân gật mạnh đầu, đứng lên, cung kính xoay người cáo từ, chậm rãi rời đi, sau đó chợt chạy như điên, chỉ là sau khi chạy ra thật xa, lại nhịn không được quay đầu nhìn lại.
+Trần Linh Quân gật mạnh đầu, đứng dậy khom mình cáo từ. Hắn chậm rãi đi mấy bước rồi đột nhiên chạy như bay. Chạy ra xa, hắn vẫn không nhịn được mà ngoảnh lại nhìn.
 
 Hình như hôm nay Thôi lão đầu có chút kỳ quái.
 
 Thôi Thành một mình uống rượu.
 
-Lúc trẻ tuổi, chỉ cảm thấy lòng có mài đao, phong mang vô cùng, vạn cổ không tổn hại.
+Thuở trẻ, lão chỉ thấy trong lòng như có lưỡi đao đã mài, sắc bén vô cùng, muôn đời chẳng cùn.
 
-Lại một lần luyện quyền qua đi.
+Lại qua một buổi luyện quyền.
 
-Trần Bình An hiếm hoi chỉ là cả người đẫm máu, nhưng vẫn có thể ngồi, thậm chí có thể lấy nước vốc mặt.
+Hiếm có lần Trần Bình An tuy mình đầy máu mà vẫn ngồi được, thậm chí còn vốc nước rửa mặt.
 
 Lý Nhị ngồi ở một bên.
 
-Trần Bình An lấy ra hai vò rượu gạo nếp, cùng Lý Nhị một người một bầu, tùy tiện nói chuyện phiếm.
+Trần Bình An lấy hai vò rượu nếp, đưa Lý Nhị một vò. Hai người vừa uống vừa nói chuyện phiếm.
 
-Bởi vì Lý Nhị nói không cần uống rượu tiên gia.
+Bởi Lý Nhị bảo chẳng cần uống rượu tiên gia.
 
-Nói là nói chuyện phiếm, thật ra chính là Trần Bình An đang lải nhải quá khứ một mình.
+Gọi là nói chuyện phiếm, thật ra chỉ một mình Trần Bình An lải nhải chuyện cũ.
 
-Bất tri bất giác từ Bắc Câu Lô Châu tán gẫu tới Đồng Diệp châu, lại tán gẫu đến Bảo Bình châu cùng quê nhà.
+Chẳng hay từ lúc nào, hắn đã nói từ Bắc Câu Lô Châu sang Đồng Diệp châu, rồi tới Bảo Bình châu và quê nhà.
 
-Trần Bình An cười nói: "Nhớ rõ lần đầu tiên đi phố Phúc Lộc, ngõ Đào Diệp bên kia đưa tin kiếm tiền, đi quen đường bùn đất ngõ Nê Bình cùng lò gốm, lần đầu dẫm lên loại trên phiến đá kia, cũng là giày rơm của mình sợ dơ đường, sắp không biết nhấc chân đi đường như thế nào. Sau đó đưa Bảo Bình, bọn Lý Hòe đi Đại Tùy, ở nhà một vị lão Thị Lang của Hoàng Đình quốc làm khách, lên bàn ăn cơm, cũng là cảm giác không khác biệt lắm, lần đầu tiên ở khách sạn tiên gia, ở ngay đó làm bộ thần định khí nhàn, quản được mắt không loạn liếc, có chút vất vả."
+Trần Bình An cười nói: “Ta còn nhớ lần đầu sang phố Phúc Lộc, ngõ Đào Diệp đưa thư kiếm tiền. Đi quen đường đất ngõ Nê Bình và lò gốm, lần đầu giẫm lên phiến đá xanh, ta chỉ sợ giày rơm mình làm bẩn đường, suýt chẳng biết nhấc chân thế nào. Sau này đưa Bảo Bình, Lý Hòe và mấy đứa sang Đại Tùy, ta làm khách nhà một vị lão thị lang Hoàng Đình quốc, lúc ngồi vào bàn ăn cũng thấy gần như thế. Lần đầu ở khách điếm tiên gia, ta làm bộ thản nhiên, cố giữ mắt khỏi liếc ngang liếc dọc, cũng vất vả lắm.”
 
-"Ở Thư Giản hồ có một bữa cơm, là Cố Xán tích góp, trên bàn có hoàng tử chạy nạn của quý tộc thiên hoàng, con trai đại tướng quân, còn có con em tiên sư, nếu không đề cập tới thất vọng đối với Cố Xán, nhìn con sên nhỏ ứng đối tự nhiên, tự nhiên mà vậy, thật ra sâu trong nội tâm vẫn sẽ có chút cao hứng, đây là Hỏa Long chân nhân nói tư tâm của ta, lúc ấy đã cảm thấy con sên nhỏ trên đuôi ngõ Nê Bình, không có Trần Bình An hắn, hình như đều có thể sống tốt. Ở Thư Giản hồ, chỉ có một lần đó, là lần ta muốn rời khỏi cái gì cũng không quản, ngược lại không phải chuyện phía sau."
+“Ở Thư Giản hồ, có bữa cơm Cố Sán đứng ra bày. Trên bàn có hoàng tử chạy nạn, con trai đại tướng quân, cả con cháu tiên sư. Gác lại chuyện ta thất vọng về Cố Sán, nhìn con sên nhỏ ứng đối tự nhiên như vậy, trong lòng ta thật ra cũng hơi vui. Đó là chút tư tâm mà Hỏa Long chân nhân nói. Lúc ấy ta nghĩ, con sên nhỏ từng bám đuôi ở ngõ Nê Bình, không có Trần Bình An thì hình như vẫn sống tốt. Ở Thư Giản hồ, chỉ lần ấy ta muốn quay đi, mặc kệ hết mọi chuyện. Những chuyện về sau lại chẳng khiến ta muốn bỏ đi như thế.”
 
-"Rất nhiều chuyện, kỳ thật không thích ứng. Chưa nói tới thích hay không thích, cũng chỉ có thể đi thích ứng."
+“Nhiều chuyện ta thật ra chẳng quen. Chưa nói đến thích hay không thích, cũng chỉ đành tập cho quen.”
 
-"Giang hồ là cái gì, thần tiên là cái gì."
+“Giang hồ là gì? Thần tiên là gì?”
 
-"Ta trừng to mắt, dùng sức nhìn tất cả những người xa lạ và sự tình. Có rất nhiều người lúc đầu không hiểu, cũng có người sau khi hiểu được hay không chấp nhận."
+“Ta mở to mắt, cố nhìn cho kỹ những người xa lạ, những chuyện chưa từng gặp. Nhiều chuyện ban đầu không hiểu. Có chuyện hiểu rồi vẫn chẳng chấp nhận được.”
 
-Lý Nhị mở miệng hỏi: "Rất khó chịu?"
+Lý Nhị lên tiếng hỏi: “Khó chịu lắm sao?”
 
-Trần Bình An lắc đầu, "Chỉ là trong lòng có chút không thoải mái. Nhưng mà có một số thời điểm cũng sẽ nghĩ, một đường đi tới, cũng không phải chỉ có chuyện khó chịu. Hơn nữa, tận mắt nhìn thấy trên đời này nhiều người chịu khổ hơn so với mình nhiều, đều không thể sống tốt hơn, còn muốn sống giống như cực khổ không có cái đầu, lại tìm ai để nói lý đây? Không phải cũng chỉ có thể chịu đựng một ngày, chịu đựng qua một ngày, tựa như người ở rất nhiều ngõ nhỏ quê nhà, mắc một trận bệnh nặng, ý tứ một chút, bốc chút thuốc, nấu mấy chén thuốc, đã chết rồi. Người trong nhà hiểu rõ, người nằm ở trên giường gặp tai họa, trong lòng càng rõ ràng. Không phải không thương tâm, là thật sự không có biện pháp nói cái gì đó."
+Trần Bình An lắc đầu: “Trong lòng hơi khó chịu thôi. Nhưng đôi khi nghĩ lại, dọc đường cũng đâu chỉ gặp chuyện khó chịu. Ta tận mắt thấy nhiều người khổ hơn mình, sống chẳng khá lên được, cứ phải sống như thể khổ mãi chẳng có ngày hết. Họ biết tìm ai mà nói lý? Cũng chỉ đành chịu qua từng ngày. Như bao người trong ngõ nhỏ quê ta, mắc trận bệnh nặng, bốc ít thuốc cho có, sắc mấy bát rồi chết. Người nhà biết rõ, người nằm trên giường lại càng rõ. Đâu phải họ không đau lòng, thật sự chẳng còn biết nói gì.”
 
-"Nếu có một ngày, ta nhất định phải rời khỏi thế giới này, nhất định phải làm cho người ta nhớ kỹ ta. Bọn họ có thể sẽ thương tâm, nhưng tuyệt đối không thể chỉ có thương tâm, đợi tới khi bọn họ không còn thương tâm như vậy nữa, trải qua cuộc sống của mình, có thể ngẫu nhiên suy nghĩ một chút, một số việc từng quen biết một người tên là Trần Bình An, giữa thiên địa, mặc kệ là đại sự hay là việc nhỏ, chỉ có Trần Bình An, đi làm, làm thành công."
+“Nếu có ngày ta phải rời cõi đời này, nhất định phải để người ta nhớ ta. Họ có thể đau lòng, nhưng ta mong trong lòng họ còn có điều khác. Đợi đến khi nguôi ngoai, họ cứ sống đời mình, thi thoảng nhớ từng quen một người tên Trần Bình An. Giữa trời đất này, có những việc dù lớn hay nhỏ, chỉ có Trần Bình An đã đi làm, rồi làm được.”
 
-Cuối cùng Trần Bình An uống rượu, nhìn phương xa, mỉm cười nói: "Vừa nghĩ đến mỗi mùa đông đều có thể ăn được một khay thịt xào măng mùa đông, chính là một chuyện rất vui vẻ, giống như buông đũa, đã đông đi xuân tới."
+Cuối cùng, Trần Bình An nhấp rượu, nhìn ra xa, mỉm cười: “Chỉ nghĩ mỗi mùa đông đều có một đĩa thịt xào măng đông để ăn đã thấy vui rồi. Cứ như vừa đặt đũa xuống, đông đã qua, xuân đã tới.”
 
-Lý Nhị quay đầu, nhìn người trẻ tuổi này.
+Lý Nhị quay đầu nhìn người trẻ tuổi ấy.
 
 Giống như đã từng quen biết.

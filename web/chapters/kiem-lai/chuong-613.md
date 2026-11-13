@@ -1,408 +1,408 @@
 # Chương 613: Chỉ tiếc không mưa tiền
 
-Trần Bình An đã ở đảo Phù Thủy gần một tuần thời gian, trong lúc này, trước sau nhờ Lý Nguyên hỗ trợ làm hai việc, trừ đạo trường Kim Lễ thủy quan giải ách, còn có hỗ trợ gửi thư đưa đến Lạc Phách Sơn.
+Trần Bình An ở đảo Phù Thủy đã gần một tuần. Trong thời gian ấy, hắn nhờ Lý Nguyên hai việc. Một là chuyện thủy quan giải ách ở đạo trường Kim Lễ, hai là gửi giúp một lá thư về núi Lạc Phách.
 
-Trần Bình An đoán không ra thân phận người này, khuôn mặt thiếu niên, nhưng nhìn mỏi mệt không chịu nổi, tinh thần không tốt, tựa như tu hành gặp bình cảnh, Trần Bình An đều đã từng nhìn thấy loại khí tượng hồn phách ngày càng mục nát ở trên người một số lão tu sĩ tự nhận đại đạo vô vọng này, tâm khí rơi xuống không nhấc lên nổi. Lý Nguyên trừ bị trận pháp đảo Phù Thủy kinh động, cũng sẽ không tự tiện lên bờ. Trần Bình An thì càng không nghĩ ra, Lý Liễu mấy năm nay tu hành ở Bắc Câu Lô Châu rốt cuộc là quang cảnh như thế nào. Nhưng trên nhiều phần sơn thủy công báo như vậy, cũng không thấy ghi lại bất cứ ghi chép nào.
+Trần Bình An đoán không ra thân phận người này. Gương mặt còn trẻ mà thần sắc mỏi mệt, tựa như tu hành gặp bình cảnh. Hắn từng thấy khí tượng hồn phách ngày một suy tàn như vậy ở vài lão tu sĩ tự cho rằng đại đạo đã vô vọng. Một khi đã nản lòng, họ chẳng sao gượng dậy được nữa. Lý Nguyên cũng không tự tiện lên bờ, trừ khi bị trận pháp đảo Phù Thủy kinh động. Còn Lý Liễu mấy năm nay tu hành ở Bắc Câu Lô Châu ra sao, Trần Bình An càng không đoán được. Hắn đã xem bao nhiêu bản sơn thủy công báo mà chẳng thấy chỗ nào nhắc đến nàng.
 
-Mấy ngày nay Trần Bình An trừ siêng năng luyện hóa sơn thủy linh khí, củng cố, mở rộng bố cục hai chỗ khiếu huyệt mấu chốt của từ đường thủy phủ, cũng sẽ ngưng thần như giới tử nội thị tuần du, nhìn kiếm khí hùng hổ như thiết kỵ gõ quan, cùng với Mùng Một Mười Lăm lần lượt lấy mũi kiếm mài mòn trảm long thai, đốm lửa văng khắp nơi, giống như rèn sắt đúc kiếm của Nguyễn sư phó quê nhà, sáng ngời khắp phòng.
+Mấy ngày nay, Trần Bình An chăm chỉ luyện hóa linh khí sơn thủy để củng cố và mở rộng hai khiếu huyệt then chốt, nơi có từ đường và thủy phủ. Thỉnh thoảng hắn lại ngưng thần, hóa thành một hạt giới tử đi tuần trong thân thể, xem kiếm khí hùng hổ như thiết kỵ đánh cửa ải. Sơ Nhất và Thập Ngũ thay nhau lấy mũi kiếm mài Trảm Long Đài. Tia lửa bắn tung tóe, sáng khắp phòng, khiến hắn nhớ cảnh Nguyễn sư phụ rèn sắt đúc kiếm ở quê nhà.
 
-Long cung động thiên bốn mùa như xuân, mùa đông không lạnh căm căm, mùa hè nóng bức, thường xuyên trời mưa, vừa có mưa phùn nhỏ tí tách, cũng có mưa to xối xả, mỗi khi trời mưa, Trần Bình An phát hiện đảo lân cận sẽ có người tu đạo, phần nhiều là địa tiên, hoặc là đang tắm rửa mưa rào, lấy thân người làm trời đất, cửa phủ mở rộng, nhanh chóng mãnh liệt hấp thu hơi nước linh khí, hoặc là tế ra pháp bảo trên núi tương tự như bình ngọc, bình xuân, giọt giọt, chặn lấy nước mưa, không dính chút nào trên mặt đất đảo.
+Long Cung động thiên bốn mùa như xuân, đông chẳng rét căm căm, hè cũng không oi bức. Nơi này thường có mưa, lúc rả rích, lúc xối xả. Mỗi khi trời đổ mưa, trên các đảo lân cận lại có tu sĩ ra đón nước, phần nhiều là Địa tiên. Người tắm mình trong mưa, mở hết khí phủ trong tiểu thiên địa thân thể để thu linh khí hơi nước. Người tế pháp bảo như bình ngọc, bình xuân, đón từng giọt, chẳng để nước rơi xuống đảo.
 
-Lúc nhàn hạ, bắt đầu lật xem tập chuyện xưa mà người người cuối cùng đều là cái chết, quá trình không giống nhau, phần lớn tính tình khác biệt, kiểu chết đều thiên kỳ bách quái, cuối cùng chết ở trong tay người nào, càng đủ loại.
+Lúc nhàn, hắn giở tập sách chép những chuyện mà kết cục ai cũng chết. Chỉ có tính tình mỗi người, đầu đuôi câu chuyện, cách họ chết và kẻ ra tay là muôn hình muôn vẻ.
 
-Ban đầu ở đỉnh núi di chỉ tiên phủ, trong dòng sông thời gian đình trệ, quyển sách này sau khi đại yêu chết rơi xuống đất, lại bị Tôn đạo nhân tặng lại cho Trần Bình An.
+Trên đỉnh núi ở di chỉ tiên phủ, lúc dòng sông thời gian ngừng chảy, quyển sách này rơi ra sau khi đại yêu chết. Tôn đạo nhân đã đem tặng Trần Bình An.
 
-Trần Bình An tìm được một cây dù giấy dầu cán trúc ở đảo Phù Thủy, chỉ cần lúc ấy không tu hành, mỗi lần gặp trời mưa thời tiết, vô luận ngày đêm, đều phải ra ngoài tản bộ, dọc theo đảo Phù Thủy đi một vòng, ước chừng ba mươi dặm lộ trình sơn thủy tương y, một mình chống ô đi qua.
+Trần Bình An tìm được một chiếc dù giấy dầu cán trúc trên đảo Phù Thủy. Hễ trời mưa mà không bận tu hành, bất kể ngày đêm, hắn đều một mình chống dù đi quanh đảo. Một vòng chừng ba mươi dặm, có núi có nước.
 
-Ba tấm lệnh bài, ngọc bài ly long Lý Liễu khắc dấu "Ba thước cam lâm", đã bị Trần Bình An tháo xuống, để vào vật gang tấc.
+Trong ba tấm bài, ngọc bài Ly Long khắc chữ "Ba thước cam lâm" của Lý Liễu đã được hắn cất vào chỉ xích vật.
 
-"Tướng mưa xanh" của Lý Nguyên dùng để khống chế trận pháp sơn thủy, "nghỉ ngơi" cùng với mộc bài cầu qua Thủy Long tông, vẫn treo ở bên hông, lúc đi trong mưa, thỉnh thoảng bước chân hơi lớn, liền có tiếng gõ rất nhỏ.
+Ngọc bài "Thanh Vũ Tướng" của Lý Nguyên dùng để điều khiển trận pháp sơn thủy và mộc bài qua cầu của Thủy Long tông vẫn treo bên hông. Đi trong mưa, hễ bước dài một chút, hai tấm bài lại khẽ chạm nhau.
 
 Trong đêm mưa hôm nay, Trần Bình An vẫn bung dù đi ra ngoài, tính toán thời gian, hồi âm của Chu Liễm hẳn cũng sắp đến rồi.
 
-Trần Bình An dừng chân không tiến, nhìn phía xa xa giữa hai hòn đảo nhỏ giáp trắng, Thương Nghiễn, chợt có một chiếc xe ngựa hoa lệ, nhảy ra khỏi mặt hồ, xe ngựa lớn như lầu các, bốn góc như mái hiên, treo chuông, khi bốn con tuấn mã tuyết trắng đạp nước bôn tẩu, chuông rung động, như tiếng trời trong mưa. Sau xe ngựa, lại có thị nữ áo gấm hoa, đại đội thần mã mặc quan bào màu đỏ tím, đi theo xe ngựa ngự thủy mà đi.
+Trần Bình An dừng chân. Giữa hai đảo Giáp Trắng và Thương Nghiễn phía xa, một chiếc xe ngựa hoa lệ chợt vọt lên khỏi mặt hồ. Xe lớn như lầu các, bốn góc cong như mái hiên, có treo chuông. Bốn con tuấn mã trắng như tuyết đạp nước lao đi, chuông reo trong mưa nghe như tiếng trời. Sau xe, các thị nữ mặc gấm hoa cùng một đoàn thần nhân khoác quan bào đỏ tím nối nhau đi trên mặt nước.
 
-Trên xe ngựa, không có người chăn ngựa điều khiển tuấn mã, chỉ có thiếu niên Lý Nguyên và một vị phu nhân xinh đẹp vóc người cao ráo, búi tóc như nụ hoa bạch ngọc, mặc một bộ áo quần ngắn tay vân vê tinh xảo, khoác lụa mỏng, bay phất phơ như sương khói.
+Trên xe không có người cầm cương. Chỉ có thiếu niên Lý Nguyên và một phụ nhân xinh đẹp, vóc người cao ráo, tóc búi tựa nụ hoa bằng bạch ngọc. Nàng mặc áo ngắn tay may tinh xảo, khoác lụa mỏng bay như sương khói.
 
-Thiếu niên Lý Nguyên, đổi một thân áo bào vàng cổ tròn, eo buộc đai bạch ngọc, chân mang giày đen.
+Lý Nguyên đã thay áo bào vàng cổ tròn, thắt đai bạch ngọc và đi giày đen.
 
-Sau khi đội ngũ này xuất hiện, Trần Bình An phát hiện hai đảo lớn giáp trắng, Thương Nghiễn xuất hiện dị tượng, bốn phía hơi nước tràn ngập lên bờ, bao phủ trong đó, rất nhanh thôi đã chỉ có thể nhìn thấy hình dáng đại khái của chúng nó, nhưng Trần Bình An không xác định là do tu sĩ đảo nhỏ mở ra trận pháp hộ sơn, hay là bên kia xe ngựa có người khống chế thủy pháp, khiến tu sĩ đảo nhỏ không tiện nhìn trộm cảnh tượng trên hồ.
+Đoàn xe vừa xuất hiện, hơi nước đã dâng lên quanh hai đảo Giáp Trắng và Thương Nghiễn, chẳng mấy chốc chỉ còn thấy thấp thoáng dáng đảo. Trần Bình An không biết tu sĩ trên đảo đã mở trận pháp hộ sơn, hay người trên xe dùng thủy pháp để ngăn họ nhìn trộm.
 
-Xe ngựa lao thẳng về phía Trần Bình An bên này, không trực tiếp lên bờ, dừng ở ngoài một dặm bên ngoài Phù Thủy đảo, chỉ có Lý Nguyên cùng vị phụ nhân búi tóc cao kia đi xuống xe ngựa, đi về phía hòn đảo.
+Xe ngựa đi thẳng về phía Trần Bình An, dừng cách đảo Phù Thủy một dặm. Chỉ Lý Nguyên và phụ nhân búi tóc cao xuống xe, đi về phía đảo.
 
-Phụ nhân kia tựa như lâm thời thu hồi thủ thuật che mắt, lộ ra khuôn mặt vốn mơ hồ bất định, có được một đôi mắt màu vàng, là một trong những sơn thuỷ thần linh bản địa không thể nghi ngờ.
+Phụ nhân dường như vừa thu thuật che mắt. Gương mặt vốn mơ hồ hiện rõ, để lộ đôi mắt vàng kim. Nàng hẳn là một vị thần linh sơn thủy bản địa.
 
-Lý Nguyên và vị phụ nhân kia cùng đi đến trước người Trần Bình An, Lý Nguyên cười giới thiệu nói: "Vị này chính là Nam Huân Thủy Điện nương nương ty chức Long Cung động thiên, có thể gọi nàng là Thẩm phu nhân."
+Đến trước mặt Trần Bình An, Lý Nguyên cười giới thiệu: "Đây là nương nương cai quản Nam Huân Thủy Điện trong Long Cung động thiên. Tiên sinh có thể gọi nàng là Thẩm phu nhân."
 
-Tuy trời mưa không nhỏ, Trần Bình An vẫn lập tức thu hồi dù giấy, xưng hô một tiếng Thẩm phu nhân.
+Mưa vẫn nặng hạt, Trần Bình An lập tức khép dù, chào một tiếng Thẩm phu nhân.
 
-Vị Thủy Điện nương nương kia thi đại lễ vạn phúc: "Nam Huân điện người cũ Thẩm Lâm, ra mắt Trần công tử."
+Vị nương nương làm lễ vạn phúc: "Cố nhân Nam Huân điện, Thẩm Lâm, ra mắt Trần công tử."
 
-Sau khi cô đứng thẳng người, nhẹ nhàng phất tay áo, trên không đảo Phù Thủy không có nước mưa rơi xuống.
+Đứng thẳng dậy, nàng khẽ phất tay áo. Mưa trên đảo Phù Thủy liền tạnh.
 
-Trần Bình An đã quen lúc nói chuyện với người khác, nhìn thẳng vào đối phương, liền không cẩn thận phát hiện khuôn mặt chân thật của vị thuỷ thần nương nương này, sắc mặt như men sứ men sứ xanh, chẳng những như thế, "sấm sứ" trên mặt che kín khe hở tinh tế dày đặc, giăng khắp nơi, một khi bị người nhìn chăm chú, sẽ có vẻ có chút dọa người. Trần Bình An có chút hiểu ra, chưa làm bộ cái gì cũng chưa thấy, kẹp ô giấy dầu ở dưới nách, cùng vị thuỷ thần nương nương một kim thân này đã tràn ngập hoàn cảnh nguy hiểm, ôm quyền cáo tội một tiếng.
+Trần Bình An có thói quen nhìn thẳng người đối diện khi nói chuyện, vô tình thấy rõ gương mặt thủy thần nương nương. Nước da nàng như men sứ xanh, chằng chịt vết rạn nhỏ, nhìn lâu có phần đáng sợ. Hắn hiểu ra đôi chút. Thay vì giả vờ không thấy, hắn kẹp dù dưới nách, ôm quyền cáo lỗi với vị nương nương có kim thân đã ở bên bờ tan vỡ.
 
-Trầm Lâm tựa hồ có chút kinh ngạc, cười nói: "Trần công tử không cần như thế, nếu như tiểu thần có dáng vẻ này, làm kinh sợ đến công tử, đại sát phong cảnh, mới là tội lớn."
+Thẩm Lâm thoáng ngạc nhiên rồi cười: "Trần công tử không cần như thế. Dáng vẻ tiểu thần mà làm công tử kinh sợ, mất cả hứng, ấy mới là tội lớn."
 
 Lý Nguyên cười ha hả, dường như cảm thấy cách nói này khá thú vị.
 
-Chẳng qua Trần Bình An không cười, Lý Nguyên đành phải phẫn nộ thu hồi nụ cười, tự chuốc lấy nhục nhã, nếu là đám gia hỏa đứng đầu gia phả Tổ Sư Đường Thủy Long Tông năm xưa, ai cũng còn trên đời, lập tức đã có cả mảng lớn tiếng cười ở xung quanh.
+Trần Bình An chẳng cười, Lý Nguyên đành ngượng ngùng nín lại. Nếu đám người từng đứng đầu gia phả tổ sư đường Thủy Long tông còn sống, hẳn xung quanh đã rộ lên cả tràng cười.
 
-Trần Bình An một tay cầm ô giấy dầu, nghiêng người vươn một tay.
+Trần Bình An một tay cầm dù giấy dầu, nghiêng người đưa tay mời.
 
-Trầm Lâm nhìn Lý Nguyên, người sau vội vàng đưa mắt ra hiệu, lúc này nàng mới cùng vị Trần công tử kia sóng vai mà đi, sau đó Lý Nguyên mới hai tay ôm lấy cái ót, chậm rãi đi theo phía sau hai người.
+Thẩm Lâm nhìn Lý Nguyên. Hắn vội đưa mắt ra hiệu, nàng mới đi sóng vai cùng Trần công tử. Lý Nguyên đan tay sau gáy, thong thả theo sau.
 
 Nam Huân Thủy điện là thủy thần đứng đầu long cung động thiên, về phần sơn thần thì càng không cần nhắc tới, trong tòa tiểu động thiên này, không có địa vị nhất, chính là những tiểu sơn thần giống như bị nước lũ bốn phía giam giữ trong lồng. Một số vương triều Đại Nguyên chờ đợi Lô thị triều đình sắc phong anh linh, hoặc là danh thần anh liệt sau khi tiểu quốc khác sau khi chết hồn phách không tiêu tan, một khi nghe nói có thể bị ném vào long cung động thiên, phong chính là thần, có thể ngay cả tâm tư chết một lần cũng có., Sợ vào tòa tiểu động thiên này, ước thúc quá nhiều, sơn hương làm sao so được với thủy hương? Càng quan trọng hơn là, vào tiểu thiên địa, rời quê tới gánh giếng, thân là thần linh, làm sao bù lại khí vận sơn thủy của bổn quốc? Cho nên bất cứ anh linh nào đối với thần linh núi thuỷ đảm nhiệm tiểu động thiên, đều coi là một loại giáng chức lưu đày trên quan trường, cho nên thà làm sơn thần động thiên huyện thành nhỏ, không làm động thiên.
 
-Mà Trầm Lâm tự xưng là cựu nhân Nam Huân điện, lại là một cách nói rất có hàm ý, bởi vì phạm vi tám ngàn dặm, Long cung động thiên có hơn ngàn hòn đảo lớn nhỏ, thủy vận nồng đậm, có một không hai một châu, hôm nay thuỷ thần hồ quân, hà bà Hà Bá tổng cộng có được ba mươi hai vị, tính cả chủ thành ở bên trong mười hai hòn đảo lớn, đều có sơn thần, thành hoàng, văn võ miếu, so với thuỷ thần, số lượng thần linh càng nhiều hơn.
+Thẩm Lâm tự xưng là cố nhân Nam Huân điện, lời ấy có hàm ý riêng. Long Cung động thiên rộng tám ngàn dặm, có hơn ngàn đảo lớn nhỏ, thủy vận dồi dào nhất châu. Hiện có tất cả ba mươi hai thủy thần, gồm hồ quân, hà bà và Hà Bá. Trên mười hai đảo lớn, kể cả đảo chủ thành, đều có sơn thần, Thành Hoàng, Văn miếu và Võ miếu. Tính ra các thần linh ấy còn đông hơn thủy thần.
 
-Lý Nguyên nhìn vị "người phụ nữ" cách đó không xa, trong lòng không ngừng than thở.
+Lý Nguyên nhìn vị phụ nhân đi cách mình không xa, thầm than thở.
 
 Đồng mệnh tương liên.
 
-Chẳng qua việc Thủy Long tông bên kia có thể làm, phần nhiều là dựa vào đạo tràng Kim Lễ năm này qua năm khác, tăng thêm việc hương khói, tuy cũng có thể bổ cứu Nam Huân điện, tương tự nhà cửa tu sửa phố phường, nhưng dù sao không bằng vị thủy chính này hấp thu hương khói, rèn luyện tinh hoa, đến trực tiếp hữu hiệu. Nói đến cùng, đây là động thiên không bằng phúc địa, động thiên chỉ thích hợp người tu đạo, tốp năm tốp ba an tâm tu hành, trời sinh hoàn cảnh thanh tịnh, nghĩ không khó tranh cũng khó, phúc địa thì đất rộng người nhiều, lợi cho vạn dân hương khói ngưng tụ, mới là đạo trường trời sinh của thần linh.
+Thủy Long tông phần nhiều chỉ có thể mở đạo tràng Kim Lễ năm này qua năm khác để thêm hương khói. Làm vậy cũng sửa sang được Nam Huân điện, như nhà cửa ngoài phố được tu bổ, nhưng chẳng hiệu quả bằng để Thủy Chính trực tiếp thu hương khói, luyện lấy tinh hoa. Xét riêng chuyện ấy, động thiên không bằng phúc địa. Động thiên thanh tịnh, thích hợp cho vài người an tâm tu đạo, muốn không vướng tranh chấp cũng chẳng khó. Phúc địa đất rộng người đông, dễ tụ hương khói của muôn dân, mới là đạo trường trời sinh của thần linh.
 
-Trần Bình An trò chuyện với vị Thẩm phu nhân này rất vui vẻ.
+Trần Bình An trò chuyện rất hợp với Thẩm phu nhân.
 
-Đáng tiếc Long Cung động thiên không giống những đỉnh núi tiên gia Xuân Lộ Phố Thải Tước phủ này, có tập sách đóng thành sách, có thể cho người ta hiểu rõ phong tục.
+Đáng tiếc Long Cung động thiên chẳng có sách giới thiệu phong tục như Xuân Lộ phố hay Thải Tước phủ.
 
-Trên thực tế đây là lần đầu tiên Trần Bình An nghe nói Nam Huân Thủy Điện.
+Thật ra đây là lần đầu Trần Bình An nghe nhắc đến Nam Huân Thủy Điện.
 
-Nhưng thần linh có được danh hiệu Thủy Điện, thường thường đều có lai lịch không nhỏ.
+Có điều, thần linh mang danh hiệu Thủy Điện thường có lai lịch không nhỏ.
 
-Ở Thư Giản hồ, đảo châu trâm đảo phụ cận Thanh Hạp đảo, đảo chủ Lưu Trọng Nhuận làm trưởng công chúa mất nước, cố quốc có được một tòa thủy điện trong truyền thuyết, lúc này mới đưa tới kiếm tu vương triều Chu Huỳnh mơ ước, đương nhiên vị kiếm tu Nguyên Anh xuất thân hoàng thất Chu Huỳnh, vẫn là lấy tài sắc song thu bàn tính. Trần Bình An từng kiến thức huyền diệu của đan dược trân quý của Thủy Điện, Địa tiên cũng phải thèm nhỏ dãi ba thước, dựa theo cách nói của Lưu Trọng Nhuận, loại thủy đan cần nhất, tùy tiện ném ra một viên, có thể khiến Thư Giản hồ nhấc lên sóng cao trăm thước, tranh đoạt không thôi.
+Ở Thư Giản hồ, gần Thanh Hạp đảo có đảo Châu Trâm, đảo chủ Lưu Trọng Nhuận vốn là trưởng công chúa mất nước. Cố quốc của nàng có một tòa Thủy Điện trong truyền thuyết, vì thế kiếm tu vương triều Chu Huỳnh mới sinh lòng dòm ngó. Riêng vị kiếm tu Nguyên Anh xuất thân hoàng thất Chu Huỳnh còn tính lấy cả người lẫn của. Trần Bình An từng thấy đan dược quý của Thủy Điện huyền diệu đến mức Địa tiên cũng thèm muốn. Theo lời Lưu Trọng Nhuận, riêng thứ thủy đan được săn đón nhất, chỉ cần ném ra một viên cũng đủ khiến Thư Giản hồ nổi sóng cao trăm thước vì tranh đoạt.
 
-Trước khi Trần Bình An rời khỏi Lạc Phách Sơn, Lưu Trọng Nhuận còn chưa thật sự bàn xong công việc di chuyển an toàn với Chu Liễm bên kia, thật ra Trần Bình An không quá lý giải Lưu Trọng Nhuận vì sao cố ý muốn chia nữ tu của đảo Châu Sưởng làm hai phần, trừ tổ sư đường ở lại Thư Giản hồ, lại sẽ mang phần lớn đích truyền tống tới quận Long Tuyền tu hành phần lớn tổ sư đường, hôm nay Thư Giản hồ đã có quy củ, hơn nữa còn là tòa Chân cảnh tông kia của Khương Thượng Chân tọa trấn, so với Thư Giản hồ lúc trước vô pháp vô thiên đã như mây mù, nói câu khó nghe, chút gia sản đó của Lưu Trọng Nhuận, Chân cảnh tông thật đúng là sẽ không thấy hơi tiền nổi máu tham.
+Trước khi Trần Bình An rời núi Lạc Phách, Lưu Trọng Nhuận và Chu Liễm vẫn chưa bàn xong việc dời chỗ ở. Hắn chẳng hiểu vì sao nàng nhất định chia nữ tu đảo Châu Trâm làm hai, để tổ sư đường ở lại Thư Giản hồ nhưng đưa phần lớn đệ tử đích truyền sang quận Long Tuyền tu hành. Thư Giản hồ nay đã có quy củ, lại có Chân Cảnh tông của Khương Thượng Chân tọa trấn, khác xa thời còn vô pháp vô thiên. Nói khó nghe, chút gia sản của Lưu Trọng Nhuận cũng chẳng đủ khiến Chân Cảnh tông động lòng tham.
 
-Chuyển đến quận Long Tuyền, vẫn là ăn nhờ ở đậu, Trần Bình An nên nhận tiền thần tiên của đảo Châu Sước, một đồng cũng không thiếu. Đảo Châu Sán vừa hưng sư động chúng, Lưu Trọng Nhuận lại hao phí tài lực, Trần Bình An thật sự là không nghĩ ra Lưu Trọng Nhuận làm mua bán như thế nào.
+Sang quận Long Tuyền vẫn phải ở nhờ, tiền thần tiên đảo Châu Trâm phải trả cho Trần Bình An vẫn không thiếu một đồng. Đảo Châu Trâm phải huy động bao người, Lưu Trọng Nhuận lại tốn tiền của. Trần Bình An thật sự chẳng hiểu nàng tính vụ mua bán này thế nào.
 
-Tựa như Trần Bình An không rõ ràng quan hệ giữa Lý Liễu và Lý Nguyên, cũng không rõ Trầm Lâm có liên quan gì với Lý Nguyên, cho nên đoạn đường này, chính là cùng vị thủy thần nương nương Nam Huân điện này khách sáo hàn huyên.
+Trần Bình An chưa rõ quan hệ giữa Lý Liễu với Lý Nguyên, cũng chẳng biết Lý Nguyên và Thẩm Lâm quen nhau thế nào. Suốt đường, hắn chỉ khách khí trò chuyện với vị thủy thần Nam Huân điện.
 
-Bởi vì ở Thư Giản hồ đảo Thanh Hạp làm quen việc này, Trần Bình An sớm đã vô cùng thành thạo, ứng đối cẩn thận từng giọt nước, ngôn ngữ câu cú khách khí, nhưng cũng sẽ không cho người ta cảm giác lạnh nhạt xa cách, tỷ như sẽ cùng Trầm Lâm hư tâm thỉnh giáo phù thủy đảo công chúa thăng tiên bia uyên nguyên trên đảo, Trầm Lâm đương nhiên biết gì nói nấy, làm giống với Thủy Chính Lý Nguyên, Long cung động thiên tư lịch lâu đời nhất, đối với nhân sự địa bàn nhà mình thuộc như lòng bàn tay.
+Từ hồi ở Thanh Hạp đảo, Thư Giản hồ, hắn đã quen trò chuyện kiểu này. Lời lẽ kín kẽ và khách khí mà chẳng khiến người ta thấy xa cách. Chẳng hạn hắn khiêm tốn hỏi Thẩm Lâm về lai lịch bia công chúa Thăng Tiên trên đảo Phù Thủy. Nàng biết gì nói nấy. Cũng như Thủy Chính Lý Nguyên, nàng là một trong những người lâu năm nhất ở Long Cung động thiên, thuộc chuyện địa bàn mình như lòng bàn tay.
 
-Lý Nguyên nghe hai người vừa gặp mặt, nói chuyện phiếm thân thiện.
+Lý Nguyên nghe hai người mới gặp mà đã trò chuyện thân tình.
 
-Cảm thấy có chút thú vị.
+Thoạt đầu hắn thấy thú vị.
 
-Chỉ là chơi vui hơn, lại cảm thấy có chút bi ai.
+Nghĩ thêm, lại thấy hơi buồn.
 
-Vị giang hồ cộng chủ cao cao tại thượng kia, cách vô số năm, thật vất vả mới đi một chuyến đến tòa Long Cung động thiên này để tránh nóng, kết quả thì sao? Ngay cả Nam Huân Thủy Điện cũng lười liếc mắt nhìn một cái, ngay cả Thân Kỳ vị Trầm Lâm không có công lao cũng có khổ lao này một hai câu, cũng lười nói.
+Vị cộng chủ giang hồ cao cao tại thượng kia, cách bao năm mới ghé lại Long Cung động thiên, nơi từng tránh nóng. Kết quả thì sao? Nam Huân Thủy Điện nàng chẳng buồn liếc mắt. Thẩm Lâm không có công lao cũng có khổ lao, nàng vẫn chẳng buồn hỏi han một hai câu.
 
-Thậm chí Lý Nguyên có thể chắc chắn, nếu không phải vị "Trần tiên sinh" này đại giá quang lâm, vị cộng chủ giang hồ kia, ngay cả vị Tế Thủy Chính trông coi một tòa hành cung tránh nóng vô số năm này của mình, nàng khẳng định cũng sẽ không liếc mắt nhìn thêm một cái.
+Lý Nguyên dám chắc, nếu "Trần tiên sinh" không đến, vị cộng chủ giang hồ kia cũng chẳng nhìn thêm một lần vị Thủy Chính đã trông coi hành cung tránh nóng suốt bao năm.
 
 Thật sự là vô tình.
 
-Lý Nguyên luôn cảm thấy hắn cũng tốt, Trầm Lâm cũng thế, cũng coi như là thần linh phẩm hạnh tương đối không thấp, cũng coi như đủ coi thường nhân tình thế tục, nhưng so với vị đại thần viễn cổ cao không thể với kia, thật sự là giống như nhân gian si tình.
+Lý Nguyên vẫn nghĩ mình và Thẩm Lâm đều là thần linh có phẩm hạnh, cũng đã xem nhẹ nhân tình thế tục. Nhưng so với vị đại thần viễn cổ kia, họ chẳng khác người si tình chốn nhân gian.
 
-Trầm Lâm tựa hồ hứng thú nói chuyện rất nhiều, chủ động giới thiệu cho vị Trần công tử kia về phong thổ của Long Cung động thiên.
+Thẩm Lâm có vẻ thích trò chuyện, chủ động kể cho Trần công tử nghe về phong thổ Long Cung động thiên.
 
-Đây là điều Trần Bình An nguyện ý nghe nhất.
+Chuyện ấy Trần Bình An thích nghe nhất.
 
-Từ lần đầu tiên Trần Bình An cùng bọn Tiểu Bảo Bình xuất môn đi xa, đã như xưa nay.
+Hắn đã như vậy từ chuyến đi xa đầu tiên cùng bọn Tiểu Bảo Bình.
 
-Lên núi hỏi tiều phu, xuống nước hỏi thuyền, vào thành qua trấn liền muốn đi hỏi dân chúng địa phương, năm đó đều là Trần Bình An tự mình đi làm, cho dù là Lý Bảo Bình muốn làm việc nghiêm túc nhất, làm việc cũng rất cẩn thận muốn phân ưu cho tiểu sư thúc, Trần Bình An vẫn là không yên tâm.
+Lên núi hỏi tiều phu, xuống nước hỏi người chèo thuyền, qua thành trấn hỏi dân địa phương. Năm đó Trần Bình An đều tự mình đi hỏi. Đến cả Lý Bảo Bình nghiêm túc, cẩn thận, muốn đỡ đần tiểu sư thúc, hắn cũng không yên tâm giao việc.
 
-Sau đó, một mình du lịch tứ phương, vẫn như cũ như thế.
+Về sau một mình đi khắp bốn phương, hắn vẫn vậy.
 
-Bất cứ một phương thủy thổ xa lạ nào, chỉ cần Trần Bình An cảm thấy không thể hiểu biết toàn diện, nhìn thấu triệt mạch lạc, sẽ khó an lòng.
+Đến nơi xa lạ, hễ chưa hiểu hết đầu đuôi, chưa nhìn thấu mạch lạc, Trần Bình An lại khó an lòng.
 
-Cái này đại khái có quan hệ rất lớn với nữ quỷ áo cưới năm xưa cản đường, Phi Ưng bảo gặp biến cố, đi nhầm vào Ngẫu Hoa phúc địa, cùng với trải qua sát khí phía sau Quỷ Lâu cốc vân vân, một loạt sóng gió này có liên quan rất lớn.
+Có lẽ cũng vì năm xưa bị nữ quỷ áo cưới cản đường, gặp biến cố ở Phi Ưng bảo, lạc vào Ngẫu Hoa phúc địa, rồi trải bao hiểm nguy ở Quỷ Lâu cốc.
 
-Trần Bình An biết mình ở trên việc này, nếu là tâm tính cực đoan, vẫn không làm ra chuyển biến, sẽ là một đạo quan ải nhấp nhô trên con đường tu hành.
+Trần Bình An biết cứ giữ cách nghĩ ấy đến mức cực đoan, chẳng chịu thay đổi, sớm muộn cũng thành một cửa ải khó qua trên đường tu hành.
 
-Ý niệm này, là sau khi gặp được Lý Liễu, Trần Bình An đột nhiên mới ý thức được.
+Sau khi gặp Lý Liễu, hắn mới chợt nghĩ đến chuyện này.
 
 Bởi vì Trần Bình An đối chiếu lời nói cử chỉ của Lý Liễu ở chỗ này qua đi, liền phát hiện mình cho dù là quay về quê nhà, trừ ở tổ trạch ngõ Nê Bình, một mình ngồi, coi như cái gì cũng không suy nghĩ nhiều, ngoài ra cho dù là ở trúc lâu Lạc Phách Sơn, ở cửa hàng ngõ Kỵ Long, cũng đã quen để cho mình đắm chìm ở loại tâm cảnh cố chấp "Ta biết vạn sự, vụn vặt không lộ", cho nên Trần Bình An mới có thể cực kỳ hâm mộ hai môn tiên gia thần thông kia, súc địa ngàn dặm thành tấc vuông, cùng thần nhân kia chưởng quan núi sông.
 
-Nhất là Lý Liễu thuận miệng nói ra câu "Tâm cảnh bất ổn, đi đường xa hơn nữa, vẫn là ở quỷ dựng tường", quả thực chính là một câu bừng tỉnh Trần Bình An người trong mộng này.
+Nhất là câu Lý Liễu thuận miệng nói, tâm cảnh chưa yên thì đi xa đến mấy cũng chỉ như bị quỷ dựng tường. Trần Bình An nghe mà như tỉnh mộng.
 
-Trần Bình An dám nói mình cho tới bây giờ biết rốt cuộc là muốn cái gì, muốn đi nơi nào, muốn trở thành hạng người gì.
+Trần Bình An dám nói từ trước tới nay mình vẫn biết rõ muốn gì, muốn đi đâu và muốn trở thành người thế nào.
 
-Nhưng mà một đường đi tới, trên đường, thì ra vẫn luôn va chạm, nhấp nhô long đong, không phải tất cả đều là nhân duyên đại thiên địa sẽ làm điều đó, bản thân Trần Bình An hắn cũng có rất nhiều "Phúc họa tự khai".
+Nhưng suốt đường va vấp, đâu phải mọi chuyện đều do nhân duyên trời đất. Nhiều phúc họa là do chính Trần Bình An tự chuốc lấy.
 
-Cho nên Trần Bình An sẽ ở ngày đó ngồi ở trên nóc nhà, cảm thấy thiên địa mênh mông, không biết đặt chân như thế nào đi ra bước tiếp theo.
+Vì vậy hôm ấy ngồi trên nóc nhà, nhìn trời đất mênh mông, hắn lại chẳng biết bước tiếp thế nào.
 
-Ước hẹn mười năm trở thành võ phu Kim Thân cảnh, trở về Đảo Huyền sơn.
+Giữ lời hẹn mười năm, trở thành võ phu Kim Thân cảnh rồi trở về Đảo Huyền sơn.
 
-Xây dựng lại một cây cầu trường sinh, thành công luyện hóa năm vật bản mạng.
+Dựng lại trường sinh kiều, luyện hóa đủ năm vật bản mạng.
 
-Trở thành kiếm khách chân chính trong cảm nhận, tranh thủ đồng thời trở thành một vị đại kiếm tiên được đại tự do.
+Trở thành kiếm khách chân chính như mình hằng nghĩ, rồi cố trở thành một vị đại kiếm tiên được đại tự do.
 
 Nhưng sức người có hạn, tâm lực cũng như thế.
 
-Trần Bình An hắn bây giờ, suy nghĩ nhiều, cân nhắc chi tiết, đâu chỉ ba việc lớn này mà thôi? Nào chỉ là thiếu nợ mấy ngàn đồng tiền Cốc Vũ đơn giản như vậy? Việc không thể không làm, nào chỉ có những việc này?
+Những chuyện Trần Bình An phải suy nghĩ và cân nhắc từng li từng tí đâu chỉ có ba việc lớn ấy. Món nợ mấy ngàn đồng tiền cốc vũ cũng chỉ là một trong bao việc không thể không làm.
 
-Sự tình loạn như ma, lớn nhỏ không đều.
+Việc lớn việc nhỏ rối như tơ vò.
 
-Nên phân ra trước sau như thế nào, mỗi một ngày tâm tư khí lực cùng thời gian, lại nên như thế nào từ đạo lý của mình, rơi vào từng sự kiện cụ thể.
+Việc nào trước, việc nào sau? Mỗi ngày chỉ có ngần ấy tâm sức và thời gian, phải đem đạo lý của mình đặt vào từng việc thế nào?
 
-Trần Bình An theo bản năng dừng bước.
+Trần Bình An bất giác dừng bước.
 
-Vị Thuỷ Thần nương nương Nam Huân điện kia cũng không lộ dấu vết dừng thân hình lại.
+Vị thủy thần nương nương Nam Huân điện cũng tự nhiên dừng lại.
 
-Lý Nguyên ở phía sau hai người vẫn luôn không có việc gì làm, cẩn thận đếm lấy pháp bào lụa mỏng nhiều nhất là ba bốn lượng, rốt cuộc khảm nạm bao nhiêu viên trân châu đặc sản Long Cung đã luyện hóa thành hạt cải thật nhỏ, lúc này đã đếm tới hơn chín ngàn viên.
+Lý Nguyên đi sau hai người, rảnh rỗi đếm xem trên pháp bào lụa mỏng chỉ nặng chừng ba bốn lượng kia khảm bao nhiêu viên trân châu Long Cung đã luyện nhỏ như hạt cải. Hắn đếm đến hơn chín ngàn viên rồi.
 
-Lần này Trầm Lâm tới nhà bái phỏng, cũng không phải là Lý Nguyên hắn chủ trương, mà là lúc trước vị giang hồ cộng chủ kia hiện thân ngắn ngủi, để cho vị người cũ Nam Huân điện này ở trong minh minh, sinh ra một tia cảm ứng tâm thần, nhưng lại không dám tự tiện xuất đầu lộ diện, đành phải đợi sau khi sợi cảm ứng kia hoàn toàn tiêu tán, mới lần theo dấu vết để lại, thật cẩn thận tìm được vị Đại Độc Thủy Chính hắn, còn không dám trực tiếp hỏi dò, nói bóng nói gió, Lý Nguyên nghe mà đau đầu, dù sao cũng là giả ngu giả si, đại sự bực này, Lý Nguyên lại thương hại vị Thủy Thần nương nương này, cũng không dám tùy ý tiết lộ thiên cơ.
+Chuyến Thẩm Lâm tới thăm chẳng phải chủ ý của Lý Nguyên. Trước đó vị cộng chủ giang hồ hiện thân trong chốc lát, khiến cố nhân Nam Huân điện mơ hồ cảm ứng được. Nàng chẳng dám tự tiện ra mặt, đành chờ cảm ứng tắt hẳn rồi lần theo dấu vết, cẩn thận tìm đến Thủy Chính Đại Độc. Muốn hỏi mà không dám hỏi thẳng, nàng cứ nói xa nói gần đến mức Lý Nguyên đau đầu. Hắn đành giả vờ chẳng hiểu. Chuyện lớn đến thế, dẫu thương nàng, hắn cũng không dám để lộ thiên cơ.
 
-Chỉ là thật sự không lay chuyển được Thẩm Lâm, đành phải dùng biện pháp chiết trung không đến mức phải giả công làm việc tư, mang theo nàng đi một chuyến đến đảo Phù Thủy, dù sao nàng cũng là thần chỉ đứng đầu một phương thiên địa, lái xe tuần thú sơn thủy bốn phương, là chức trách của Thẩm Lâm nàng. Chỉ tiếc vị kia bị Lý Nguyên nói thành Trần tiên sinh của Trần công tử, bên hông cũng không treo ngọc bài "tam xích cam lâm", tuổi tác người trẻ tuổi không lớn, lại quá mức, ngôn ngữ vô cùng cẩn thận, đoán chừng Thẩm Lâm chỉ có thể vô công mà về.
+Rốt cuộc chẳng lay chuyển được Thẩm Lâm, Lý Nguyên đành tìm cách dung hòa, khỏi mang tiếng lấy việc công làm việc tư, đưa nàng tới đảo Phù Thủy. Dù sao một vị đứng đầu thần linh nơi này có trách nhiệm ngồi xe tuần tra sơn thủy bốn phương. Chỉ tiếc vị "Trần công tử" mà Lý Nguyên gọi riêng là Trần tiên sinh lại chẳng đeo ngọc bài "Tam xích cam lâm". Người còn trẻ mà lời lẽ hết sức cẩn thận, e Thẩm Lâm chỉ có thể tay trắng trở về.
 
-Làm người chấp chưởng sơn thủy điện Nam Huân Thủy điện nơi đây, thật ra có chút danh bất chính ngôn bất thuận, bởi vì thuỷ điện toàn bộ người hầu của thần linh sắc phong, bất cứ vương triều nào cũng không thể nhúng tay, ngay cả sơn chủ thư viện các đời thường thường cũng sẽ không xen vào, ví dụ hôm nay thánh nhân thư viện chu mật thượng nhiệm không bao lâu, đã bảo một vị quân tử hướng Thủy Long tông tổ sư đường đưa đi mười phần quyển trục phong chính, tất cả đều là về thần vị lớn nhỏ của Nam Huân Thủy điện, chỉ để lại chỗ tên họ trống, để cho tông chủ tôn kết giao cho Nam Huân Thủy điện trong động thiên, ý tứ rất đơn giản, để cho "tiểu triều đình" kia thật ra đã cực kỳ mập mạp Thẩm Lâm tự mình lăn qua lăn lộn lại, hắn chu đáo đến Bắc Câu Lô châu là để học vấn, lười quản những thứ linh tinh này.
+Danh phận người chấp chưởng Nam Huân Thủy Điện thật ra chưa hẳn chính đáng. Chuyện sắc phong thần linh lớn nhỏ trong điện, vương triều nào cũng chẳng được nhúng tay, các đời sơn chủ thư viện thường cũng không xen vào. Chẳng hạn thánh nhân thư viện Chu Mật mới nhậm chức chưa lâu đã sai một vị quân tử đưa đến tổ sư đường Thủy Long tông mười quyển trục phong chính cho các thần vị ở Nam Huân Thủy Điện. Tên họ còn để trống, chỉ bảo tông chủ Tôn Kết chuyển vào động thiên. Ý tứ rất rõ. Tiểu triều đình của Thẩm Lâm đã cồng kềnh lắm rồi, cứ để nàng tự thu xếp. Hắn đến Bắc Câu Lô Châu để làm học vấn, chẳng buồn quản những việc vụn vặt ấy.
 
-Thẩm Lâm cũng rất nhanh đã bánh ít đi, bánh quy lại, trừ mấy vị trí quan trọng vẫn giữ nguyên, một hơi xóa bỏ rất nhiều chức quan hư thiết theo lễ chế cổ xưa, cuối cùng dựa theo chức quan trong những phong thư chính thống được Thánh Nhân chu đáo chặt chẽ, trong Nam Huân Thủy Điện vốn có hơn hai mươi vị thần linh thủy vận, chỉ để lại mười vị thần vị chính thống được Nho gia công nhận.
+Thẩm Lâm sớm đáp lại thiện ý. Ngoài vài vị trí quan trọng vẫn để nguyên, nàng bãi bỏ hàng loạt chức quan hữu danh vô thực theo cổ lễ. Hơn hai mươi thần linh thủy vận trong Nam Huân Thủy Điện, cuối cùng chỉ còn mười vị giữ thần vị chính thống được Nho gia công nhận, đúng theo các quyển trục Chu Mật gửi tới.
 
-Ngay từ đầu Nam Tông chủ Thiệu Kính Chi có quan hệ tâm đầu ý hợp với Nam Huân Thủy điện, còn nói riêng Thẩm phu nhân đừng làm như thế, trắng trợn bớt đi hơn mười vị thần vị, dù sao thánh nhân thư viện chu đáo đã rõ ràng sẽ không phản ứng Nam Huân Thủy điện vận chuyển, cần gì phải vẽ vời cho thêm chuyện. Nhưng sau khi Chu Mật ra tay, rời khỏi thư viện, đánh cho mấy đại tu sĩ nói năng hung ác "Thông chó má", Thiệu Kính Chi mới lại bái phỏng Nam Huân Thủy điện một chuyến, thừa nhận mình thiếu chút nữa hại Thẩm phu nhân.
+Ban đầu Thiệu Kính Chi, tông chủ Nam tông vốn thân thiết với Nam Huân Thủy Điện, còn khuyên riêng Thẩm phu nhân đừng mạnh tay bỏ hơn mười thần vị. Chu Mật đã tỏ ý không quản chuyện trong điện, cần gì tự chuốc thêm việc? Đến khi Chu Mật rời thư viện, ra tay đánh mấy đại tu sĩ ăn nói hung hăng, buông lời "Thông chó má" [?], Thiệu Kính Chi mới lại đến Nam Huân Thủy Điện, thừa nhận suýt nữa mình đã hại Thẩm phu nhân.
 
-Trầm Lâm nhận ra người trẻ tuổi bên cạnh suy nghĩ xuất thần, không yên lòng.
+Thẩm Lâm nhận ra người trẻ tuổi bên cạnh đang nghĩ ngợi đến xuất thần.
 
-Nàng không cảm thấy là cái gì vô lễ mạo phạm, người tu đạo, có thể buông lỏng tâm cảnh như thế, kỳ thật thậm chí có thể xem như một loại tín nhiệm vô hình.
+Nàng chẳng thấy bị mạo phạm. Người tu đạo có thể buông lỏng tâm cảnh như vậy, có khi còn là một cách tỏ lòng tin.
 
-Trần Bình An nhanh chóng thu hồi suy nghĩ hỗn độn, tạ lỗi nói: "Thẩm phu nhân, thật xin lỗi, vừa rồi có chút thần du vạn dặm."
+Trần Bình An vội định thần, cáo lỗi: "Thẩm phu nhân, vừa rồi ta mải nghĩ chuyện khác, xin phu nhân thứ lỗi."
 
-Trầm Lâm cười lắc đầu.
+Thẩm Lâm mỉm cười lắc đầu.
 
-Nhưng nàng đã có ý rời đi, cho nên mở miệng mời người trẻ tuổi có rảnh đi Nam Huân Thủy Điện làm khách.
+Nàng cũng định ra về, bèn mời Trần Bình An lúc rảnh ghé Nam Huân Thủy Điện làm khách.
 
-Trần Bình An gật đầu đáp ứng, sau đó có chút bất đắc dĩ, Lý Liễu nói là muốn đi chủ thành một chuyến, sau đó lại đến đảo Phù Thủy, kết quả chuyến đi này, đánh giá nàng sẽ trực tiếp rời khỏi động thiên long cung cùng Thủy Long tông.
+Trần Bình An gật đầu nhận lời, rồi lại hơi bất đắc dĩ. Lý Liễu nói sẽ sang chủ thành, sau đó quay lại đảo Phù Thủy. Chuyến này, e nàng sẽ rời thẳng Long Cung động thiên và Thủy Long tông.
 
 Hỏi Lý Nguyên, Lý Nguyên chỉ nói không biết.
 
-Trầm Lâm cáo từ rời đi, đi về phía bờ, dưới chân hơi nước bốc lên, thoáng qua liền quay trở về chiếc xe ngựa kia, quay đầu ngựa, nhanh như điện chớp mà đi, chạy ra vài dặm đường thủy, giống như chạy vào đường thủy dưới mặt hồ, xe ngựa cùng với những thị nữ, văn võ thần nhân tùy giá kia, chợt không thấy.
+Thẩm Lâm cáo từ, đi về phía bờ. Hơi nước bốc lên dưới chân, thoáng cái nàng đã trở lại xe. Ngựa quay đầu, lao đi như chớp. Qua mấy dặm đường nước, xe cùng thị nữ và các thần nhân hộ giá như rẽ xuống một lối dưới mặt hồ, đột nhiên biến mất.
 
-Lý Nguyên chậm rãi thu hồi tầm mắt, thật ra trong lòng có chút tiếc hận.
+Lý Nguyên chậm rãi dời mắt. Trong lòng hắn thật ra vẫn có chút tiếc nuối.
 
-Nếu người trẻ tuổi này thoáng thông minh một chút, hoặc là thoáng không thông minh một chút, thật ra Trầm Lâm không chỉ là mời hắn đi bái phỏng Nam Huân Thủy điện, mà là nàng tất có trọng lễ tặng, không nhận cũng tuyệt đối không được, hơn nữa nhất định sẽ đưa đến thiên kinh địa nghĩa, hợp tình hợp lý. Ít nhất là một kiện chí bảo thủy pháp nhất đẳng tàng Thủy điện Nam Huân cất bước,, Phẩm cấp gần bán tiên binh. Bởi vì phần lễ vật này, thật ra không phải đưa cho người trẻ tuổi này, mà là cống phẩm mà quan viên địa phương tỉ mỉ chuẩn bị, kính dâng cho chủ nhân khối ngọc bài "Tam xích cam lâm" kia. Một khi "Trần công tử" nguyện ý nhận lấy, Trầm Lâm không những sẽ không đau lòng nửa điểm, còn càng cảm kích hắn thu lễ, chỉ cần hắn hơi có ý niệm trong đầu, Nam Huân Thủy Điện cho dù hủy đi một nửa, Trầm Lâm tất nhiên còn có trọng lễ đưa tiễn.
+Nếu người trẻ tuổi ấy thông minh hơn đôi chút, hoặc kém thông minh đi đôi chút, Thẩm Lâm hẳn đã không chỉ mời hắn đến Nam Huân Thủy Điện. Nàng nhất định sẽ tặng trọng lễ, tặng sao cho hợp tình hợp lý đến mức hắn không thể từ chối. Ít nhất cũng là một chí bảo thủy pháp hàng đầu trong điện, phẩm trật gần tới bán tiên binh. Bởi lễ ấy vốn chẳng dành cho hắn, mà là cống phẩm một quan viên địa phương dày công chuẩn bị để dâng chủ nhân ngọc bài "Tam xích cam lâm". Chỉ cần "Trần công tử" chịu nhận, Thẩm Lâm chẳng những không tiếc của mà còn cảm kích. Hắn mà tỏ chút ý muốn, dẫu phải dỡ nửa Nam Huân Thủy Điện, nàng cũng sẽ đem trọng lễ ra tiễn.
 
-Đáng tiếc "Trần tiên sinh" đã lặng yên không một tiếng động bỏ lỡ một phúc duyên.
+Đáng tiếc, "Trần tiên sinh" lặng lẽ bỏ lỡ một mối phúc duyên.
 
-Trên đời này có người tu đạo chê tiên gia trọng bảo không đủ nhiều sao? Tựa như bọn họ những sơn thuỷ thần linh này, ai còn chê hương khói tinh hoa nhiều mấy cân mấy lượng?
+Thế gian có người tu đạo nào chê trọng bảo tiên gia nhiều quá sao? Cũng như thần linh sơn thủy bọn họ, có ai chê tinh hoa hương khói dư mấy cân mấy lượng?
 
 Chắc là không có nhỉ.
 
 Càng đáng tiếc hơn là Lý Nguyên hắn không tiện mở miệng nhắc nhở cái gì, nếu không sơ ý một chút là vẽ rắn thêm chân, chỉ hại thân vàng đã rữa nát như gỗ mục, Thẩm Lâm cũng sẽ để cho vị tiểu tiểu tử như mình chịu không nổi.
 
-Trần Bình An cùng nhau nhìn theo xa giá đi xa, thiếu niên áo vàng đai ngọc mang giày xà phòng đứng bên cạnh, thần sắc phức tạp chợt lóe rồi biến mất kia của hắn, bị Trần Bình An lặng lẽ thu vào tầm mắt.
+Trần Bình An cùng Lý Nguyên nhìn theo xa giá. Thoáng thấy vẻ phức tạp trên mặt thiếu niên áo vàng, đai ngọc, giày đen đứng bên cạnh, hắn lặng lẽ ghi nhận.
 
-Lý Nguyên lấy ra một phong mật thư, nói: "Trần tiên sinh, đây là hồi âm của quê nhà ngài. Từ khi gửi thư đến lúc nhận thư, Thủy Long tông sẽ không có bất kỳ phát hiện nào."
+Lý Nguyên lấy một lá mật thư: "Trần tiên sinh, thư hồi âm từ quê nhà của tiên sinh. Từ lúc gửi đi đến khi nhận về, Thủy Long tông đều chẳng hay biết."
 
-Thật ra phong thư này, có chút nặng tay.
+Lá thư thật ra hơi nặng tay.
 
-Đây là quan hệ khác với sơn thủy.
+Ấy là vì mối quan hệ giữa sơn và thủy.
 
-Bởi vì trên thư thiết trí một sơn nhạc chính thần xảo diệu sơn thủy cấm chế.
+Trên thư có một đạo cấm chế sơn thủy tinh xảo do sơn nhạc chính thần đặt xuống.
 
-Làm Đại Độc Thủy Chính, cầm phong thư này, khó tránh khỏi có chút"phỏng tay".
+Lý Nguyên là Thủy Chính Đại Độc, cầm lá thư khó tránh hơi "phỏng tay".
 
-Trần Bình An tiếp nhận mật thư, thấy bốn chữ to trên phong thư, hiểu ý cười.
+Trần Bình An nhận thư, thấy bốn chữ lớn ngoài bì, hiểu ý mỉm cười.
 
 Bốn chữ là "Sư phụ thân khải".
 
-Vừa nhìn chính là bút tích của khai sơn đại đệ tử, chữ viết theo sư phụ hắn, tinh tế tỉ mỉ, hiển nhiên thời điểm viết rất dụng tâm.
+Vừa nhìn đã biết nét chữ khai sơn đại đệ tử. Chữ viết giống sư phụ, nắn nót từng nét, hẳn đã bỏ nhiều công phu.
 
-Trần Bình An trước mang mật thư thu vào trong tay áo.
+Trần Bình An cất thư vào tay áo trước.
 
-Lý Nguyên định cáo từ, dù sao người kia cũng đã nói, Trần tiên sinh ở chỗ này phải thanh tịnh tu hành, không cho phép có người quấy rầy.
+Lý Nguyên định cáo từ. Người kia đã dặn phải để Trần tiên sinh yên tĩnh tu hành, chẳng ai được quấy rầy.
 
-Thần linh Nam Huân Thủy Điện đi dạo đến tận đây, lên bờ một lát, thật ra Lý Nguyên cũng có chút chột dạ. Chỉ là nghĩ đến người trẻ tuổi này đang bung dù tản bộ, hẳn là không thuộc về hàng ngũ "Thanh tu" đúng không?
+Để thần linh Nam Huân Thủy Điện lên bờ một lát, Lý Nguyên thật ra cũng chột dạ. Nhưng người trẻ tuổi đang chống dù tản bộ, hẳn không tính là "thanh tu" đâu nhỉ?
 
-Trầm Lâm vừa đi, trên không phù thủy đảo rất nhanh khôi phục màn mưa.
+Thẩm Lâm vừa đi, mưa đã lại phủ xuống đảo Phù Thủy.
 
-Trần Bình An bung dù, Lý Nguyên cười nói: "Trần tiên sinh không cần phải để ý đến ta."
+Trần Bình An bung dù. Lý Nguyên cười: "Trần tiên sinh cứ tự nhiên."
 
-Trần Bình An muốn nói lại thôi, mình rất nhanh từ bỏ một ít ý niệm hỏi thăm.
+Trần Bình An định nói rồi thôi. Hắn nhanh chóng gạt đi mấy câu muốn hỏi.
 
-Có biết vị Thẩm phu nhân kia ở chỗ ngồi đại khái cao thấp ở Long Cung động thiên có ý nghĩa gì không? Thật sự cần nhấc một đầu sợi dây sao?
+Biết địa vị Thẩm phu nhân ở Long Cung động thiên cao thấp thế nào thì sao? Thật sự cần lần theo đầu mối ấy ư?
 
-Giống như không cần như thế.
+Dường như chẳng cần.
 
-Trên người Lý Nguyên khó có thể che giấu tuổi xế chiều, vị kim thân của Nam Huân Thủy Điện nương nương này đang ở bờ vực vỡ vụn, Trần Bình An hắn mới đến, xách lên một hai đầu dây mạch lạc chôn sâu trong nước, đã biết sự thật, nếu phù hợp hoặc là vi phạm đạo lý của mình, có phải sẽ quản một chút hay không? Ở rất nhiều chuyện ngoài thân, có thể biết điều, nhưng lại phải đi tự tìm phiền não, có phải người tu đạo hoàn toàn không để ý ngoại sự cực đoan khác hay không?
+Tuổi xế chiều của Lý Nguyên đã khó che giấu, kim thân vị nương nương Nam Huân Thủy Điện cũng sắp vỡ. Trần Bình An mới tới nơi, nếu nhấc lên một hai đầu mối chìm sâu dưới nước, khi biết sự thật rồi, bất kể có hợp đạo lý của mình hay không, liệu hắn có lại muốn nhúng tay? Nhiều chuyện ngoài thân vốn có thể biết chừng mực. Cứ tự đi tìm phiền não, liệu có phải lại rơi sang đầu cực đoan đối lập với người tu đạo hoàn toàn chẳng màng việc ngoài thân?
 
-Trần Bình An cảm thấy chỉ cần mình hiểu rõ mạch lạc căn bản này, đối với mình mà nói, chính là một hồi đại tu tâm.
+Trần Bình An nghĩ, chỉ cần hiểu rõ mấu chốt này, với mình đã là một phen tu tâm.
 
-Nghĩ như thế, thật ra Trần Bình An sẽ hâm mộ những người ngay từ đầu đã "lòng vấn đạo" cực kỳ kiên định.
+Nghĩ vậy, hắn lại hâm mộ những người có lòng vấn đạo kiên định ngay từ đầu.
 
-Nếu như không nói thiện ác thị phi, chỉ nói bản tâm.
+Nếu gác thiện ác, phải trái sang một bên, chỉ xét bản tâm.
 
-Ví dụ như Lâm Thủ Nhất liếc một cái liền nhìn trúng quyển Vân Thượng Lang Lang Thư kia.
+Chẳng hạn Lâm Thủ Nhất vừa liếc đã chọn quyển Vân Thượng Lang Lang Thư.
 
-Cùng với thiếu nữ Chu Lộc mục đích rõ ràng, làm việc quả quyết kia.
+Hay thiếu nữ Chu Lộc biết rõ mình muốn gì, làm việc quả quyết.
 
-Còn có rất nhiều người gặp gỡ.
+Còn nhiều người hắn từng gặp nữa.
 
-Bọn họ ở trên chuyện tu tâm, đều rất không dây dưa dài dòng, am hiểu chuyện phức tạp đơn giản hóa.
+Chuyện tu tâm, họ ít khi dây dưa, giỏi tìm ra chỗ đơn giản trong việc rối rắm.
 
-Lý Nguyên hỏi: "Trần tiên sinh, hình như có chút nghi ngờ?"
+Lý Nguyên hỏi: "Hình như Trần tiên sinh có chuyện băn khoăn?"
 
-Đây là nói nhảm.
+Hỏi vậy bằng thừa.
 
-Một người tu hành không có nghi kị ưu sầu, tuyệt đối sẽ không ăn no rửng mỡ, vừa ra ngoài cầm ô tản bộ, hơn nữa còn biết đi đi ngừng ngừng, tâm thần bất định, ngẫu nhiên còn sẽ cầm thêm một cây gậy leo núi, như là đang ở trên mặt đất hoặc viết chữ hoặc vẽ bùa.
+Tu sĩ không vướng bận gì nào có rảnh rỗi chống dù ra ngoài, đi một đoạn lại dừng, tâm thần bất định. Có lúc còn mang theo hành sơn trượng, tựa như viết chữ hay vẽ bùa trên đất.
 
-Trần Bình An cười nói: "Chờ quê nhà hồi âm, có chút nóng lòng, không có gì."
+Trần Bình An cười: "Đợi tin quê nhà nên hơi nóng lòng, không có gì đâu."
 
 Lý Nguyên không hỏi thêm nửa câu.
 
-Trần Bình An và Lý Nguyên chia tay, trở lại dinh thự, thu hồi dù giấy dầu tựa nghiêng ngoài cửa, mưa to còn chưa ngừng.
+Chia tay Lý Nguyên, Trần Bình An về phủ đệ, gấp dù giấy dầu tựa cạnh cửa. Mưa lớn vẫn chưa ngớt.
 
-Nhẹ nhàng đánh tan vết nước mưa trên người, sau khi vào phòng ngồi xuống.
+Hắn nhẹ nhàng giũ nước mưa trên người, vào phòng ngồi xuống.
 
-Tin tưởng Chu Liễm sẽ ở trên thư cẩn thận hồi phục tình hình gần đây của Lạc Phách Sơn, cùng với tình thế xung quanh Long Tuyền quận.
+Chắc Chu Liễm đã kể kỹ trong thư chuyện gần đây ở núi Lạc Phách và tình thế quanh quận Long Tuyền.
 
-Đương nhiên quan trọng nhất, khẳng định vẫn là chuyện nâng phúc địa Ngẫu Liên kia từ phúc địa hạ đẳng lên thành trung đẳng.
+Quan trọng nhất đương nhiên vẫn là chuyện nâng Liên Ngẫu phúc địa từ hạ đẳng lên trung đẳng.
 
-Thật ra lần đầu tiên cầm tới phong thơ hồi âm này, Trần Bình An đã biết được một tin tức vô cùng tốt.
+Thật ra vừa cầm lá thư, Trần Bình An đã biết một tin rất tốt.
 
 Ngụy Bách đã phá cảnh.
 
-Bằng không mật thư sẽ không có cấm chế núi cao chỉ thuộc về Phi Vân sơn.
+Bằng không, mật thư đâu có cấm chế núi cao chỉ Phi Vân sơn mới có.
 
-Trần Bình An chưa lập tức mở ra phong mật tín này, ngược lại đứng dậy rời khỏi phòng, đi đến dưới mái hiên, nhìn màn mưa giữa trời đất.
+Hắn chưa mở thư, lại đứng dậy ra dưới mái hiên, nhìn mưa phủ trời đất.
 
-Nhân gian trời mưa, ở nhà tránh mưa, tha hương tránh mưa, hoặc là bung dù mà đi, bằng không cũng chỉ có thể dầm mưa.
+Nhân gian đổ mưa, ở nhà thì trú trong nhà, đi xa thì tìm chỗ núp hoặc bung dù. Bằng không chỉ có dầm mưa.
 
-Trần Bình An quay đầu nhìn phía chiếc dù giấy dầu nghiêng dựa vào bên tường.
+Trần Bình An ngoảnh nhìn chiếc dù giấy dầu tựa bên tường.
 
-Có lẽ có chút đạo lý, chính là cây dù giấy dầu kia, thời gian trời quang, không cần lấy ra.
+Có lẽ có những đạo lý giống chiếc dù kia, trời quang chưa cần lấy ra.
 
-Lúc trời mưa lại đến che ô.
+Đến lúc mưa mới bung dù.
 
-Nhưng mà trong phố phường, không ai biết trời mưa lúc nào, như vậy có phải tùy thời tùy chỗ mang theo ô che mưa hay không, liền trở thành một lựa chọn khiến người ta đau đầu, mang ở trên người, ít nhiều sẽ tăng thêm gánh nặng, trên Tình Thiên Lộ, nắm ở trong tay cho người ngoài nhìn thấy, càng không thể tưởng tượng nổi.
+Nhưng người đi đường đâu biết lúc nào trời mưa. Có nên luôn mang dù hay không cũng đủ đau đầu. Mang theo thì nặng thêm đôi chút, trời quang mà cứ cầm dù, người ngoài trông thấy lại càng khó hiểu.
 
-Mà người tu đạo đi trên núi, là không cần thiết che ô tránh mưa.
+Còn người tu đạo đi trên núi chẳng cần che dù tránh mưa.
 
-Trần Bình An đưa tay gãi đầu, có chút ưu sầu.
+Trần Bình An đưa tay gãi đầu, hơi buồn rầu.
 
-Nghĩ tới nghĩ lui, ý niệm cuối cùng trong đầu hắn xoay người đi về phía phòng, đó là cảm thấy nếu như trận mưa to này, hạ chính là tiền Cốc Vũ thì tốt rồi, thật sự không được, là tiền Tuyết Hoa cũng được a.
+Nghĩ tới nghĩ lui, lúc quay về phòng hắn chỉ còn một ý nghĩ. Giá trận mưa này rơi xuống toàn tiền cốc vũ thì tốt. Không được thế, tiền tuyết hoa cũng chẳng sao.
 
-Lý Nguyên vừa đi tới biển mây không bao lâu, Thuỷ Thần nương nương Trầm Lâm đã chạy tới.
+Lý Nguyên vừa lên biển mây, thủy thần nương nương Thẩm Lâm đã đuổi tới.
 
-Hành tung của hai người ở Long Cung động thiên, chỉ cần có ý giấu diếm, cho dù là hai vị tu sĩ Nguyên Anh trấn thủ nơi đây của Thủy Long tông, cũng sẽ không có bất kỳ manh mối nào.
+Chỉ cần hai người muốn giấu hành tung trong Long Cung động thiên, ngay cả hai tu sĩ Nguyên Anh Thủy Long tông trấn thủ nơi đây cũng chẳng dò ra manh mối.
 
-Hai vị tu sĩ Ngọc Phác cảnh của Thủy Long tông, đều không lựa chọn trấn thủ căn bản tông môn này quanh năm.
+Cả hai tu sĩ Ngọc Phác cảnh của Thủy Long tông đều không chọn trấn thủ quanh năm ở nơi căn bản của tông môn.
 
-Đây là một loại kính trọng không lời nào với Thuỷ Thần Trầm Lâm và Thuỷ Thần.
+Đó là cách họ lặng lẽ tỏ lòng kính trọng hai vị thần linh, Thẩm Lâm và Lý Nguyên.
 
-Tông chủ Tôn Kết trừ Kim Lễ đạo tràng mỗi lần có quy cách cao nhất, còn lại Ngọc Đình, Hoàng Đình đạo tràng, đều sẽ không tiến vào nơi đây.
+Tông chủ Tôn Kết chỉ tới dự Kim Lễ, đạo tràng có quy cách cao nhất. Đạo tràng Ngọc Đình hay Hoàng Đình, hắn đều không vào đây.
 
-So sánh với Bắc Tông, Nam Tông Thiệu Kính Chi và Nam Huân Thủy Điện quan hệ tốt hơn, cách mỗi mấy năm đều sẽ đến tìm Trầm Lâm một lần.
+So với Bắc tông, Thiệu Kính Chi của Nam tông thân thiết với Nam Huân Thủy Điện hơn. Cứ cách mấy năm, nàng lại tới thăm Thẩm Lâm.
 
-Thần sắc Trầm Lâm phức tạp: "Lý Nguyên, ngươi không thể tùy tiện nói một câu sao?"
+Thẩm Lâm lộ vẻ phức tạp: "Lý Nguyên, ngươi không thể nói qua một câu thôi sao?"
 
 Lý Nguyên chỉ mỉm cười, không nói một lời.
 
 Cho dù đáp án là hai chữ "không thể", cũng đủ để Thẩm Lâm đoán được phương hướng đáp án chính xác.
 
-Nhưng Lý Nguyên không nói gì, từ đầu tới đuôi, ngay cả Trần tiên sinh cũng chỉ nói là một trong hai người bạn cũ, để Trầm Lâm chỉ cần xưng hô là "Trần công tử" là được, như vậy nàng không có cách nào xác định chân tướng.
+Nhưng trước sau Lý Nguyên không hé lời. Hắn chỉ bảo Trần tiên sinh là một trong hai người con cháu bạn cũ và dặn nàng cứ gọi là "Trần công tử". Thẩm Lâm chẳng sao xác định được chân tướng.
 
-Chỉ cần không xác định, vị người cũ Nam Huân Thủy Điện này, nàng làm bất cứ chuyện dư thừa gì, chính là đang cược mạng sống.
+Chừng nào chưa xác định được, vị cố nhân Nam Huân Thủy Điện chỉ cần làm thêm một việc cũng là đem mạng mình ra cược.
 
-Trầm Lâm liền đổi một biện pháp khác, dò hỏi: "Ta đi hỏi Thiệu Kính Chi một chút?"
+Thẩm Lâm đổi cách dò hỏi: "Vậy ta đi hỏi Thiệu Kính Chi?"
 
 Lý Nguyên cười nói: "Tùy tiện."
 
-Đôi mắt màu vàng của Trầm Lâm có từng tia sáng tràn ra khỏi hốc mắt, gắt gao nhìn thẳng vị đồng liêu Thủy Chính này.
+Đôi mắt vàng kim Thẩm Lâm tóe sáng, nhìn chằm chằm vị đồng liêu Thủy Chính.
 
-Lý Nguyên thần sắc tự nhiên.
+Lý Nguyên vẫn thản nhiên.
 
-Một vị thần nữ đại độc thủy chính, một vị hầu hạ hành cung nghỉ mát.
+Một người là Thủy Chính Đại Độc, một người là thần nữ hầu hạ trong hành cung tránh nóng.
 
-Thần vị hai bên đại khái tương đương, giống như là gia đình giàu có dưới núi, một gã sai vặt quản lý hương khói từ đường, một nha hoàn quản lý tạp vụ đình viện.
+Thần vị hai bên gần ngang nhau. Ví như trong nhà giàu dưới núi, một người là gã sai vặt giữ hương khói từ đường, người kia là nha hoàn lo việc trong sân.
 
-Ai cũng không quản ai, ai cũng không phải đại nhân vật không thể thiếu.
+Chẳng ai quản ai, cũng chẳng ai là đại nhân vật không thể thiếu.
 
-Một khi Trầm Lâm thật đi hỏi thăm Thiệu Kính Chi, nói nhỏ thì chỉ là chuyện nhỏ so với hạt đậu xanh mà thôi. Nếu như bị người kia biết được hành động lần này của Trầm Lâm, hơn nữa trong lòng sinh ra không vui, nhưng chính là tự mình điều tra hành tung của người kia tử tội, như vậy bộ kim thân này còn có thể kéo dài hơi tàn hai ba trăm năm Trầm Lâm, hoàn toàn không cần lo lắng kim thân của mình mục nát tan tác, tùy tiện một cái tát cũng không còn.
+Thẩm Lâm thật sự đi hỏi Thiệu Kính Chi thì nói nhẹ là chuyện nhỏ như hạt đậu xanh. Nhưng nếu người kia biết được mà không vui, tự tiện dò la hành tung của nàng sẽ thành tội chết. Kim thân Thẩm Lâm vốn còn cầm cự được hai ba trăm năm, đến lúc ấy nàng cũng chẳng cần lo nó mục nát. Chỉ một cái tát đã chẳng còn gì.
 
-Không phải Lý Nguyên không muốn giúp Thiệu Kính Chi vượt qua kiếp nạn này, mà là không dám, chính hắn cũng khó bảo toàn bản thân Nê Bồ Tát Quá Giang?
+Lý Nguyên nào chẳng muốn giúp nàng qua kiếp này, chỉ là không dám. Chính hắn còn như tượng bồ tát đất qua sông, khó giữ nổi mình.
 
-Đáp ứng nàng lên đảo Phù Thủy, Lý Nguyên đã nhét cho mình mấy viên tim gấu gan báo, hết lòng quan tâm giúp đỡ.
+Đồng ý đưa nàng lên đảo Phù Thủy, Lý Nguyên đã phải lấy hết can đảm mà giúp.
 
-Trầm Lâm cười khổ nói: "Đều nói bà con xa không bằng láng giềng gần, ngươi ta làm hàng xóm nhiều năm như vậy..."
+Thẩm Lâm cười khổ: "Người ta nói bà con xa không bằng láng giềng gần. Ngươi với ta đã làm láng giềng bao năm..."
 
-Lý Nguyên sắc mặt âm trầm, cau mày nói: "Thần nữ Trầm Lâm nghỉ hè ở Thủy Điện, ta khuyên ngươi nên có chừng mực!"
+Lý Nguyên sa sầm mặt, nhíu mày nói: "Thần nữ Thẩm Lâm của Thủy Điện tránh nóng, ta khuyên ngươi nên biết chừng mực!"
 
-Trầm Lâm trong lòng sợ hãi, đành phải hành lễ tạ lỗi.
+Thẩm Lâm sợ hãi, đành hành lễ tạ lỗi.
 
 Lý Nguyên phẩy tay áo bỏ đi.
 
-Trầm Lâm ảm đạm rời khỏi biển mây, trở về trong hồ, thi triển Ích Thủy thần thông, dẹp đường hồi phủ.
+Thẩm Lâm ảm đạm rời biển mây, trở xuống hồ, dùng thần thông rẽ nước về phủ.
 
-Đến tòa thủy điện rộng lớn như hùng thành vương triều ở đáy hồ, không có trực tiếp ngự thủy đi tới chỗ ở của nàng, mỗi một lần ra vào, đều phải đi qua cánh cửa treo tấm biển "Mưa thuận gió hòa", hơn nữa chỉ có thể đi cửa hông.
+Đến thủy điện rộng như hùng thành ở đáy hồ, nàng không ngự thủy thẳng về chỗ ở. Mỗi lần ra vào đều phải qua nơi treo tấm biển "Mưa thuận gió hòa", lại chỉ được đi cửa hông.
 
-Cánh cửa lớn kia chưa bao giờ mở ra, cho dù tông chủ Thủy Long Tông đến gặp, thậm chí là các đời gia chủ Dương thị của Đại Nguyên Vương Triều Sùng Huyền Thự, cùng với Kiếm Tiên Phù Bình Hồ đi đến tòa Thủy Phủ nguy nga này, vẫn chỉ có thể đi cửa hông.
+Cửa lớn xưa nay chưa mở. Dù là tông chủ Thủy Long tông, các đời gia chủ Dương thị của Sùng Huyền thự Đại Nguyên, hay kiếm tiên Phù Bình Kiếm Hồ tới đây, đều phải đi cửa hông.
 
-Sau khi Trầm Lâm vượt qua cửa hông, thân hình chợt lóe rồi biến mất, đi tới vườn hoa của biệt viện mình, bên trong trồng các loại kỳ hoa dị thảo, chim tước quý hiếm xuyên qua bụi hoa, đầu cành kêu to kia càng sớm tuyệt diệt ở Hạo Nhiên Thiên Hạ.
+Qua cửa hông, Thẩm Lâm thoáng cái đã vào vườn hoa biệt viện. Trong vườn trồng đầy kỳ hoa dị thảo, chim quý luồn qua bụi hoa, ríu rít trên cành. Những giống chim ấy đã tuyệt tích từ lâu ở Hạo Nhiên thiên hạ.
 
-Có một vị thần nữ hiện thân bẩm báo, "Nương nương, Nam Tông Thiệu Kính Chi đăng môn bái phỏng, gặp hay là không gặp?"
+Một thần nữ hiện thân bẩm báo: "Nương nương, Thiệu Kính Chi của Nam tông đến thăm. Người có tiếp không?"
 
-Trầm Lâm do dự một phen, lắc đầu nói: "Cứ nói ta đang bế quan, không tiện tiếp khách."
+Thẩm Lâm do dự rồi lắc đầu: "Cứ nói ta đang bế quan, không tiện tiếp khách."
 
-Khi Trầm Lâm cự tuyệt Thiệu Kính Chi.
+Trong lúc Thẩm Lâm từ chối gặp Thiệu Kính Chi,
 
-Lý Nguyên càng thêm tiêu diêu tự tại, thi triển thủ thuật che mắt, thay đổi khuôn mặt, biến thành một vị thiếu niên áo vàng khuôn mặt phổ thông, xuất hiện ở trên bậc thang bạch ngọc kia, chậm rãi xuống núi, qua cửa thành, bước đi đến tửu lâu trên cầu mua rượu uống.
+Lý Nguyên càng thêm ung dung. Hắn dùng thuật che mắt, biến thành một thiếu niên áo vàng có dung mạo bình thường. Hiện thân trên bậc thang bạch ngọc, hắn thong thả xuống núi, qua cửa thành rồi tới tửu lâu trên cầu mua rượu.
 
-Không đi lầu năm, ở sảnh lớn lầu một bên kia tùy tiện chọn một chỗ ngồi, bởi vì náo nhiệt hơn. Bởi vì hai tràng pháp sự đều đã chấm dứt, cho nên so với Trần Bình An lúc trước uống rượu thì người kín chỗ hết chỗ, bàn rượu khó tìm, còn cần ngồi xuống bàn, lúc này chỗ trống sẽ nhiều ra không ít, Lý Nguyên ở Long cung động thiên cùng trên Đại Độc kiều, qua lại tự nhiên, dù sao đều là tế độc địa giới, chẳng qua sau khi Thủy Long tông khai sơn, tiểu luyện tòa Tế Độc Trung Từ kia, Lý Nguyên trừ trấn thủ động thiên, nhiều nhất chính là đi ra khỏi động thiên, mỗi lần đều phải thay đổi dung mạo trang phục, đi lại ở trên cầu dài này, đi thẳng đến cầu dài cũng không nhiều lần.
+Hắn chẳng lên lầu năm, chỉ tùy ý chọn chỗ ở sảnh tầng một vì nơi ấy náo nhiệt hơn. Hai buổi pháp sự đều đã xong, ghế trống cũng nhiều, chẳng như lúc Trần Bình An đến uống rượu, chật kín người, tìm bàn khó đến nỗi phải ngồi ghép. Long Cung động thiên và cầu Đại Độc đều thuộc địa giới Tế Độc, Lý Nguyên qua lại tự nhiên. Chỉ là từ khi Thủy Long tông khai sơn, tiểu luyện Trung Từ Tế Độc, ngoài trấn thủ động thiên, nhiều lắm hắn chỉ ra cầu dài dạo một lượt. Lần nào cũng phải đổi dung mạo, thay trang phục, mà số lần đi hết cầu cũng chẳng nhiều.
 
-Phụng công giữ chức vụ mấy trăm mấy ngàn năm, cho dù làm một vạn năm, cũng chỉ xem như là chuyện trong phận, không tuân thủ một số quy củ nào đó, cho dù chỉ có một lần, đối với thần linh sơn thủy phẩm trật như hắn mà nói, có lẽ sẽ là một hồi tai ương không thể cứu chữa.
+Cẩn thận giữ chức mấy trăm, mấy ngàn năm, dẫu đủ một vạn năm cũng chỉ là làm tròn phận sự. Còn một số quy củ, đối với thần linh sơn thủy phẩm trật như hắn, chỉ cần phạm một lần cũng có thể chuốc tai ương không cứu vãn được.
 
-Bây giờ kim thân của Trầm Lâm sắp sụp đổ, còn có một tia muốn đánh vỡ quy củ, liều chết duy trì thần vị mánh khóe, Lý Nguyên thật sự không đành lòng nhìn.
+Kim thân Thẩm Lâm đã sắp vỡ, nàng lại có ý liều phá quy củ để giữ thần vị. Lý Nguyên thật sự không đành nhìn.
 
-Thật ra sau khi Lý Nguyên gặp lại người kia kiếp này, cũng đã hoàn toàn hết hy vọng, không còn nửa điểm may mắn.
+Từ lúc gặp lại người kia ở đời này, Lý Nguyên đã hết hy vọng, chẳng còn trông mong gì nữa.
 
-Bởi vì hắn rốt cuộc có thể xác định, Thủy Chính Lý Nguyên cũng tốt, Nam Huân Thủy Điện Trầm Lâm cũng thế, bọn họ sinh sinh tử tử, tất cả kim thân thần linh sụp đổ, người nọ căn bản không ngại.
+Hắn đã biết chắc, dù Thủy Chính Lý Nguyên hay Thẩm Lâm của Nam Huân Thủy Điện sống hay chết, kim thân thần linh còn hay vỡ, người ấy cũng chẳng để tâm.
 
-Đây cũng là nguyên nhân Lý Nguyên không nhắc nhở Trầm Lâm nhiều, nếu người nọ đã không quan tâm đến việc đi ở lại với toàn bộ dòng sông của động thiên Long Cung và Tế Độc, có phải Trầm Lâm lén lút vượt qua lôi trì, cũng sẽ không quan tâm hay không?
+Bởi thế Lý Nguyên không khuyên Thẩm Lâm thêm. Người kia đã chẳng quan tâm đến Long Cung động thiên cùng cả dòng Tế Độc, liệu nàng có để ý nếu Thẩm Lâm lén vượt giới hạn không?
 
-Vạn nhất Trầm Lâm đánh bậy đánh bạ làm thành công cho nàng, có phải ý nghĩa Lý Nguyên hắn cũng có thể giống như hồ lô vẽ gáo, tu sửa kim thân, kéo dài tính mạng cho mình hay không?
+Nếu Thẩm Lâm tình cờ làm được, liệu Lý Nguyên có thể theo cách ấy mà tu sửa kim thân, kéo dài tính mạng?
 
-Thật ra Lý Nguyên không thích cảm giác tồi tệ đến cực điểm này.
+Lý Nguyên thật sự chán ghét cảm giác ấy.
 
-Cho nên hắn mới nghĩ đến quán rượu tràn đầy khói lửa nhân gian bên này, uống rượu giải sầu.
+Cho nên hắn mới tới quán rượu đượm hơi người này, uống rượu giải sầu.
 
-Lý Nguyên không biết vị Trần tiên sinh kia đang lo lắng chuyện gì ở đảo Phù Thủy, cần phải lần lượt mưa, bung dù tản bộ. Dù sao Lý Nguyên cũng cảm thấy mình, dù sao thì một trận mưa ở động thiên Long Cung cũng là rượu, uống sạch cũng không đổ được tất cả sầu.
+Hắn chẳng biết Trần tiên sinh ở đảo Phù Thủy có chuyện gì mà mỗi lần mưa xuống lại chống dù đi dạo. Còn hắn, dẫu một trận mưa ở Long Cung động thiên toàn là rượu, uống cạn cũng chẳng giải hết sầu.
 
-Huống chi thần linh thế gian uống rượu, vô luận là phố phường rượu, hay là tiên gia tửu nhưỡng, đều là uống không say.
+Huống chi thần linh ở đời uống rượu phố phường hay rượu tiên gia, đều chẳng thể say.
 
-Lý Nguyên muốn cố nặn ra một giọt nước mắt, để thương hại bản thân, cũng không làm được.
+Lý Nguyên muốn nặn ra một giọt nước mắt để thương lấy mình, cũng chẳng được.
 
-Liền bắt đầu uống canh ba, bắt đầu hai tay vỗ mặt bàn, gào lên.
+Hắn bèn uống rượu Canh Ba, hai tay đập bàn, gào lên.
 
-Tựa như là thiếu niên lang say mèm nhân gian tửu lượng không đủ.
+Hệt một thiếu niên nhân gian tửu lượng kém, đã say mèm.
 
 Cách đó không xa có khách uống rượu giận dữ hét: "Thằng nhóc, làm ầm ĩ chết người, nhanh câm miệng cho đại gia!"
 
-Lý Nguyên lau mặt, ủy khuất quay đầu nhìn lại, bàn tay nhẹ nhàng quẹt qua lại trên bàn rượu: "Lúc này tâm tình ta không tốt, gào vài tiếng thì làm sao."
+Lý Nguyên lau mặt, tủi thân ngoảnh lại, bàn tay khẽ quệt qua quệt lại trên bàn: "Ta đang buồn. Gào mấy tiếng thì sao?"
 
-Hán tử kia cười khẩy nói: "Ầm ĩ đến nhã hứng uống rượu của lão tử, tiểu tử ngươi tự mình nói có phải thiếu đánh hay không?"
+Hán tử cười khẩy: "Quấy rầy hứng uống rượu của lão tử, ngươi tự nói xem có đáng ăn đòn không?"
 
 Lý Nguyên giơ hai tay lên, xoa xoa hai má.
 
-Hắn định đưa tên này vào Tế Độc, không uống rượu, đổi nước, còn không cần tiền.
+Hắn định ném tên này xuống Tế Độc. Khỏi uống rượu, đổi sang uống nước, lại chẳng tốn tiền.
 
-Nhưng vào lúc này, trên lầu vừa vặn đi xuống một vị lão nhân cùng nữ tu trẻ tuổi, người sau bên hông huyền phối ngọc bài đích truyền tổ sư đường Thủy Long tông.
+Vừa lúc ấy, một lão nhân và một nữ tu trẻ tuổi từ trên lầu đi xuống. Bên hông nữ tu đeo ngọc bài đích truyền tổ sư đường Thủy Long tông.
 
 Lão nhân nhìn phía hán tử kia, cười nói: "Đừng ồn ào, tổn thương hòa khí."
 
-Hán tử kia cả giận nói: "Lão nhân ngươi là cái thá gì?!"
+Hán tử nổi giận: "Lão già, ngươi là cái thá gì?"
 
-Lão nhân cười ha ha nói: "Ta chính là người thanh toán tiền, hôm nay toàn bộ rượu của khách ở lầu một, lão đầu nhi ta đến trả tiền, coi như là mọi người nể mặt, nể mặt Hoàn Vân ta một chút."
+Lão nhân cười ha hả: "Ta là người trả tiền. Hôm nay rượu của khách tầng một cứ để lão già này trả, coi như mọi người nể mặt Hoàn Vân ta."
 
-Hán tử kia nhất thời im lặng, đứng dậy ôm quyền nói: "Thì ra là Hoàn lão chân nhân, thất kính thất kính!"
+Hán tử im bặt, vội đứng lên ôm quyền: "Thì ra là Hoàn lão chân nhân. Thất kính, thất kính!"
 
-Hoàn Vân ôm quyền hoàn lễ, đi xuống cầu thang, vẫn tính tiền cho tất cả khách uống rượu, nhất thời vang lên tiếng ủng hộ cả sảnh đường.
+Hoàn Vân ôm quyền đáp lễ, xuống cầu thang rồi trả tiền rượu cho mọi người. Cả sảnh lập tức vang tiếng reo hò.
 
-Lúc trước Lý Nguyên liếc nhìn lão nhân, là một vị Kim Đan lão Địa tiên bình cảnh buông lỏng, bên cạnh là một cô gái trẻ tuổi vừa mới chen thân Kim Đan, nếu nhớ không lầm, hình như gọi là Bạch Bích, tương đối được tông chủ Tôn kết khí. Cô gái nhỏ này vận khí không tệ, cũng khó trách Tôn Kết Hội dốc sức tài bồi, Tôn Kết khăng khăng muốn tặng tấm Thốn Kim Phù cung phụng Nguyên Anh cho đệ tử đích truyền, cho dù là chiếm đại nghĩa tông môn của Bạch Bích tễ thân Kim Đan Khách, vẫn rất có hiềm nghi trong việc kiếm lời riêng tư, ở Tổ Sư Đường bên kia, hai tông nam bắc, huyên náo rất không thoải mái, nhất là Thiệu Kính Chi không quá ở ngoài sáng cùng Tôn Kết Đỉnh châm, cũng khó được nói mấy câu nặng. Lúc ấy là chủ nhân chân chính của tổ sư đường Thủy Long Tông, Lý Nguyên trốn ở bên trong một bức tranh treo tượng tổ tông, vụng trộm xem náo nhiệt, rất hăng hái.
+Lý Nguyên đã liếc lão nhân lúc nãy. Đó là một lão Địa tiên Kim Đan có bình cảnh đã buông lỏng. Nữ tu bên cạnh mới vào Kim Đan cảnh, nếu hắn nhớ không lầm thì tên Bạch Bích, được tông chủ Tôn Kết coi trọng. Vận nàng chẳng tệ, chẳng trách Tôn Kết dốc sức bồi dưỡng. Tông chủ nhất quyết tặng tấm Thốn Kim phù của cung phụng Nguyên Anh cho đệ tử đích truyền. Dù có thể viện lẽ Bạch Bích vừa thành Kim Đan khách, vẫn khó tránh hiềm nghi tư lợi. Hai tông nam bắc đã cãi nhau không vui trong tổ sư đường. Ngay cả Thiệu Kính Chi vốn ít khi công khai đối đầu với Tôn Kết cũng hiếm hoi buông mấy lời nặng. Khi ấy, Lý Nguyên là chủ nhân thật sự của tổ sư đường, nấp trong bức chân dung tổ tông treo trên tường, lén xem náo nhiệt rất hăng hái.
 
-Kỳ thật Tôn Kết xem như một người làm đương gia rất không tệ.
+Thật ra Tôn Kết là người đương gia khá giỏi.
 
-Đối đãi hai tông nam bắc, một bát nước công bằng.
+Hắn đối đãi với Nam tông và Bắc tông hết sức công bằng.
 
-Nhưng vừa vặn như thế, liền thành một loại căn nguyên khác khiến lòng người bất bình.
+Nhưng chính chuyện ấy lại thành một mối bất bình khác.
 
-Nếu Tôn Kết lột da mặt, một mặt thiên vị đệ tử Bắc Tông, ngược lại không có nhiều hoạt động chướng khí mù mịt như vậy.
+Nếu Tôn Kết bất chấp thể diện, nhất mực thiên vị đệ tử Bắc tông, có khi chẳng nảy ra lắm chuyện chướng tai gai mắt đến vậy.
 
 Lại sớm quyết định chọn người thừa kế đời tông chủ tiếp theo của Thủy Long Tông, quyết tâm tiếp tục kéo dài quy củ bắc khinh nam, xem Thiệu Kính Chi và Nam Tông nàng có thể gian nan hay không, cuối cùng không thể không cúi đầu nhận mệnh?
 
-Quá dễ nói chuyện, quá biết công bằng.
+Quá dễ nói chuyện, lại quá muốn công bằng.
 
-Chính là mấu chốt Tôn Kết khó có thể chân chính phục chúng.
+Ấy chính là lý do Tôn Kết khó khiến mọi người thật lòng phục mình.
 
 Bằng không Tổ Sư Đường bên kia, cùng với Nam Tông Thiệu Kính Chi ở một hàng ghế ngồi cung phụng, khách khanh, sớm đã có hai ba người trong đó ngồi đến Bắc Tông.
 
@@ -412,216 +412,216 @@ Bằng không Tổ Sư Đường bên kia, cùng với Nam Tông Thiệu Kính C
 
 Lúc này Lý Nguyên đang vùi đầu uống rượu.
 
-Hoàn Vân và Bạch Bích cũng không có đến làm phiền hắn, rất chi là quan trọng.
+Hoàn Vân và Bạch Bích biết ý, không đến quấy rầy.
 
-Rời khỏi tửu lâu, Bạch Bích và Hoàn Vân đi đến một đầu cầu dài, Bạch Bích nhẹ giọng cười nói: "Lão Chân Nhân, tuy ta chen thân Kim Đan cảnh, nhưng thời gian không nhiều, tư chất còn thấp, chưa một mình mở ra phủ đệ, hy vọng lần sau lão Chân Nhân đến tông môn chúng ta, vãn bối đã có thể ở trong Long cung động thiên chiếm cứ một tòa đảo nhỏ nào đó, đến lúc đó nhất định khoản đãi lão Chân nhân thật tốt."
+Rời tửu lâu, Bạch Bích và Hoàn Vân đi tới một đầu cầu dài. Nàng nhẹ giọng cười: "Vãn bối mới vào Kim Đan cảnh chưa lâu, tư chất lại thấp, chưa được mở phủ đệ riêng. Mong lần sau lão chân nhân đến tông môn, vãn bối đã có một đảo nhỏ trong Long Cung động thiên để đón tiếp lão chân nhân cho tử tế."
 
-Hoàn Vân cười nói: "Bạch đạo hữu chỉ cần xác định có thể mở phủ đệ ở đảo nhỏ động thiên kia, có thể gửi thư trước cho ta, ta sẽ tự mình chạy tới chúc mừng."
+Hoàn Vân cười: "Khi nào Bạch đạo hữu biết chắc sẽ được mở phủ trên đảo, cứ gửi thư cho ta. Ta sẽ đích thân tới chúc mừng."
 
-Bạch Bích cười gật đầu, chắp tay với vị lão chân nhân đạo môn này, "Đại ân không lời nào cảm tạ hết được."
+Bạch Bích mỉm cười gật đầu, chắp tay với lão chân nhân: "Đại ân này, lời cảm tạ chẳng nói hết được."
 
-Hoàn Vân có chút cảm khái, đáp lễ, "Tu hành không dễ, ta và ngươi cùng nỗ lực."
+Hoàn Vân thoáng cảm khái, đáp lễ: "Tu hành chẳng dễ. Ta với ngươi cùng cố gắng."
 
 Trở thành Kim Đan khách, chính là người của chúng ta.
 
-Hoàn Vân chỉ cần không phải là tu sĩ Nguyên Anh kỳ, thì bất luận tuổi tác cách xa như thế nào, thì cùng vị đích truyền trẻ tuổi của Thủy Long tông này chính là đạo hữu cùng thế hệ.
+Chừng nào Hoàn Vân chưa vào Nguyên Anh cảnh, tuổi tác cách xa bao nhiêu, lão và vị đích truyền trẻ tuổi này vẫn là đạo hữu cùng thế hệ.
 
-Bạch Bích không cố ý ân cần, chỉ nhìn theo lão chân nhân đi xuống cầu, sau đó rời đi.
+Bạch Bích chẳng cố tỏ ra ân cần. Nàng chỉ nhìn theo lão chân nhân xuống cầu, rồi mới rời đi.
 
-Nhưng mà lòng cảm kích của vị Kim Đan Địa Tiên trẻ tuổi này, phát ra từ phế phủ.
+Nhưng lòng cảm kích của vị Kim Đan Địa tiên trẻ tuổi ấy là thật.
 
-Nàng thật ra ở sau khi quay về Thủy Long tông, cũng có chút hối hận, không sớm thương nghị chuyện kết thúc cùng Hoàn Vân, cho dù cần nàng xuất ra một phần trọng lễ, Bạch Bích cũng sẽ không có bất cứ do dự gì. Miễn cho Nam tông bên kia mượn cơ hội này, ý không ở rượu, chèn ép tiền đồ của nàng ở Thủy Long tông, còn liên lụy tông chủ sư phụ.
+Về Thủy Long tông rồi, nàng cũng có chút hối hận vì chưa sớm bàn với Hoàn Vân cách thu xếp việc ấy. Dẫu phải bỏ một món trọng lễ, Bạch Bích cũng chẳng do dự, miễn Nam tông không nhân cơ hội kiếm cớ chèn ép tiền đồ của nàng, lại còn liên lụy sư phụ.
 
 Ví dụ như Võ Linh đình xuất thân dã tu kia, là cung phụng của Thủy Long tông, thật ra thì càng là cung phụng Bắc tông, thiếu chút nữa bởi vì việc này mà mang cái ghế của Tổ sư đường kia dời đến đối diện.
 
 Sư phụ cũng căm tức không thôi.
 
-May mà có một thôn nữa trong bóng tối.
+May mà đến chỗ tưởng bế tắc lại có lối ra.
 
-Bạch Bích làm sao cũng không nghĩ tới, dưới điều kiện tiên quyết song phương không có bất kỳ giao dịch nào, Hoàn Vân sẽ nguyện ý nói cho nàng biết lời công đạo, chẳng những đưa than sưởi ấm trong ngày tuyết rơi, giúp mình rửa sạch tất cả hiềm nghi ở tông môn bên này, còn dệt hoa trên gấm cho mình, khiến cho trong quá trình nàng ở di chỉ rèn luyện, trở thành một người làm việc cẩn thận, lão luyện thành thục, nên nói, vô luận thật giả, Hoàn Vân ở tổ sư đường Thủy Long Tông bên kia, cũng nói, không nên nói, lão chân nhân không nhắc tới một chữ.
+Bạch Bích chẳng ngờ hai bên chưa hề giao dịch gì, Hoàn Vân vẫn sẵn lòng nói lời công đạo cho nàng. Lão chẳng những đưa than ngày tuyết, gột sạch mọi hiềm nghi trong tông môn, mà còn dệt hoa trên gấm, khiến mọi người thấy nàng là người thận trọng, chín chắn trong chuyến rèn luyện ở di chỉ. Những gì nên nói, thật hay giả, lão đều nói trong tổ sư đường Thủy Long tông. Những gì không nên nói, lão chẳng nhắc một chữ.
 
-Cho nên Bạch Bích nghe sư phụ như trút được gánh nặng, sau khi nghe được việc này, đều có chút khiếp sợ, vẻ mặt không thể tưởng tượng nổi.
+Ngay cả Tôn Kết nghe xong cũng vừa nhẹ nhõm, vừa kinh ngạc đến khó tin.
 
-Tôn Kết lúc ấy không nói gì nhiều, chỉ bảo đệ tử Bạch Bích quý trọng phần thiện duyên không dễ có được trên núi.
+Tôn Kết không nói nhiều, chỉ dặn Bạch Bích quý trọng phần thiện duyên khó có được trên núi.
 
-Sau đó nghe nói Hoàn Vân đã là cung phụng trên danh nghĩa của Vân Thượng Thành, Tôn Kết lại không thể không nhắc nhở Bạch Bích không có đủ kinh nghiệm, nếu có cơ hội, có thể không lộ dấu vết mà trở về Phù Lục Quốc một chuyến, lại "Thuận tiện" đi Vân Thượng Thành, dù sao thành chủ Thẩm Chấn Trạch kia cũng là một vị Kim Đan Địa Tiên.
+Về sau nghe Hoàn Vân đã là cung phụng trên danh nghĩa của Vân Thượng thành, Tôn Kết lại nhắc Bạch Bích còn ít kinh nghiệm rằng nếu có dịp, cứ kín đáo trở về Phù Cừ quốc một chuyến rồi "tiện đường" ghé Vân Thượng thành. Dù sao thành chủ Thẩm Chấn Trạch cũng là một vị Kim Đan Địa tiên.
 
-Bạch Bích ghi nhớ từng cái.
+Bạch Bích ghi nhớ từng lời.
 
-Cho nên lần thịnh tình mời Hoàn Vân du lịch sơn thủy ở Bắc Đình quốc, đến Thủy Long tông làm khách.
+Bởi thế lần này nàng mới hết lòng mời Hoàn Vân đang du lịch sơn thủy Bắc Đình quốc tới Thủy Long tông làm khách.
 
-Sau khi Hoàn Vân biết được nàng chưa khai phủ ở đảo thì càng chú ý hơn, lão chân nhân nói mình ở bên ngoài đã lâu, cần lập tức chạy về đỉnh núi.
+Hoàn Vân biết nàng chưa được mở phủ trên đảo, lại càng lưu tâm. Lão chân nhân nói đã ở ngoài lâu rồi, cần sớm về núi.
 
-Vì thế liền có cuộc đối thoại của hai vị Kim Đan Địa tiên ở đầu cầu phía sau.
+Thế mới có cuộc trò chuyện của hai vị Kim Đan Địa tiên bên đầu cầu.
 
-Những thứ này đều là bản lĩnh xử thế, đều là công phu nhân xử thế mà sư phụ và người truyền đạo đều không dạy được, cũng sẽ không tận lực truyền thụ cho hắn.
+Đó đều là cách đối nhân xử thế mà sư phụ hay người truyền đạo cũng chẳng dạy được, càng chẳng cố ý truyền cho nàng.
 
-Bạch Bích đứng một mình ở đầu cầu, cảm xúc rất nhiều.
+Bạch Bích đứng một mình ở đầu cầu, trong lòng nhiều cảm xúc.
 
 Trước kia luôn si mê câu kim khoa ngọc luật trên núi: Không bỏ xuống được chuyện thế gian, không làm được người trên núi.
 
 Hiện giờ xem ra, trên núi tu đạo, bốn phía bên người cao cao thấp, trên núi các nơi, không phải cũng còn có nhiều người tu đạo như vậy sao? Đại khái cái gọi là buông bỏ mặc kệ, thì ra không phải toàn bộ không so đo, con đường tắt làm theo ý mình.
 
-Lý Nguyên nằm sấp trên lan can cầu, cách đầu cầu hơn trăm dặm lộ trình, lại có thể rõ ràng trông thấy bóng lưng vị nữ tu Kim Đan trẻ tuổi kia, cảm thấy tư chất của nàng thật ra không tệ.
+Lý Nguyên tựa người trên lan can, cách đầu cầu hơn trăm dặm mà vẫn thấy rõ bóng lưng vị nữ tu Kim Đan trẻ tuổi. Hắn nghĩ tư chất nàng thật ra chẳng tệ.
 
 Lý Nguyên nghe thấy sau lưng có người la lớn: "Thằng ranh con!"
 
-Lý Nguyên quay đầu đi, hán tử kia cười ném một bầu rượu qua: "Bầu rượu canh ba này là do chính lão tử bỏ tiền túi ra mua đấy, sau này mẹ nó đừng ở trong quán rượu gào khóc thảm thiết, một đại lão gia cũng không ngại khó coi!"
+Lý Nguyên ngoảnh đầu. Hán tử cười, ném sang một bầu rượu: "Bầu Canh Ba này là lão tử tự bỏ tiền mua. Sau này đừng vào quán rượu mà gào khóc nữa. Hán tử lớn từng ấy rồi, không thấy khó coi sao?"
 
-Lý Nguyên cười tủm tỉm ôm lấy bầu rượu, cúi đầu khom lưng, cao giọng nói: "Tạ vị đại gia này, đại gia đi thong thả."
+Lý Nguyên cười tủm tỉm ôm bầu rượu, cúi người nói lớn: "Đa tạ đại gia. Đại gia đi thong thả!"
 
-Hán tử kia sửng sốt một chút, cười mắng vài câu, nhanh chân rời khỏi.
+Hán tử ngẩn ra, cười mắng mấy câu rồi nhanh chân đi mất.
 
-Lý Nguyên vừa đi vừa uống rượu, tâm tình tốt lên đôi chút.
+Lý Nguyên vừa đi vừa uống, tâm tình khá hơn đôi chút.
 
-Hoàn Vân không ngồi độ thuyền hoặc ngự phong đi xa, mà chậm rãi đi dọc theo con Tế Độc Đại Thủy.
+Hoàn Vân chẳng đi thuyền, cũng chẳng ngự phong, chỉ thong thả men theo dòng Tế Độc.
 
 Ở Vân Thượng Thành, hắn đã từng đi theo một người trẻ tuổi để tay lên ngực.
 
-Đối phương nói một vài đạo lý nhìn như trống rỗng.
+Đối phương từng nói mấy đạo lý nghe như viển vông.
 
-Nói cái kia có chút học vấn, là thủy mạch, chậm rãi lưu chuyển, giúp người thuận thế mà làm, đi được ổn định.
+Có học vấn giống mạch nước, chậm rãi lưu chuyển, giúp người thuận thế mà đi cho vững.
 
-Cũng nói có chút học vấn, là chân núi, thế sự vô thường, bản tâm không chút sứt mẻ, lập được tức đứng vững.
+Có học vấn lại giống chân núi, thế sự đổi thay vẫn giữ được bản tâm nguyên vẹn, đứng đã vững thì chẳng lung lay.
 
-Cả hai đều là hiếu học, nhưng thế sự khó ở hai bên phải thường xuyên đánh nhau, đánh cho mặt mũi bầm dập, đầu rơi máu chảy, thậm chí liền như vậy tự mình đánh chết mình.
+Cả hai đều là học vấn tốt. Cái khó ở đời là chúng thường đánh nhau, đánh đến mặt mũi bầm dập, đầu rơi máu chảy, có khi tự đánh chết mình.
 
-Hoàn Vân nghe được, bởi vì trong lần đi tầm bảo trắc trở bất trắc đó, vị lão chân nhân này đã chịu đủ đau khổ cho trận này.
+Hoàn Vân nghe lọt tai, bởi trong chuyến tìm bảo vật đầy trắc trở kia, lão đã chịu đủ khổ vì chuyện ấy.
 
-Hoàn Vân hắn có phải người tốt hay không, đương nhiên, không chỉ là người khác công nhận như thế, trong lòng Hoàn Vân hắn luôn luôn tự nhận coi như người tốt.
+Hoàn Vân có phải người tốt không? Đương nhiên. Người ngoài công nhận, mà chính lão xưa nay cũng tự xem mình là người tốt.
 
-Bằng không hắn sẽ không đi một lần như Vân Thượng Thành, vì thế Thẩm Chấn Trạch vô vọng sinh Nguyên Anh, hỗ trợ gào to trợ uy, cuối cùng còn phải đáp ứng làm Từ Hạnh Tửu, Triệu Thanh Hạm hộ đạo.
+Bằng không lão đâu đã tới Vân Thượng thành lên tiếng trợ uy cho Thẩm Chấn Trạch, người vốn vô vọng bước vào Nguyên Anh, rồi nhận lời hộ đạo cho Từ Hạnh Tửu và Triệu Thanh Hạm.
 
-Người tốt có thể phạm sai lầm hay không? Đương nhiên là biết, đầu tiên là trọng bảo bày ở trước mắt, cuối cùng còn phải tăng thêm thanh danh cả đời tích góp, Hoàn Vân hắn thật ra đã vi phạm lương tri cùng bản tâm, dứt khoát muốn giết người đoạt bảo, lấy danh dự làm trọng, tạo ra sai lầm lớn.
+Người tốt có phạm sai lầm không? Đương nhiên có. Trọng bảo bày ngay trước mắt, lại thêm thanh danh cả đời tích góp, Hoàn Vân thật ra đã làm trái lương tri và bản tâm, suýt quyết giết người đoạt bảo để giữ thanh danh, phạm một sai lầm lớn.
 
-Nhiều khi, giống như chỉ kém một chút, sẽ tạo ra thị phi đúng sai, thiện ác khác biệt một trời một vực.
+Nhiều lúc chỉ sai lệch một chút, đúng sai, thiện ác đã cách nhau một trời một vực.
 
-Trong màn đêm, trời cao trăng sáng.
+Đêm xuống, trời cao trăng sáng.
 
-Hoàn Vân hít sâu một hơi, chỉ cảm thấy vui vẻ thoải mái.
+Hoàn Vân hít sâu một hơi, thấy lòng thư thái.
 
-Cũng không biết vị kiếm tiên trẻ tuổi kia, rộng lượng như thế, có thể có cửa ải tâm lý khó có thể vượt qua hay không?
+Không biết vị kiếm tiên trẻ tuổi rộng lượng kia có cửa ải nào trong lòng khó vượt qua chăng?
 
-Nếu thật sự có, chẳng phải là lạch trời sao?
+Nếu thật sự có, chẳng phải sẽ khó vượt như hào trời sao?
 
-Hoàn Vân chỉ có thể hy vọng người nọ có thể qua cầu vượt nước, lên núi trải đường, mưa gió không lo.
+Hoàn Vân chỉ mong người ấy gặp nước có cầu, lên núi có đường, mưa gió chẳng phải lo.
 
-Tới gần một nơi yên tĩnh của Thủy Long Tông.
+Gần một nơi yên tĩnh ở Thủy Long tông,
 
-Một vị lão đạo nhân đưa tay nâng đạo sĩ trẻ tuổi bên người.
+một lão đạo nhân đưa tay đỡ đạo sĩ trẻ bên cạnh.
 
-Thanh niên đạo sĩ đeo kiếm lung lay sắp đổ, sau đó vẻ mặt ý cười, cao hứng bừng bừng nói: "Sư phụ, sao hôm nay con không buồn nôn chút nào vậy?"
+Đạo sĩ trẻ đeo kiếm còn đứng không vững, vậy mà đã tươi cười hỏi: "Sư phụ, sao hôm nay con chẳng buồn nôn chút nào?"
 
 Lão đạo nhân nghiêm trang nói: "Khẳng định là tu vi kiến trưởng, nếu trở về nằm úp sấp ở Địa Phong, các sư huynh kia của ngươi khẳng định phải khen ngươi vài câu."
 
-Đạo sĩ trẻ tuổi vẻ mặt hoài nghi, "Sư phụ ngươi nói câu thật lòng."
+Đạo sĩ trẻ ngờ vực: "Sư phụ nói thật đi."
 
-Lão đạo nhân lúc này mới nói: "Dù sao sư phụ cũng giao hữu rộng khắp, đoạn đường này tuy rằng đi nhanh, vẫn khó tránh khỏi vừa đi vừa nghỉ, chỉ có lần này là gần nhất."
+Lão đạo nhân bấy giờ mới đáp: "Sư phụ giao du rộng, dù đi nhanh vẫn phải dừng chân mấy lần. Đoạn vừa rồi ngắn nhất."
 
-Đạo nhân trẻ tuổi thầm oán nói: "Sư phụ người không biết nói chuyện như vậy, trách không được bằng hữu trên núi, mỗi lần thấy sư phụ lão nhân gia người đến nhà, ai nấy cũng chưa bao giờ nguyện ý mời người lên núi ngồi một chút. Ta có thể thấy rõ ràng, lúc bọn họ nói chuyện phiếm cùng sư phụ, cũng đều khách khí đến không giống bằng hữu, sư phụ, sau này người xuống núi còn như vậy, thật không thành."
+Đạo sĩ trẻ làu bàu: "Sư phụ chẳng biết nói chuyện gì cả. Bảo sao bằng hữu trên núi thấy người đến nhà mà chẳng ai mời lên ngồi. Con thấy rõ, họ trò chuyện với sư phụ khách khí đến chẳng giống bằng hữu. Lần sau xuống núi, người cứ vậy thì không được đâu."
 
-Hỏa Long Chân Nhân gật đầu nói: "Trong chuyện kết giao bằng hữu, sư phụ không quá am hiểu."
+Hỏa Long chân nhân gật đầu: "Chuyện kết giao bằng hữu, sư phụ không thạo lắm."
 
-Trương Sơn Phong nhìn sư phụ, không nói chuyện.
+Trương Sơn Phong nhìn sư phụ, chẳng nói gì.
 
-Lão chân nhân đành phải gật đầu lần nữa, "Chuyện tu hành, cũng không quá chịu được."
+Lão chân nhân đành gật đầu thêm lần nữa: "Tu hành cũng chẳng giỏi lắm."
 
-Trương Sơn Phong cười nói: "Không có việc gì, đạo pháp của sư phụ không cao, đệ tử cũng không khá hơn chút nào."
+Trương Sơn Phong cười: "Không sao. Đạo pháp sư phụ chưa cao, đệ tử cũng đâu khá hơn."
 
-Trương Sơn Phong lắc đầu nhìn xung quanh, lại cười nói: "Sư phụ, một tiên gia lớn như Thủy Long tông, không có bằng hữu chứ?"
+Trương Sơn Phong nhìn quanh, cười hỏi: "Sư phụ, tiên gia lớn như Thủy Long tông, ở đây người không có bằng hữu chứ?"
 
-Chỉ có nơi này, bởi vì là mục đích chuyến này, cho nên sư phụ đã đề cập rõ ràng tên, nói bạn của hắn Trần Bình An gần đây hẳn là ở phụ cận. Về phần hai thầy trò còn lại dừng lại ở núi cao đầm nước, tiên gia phủ đệ, Trương Sơn Phong dù sao cũng không nhận ra.
+Chỉ nơi này là đích đến nên sư phụ mới nói rõ tên, bảo bằng hữu của hắn là Trần Bình An gần đây hẳn ở quanh đây. Còn những núi cao, đầm sâu và phủ đệ tiên gia mà hai thầy trò từng ghé qua, hắn đều chẳng nhận ra.
 
-Hỏa Long Chân Nhân sửng sốt một chút, cười gật đầu.
+Hỏa Long chân nhân ngẩn ra rồi mỉm cười gật đầu.
 
-Vì thế lấy tiếng lòng báo cho vị tông chủ Tôn Kết kia, không cần lộ diện, quay về tổ sư đường là được.
+Lão bèn lấy tiếng lòng báo với tông chủ Tôn Kết, cứ về tổ sư đường, không cần hiện thân.
 
 Không nói lễ nghi?
 
 Bần đạo đứng ở chỗ này, cấp bậc lễ nghĩa còn chưa đủ lớn sao?
 
-Trần Bình An vào phòng, bắt đầu lật xem mật tín.
+Trần Bình An vào phòng mở mật thư.
 
-Chu Liễm ở trên thư trước tiên đề cập tới chuyện Ngụy Bách phá cảnh, thành vị sơn thần thượng ngũ cảnh đầu tiên trong lịch sử Bảo Bình châu.
+Chu Liễm nhắc trước tiên chuyện Ngụy Bách phá cảnh, trở thành sơn thần thượng ngũ cảnh đầu tiên trong lịch sử Bảo Bình châu.
 
-Hoàng đế Tống Hòa của vương triều Đại Ly đích thân tới quận Long Tuyền, chỉ là Lục bộ Thượng Thư đã đến lễ, hai vị Hình, cùng nhau leo lên Phi Vân Sơn chúc mừng Ngụy Bách, không chỉ như thế, triều đình Đại Ly còn lấy ra một món "Thân Thủy" Bán tiên binh trân quý trong hoàng khố, tặng cho Phi Vân Sơn, làm vật áp thắng dệt hoa trên gấm, kể từ đó, cho dù là một sơn nhạc chính thần, Ngụy Bách cũng có thể càng thêm thoải mái nắm giữ thủy vận lãnh địa, thậm chí có thể tùy tiện trấn áp toàn bộ giang thủy chính thần phẩm trật tối cao của Đại Ly bắc nhạc địa giới, bởi vậy có thể thấy được, tân đế Tống Hòa đối với Ngụy Bách vị cựu thần tiền triều này, đã không đơn thuần là lễ ngộ, mà là chủ động phân quyền cho Phi Vân Sơn, Ngụy Bách bằng với sức một mình, cùng Đại Ly Lễ bộ, Hình bộ cùng chưởng toàn bộ quyền lực sơn thủy long hưng chi địa Đại Ly Tống thị.
+Hoàng đế Đại Ly Tống Hòa đích thân tới quận Long Tuyền. Hai vị thượng thư bộ Lễ và bộ Hình cùng lên Phi Vân sơn chúc mừng Ngụy Bách. Triều đình còn lấy trong hoàng khố một món bán tiên binh thân Thủy quý giá, tặng Phi Vân sơn làm vật áp thắng. Từ đó, Ngụy Bách tuy là sơn nhạc chính thần, vẫn dễ dàng nắm giữ thủy vận trong địa giới, thậm chí có thể trấn áp các vị giang thủy chính thần phẩm trật cao nhất ở Bắc nhạc Đại Ly. Có thể thấy tân đế Tống Hòa đãi vị cựu thần tiền triều này đâu chỉ bằng lễ, mà còn chủ động chia quyền cho Phi Vân sơn. Một mình Ngụy Bách cùng bộ Lễ và bộ Hình cai quản toàn bộ sơn thủy nơi phát tích của Đại Ly Tống thị.
 
-Cho nên Chu Liễm bảo vị sơn chủ Trần Bình An này không cần suy xét chuyện bán nhà bán tháo, bởi vì lúc Ngụy Bách phá cảnh, thanh thế cực lớn, điềm lành cùng ra, nghe nói toàn bộ dân chúng kinh thành Đại Ly đều sôi trào, rất nhiều môn hộ phú quý giàu có, như cá diếc sang sông, điên cuồng ùa vào Long Châu mới mở ra, muốn đi Phi Vân sơn thắp hương lễ kính Ngụy đại sơn thần. Không chỉ như thế, hộ bộ Đại Ly còn mang cho Phi Vân sơn gần trăm đồng tiền Kim Tinh, làm một trong những quà tặng của triều đình. Các bộ còn lại cũng có thành ý của mình, đương nhiên những thứ này đều là trải qua hoàng đế bệ hạ trẻ tuổi gật đầu cho phép, mới dám chính đại quang minh đưa lễ Phi Vân sơn như thế.
+Chu Liễm bảo sơn chủ chẳng cần tính chuyện bán tháo gia sản. Lúc Ngụy Bách phá cảnh, thanh thế rất lớn, điềm lành cùng hiện. Nghe nói dân chúng kinh thành Đại Ly đều sôi sục. Bao nhà phú quý như cá diếc qua sông, chen nhau tới Long Châu mới lập, muốn lên Phi Vân sơn thắp hương lễ kính Ngụy đại sơn thần. Hộ bộ còn tặng Phi Vân sơn gần trăm đồng tiền kim tinh, cũng là một món quà triều đình. Các bộ khác đều có phần thành ý, đương nhiên phải được hoàng đế trẻ tuổi gật đầu, họ mới dám công khai đưa lễ.
 
-Hoàng đế trẻ tuổi hiển nhiên bản thân cũng có chút bất ngờ, vốn đã đánh giá cao đủ để dẫn phát các loại gợn sóng triều dã của Ngụy Bách phá cảnh, nào ngờ vẫn đánh giá thấp loại không khí trên dưới triều dã, vạn dân đồng vui này, quả thực chính là đồng hương khắp nơi từ khi vương triều Đại Ly khai quốc tới nay có thể đếm được trên đầu ngón tay, một lần trước, vẫn là Đại Ly phiên vương Tống Trường Kính lập xuống công lao phá quốc, hủy diệt tông chủ vương triều Lô thị năm xưa vẫn cưỡi ở trên cổ Đại Ly tác oai tác phúc, kinh thành Đại Ly mới có loại việc trọng đại vạn dân không ngõ này. Đẩy lên trên nữa, nhưng mà xấp xỉ là lão hoàng lịch mấy trăm năm trước, thân phận nước phụ thuộc Đại Ly Tống thị hoàn toàn thoát khỏi vương triều Lô thị, rốt cuộc có thể tự cho mình là vương triều.
+Ngay cả hoàng đế trẻ tuổi cũng bất ngờ. Vốn đã tính Ngụy Bách phá cảnh sẽ làm cả triều dã xôn xao, nào ngờ vẫn đánh giá thấp cảnh trên dưới cùng vui. Từ khi Đại Ly khai quốc, những dịp như thế đếm được trên đầu ngón tay. Lần trước là khi phiên vương Tống Trường Kính lập công diệt nước, đánh tan vương triều Lô thị từng đè đầu cưỡi cổ Đại Ly, khiến kinh thành người người đổ ra đường ăn mừng. Trước nữa phải ngược lên mấy trăm năm, lúc Đại Ly Tống thị thoát hẳn thân phận phiên thuộc của Lô thị, cuối cùng có thể tự xưng một vương triều.
 
-Chu Liễm nói Ngụy Bách chỉ là tổ chức ba buổi tiệc đêm thần linh, phỏng đoán cẩn thận, có thể bổ sung một nửa chỗ hổng của tiền Cốc Vũ.
+Chu Liễm nói chỉ riêng ba buổi tiệc đêm của Ngụy Bách, tính dè dặt cũng đủ bù một nửa số tiền cốc vũ còn thiếu.
 
 Ngoài ra.
 
-Lưu Trọng Nhuận đảo Châu Ngao đã ký kết khế ước sơn thủy, lựa chọn ngao ngư đặt chân ở nơi thủy vận tương đối nồng đậm, tổ sư đường vẫn ở lại hồ Thư Giản, không dời đi, miễn cho bị Chân cảnh tông làm khó dễ, chỉ có điều hơn mười vị đệ tử đích truyền tư chất tốt nhất đều sẽ ở trên lưng ngao ngư tu hành, hiện giờ Lưu Trọng Nhuận đã bắt đầu thuê thợ thủ công, cơ quan sư của Mặc gia, ở lưng ngao ngư chế tạo phủ đệ, dựa theo ước định, những kiến trúc này, cùng bản thân ngao ngư bối sơn đầu, trừ phi ba trăm năm sau lại tiếp tục khế ước, bằng không lúc rời núi, đều sẽ tự động trở thành sản nghiệp tư nhân của sơn chủ Trần Bình An.
+Lưu Trọng Nhuận ở đảo Châu Trâm đã ký khế ước sơn thủy, chọn Ngao Ngư bối làm chỗ đặt chân vì nơi ấy có thủy vận dồi dào. Tổ sư đường vẫn ở Thư Giản hồ, tránh để Chân Cảnh tông làm khó, nhưng hơn mười đệ tử đích truyền có tư chất tốt nhất sẽ tu hành trên Ngao Ngư bối. Nàng đã thuê thợ thủ công và cơ quan sư Mặc gia xây phủ đệ trên núi. Theo giao ước, trừ phi ba trăm năm sau ký tiếp khế ước, bằng không khi họ rời núi, các kiến trúc ấy cùng Ngao Ngư bối sẽ trở thành sản nghiệp riêng của sơn chủ Trần Bình An.
 
-Nhưng đảo Châu Sước thuê cá ngao ba trăm năm, chỉ giao một khoản tiền đặt cọc, ba mươi đồng tiền Cốc Vũ, Lưu Trọng Nhuận ở trên chuyện tiền thần tiên, cắn chết gia nghiệp của mình quá nhỏ, cũng không tích góp. Tính cả phí di chuyển, cùng với chuẩn bị các mối quan hệ, lấy ra ba mươi đồng tiền Cốc Vũ, cũng đã khiến nàng sắp túi tiền trống không.
+Nhưng đảo Châu Trâm thuê Ngao Ngư bối ba trăm năm, mới giao ba mươi đồng tiền cốc vũ đặt cọc. Lưu Trọng Nhuận một mực nói gia nghiệp nhỏ, chẳng tích góp được gì. Tính cả tiền dời chỗ ở và lo các mối giao tình, lấy ra ba mươi đồng đã gần cạn túi.
 
 Kết quả Trịnh Đại Phong nói chêm chọc cười, khiến Lưu Trọng Nhuận nói ra một chuyện mật tương quan với thân phận thích của nàng thế tục, xem như một niềm vui bất ngờ không nhỏ.
 
-Vị trưởng công chúa của Vong quốc này, nguyện ý âm thầm trợ giúp Lạc Phách Sơn, tranh thủ cùng nhau thu hồi tòa Thủy Điện và một chiếc thuyền rồng Trầm Thủy, hai vật này, từ đầu đến cuối không bị vương triều Chu Huỳnh tìm kiếm ra tay. Chỉ cần có được hai vật, Lưu Trọng Nhuận nàng có thể đưa ra chiếc thuyền vượt thuyền Long Châu giá trị liên thành kia. Nếu như chỉ có thể thu hồi một vật, bất kể là thuyền rồng hay là Thủy Điện, ngao cá lưng và Lạc Phách Sơn, đều năm năm phần nợ nần.
+Vị trưởng công chúa mất nước bằng lòng âm thầm hợp sức với núi Lạc Phách thu hồi tòa Thủy Điện và một chiếc thuyền rồng chìm dưới nước. Hai món ấy từ đầu đến cuối vẫn chưa bị vương triều Chu Huỳnh tìm ra. Nếu lấy được cả hai, Lưu Trọng Nhuận có thể đưa ra chiếc độ thuyền Long Châu giá trị liên thành. Nếu chỉ lấy được một món, dù là thuyền rồng hay Thủy Điện, bên Ngao Ngư bối và núi Lạc Phách sẽ chia đôi phần lợi [?].
 
-Chu Liễm chưa lập tức đáp ứng, dù sao cái này sẽ liên lụy đến thiết kỵ Đại Ly địa phương, rất dễ dàng dẫn phát tranh cãi, cho nên Chu Liễm ở trên thư hỏi Trần Bình An, việc này có thể làm hay không.
+Chu Liễm chưa vội nhận lời. Việc này có thể liên lụy thiết kỵ Đại Ly tại địa phương, rất dễ sinh tranh cãi, nên hắn viết thư hỏi Trần Bình An có nên làm không.
 
 Về phần thứ sử mới Ngụy Lễ đến từ phiên thuộc Hoàng Đình quốc, châu thành hoàng mới đến từ núi màn thầu nơi ba sông hợp dòng, những quan trường nước Đại Ly "ngoài ý muốn" này, Chu Liễm ở trên thư đều không bỏ sót.
 
-Hai trận thủy lục đàn tràng kia của Thư Giản hồ, đại triện chu thiên, Chu Liễm càng viết chi tiết, có thể viết đều viết.
+Chu Liễm còn viết tường tận hai trận thủy lục đạo tràng và đại triện chu thiên ở Thư Giản hồ, viết được tới đâu đều viết.
 
-Ngay cả đạo nhân mù cùng hai vị đồ đệ cắm rễ ở cửa hàng Thảo Đầu ngõ Kỵ Long, đánh giá như thế nào, trên giấy cũng đều viết cẩn thận.
+Hắn cũng cẩn thận ghi nhận xét về đạo nhân mù và hai đồ đệ đã bén rễ ở cửa hàng Thảo Đầu, ngõ Kỵ Long.
 
 Còn nói Lô Bạch Tượng mới thu hai đệ tử, là một đôi tỷ đệ, lần lượt tên là Nguyên Bảo, Nguyên Lai, đều là hạt giống võ học không tệ, đợi cho vị sơn chủ Trần Bình An này quay về quê nhà, có thể rút thưởng, để cho hai người quay về Lạc Phách sơn, mang tên họ ghi lại ở gia phả Tổ Sư Đường của Lạc Phách sơn.
 
-Còn có một chút kinh nghiệm cầu học bên thư viện Sơn Nhai Đại Tùy.
+Còn có đôi chuyện cầu học ở thư viện Sơn Nhai bên Đại Tùy.
 
-Việc mấu chốt nhất, còn ở trên một tờ giấy cuối cùng, là về chuyện sơn thủy linh khí của Liên Ngẫu phúc địa, theo hai bút to Cốc Vũ tiền rơi vào trong đó, mấy chỗ mấu chốt chân núi thủy vận đều được củng cố cùng tẩm bổ thật lớn, kế tiếp cần thật sự bắt đầu giao tiếp với hoàng đế Nam Uyển quốc, mà vị hoàng đế thế tục này đã có ý thiền thoái vị, mình đến làm một người tu đạo, mà vị trí tân đế không ổn, tự nhiên cần nhượng bộ nhiều hơn.
+Chuyện then chốt nằm ở tờ giấy cuối. Sau khi hai khoản tiền cốc vũ lớn được đưa vào Liên Ngẫu phúc địa, mấy nơi trọng yếu về sơn căn và thủy vận đều được củng cố, bồi bổ rất nhiều. Tiếp theo phải thật sự bắt đầu qua lại với hoàng đế Nam Uyển quốc. Hoàng đế thế tục này đã có ý nhường ngôi để tự mình tu đạo. Tân đế ngồi chưa vững, tự nhiên sẽ phải nhượng bộ nhiều hơn.
 
-Nhưng thật sự quyết định quyết sách phương hướng lớn của phúc địa nhỏ này, Chu Liễm vẫn hy vọng có thể được Trần Bình An tự mình đưa ra kết luận, hắn và Trịnh Đại Phong, Ngụy Bách dễ gò bó theo khuôn phép, từng bước đi bố cục.
+Riêng hướng đi lâu dài của phúc địa nhỏ, Chu Liễm vẫn mong Trần Bình An tự quyết. Hắn, Trịnh Đại Phong và Ngụy Bách sẽ theo đó mà từng bước sắp xếp.
 
 Ngoại trừ sự vụ lớn nhỏ liên quan đến đỉnh núi nhà mình.
 
-Chu Liễm còn đề cập tới rất nhiều chuyện ngoài núi.
+Chu Liễm còn kể nhiều chuyện ngoài núi.
 
-Đại Ly vương triều thăng chức hai vị Thiết Kỵ Chủ Tướng tranh nhau giết vào vương triều Chu Huỳnh, Tào Bình, Tô Cao Sơn, trở thành tuần thú sứ mới thiết lập quan chức trong lịch sử Đại Ly.
+Đại Ly thăng chức cho hai chủ tướng thiết kỵ từng tranh nhau đánh vào vương triều Chu Huỳnh là Tào Bình và Tô Cao Sơn, bổ làm tuần thú sứ, chức quan mới đặt trong lịch sử Đại Ly.
 
 Đều nói đây thật ra là "Thượng Trụ quốc" do tiên đế Đại Ly đặc biệt thiết trí cho võ tướng công huân, Tào gia vốn là dòng họ Thượng Trụ quốc, nhưng Tô Cao Sơn hôm nay có đủ tự tin, ngang vai ngang vế với hào phiệt Thượng Trụ quốc. Đồn rằng vương triều Đại Ly cuối cùng sẽ bày ra sáu cái ghế "Tuần Thú sử", một cái ở kinh kỳ Đại Ly, một cái ở Lão Long thành, địa giới cũ thuộc về Chu Huỳnh vương triều một cái, ba cái ghế còn lại ai ngồi, bày ở đâu, còn chưa có định luận, ngay cả suy đoán cũng không có.
 
-Lại chính là rất nhiều nơi diệt quốc, gió nổi mây phun, khởi nghĩa vũ trang, tu sĩ địa phương càng trắng trợn ám sát quan viên Đại Ly đóng giữ.
+Nhiều nơi mất nước cũng nổi binh. Tu sĩ địa phương còn công khai ám sát quan viên Đại Ly đóng giữ.
 
-Ngoại trừ Tào Bình, Tô Cao Sơn hai chi thiết kỵ tiếp tục nam hạ, cuối cùng chi thiết kỵ kia bắt đầu dừng ngựa không tiến, một bộ phận dừng lại ở trên bản đồ vương triều Chu Huỳnh, chia binh về bắc, bắt đầu bình định.
+Hai đạo thiết kỵ Tào Bình và Tô Cao Sơn vẫn tiếp tục xuống nam. Đạo quân còn lại đã dừng bước, một phần ở lại đất cũ Chu Huỳnh, một phần chia binh về bắc dẹp loạn.
 
-Trên thư nhiều vô số kể, tin tức lớn nhỏ hơn mười cái.
+Trong thư kể hơn mười tin lớn nhỏ.
 
-Trần Bình An sau khi đọc kỹ thư của Chu Liễm hai lần, mới cầm lá thư của Bùi Tiền, cũng chỉ có hai tờ giấy.
+Trần Bình An đọc kỹ thư Chu Liễm hai lượt rồi mới cầm thư Bùi Tiền. Thư nàng chỉ có hai tờ.
 
-Đều là lời khoe khoang tự biên tự diễn của nàng.
+Toàn là lời nàng tự khen mình.
 
-Chép sách nghiêm túc, không ghi nợ.
+Chép sách nghiêm túc, chẳng nợ một lần nào.
 
-Bộ Phong Ma kiếm pháp tự nghĩ ra kia của nàng một ngày ngàn dặm, quả thực chính là đỉnh phong trong đỉnh phong.
+Bộ Phong Ma kiếm pháp nàng tự nghĩ ra tiến bộ ngày đi ngàn dặm, quả là đỉnh cao trong các đỉnh cao.
 
-Quan hệ với Chu Mễ rất tốt, hôm nay tiểu thủy quái đã là Hữu hộ pháp của cửa hàng Áp Tuế ngõ Kỵ Long, nàng hỏi sư phụ có phải sau khi trở lại quê nhà, sẽ thăng nhiệm Chu Mễ Hạt đảm nhiệm hữu hộ pháp của Lạc Phách Sơn hay không, trong thư có một số bạc không có ở đây ba trăm lượng, Bùi Tiền nói nàng sẽ không tùy tiện hứa hẹn quan hàm Chu Mễ hạt lớn như vậy, công tư rõ ràng, quan hệ với Chu Mễ có tốt đến đâu, nàng cũng sẽ thiết diện vô tư, cho nên vẫn cần sư phụ sau khi về nhà sẽ tự mình định đoạt.
+Nàng và Chu Mễ Hạt rất thân. Tiểu thủy quái bây giờ đã là Hữu hộ pháp của cửa hàng Áp Tuế ở ngõ Kỵ Long. Nàng hỏi sư phụ về quê rồi có thăng Chu Mễ Hạt lên làm Hữu hộ pháp núi Lạc Phách hay không. Trong thư lại có mấy lời nghe như "ở đây không có ba trăm lạng bạc". Bùi Tiền nói nàng chẳng tùy tiện hứa với Chu Mễ Hạt một chức quan to đến thế. Công tư phân minh, hai người thân đến đâu, nàng cũng tuyệt đối công bằng. Chuyện này vẫn phải đợi sư phụ về tự định.
 
-Còn nói Sầm Uyên luyện quyền đặc biệt nghiêm túc, không hổ là thiên tài võ học lão đầu bếp tự mình lên núi, ai, chỉ là có lần Sầm tỷ tỷ luyện quyền quá chuyên chú, không chú ý bậc thang, không cẩn thận trẹo chân, lúc ấy nàng vừa vặn đi ngang qua, lại không thể đỡ Sầm tỷ tỷ, cho nên nàng mãi cho đến lúc viết thư, vẫn còn có chút lương tâm bất an.
+Nàng còn kể Sầm Uyên luyện quyền rất nghiêm túc, quả là hạt giống võ học lão đầu bếp tự mình dẫn lên núi. Chỉ có lần Sầm tỷ tỷ luyện quá chuyên chú, chẳng để ý bậc thang nên trẹo chân. Nàng tình cờ đi qua mà không đỡ kịp, tới lúc viết thư trong lòng vẫn còn áy náy.
 
-Cho nên tương lai nếu Sầm tỷ tỷ đề cập việc này, sư phụ ngàn vạn lần đừng trách tội, tuyệt đối là Bùi Tiền nàng vô tâm sai lầm.
+Nếu sau này Sầm tỷ tỷ có nhắc, sư phụ ngàn vạn lần đừng trách. Bùi Tiền nàng tuyệt đối chỉ vô tâm mà phạm lỗi.
 
-Trần Bình An nhìn đến đây, sẽ biết có huyền cơ.
+Đọc tới đây, Trần Bình An biết ngay có chuyện.
 
-Nhất định là chuyện đã ăn hạt dẻ, đã trải một phen trên thư trước với mình.
+Chắc là đã ăn cốc đầu, bèn viết thư rào trước với sư phụ một phen.
 
-Còn nữa bản thân Bùi Tiền khẳng định không ý thức được, nó viết nhiều chuyện ở Lạc Phách Sơn như vậy, ngay cả nửa câu cửa hàng ngõ Kỵ Long kiếm được bao nhiêu bạc cũng chưa nhắc tới, theo Trần Bình An thấy, khẳng định là trốn học trốn học ở trường tư bên kia rất nhiều.
+Bùi Tiền chắc chẳng nhận ra mình kể bao nhiêu chuyện ở núi Lạc Phách mà chẳng nhắc nửa câu cửa hàng ngõ Kỵ Long kiếm được bao nhiêu bạc. Theo Trần Bình An, hẳn nàng đã trốn không ít buổi ở trường tư.
 
-Trần Bình An cũng không nghĩ nhiều, dù sao có Chu Liễm nhìn chằm chằm, hẳn là sẽ không có chuyện quá khác người. Nếu thật có, tin tưởng Chu Liễm ở trên thư cũng sẽ trực tiếp làm rõ.
+Trần Bình An chẳng nghĩ nhiều. Có Chu Liễm trông chừng, hẳn sẽ chẳng có chuyện quá đáng. Nếu có, Chu Liễm ắt viết thẳng trong thư.
 
-Nhưng chờ hắn trở về, vẫn phải cho nàng ăn no một trận hạt dẻ là được. Bản thân nàng tin, nửa câu học tập tiến triển cũng không đề cập tới, có thể tính là tâm đọc sách? Với tính tình kia của nàng, nếu được phu tử trường tư khích lệ một câu nửa câu, có thể không khoe khoang một hai?
+Nhưng về nhà rồi vẫn phải cốc đầu nàng một trận. Trong thư chẳng có nửa câu nói việc học tiến triển ra sao, có thể coi là để tâm đọc sách ư? Với tính nàng, nếu được phu tử khen lấy một câu, có thể nhịn không khoe sao?
 
-Bùi Tiền còn đang ở trên thư nói Tú Tú tỷ không ở Thần Tú Sơn bên kia, nghe nói dọn đi nơi khác tu hành, nó có chút lo lắng Tú Tú tỷ, bởi vì đã lâu không đi cửa hàng cỏ mua bánh ngọt.
+Bùi Tiền còn kể Tú Tú tỷ đã rời Thần Tú sơn, nghe nói dọn sang nơi khác tu hành. Nàng hơi lo cho tỷ ấy, bởi đã lâu chẳng thấy tỷ tới cửa hàng Thảo Đầu mua bánh.
 
-Bùi Tiền nói trên núi kia có một tỷ tỷ xinh đẹp tên là Tùy Cảnh Trừng tới, dung mạo xinh đẹp thì không nói, còn hào phóng, tiêu tiền mắt cũng không chớp lấy một cái, nhưng nó làm đại đệ tử khai sơn của sư phụ, phong phạm rất đủ, chưa từng chủ động để Tùy Cảnh Trừng mua đồ cho mình, một lần cũng không có.
+Nàng kể trên núi có một tỷ tỷ xinh đẹp tên Tùy Cảnh Trừng. Xinh đẹp thì khỏi nói, lại hào phóng, tiêu tiền chẳng chớp mắt. Nhưng nàng là khai sơn đại đệ tử của sư phụ, giữ phong thái rất đủ, chưa bao giờ chủ động bảo Tùy Cảnh Trừng mua đồ cho mình. Một lần cũng chưa.
 
-Cuối lá thư, Bùi Tiền chúc sư phụ du lịch thuận lợi, tài nguyên rộng tiến, mỗi ngày vui vẻ, bình an, sớm ngày về quê.
+Cuối thư, Bùi Tiền chúc sư phụ đi xa thuận lợi, kiếm được nhiều tiền, ngày ngày vui vẻ bình an và sớm về quê.
 
-Vừa nhìn đến nơi này.
+Đọc đến đây,
 
-Trần Bình An có chút không nỡ gõ hạt dẻ của nàng.
+Trần Bình An bỗng thấy chẳng nỡ cốc đầu nàng nữa.

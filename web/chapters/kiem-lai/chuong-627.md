@@ -1,134 +1,134 @@
 # Chương 627: Tiên sinh học sinh giữa sơn thủy
 
-Bầu không khí bên tổ sư đường vườn tràm có chút quỷ dị, có người tâm tình nặng nề, là mấy vị lão nhân vườn trày ru rú trong nhà, còn có mấy vị cung phụng, khách khanh tu hành ở vườn trà sương xuân.
+Bầu không khí trong tổ sư đường phố Xuân Lộ có phần khác thường. Mấy vị lão nhân lâu nay ít ra khỏi nhà cùng vài vị cung phụng, khách khanh tu hành ở phố Xuân Lộ đều nặng lòng.
 
-Có người xem náo nhiệt, tâm tình tương đối không xấu, tỷ như chủ nhân Đường Tỳ Chiếu Dạ Thảo Đường cuối cùng là Chiếu Dạ Thảo Đường, ân sư của Kim Đan độ thuyền Tống Lan Tiều, vị lão ẩu này liếc mắt nhìn Đường Tỳ quan hệ đạm mạc trước kia, hai bên nhẹ nhàng gật đầu, trong mắt đều có chút ý cười mịt mờ.
+Cũng có người chỉ đến xem náo nhiệt, tâm tình khá tốt, như Đường Tỳ, chủ nhân Chiếu Dạ Thảo Đường, và vị lão ẩu là ân sư của Kim Đan Tống Lan Tiều trên độ thuyền. Trước đây hai người không mấy thân thiết. Lão ẩu liếc nhìn Đường Tỳ, hai bên khẽ gật đầu, trong mắt thoáng ý cười.
 
-Có người tâm tình phức tạp, tỷ như ngồi ở chủ vị Đàm Lăng.
+Lại có người tâm tình phức tạp, như Đàm Lăng đang ngồi ở ghế chủ tọa.
 
-Bởi vì Tống Lan Tiều liên tiếp dùng phi kiếm đưa tin đến Tổ Sư đường hai lần, lần đầu tiên mật tín là nói có một vị tu sĩ ngoại hương cảnh giới thâm bất khả trắc, thiếu niên áo trắng dáng vẻ thần tiên, sau khi độ thuyền vượt châu Phi Ma Tông đến bãi xương cốt, hướng kinh thành nện xuống một trận mưa to pháp bảo, Cao Thừa cùng Quỷ Lâu cốc đều không có động tĩnh, tựa hồ có chút kiêng kị đối với người này. Lần thứ hai mật tín, là nói người này tự xưng học sinh của kiếm tiên trẻ tuổi, luôn miệng xưng hô người trẻ tuổi họ Trần là tiên sinh, tính tình cổ quái, khó có thể phỏng đoán, Tống Lan Tiều hắn tự nhận chém giết, không hề có lực hoàn thủ.
+Tống Lan Tiều đã hai lần liên tiếp dùng phi kiếm gửi mật tín về tổ sư đường. Lần đầu hắn kể có vị tu sĩ ngoại hương cảnh giới sâu khó lường, dáng vẻ như thiếu niên bạch y chốn thần tiên. Sau khi độ thuyền vượt châu của Phi Ma tông tới bãi Hài Cốt, thiếu niên ấy ném một trận mưa pháp bảo xuống Kinh Quan thành. Cao Thừa và Quỷ Lâu cốc đều im hơi lặng tiếng, dường như có phần kiêng dè. Trong thư thứ hai, Tống Lan Tiều nói người ấy tự xưng là học sinh của vị kiếm tiên trẻ tuổi, luôn miệng gọi người trẻ tuổi họ Trần là tiên sinh. Tính tình hắn cổ quái, khó đoán. Tống Lan Tiều tự biết nếu giao thủ, mình chẳng có sức đánh trả.
 
-Đàm Lăng đem hai phong mật tín giao cho mọi người truyền nhau đọc, đợi cho mật tín trở về tay, nhẹ nhàng thu vào trong tay áo, mở miệng nói: "Ta đã tự mình phi kiếm đưa tin cho Phi Ma tông Mộc Y sơn, hỏi lai lịch người này, tạm thời còn chưa có hồi âm. Chư vị, về chuyện Xuân Lộ viên chúng ta nên ứng đối như thế nào, có thượng sách không? Chúng ta không thể toàn bộ đều gửi hi vọng vào Phi Ma tông, bởi vì người này quan hệ với Mộc Y sơn cũng không tệ lắm. Còn nữa, ta đoán Trần tiên sinh, chính là kiếm tu năm ngoái ở địa giới Phù Lục quốc, cùng Thái Huy kiếm tông Lưu Kiếm Tiên tế kiếm."
+Đàm Lăng đưa hai phong mật tín cho mọi người chuyền tay đọc. Khi thư về đến tay, nàng khẽ cất vào tay áo rồi nói: "Ta đã đích thân dùng phi kiếm gửi tin đến Mộc Y sơn của Phi Ma tông để hỏi lai lịch người này, nhưng chưa có hồi âm. Chư vị có kế sách nào cho phố Xuân Lộ ứng đối không? Chúng ta không thể đặt hết hy vọng vào Phi Ma tông, bởi người ấy cũng có giao tình khá tốt với Mộc Y sơn. Còn về Trần tiên sinh, ta đoán đó chính là kiếm tu năm ngoái cùng Lưu kiếm tiên của Thái Huy kiếm tông tế kiếm ở Phù Lục quốc."
 
-Trong Tổ Sư đường yên tĩnh không tiếng động, tiếng kim rơi cũng có thể nghe được.
+Trong tổ sư đường lặng đến mức nghe được cả tiếng kim rơi.
 
-Xuân sương phố cũng coi như đỉnh núi trong thế lực nhị lưu tiên gia Bắc Câu Lô Châu, tương tự như trẻ sơ sơn Lôi Thần trạch, Sư Tử phong, có tiếng lành đồn xa, giao hữu rộng, hơn nữa nội tình thâm hậu, cách đầu chữ Tông chỉ kém một vị trở thành đại tu sĩ Ngọc Phác cảnh trụ cột vững vàng mà thôi. Tình cảnh xấu hổ của Xuân Lộ Phố là ở chỗ Đàm Lăng đời này không thể phá vỡ bình cảnh Nguyên Anh, nhất định vô vọng thượng ngũ cảnh.
+Phố Xuân Lộ cũng thuộc hàng thế lực tiên gia nhị lưu ở Bắc Câu Lô Châu. Cũng như Lôi Thần trạch ở "trẻ sơ sơn" [?] và Sư Tử phong, phố Xuân Lộ có tiếng lành đồn xa, giao tình rộng, căn cơ vững. Để được đứng hàng tông môn, họ chỉ còn thiếu một đại tu sĩ Ngọc Phác cảnh làm trụ cột. Khó xử ở chỗ Đàm Lăng đời này không thể phá bình cảnh Nguyên Anh, đã hết hy vọng bước vào thượng ngũ cảnh.
 
-Bây giờ đối mặt với đôi tiên sinh học sinh kia, liền lộ ra vô cùng luống cuống tay chân.
+Thế nên khi phải đối mặt với hai thầy trò kia, họ không khỏi luống cuống.
 
-Đàm Lăng lại hỏi: "Đường Tỳ, ngươi cảm thấy vị... tính cách của Trần tiên sinh ra sao?"
+Đàm Lăng lại hỏi: "Đường Tỳ, ngươi thấy tính tình của vị... Trần tiên sinh ấy thế nào?"
 
-Xưng hô này, khiến sắc mặt Đàm Lăng có chút không quá tự nhiên.
+Gọi hai tiếng tiên sinh, sắc mặt Đàm Lăng có phần thiếu tự nhiên.
 
-Đường Tỳ ngồi ở vị trí gần cửa chính Tổ Sư Đường nhất, giơ tay nhẹ nhàng v**t v* tay nắm ghế dựa, cẩn thận từng li từng tí tìm từ, chậm rãi nói: "Tu vi cao thấp, không thấy rõ lắm, lai lịch thân phận càng là mây mù che phủ, nhưng chỉ nói chuyện làm ăn, Trần tiên sinh chú ý một cái công đạo."
+Đường Tỳ ngồi gần cửa tổ sư đường nhất. Hắn đưa tay khẽ vuốt tay ghế, cân nhắc lời lẽ rồi chậm rãi đáp: "Tu vi của Trần tiên sinh cao thấp ra sao, ta không nhìn rõ. Lai lịch người ấy lại càng khó đoán. Nhưng riêng chuyện làm ăn, Trần tiên sinh rất coi trọng lẽ công bằng."
 
-Tổ sư đường Xuân Lộ phố nghị sự, hôm nay là lần đầu tiên Đàm Lăng trịnh trọng hỏi ý kiến của Đường Tỳ.
+Đây là lần đầu tiên Đàm Lăng trịnh trọng hỏi ý Đường Tỳ trong một buổi nghị sự ở tổ sư đường phố Xuân Lộ.
 
-Bà lão cười tủm tỉm nói: "Trần công tử làm người, rất lễ phép qua lại, là người trẻ tuổi rất có quy củ, các ngươi có lẽ chưa từng quen biết, không rõ lắm, dù sao lão bà tử ta là rất thích, Trần công tử hai lần chủ động đăng môn bái phỏng, lão bà tử nhận không một món linh khí cùng bánh trà Tiểu Huyền Bích của người ta, lúc này cũng lo, Trần công tử lần sau lên núi, nên trả lễ cái gì. Cũng không thể để người ta ba lần lên núi, đều tay không mà về, Trần công tử cũng đã nói, "Sự bất quá tam, gom góp cùng một chỗ", đáng tiếc lão bà tử nhà ta vốn liếng mỏng, đến lúc đó không biết có thể liên lụy Xuân Lộ Phố, đáp lễ keo kiệt hay không, chỉ rước lấy trò cười."
+Lão ẩu cười tủm tỉm: "Trần công tử biết đối đãi lễ độ, là người trẻ rất có quy củ. Các ngươi có lẽ chưa quen nên không rõ, chứ lão bà tử ta rất thích. Trần công tử hai lần chủ động đến thăm, ta nhận không của người ta một món linh khí và một bánh trà Tiểu Huyền Bích. Giờ ta còn lo lần sau công tử lên núi, mình lấy gì đáp lễ. Chẳng lẽ để người ta ba lần lên núi đều tay không trở về? Trần công tử cũng đã nói 'sự bất quá tam, gom lại một lần'. Tiếc là vốn liếng của lão bà tử mỏng quá. Đến lúc ấy, đáp lễ mà keo kiệt, e lại khiến cả phố Xuân Lộ bị chê cười."
 
-Lời nói này của bà lão, trong lời nói có ẩn ý, khắp nơi huyền cơ.
+Lời lão ẩu nghe câu nào cũng có ý bên trong.
 
-Đàm Lăng nhiều thêm vài phần ý cười: "Lâm sư muội không cần lo lắng việc này, Lâm sư muội hôm nay có thể từ Xuân Lộ Phố tổ sư đường, chọn lựa một lễ vật không có trở ngại."
+Nụ cười của Đàm Lăng đậm thêm đôi chút. "Lâm sư muội đừng lo chuyện ấy. Hôm nay muội có thể đến tổ sư đường phố Xuân Lộ chọn một món quà cho phải phép."
 
-Bà lão ngoài cười nhưng trong không cười nói: "Nói sư tỷ, đây chẳng phải là muốn cho Xuân Lộ Phố chúng ta tiêu pha? Không quá thích hợp nhỉ? Lão bà tử thật ra là đập nồi bán sắt, lại cùng Tống Lan Tiều đệ tử không ra gì kia mượn chút tiền thần tiên, cũng có thể gom góp ra một món pháp bảo."
+Lão ẩu cười nhạt: "Sư tỷ nói vậy chẳng phải muốn phố Xuân Lộ tốn kém sao? E không thích hợp lắm. Lão bà tử ta chịu đập nồi bán sắt, lại vay tên đệ tử chẳng ra gì Tống Lan Tiều kia ít tiền thần tiên, cũng gom được một món pháp bảo."
 
-Đàm Lăng thần sắc như thường, mỉm cười nói: "Không cần làm phiền Tống Lan Tiều, Tống Lan Tiều cẩn trọng nhiều năm như vậy, quản lý việc làm ăn trên độ thuyền cho Xuân Lộ Phố, đã tương đối không dễ dàng."
+Đàm Lăng vẫn mỉm cười, sắc mặt như thường. "Không cần phiền đến Tống Lan Tiều. Hắn tận tụy trông coi việc làm ăn trên độ thuyền của phố Xuân Lộ bao năm nay, vốn đã chẳng dễ dàng gì."
 
-Bà lão ra vẻ giật mình nói: "Đàm sư tỷ rốt cuộc là Nguyên Anh đại tu sĩ, trí nhớ tốt hơn so với Kim Đan sư muội không tiền đồ như ta, lão bà tử cũng thiếu chút nữa quên, tự thân thì ra còn có một đệ tử Kim Đan hàng năm bôn ba bên ngoài như Tống Lan Tiều."
+Lão ẩu làm ra vẻ ngạc nhiên. "Đàm sư tỷ quả là đại tu sĩ Nguyên Anh, trí nhớ tốt hơn hẳn một Kim Đan chẳng có tiền đồ như ta. Lão bà tử suýt quên mình còn có một đệ tử Kim Đan là Tống Lan Tiều, quanh năm bôn ba bên ngoài."
 
-Các lão hồ ly trong Tổ Sư Đường, từng người càng thêm giữ vững tinh thần, nghe khẩu khí, lão bà tử này là muốn kéo đệ tử của mình vào Tổ Sư Đường?
+Các lão hồ ly trong tổ sư đường lập tức chăm chú lắng nghe. Theo giọng điệu ấy, chẳng lẽ lão ẩu muốn đưa đệ tử mình vào tổ sư đường?
 
 Đây cũng không phải là chuyện nhỏ.
 
-"Không đề cập tới đệ tử mệnh lao lực kia của ta, đứa nhỏ này trời sinh không có mệnh hưởng phúc."
+"Thôi, đừng nhắc đến đứa đệ tử mang số lao lực ấy nữa. Nó sinh ra đã chẳng có số hưởng phúc."
 
-Không ngờ bà lão nhanh chóng chuyển đề tài, căn bản không nhắc tới chuyện thêm ghế ngồi vào Tổ Sư Đường, bà lão chỉ quay đầu nhìn Đường Tỳ, chậm rãi nói: "Đường cung phụng chúng ta càng không dễ dàng hơn Tống Lan Tiều, không chỉ khổ lao, công lao cũng lớn, sao còn ngồi ở vị trí gần cửa nhất? Một nửa vụ làm ăn của Xuân Lộ Phố đều là Chiếu Dạ Thảo Đường, nếu nhớ không lầm, ghế dựa của Tổ Sư Đường vẫn là Chiếu Dạ Thảo Đường bỏ tiền ra để chế tạo đi, những lão già chúng ta sống yên ổn, phải biết một chút lương tâm. Muốn ta xem, không bằng ta đổi vị trí với Đường Tỳ, ta dời cửa ra ngồi bên kia, cũng đỡ phải khiến Đàm sư tỷ và chư vị khó xử."
+Không ngờ lão ẩu đổi đề tài ngay, chẳng đả động đến việc kê thêm ghế trong tổ sư đường. Bà chỉ quay sang Đường Tỳ, chậm rãi nói: "Đường cung phụng của chúng ta còn vất vả hơn Tống Lan Tiều, chẳng những bỏ nhiều công sức mà công lao cũng lớn. Sao vẫn phải ngồi sát cửa thế kia? Một nửa việc buôn bán của phố Xuân Lộ đều nhờ Chiếu Dạ Thảo Đường. Nếu ta nhớ không lầm, đến ghế trong tổ sư đường cũng là Chiếu Dạ Thảo Đường bỏ tiền đóng. Đám già chúng ta sống yên ổn rồi, cũng nên biết nghĩ đến lương tâm. Theo ta, chi bằng đổi chỗ cho Đường Tỳ. Ta ra ngồi sát cửa, đỡ khiến Đàm sư tỷ và chư vị khó xử."
 
-Đường Tỳ lập tức đứng dậy, ôm quyền khom lưng, trầm giọng nói: "Tuyệt đối không thể, Đường mỗ là người làm ăn, tư chất tu hành thô kệch không chịu nổi, buôn bán trong tay tuy nói không nhỏ, nhưng cũng phải dựa vào vườn xuân mới có thể làm được việc, bản thân Đường mỗ có mấy cân mấy lượng, trước nay trong lòng đều biết rõ. Có thể cùng chư vị nghị sự ở Tổ Sư Đường, chính là công lao của Tham Thiên đã có, nào dám có suy nghĩ không an phận nữa."
+Đường Tỳ lập tức đứng dậy, ôm quyền khom lưng, trầm giọng nói: "Tuyệt đối không được. Đường mỗ là người buôn bán, tư chất tu hành kém cỏi. Việc làm ăn trong tay tuy không nhỏ, song cũng phải dựa vào phố Xuân Lộ mới làm nên. Đường mỗ nặng nhẹ bao nhiêu, xưa nay tự biết. Được cùng chư vị nghị sự trong tổ sư đường đã là phúc lớn, nào dám có thêm ý nghĩ không an phận."
 
-Bà lão mấp máy miệng nói: "Đường Tỳ ngươi chỉ có một khuê nữ như vậy, hôm nay lập tức phải lập gia đình rồi, thân gia Ngụy thị của vương triều Đại Quan, còn có vị hoàng đế bệ hạ kia, không nhớ đến ngươi ở tổ sư đường Xuân Lộ Phố, không phải là đang giữ cửa hay sao? Những lời ong tiếng ve đó, Đường Tỳ ngươi lòng dạ rộng, độ lượng lớn, chịu được rồi, lão bà tử ta là người ngoài mà cũng khó chịu trong lòng. Lão bà tử không có hạ lễ gì, cũng chỉ có thể đổi vị trí chỗ ngồi với Đường Tỳ, coi như là hơi chút sức mọn."
+Lão ẩu mấp máy môi: "Đường Tỳ, ngươi chỉ có một đứa con gái, nay nó sắp xuất giá rồi. Chẳng lẽ nhà thông gia họ Ngụy của vương triều Đại Quan, rồi cả hoàng đế bệ hạ, lại chỉ nhớ ngươi là người giữ cửa tổ sư đường phố Xuân Lộ? Những lời ong tiếng ve ấy, ngươi rộng lượng nên chịu được. Lão bà tử ta là người ngoài nghe còn khó chịu. Ta chẳng có lễ gì để mừng, chỉ có thể đổi chỗ ngồi với ngươi, coi như góp chút sức mọn."
 
-Kỳ thực vườn xuân là nơi quản lý tiền tài của lão tổ sư, nhưng Đường Tỳ lại được công nhận là thần tài vườn xuân, so với danh tiếng của người trước, Đường Tỳ hiển nhiên ở trong ngoài vườn xuân càng thêm phục chúng.
+Phố Xuân Lộ vốn có lão tổ sư cai quản tiền nong, nhưng người được công nhận là thần tài lại là Đường Tỳ. Cả trong lẫn ngoài phố, Đường Tỳ đều được nể phục hơn vị kia.
 
 Bà lão mở miệng gọi Đường Tỳ.
 
-Đây cũng không phải là bất kính gì, mà là làm rõ thân cận.
+Cách gọi ấy không hề bất kính, chỉ tỏ ý thân cận.
 
-Một vị lão nhân quản lý tài khố của tổ sư đường, sắc mặt tái xanh, cười nhạo nói: "Chúng ta không phải đang thương nghị kế sách ứng đối sao? Như thế nào lại nói đến chuyện hôn giá của nữ nhi Đường cung phụng? Nếu như về sau tòa tổ sư đường quy củ sâm nghiêm này, có thể chân đạp tây dưa da trượt đến chỗ nào là chỗ đó, vậy chúng ta có muốn tán gẫu về âm trầm trà của bãi Cốt Ma hay không, có uống được hay không? Tổ sư đường có muốn chuẩn bị mấy cân hay không, lần sau chúng ta vừa uống nước trà, vừa tùy tiện trò chuyện vụn vặt lông gà vỏ tỏi, tán gẫu bảy tám canh giờ?"
+Vị lão nhân trông coi tài khố của tổ sư đường tái mặt, cười nhạt: "Chẳng phải chúng ta đang bàn kế ứng đối sao? Sao lại chuyển sang việc gả con gái của Đường cung phụng? Nếu sau này trong tổ sư đường quy củ nghiêm ngặt này, ai cũng có thể giẫm phải vỏ dưa, trượt đến đâu thì nói đến đó, chi bằng bàn xem trà âm trầm ở bãi Hài Cốt có uống được không? Tổ sư đường có nên sắm vài cân để lần sau vừa uống trà, vừa tán chuyện lông gà vỏ tỏi suốt bảy tám canh giờ?"
 
-Bà lão mỉm cười nói: "Ở bên Cao sư huynh quyền cao chức trọng, Đường Tỳ kết hôn độc nữ, tình hữu nghị giữa Xuân Lộ Phố cùng hoàng đế vương triều Đại Quan, đương nhiên đều là chuyện lông gà vỏ tỏi."
+Lão ẩu mỉm cười: "Với Cao sư huynh quyền cao chức trọng, chuyện Đường Tỳ gả đứa con gái duy nhất hay giao tình giữa phố Xuân Lộ với hoàng đế vương triều Đại Quan, đương nhiên đều là chuyện lông gà vỏ tỏi."
 
-Lão tổ sư quản tiền sầm mặt nắm chặt tay ghế, cả giận nói: "Họ Lâm, bớt ở bên này lẫn lộn nghe nhìn! Chút tính toán nhỏ nhặt này của ngươi, đùng đùng rung trời, thật sự cho rằng các vị đang ngồi đây, mắt mỗi người đều bị mù?!"
+Lão tổ sư quản tiền sầm mặt, siết tay ghế, giận dữ nói: "Họ Lâm, bớt đánh tráo phải trái đi! Tính toán của ngươi lộ rõ mồn một, thật tưởng mọi người ngồi đây đều mù cả sao?!"
 
-Bà lão "vù" một tiếng, cười khẩy nói: "Thì ra không phải."
+Lão ẩu bật cười khẩy: "Thì ra không phải."
 
-Đường Tỉ khẽ cười khổ, bắt đầu nín thở ngưng thần, vị minh hữu mới này tính tình hơi nóng nảy. Nếu lúc này hắn nổi nóng thêm nữa thì cái được không bù đắp đủ cái mất, còn chẳng bằng ngồi yên xem.
+Đường Tỳ khẽ cười khổ, lặng lẽ nín thở ngưng thần. Vị đồng minh mới này tính hơi nóng. Lúc này hắn mà nổi nóng theo thì chỉ có hại, chi bằng ngồi yên xem.
 
-Đàm Lăng nhẹ khoát tay áo: "Những thứ này đương nhiên không phải việc nhỏ. Chờ chúng ta giải quyết xong tình thế khẩn cấp trước mắt, sẽ tán gẫu, hơn nữa ngay hôm nay. Đầu tiên, chúng ta tranh thủ xác định ngày hai người đối phương rời khỏi, tiếp theo, trong lúc này, làm sao có thể thuận lợi giải quyết chuyện phiền toái này, về phần có thể trèo lên hương khói này hay không, Đàm Lăng ta cũng tốt, phố xuân cũng thế, phố chợ cũng thế, không hy vọng xa vời, không bắt buộc. Cuối cùng, ai ra mặt, chư vị hợp kế, cho ra một người lựa chọn, là Tống Lan Tiều, hoặc là ai, đều có thể, ta cũng sẽ nói lời xấu ở phía trước, bất luận kết quả cuối cùng như thế nào, là tốt hay xấu, Xuân Lộ Phố đều nên vì người này ghi công, một khi kết quả không phù hợp mong muốn, nếu có người sau đó cả gan nói ba câu bốn, lật lại chuyện cũ, tin đồn xa xôi, cũng đừng trách ta nói lăng mộ chuyển ra gia pháp tổ tông."
+Đàm Lăng khẽ khoát tay áo. "Đương nhiên đó đều chẳng phải việc nhỏ. Chờ giải quyết xong việc gấp trước mắt, chúng ta sẽ bàn tiếp, ngay trong hôm nay. Trước hết, phải hỏi xem khi nào hai người họ đi, rồi tính cách giải quyết ổn thỏa trong thời gian họ còn ở đây. Còn có kết được chút tình hương hỏa với họ hay không, Đàm Lăng ta cũng như phố Xuân Lộ, đều không dám mong xa, cũng không cưỡng cầu. Cuối cùng là chọn người ra mặt. Chư vị cứ bàn với nhau, Tống Lan Tiều hay ai khác đều được. Nhưng ta nói trước, kết quả dù tốt dù xấu, phố Xuân Lộ vẫn phải ghi công người ấy. Nếu kết quả không như ý mà có kẻ dám gièm pha, lật lại chuyện cũ hoặc tung lời đồn, đừng trách Đàm Lăng ta đem gia pháp tổ tông ra xử."
 
-Nói tới đây, Đàm Lăng cười cười: "Nếu cần Đàm Lăng tự mình đi đàm phán, chỉ cần là kết quả thương nghị của tổ sư đường, ta sẽ không thể nào cho qua. Nếu ta không thể làm tốt, chư vị có chút oán hận, dù sau này ở trước mặt Tổ Sư Đường chỉ trích, Đàm Lăng ta thân là chủ một núi, cũng sẽ tiếp nhận."
+Nói đến đó, Đàm Lăng mỉm cười. "Nếu cần ta đích thân đi thương lượng, chỉ cần tổ sư đường đã bàn và quyết như vậy, ta sẽ không thoái thác. Nếu ta làm không tốt, chư vị có oán trách, sau này cứ chỉ thẳng trước mặt ta tại tổ sư đường. Đàm Lăng ta là chủ một núi, tất sẽ tiếp nhận."
 
 Sau một nén nhang, Đường Tỳ rời khỏi tổ sư đường trước.
 
-Những người còn lại của Tổ Sư Đường, yên lặng chờ tin tức.
+Những người còn lại trong tổ sư đường lặng lẽ chờ tin.
 
-Bà lão tự cười nói: "Ai làm việc, kẻ rụt trứng, vừa xem hiểu ngay."
+Lão ẩu tự cười: "Ai chịu làm việc, ai rụt cổ, nhìn là biết ngay."
 
-Lời này nói như vậy...
+Lời này quả thật...
 
 Đàm Lăng nhíu mày.
 
-Lão nhân kia nổi giận đùng đùng: "Lâm Diệp Nga, ngươi lặp lại lần nữa?"
+Lão nhân nổi giận: "Lâm Dĩnh Nga, ngươi nói lại lần nữa xem?"
 
-Bà lão hỏi ngược lại: "Lưng đeo?"
+Lão ẩu hỏi vặn lại: "Lưng đeo? [?]"
 
 Đàm Lăng trầm giọng nói: "Cao Tung, Lâm Dĩnh Nga, đều câm miệng cho ta!"
 
-Lão nhân cùng lão ẩu giận dữ cười, chung quy là không còn nói chuyện châm chích nữa.
+Lão nhân và lão ẩu cùng cười vì giận, rốt cuộc không còn châm chích nhau nữa.
 
-Đàm Lăng thở dài trong lòng, hai vị sư huynh muội này đã từng thiếu chút nữa trở thành thần tiên đạo lữ, ân oán tình cừu giữa bọn họ, nói không rõ ràng, cắt không đứt lý hoàn loạn.
+Đàm Lăng thở dài trong lòng. Hai vị sư huynh muội này từng suýt kết thành thần tiên đạo lữ. Ân oán tình thù giữa họ, nói không rõ, cắt chẳng đứt, gỡ chỉ càng rối.
 
-Một vị khách khanh vườn trà đột nhiên nói: "Đàm Sơn chủ, có muốn vận dụng thần thông chưởng quan sơn hà, kiểm tra dấu hiệu bên Ngọc Oánh Nhai không? Một khi Đường Tỉ lộng xảo thành vụng, chúng ta cũng có thể sớm chuẩn bị."
+Một vị khách khanh phố Xuân Lộ chợt hỏi: "Đàm sơn chủ, có nên dùng thần thông chưởng quan sơn hà để xem động tĩnh bên Ngọc Oánh Nhai không? Nếu Đường Tỳ khéo quá hóa vụng, chúng ta còn kịp chuẩn bị."
 
-Bà lão cười nói: "Trên tai có, mắt lại có người mù."
+Lão ẩu cười: "Có kẻ vẫn nghe được mà mắt thì mù. [?]"
 
-Đàm Lăng cùng vị khách khanh kia đều châm chọc khiêu khích Lâm Dĩnh Nga, ngoảnh mặt làm ngơ, Đàm Lăng lắc đầu, "Việc này không ổn. Đối phương ít nhất cũng là một vị lão Nguyên Anh, vô cùng có khả năng là một vị tiền bối Ngọc Phác cảnh, Nguyên Anh còn dễ nói, nếu là Ngọc Phác cảnh, cho dù ta cẩn thận, cũng sẽ bị người này phát giác được dấu vết để lại, như vậy Đường Tỳ lần này đi Ngọc Oánh Nhai, sẽ nguy cơ trùng trùng."
+Đàm Lăng và vị khách khanh đều làm như không nghe lời châm chọc của Lâm Dĩnh Nga. Đàm Lăng lắc đầu. "Không ổn. Đối phương ít nhất cũng là một vị lão Nguyên Anh, rất có thể còn là tiền bối Ngọc Phác cảnh. Nguyên Anh thì còn dễ nói. Nếu là Ngọc Phác cảnh, ta cẩn thận đến đâu cũng sẽ bị người ấy nhận ra dấu vết. Đường Tỳ đi Ngọc Oánh Nhai lần này sẽ gặp nguy hiểm."
 
-Bà lão giọng điệu âm dương quái khí nói: "Đường Tỳ không phải vẫn là người ngoài của vườn sương xuân sao? Người mơ ước gia nghiệp của hắn, chỗ Tổ Sư Đường này không ít, Đường Tỳ chết uổng, dùng sản nghiệp của Đường Tỳ phá của tiêu tai, dẹp yên Trần công tử và học sinh của hắn không vui, nói không chừng còn có lời của vườn sương."
+Lão ẩu nói bằng giọng mỉa mai: "Chẳng phải Đường Tỳ vẫn là người ngoài của phố Xuân Lộ sao? Trong tổ sư đường này thiếu gì kẻ thèm gia nghiệp của hắn. Nếu Đường Tỳ chết oan, cứ lấy sản nghiệp của hắn ra phá của tiêu tai, dẹp cơn giận của Trần công tử và học sinh, nói không chừng phố Xuân Lộ còn có lời."
 
 Vị khách khanh kia cười khổ không thôi.
 
-Đàm Lăng căm tức đến cực điểm, đứng lên, căm tức nhìn từng câu cay nghiệt như dao của lão bà hôm nay: "Lâm Diệp Nga! Ngươi có muốn giúp đỡ Tống Lan Tiều có một chỗ cắm dùi ở Tổ Sư Đường không?!"
+Đàm Lăng tức đến mức đứng phắt dậy, trừng mắt nhìn lão ẩu hôm nay câu nào cũng sắc như dao. "Lâm Dĩnh Nga! Ngươi có muốn giành một chỗ trong tổ sư đường cho Tống Lan Tiều hay không?!"
 
-Bà lão cười hắc hắc, "Không nói nữa không nói, đây không phải là chuyện mà trước kia vợ ta chưa từng nói chuyện, hôm nay hiếm khi thấy mặt trời mọc ở phía tây, nên nhịn không được nói nhiều một chút. Chỉ cần đệ tử kia của ta có thể vào Tổ Sư Đường, cho dù Tống Lan Tiều chỉ có thể bưng băng ghế dựa vào bên kia cửa, làm thần gác cổng, Lâm Dĩnh Nga ta cam đoan, trước kia ta làm người câm như thế nào, sau này vẫn sẽ như thế nào."
+Lão ẩu cười hắc hắc. "Không nói nữa, không nói nữa. Trước kia lão bà tử ta có mấy khi được lên tiếng, hôm nay hiếm hoi thấy mặt trời mọc đằng tây, nên không nhịn được nói thêm vài câu. Chỉ cần đệ tử ta vào được tổ sư đường, dù Tống Lan Tiều chỉ được xách ghế ra ngồi sát cửa làm thần giữ cổng, Lâm Dĩnh Nga ta cũng xin bảo đảm, trước kia ta câm lặng thế nào, sau này vẫn vậy."
 
-Bà lão nói xong những lời này, nhìn về ngoài cửa lớn Tổ Sư Đường.
+Nói xong, lão ẩu nhìn ra ngoài cửa tổ sư đường.
 
-Đàm Lăng vốn định giận dữ mắng vài câu, tránh cho sau này Lâm Dĩ Nga lại được voi đòi tiên, nhưng nhìn thấy khuôn mặt khô gầy của bà lão liền không đành lòng.
+Đàm Lăng định mắng vài câu, kẻo Lâm Dĩnh Nga sau này lại được voi đòi tiên. Nhưng thấy gương mặt gầy khô của lão ẩu, nàng không đành lòng.
 
-Huống chi Xuân Lộ Tổ Sư Đường cũng nên xuất hiện mấy người nguyện ý chân chính làm việc.
+Huống chi tổ sư đường phố Xuân Lộ cũng nên có thêm vài người thật lòng chịu làm việc.
 
-Chiếu Dạ Thảo Đường Đường Tỳ, chưởng quản độ thuyền nhiều năm Tống Lan Tiều, cộng thêm hôm nay từng hứa hẹn Lâm Dĩnh Nga, ba người kết minh, ngọn núi nhỏ này xuất hiện ở Xuân Lộ Phố, Đàm Lăng cảm thấy không hoàn toàn là chuyện xấu.
+Đường Tỳ của Chiếu Dạ Thảo Đường, Tống Lan Tiều trông coi độ thuyền đã nhiều năm, cùng Lâm Dĩnh Nga vừa hứa hẹn hôm nay, nếu ba người kết minh, phố Xuân Lộ có thêm một phe như vậy cũng chưa hẳn là chuyện xấu.
 
-Đường Tỳ không ngự phong đi xa, mà ngồi trên một chiếc thuyền Xuân Lộ Phố, đi tới Ngọc Oánh Nhai.
+Đường Tỳ không ngự phong mà ngồi thuyền của phố Xuân Lộ đến Ngọc Oánh Nhai.
 
-Trước khi thu hồi phù thuyền, Đường Tỳ từ xa xa đã phát hiện một kiếm tiên trẻ tuổi mặc thanh sam, thế nhưng cùng vị thiếu niên áo trắng kia đều ở trong khe nước mò đá, thật sự là nhàn hạ tao nhã.
+Trước khi thu phù thuyền, Đường Tỳ đã trông thấy từ xa vị kiếm tiên trẻ tuổi mặc thanh sam đang cùng thiếu niên bạch y mò đá dưới suối. Quả là nhàn nhã.
 
-Trần Bình An nghe nói chiếc độ thuyền kia của Tống Lan Tiều ngày mai sẽ tới Phù Thủy Độ, liền cùng Thôi Đông Sơn chờ là được, trở lại trong suối, vuốt cục đá trong nước, lựa chọn một hồi, nghe Thôi Đông Sơn tán gẫu chút kiến thức chuyến đi xa vượt châu lần này.
+Nghe nói độ thuyền của Tống Lan Tiều ngày mai sẽ đến bến Phù Thủy, Trần Bình An quyết định cùng Thôi Đông Sơn đợi ở đây. Hắn trở lại dưới suối, sờ từng viên đá trong nước để chọn, vừa nghe Thôi Đông Sơn kể chuyện trên đường vượt châu.
 
-Sau khi tán gẫu đến bãi Cốt Ma và Kinh Quan thành, Trần Bình An hỏi một vấn đề, Phi Ma tông tông chủ Trúc Tuyền đóng ở trấn nhỏ kia, lấy tu vi cao thừa cùng binh mã thế lực phiên thuộc Kinh Quan thành, có thể một hơi hăng hái nhổ cái đinh này hay không.
+Khi nói đến bãi Hài Cốt và Kinh Quan thành, Trần Bình An hỏi liệu với tu vi của Cao Thừa và binh mã các thế lực lệ thuộc Kinh Quan thành, hắn có thể một hơi nhổ cái đinh mà tông chủ Phi Ma tông Trúc Tuyền đang trấn giữ ở trấn nhỏ kia hay không.
 
-Thôi Đông Sơn không chút do dự, nói rất đơn giản, Trúc Tuyền nếu nguyện ý sống một mình, đương nhiên có thể chuồn, quay về núi Mộc Y, nhưng dựa theo tính tình Trúc Tuyền, mười phần mười là muốn chết trận trong cốc Quỷ Diêu, liều mạng tính mạng mình không cần trận pháp trấn Thanh Lư với bản thân, cũng phải khiến kinh quan thành thương gân động cốt, để thế hệ sau của Mộc Y sơn trưởng thành lên, ví dụ như tu sĩ bình cảnh Kim Đan Đỗ Văn Tư đóng ở trấn Thanh Lư nhiều năm, đệ tử đích truyền của tổ sư đường, thiếu niên Bàng Lan Khê.
+Thôi Đông Sơn đáp ngay. Nếu Trúc Tuyền muốn giữ mạng một mình thì đương nhiên có thể rút về Mộc Y sơn. Nhưng với tính tình của nàng, chắc chắn sẽ chọn chết trận ở Quỷ Lâu cốc. Nàng thà bỏ cả tính mạng lẫn trận pháp trấn Thanh Lư, cũng phải khiến Kinh Quan thành tổn thất nặng, để lớp sau của Mộc Y sơn có thời gian trưởng thành. Chẳng hạn Đỗ Văn Tư, tu sĩ Kim Đan đã đến bình cảnh, trấn thủ Thanh Lư nhiều năm, hay thiếu niên Bàng Lan Khê, đệ tử đích truyền của tổ sư đường.
 
-Nhưng Thôi Đông Sơn cũng nói, Cao Thừa đối đãi Trúc Tuyền, có chút ý tứ khác, cho nên mới không muốn xé rách da mặt.
+Có điều Thôi Đông Sơn cũng nói Cao Thừa đối với Trúc Tuyền có chút ý khác, bởi thế mới chưa muốn trở mặt.
 
-Trần Bình An cười hỏi: "Ngươi mới đến bãi Cốt Đả bao lâu, đã biết nhiều như vậy?"
+Trần Bình An cười hỏi: "Ngươi đến bãi Hài Cốt được bao lâu mà đã biết nhiều thế?"
 
-Thôi Đông Sơn cười nói: "Kiến vi tri trứ, là bản lãnh số lượng học sinh không nhiều."
+Thôi Đông Sơn cười: "Nhìn việc nhỏ mà biết chuyện lớn, ấy là một trong số ít bản lĩnh của học sinh."
 
-Sau đó Thôi Đông Sơn nhỏ giọng nói: "Cao Thừa đời này trước kia, đệ tử lần này du lịch bắc Câu Lô châu, có chút thu hoạch, cộng thêm Phi Ma tông xuất lực, hôm nay Cao Thừa chuẩn xác ngày sinh tháng đẻ, quê quán quê quán, mộ tổ phong thủy, đều đã tới tay. Những thứ này, vốn đều là chút chuyện không sao cả, đổi thành tu sĩ tiên nhân cảnh bắc Câu Lô châu, cũng không có biện pháp dựa vào những thứ này khó xử kinh quan thành như thế nào, cùng lắm chỉ là gãi ngứa mà thôi, đáng tiếc Cao Thừa gặp phải học sinh ta, liền rất có cái gọi là."
+Thôi Đông Sơn hạ giọng: "Chuyến đi Bắc Câu Lô Châu này, đệ tử tra được đôi chút về đời trước của Cao Thừa. Thêm Phi Ma tông giúp sức, nay ngày giờ sinh, quê quán, phong thủy mộ tổ của hắn đều đã nắm trong tay. Vốn chỉ là vài chuyện chẳng đáng kể. Đổi thành một tu sĩ Tiên Nhân cảnh ở Bắc Câu Lô Châu, có dựa vào đó gây khó dễ cho Kinh Quan thành thì cùng lắm cũng chỉ như gãi ngứa. Tiếc là Cao Thừa lại gặp phải học sinh ta, thế thì chuyện nhỏ cũng thành chuyện lớn."
 
-Trần Bình An nhặt lên một viên đá cuội trắng như tuyết, bỏ vào trong túi áo khoác dài màu xanh cuộn lại trước người, nói: "Động tay động chân trên người hạt gạo một chút, chuyện Cao Thừa làm không chính thống nhất."
+Trần Bình An nhặt một viên đá cuội trắng như tuyết, bỏ vào vạt thanh sam đã cuộn làm túi trước bụng. "Trong những việc Cao Thừa làm, hèn hạ nhất là giở trò trên người Hạt Gạo."
 
 Thôi Đông Sơn gật đầu nói: "Quả thực không phải là người."
 
@@ -136,104 +136,104 @@ Thôi Đông Sơn lập tức nói: "Cao huynh đệ vốn không phải ngườ
 
 Trần Bình An liếc Thôi Đông Sơn.
 
-Thôi Đông Sơn chớp chớp mắt, "Cao huynh đệ hôm nay có một tiểu huynh đệ, đáng tiếc học sinh lần này đi về phía bắc, không mang theo bên người, về sau tiên sinh có cơ hội, có thể gặp vị cao lão đệ kia một lần, tiểu oa nhi bộ dạng còn rất tuấn tú, chỉ là thiếu căn cơ, không thông minh."
+Thôi Đông Sơn chớp mắt. "Cao huynh đệ nay có một tiểu huynh đệ. Tiếc là chuyến đi về phía bắc lần này, học sinh không mang nó theo. Sau này có dịp, tiên sinh có thể gặp vị Cao lão đệ ấy. Tiểu oa nhi trông cũng tuấn tú, chỉ thiếu căn cơ, lại không được thông minh."
 
 Trần Bình An hỏi: "Giống với thiếu niên thư đồng bên cạnh Lý tiên sinh?"
 
-Thôi Đông Sơn gật gật đầu, "Một cái là lấy để luyện tập, một cái là tỉ mỉ tạo hình, có chút khác biệt."
+Thôi Đông Sơn gật đầu. "Một người được làm ra để luyện tay, một người được chăm chút tạo hình. Vẫn có chỗ khác nhau."
 
-Trần Bình An do dự một chút, vẫn là nói: "Nếu có thể mà nói, chúng ta tốt nhất có một ngày, có thể thật sự đối đãi với người ta. Nhưng cân nhắc ở nơi đây, vẫn là tự ngươi phán đoán, ta chỉ là nói chút ý tưởng của mình, không nhất định phải là ngươi như thế nào."
+Trần Bình An do dự một lát rồi nói: "Nếu có thể, ta mong sau này chúng ta thật lòng đối đãi với người ta. Còn trong chuyện này phải cân nhắc thế nào, vẫn tùy ngươi phán đoán. Ta chỉ nói ý của mình, không nhất định bắt ngươi làm theo."
 
-Thôi Đông Sơn ánh mắt sáng ngời, so với thiếu niên còn thiếu niên, cười nói: "Tiên sinh đã nói có thể, đệ tử có gì không thể."
+Hai mắt Thôi Đông Sơn sáng lên, trông còn ra dáng thiếu niên hơn cả thiếu niên. Hắn cười nói: "Tiên sinh đã bảo có thể, đệ tử có gì không thể."
 
-Hai người lần lượt nhận ra Đường Tỉ và phù thuyền, không nói gì nữa.
+Hai người lần lượt nhận ra Đường Tỳ và chiếc phù thuyền, bèn thôi không nói nữa.
 
-Đường Tỳ chậm rãi đi tới bên khe suối, chắp tay hành lễ, "Chiếu Dạ Thảo Đường Đường Tỉ, bái kiến Trần tiên sinh."
+Đường Tỳ chậm rãi đi tới bên suối, chắp tay hành lễ. "Đường Tỳ của Chiếu Dạ Thảo Đường, bái kiến Trần tiên sinh."
 
-Trần Bình An một tay nắm một túi đá cuội, đi lên bờ, cười chào hỏi với Đường Tỳ.
+Trần Bình An một tay xách túi đá cuội bước lên bờ, mỉm cười chào Đường Tỳ.
 
-Phía sau Thôi Đông Sơn đá cuội trong túi lớn hơn nữa càng nhiều, phải dùng hai tay kéo, có vẻ có chút buồn cười.
+Thôi Đông Sơn theo sau. Túi của hắn to hơn, đá cũng nhiều hơn, phải dùng cả hai tay kéo, trông hơi buồn cười.
 
-Trần Bình An sóng vai đi cùng Đường Tỳ, người sau gọn gàng dứt khoát nói: "Trần tiên sinh, bên Xuân Lộ Phố có chút lo lắng, ta liền cả gan mời một công, chủ động tới đây quấy rầy Trần tiên sinh thanh tu."
+Trần Bình An đi sóng vai với Đường Tỳ. Đường Tỳ nói thẳng: "Trần tiên sinh, bên phố Xuân Lộ có phần lo lắng. Ta mạo muội xin nhận việc này, đến đây quấy rầy tiên sinh thanh tu."
 
-Trần Bình An cười nói: "Đường tiên sư, ngươi bảo Đàm phu nhân cứ yên tâm, ta cùng với đệ tử rất nhanh sẽ ngồi độ thuyền của Tống tiền bối, cần lập tức đi hướng bãi hài cốt, hai người chúng ta tuyệt đối sẽ không gây phiền toái cho Xuân Lộ Phố, bằng không thì quá mức lấy oán trả ơn, từ Ngọc Oánh Nhai này, đến cửa hàng đường Lão Hòe, rồi đến Đường tiên sư cùng Lâm lão tiền bối, chúng ta nhận quá nhiều tình cảm của Xuân Lộ Phố..., Đến Phi Ma tông Mộc Y sơn, ta sẽ tranh thủ nói chuyện với người quen bên kia, nói một câu tốt về Xuân Lộ phố, cũng hy vọng vốn có Phi Ma tông và Xuân Lộ phố xưa, hai bên mua bán, có thể tiến thêm một bước. Chỉ có điều ta thấp cổ bé họng, nói chuyện rốt cuộc có hữu dụng hay không, không dám cam đoan. Nếu ta nói những lời hay, ở Mộc Y sơn bên kia trôi theo dòng nước vô thanh vô tức, hy vọng sau này lại đến bái phỏng Xuân Lộ phố, đại môn Chiếu Dạ Thảo đường của Đường tiên sư đừng đóng lại, tốt xấu gì cũng để ta uống chén trà nước."
+Trần Bình An cười nói: "Đường tiên sư cứ bảo Đàm phu nhân yên tâm. Ta và đệ tử sẽ sớm lên độ thuyền của Tống tiền bối, đi thẳng đến bãi Hài Cốt. Hai thầy trò tuyệt đối không gây phiền toái cho phố Xuân Lộ, bằng không chẳng phải lấy oán trả ơn sao? Từ Ngọc Oánh Nhai, cửa hàng ở phố Lão Hòe, đến Đường tiên sư và Lâm lão tiền bối, chúng ta đã nhận quá nhiều ân tình của phố Xuân Lộ. Khi đến Mộc Y sơn, ta sẽ tìm dịp nói đôi lời tốt đẹp về phố Xuân Lộ với người quen bên ấy, cũng mong việc làm ăn xưa nay giữa hai bên có thể tiến thêm một bước. Chỉ có điều ta thấp cổ bé họng, lời nói có tác dụng hay không thì chẳng dám chắc. Nếu những lời ấy trôi theo dòng nước ở Mộc Y sơn, mong lần sau ta ghé phố Xuân Lộ, cửa Chiếu Dạ Thảo Đường của Đường tiên sư vẫn mở, cho ta vào uống một chén trà."
 
-Đường Tỳ như trút được gánh nặng, còn có vài phần cảm kích chân thành, lại chắp tay bái tạ: "Đại ân của Trần tiên sinh, Đường Tỳ ghi nhớ trong lòng!"
+Đường Tỳ như trút được gánh nặng, trong lòng cũng có mấy phần cảm kích, bèn chắp tay tạ ơn lần nữa. "Đại ân của Trần tiên sinh, Đường Tỳ xin ghi lòng!"
 
-Trần Bình An cười nói: "Cửa hàng bên kia, chưởng quầy Vương Đình Phương xử lý rất ổn thỏa, Đường tiên sư về sau không cần phí tâm phí sức quá mức, bằng không ta nghe xong sẽ áy náy, Vương chưởng quỹ cũng khó tránh khỏi khẩn trương."
+Trần Bình An cười: "Bên cửa hàng, chưởng quầy Vương Đình Phương đã lo liệu ổn thỏa. Sau này Đường tiên sư không cần phí thêm tâm sức, bằng không ta nghe rồi sẽ áy náy, Vương chưởng quầy cũng khó tránh khỏi căng thẳng."
 
-Đường Tỳ gật đầu nói: "Nếu Trần tiên sinh đã lên tiếng, ta sẽ để Vương Đình Phương tự mình đi, nhưng Trần tiên sinh có thể yên tâm, Xuân Lộ Phố nói lớn cũng lớn, nói nhỏ cũng nhỏ, nếu thật sự có sơ suất, ta sẽ gõ tiểu tử Vương Đình Phương kia. Thích ý kiếm tiền như thế, nếu còn dám lười biếng một lát, chính là làm người lương tâm có vấn đề, là ta quản giáo Chiếu Dạ Thảo Đường không tốt, cô phụ thiện ý của Trần tiên sinh, nếu thật sự như thế, lần sau Trần tiên sinh đến chiếu Dạ Thảo Đường ta uống trà, Đường Tỳ ta uống rượu trước, tự phạt ba chén, mới dám uống trà với Trần tiên sinh."
+Đường Tỳ gật đầu. "Trần tiên sinh đã lên tiếng, ta sẽ để Vương Đình Phương tự lo. Nhưng tiên sinh cứ yên tâm, phố Xuân Lộ nói lớn thì lớn, nói nhỏ cũng nhỏ. Nếu thật sự có sơ suất, ta sẽ gõ đầu tiểu tử Vương Đình Phương. Kiếm tiền nhàn nhã như vậy mà còn dám lười biếng thì lương tâm có vấn đề. Ấy là ta quản giáo Chiếu Dạ Thảo Đường không tốt, phụ thiện ý của Trần tiên sinh. Nếu có chuyện ấy thật, lần sau tiên sinh đến Chiếu Dạ Thảo Đường uống trà, Đường Tỳ ta xin tự phạt ba chén rượu rồi mới dám uống trà cùng tiên sinh."
 
 Trần Bình An cười gật đầu.
 
-Đường Tỳ hành sự, nhanh chóng đi khỏi, cáo từ rời đi, thẳng thắn nói mình phải trở về Tổ Sư Đường báo cáo kết quả công tác.
+Đường Tỳ làm việc dứt khoát. Hắn cáo từ ngay, nói thẳng mình phải về tổ sư đường báo lại.
 
-Lần này không cưỡi phù thuyền chậm rãi, trực tiếp cưỡi gió rời đi.
+Lần này hắn không chậm rãi đi phù thuyền mà ngự phong rời đi.
 
 Từ đầu tới đuôi, Thôi Đông Sơn đều chưa nói gì.
 
-Trần Bình An quay đầu nhìn phía Thôi Đông Sơn, "Có ngươi ở đây, ta khó được cáo mượn oai hùm một lần."
+Trần Bình An quay sang Thôi Đông Sơn. "Có ngươi ở đây, hiếm hoi lắm ta mới được cáo mượn oai hùm một lần."
 
 Thôi Đông Sơn nghiêm trang nói: "Tiên sinh mắng học sinh, thiên kinh địa nghĩa."
 
-Trần Bình An tức giận cười nói: "Tất cả đều là cái gì."
+Trần Bình An tức đến bật cười. "Ngươi nói gì đâu không."
 
-Hai người tới đình nghỉ mát bên này, Trần Bình An an vị ở trên bậc thang, Thôi Đông Sơn ngồi ở một bên, cố ý vô tình, thấp đi một bậc thang.
+Hai người đến đình nghỉ mát. Trần Bình An ngồi trên bậc thang, Thôi Đông Sơn ngồi bên cạnh, chẳng biết vô tình hay cố ý, thấp hơn một bậc.
 
-Hai người đã chất đống đá cuội "Không chịu nổi" lên nhau.
+Hai người đã chất thành đống những viên đá cuội "không chịu nổi". [?]
 
-Hai khuỷu tay của Thôi Đông Sơn để ở trên bậc thang chỗ cao sau lưng, thân thể ngửa ra sau, nhìn phía núi cùng nước phương xa, vào thu thời gian, vẫn xanh um tươi tốt, nhưng màu sắc nhân gian sẽ không như thế, bốn mùa xanh tươi.
+Thôi Đông Sơn chống hai khuỷu tay lên bậc cao sau lưng, ngả người nhìn núi và nước phía xa. Đã vào thu mà cây cối vẫn xanh um, khác với sắc cây cỏ chốn nhân gian, nơi đây bốn mùa đều xanh.
 
-Trần Bình An vuốt thuận tay áo cùng ống quần, đi chân trần, giày ở đình nghỉ mát phía sau, mũi giày hướng về ghế dài.
+Trần Bình An vuốt phẳng tay áo và ống quần, để chân trần. Giày hắn để trong đình phía sau, mũi giày hướng về băng ghế dài.
 
-Cây gậy leo núi kia của Thôi Đông Sơn, tựa chéo vào đình trụ.
+Cây gậy leo núi của Thôi Đông Sơn tựa chéo vào cột đình.
 
-Trần Bình An cười nói: "Khi học đồ ở lò gốm, đi đâu cũng thấy đất, có thích hợp làm đồ sứ hay không, làm Bao Phục trai, đi đâu cũng muốn kiếm tiền, có thể tích góp gia sản hay không."
+Trần Bình An cười nói: "Hồi làm học đồ ở lò gốm, đi đâu ta cũng nhìn đất, xem có làm đồ sứ được không. Đến khi làm Bao Phục trai, đi đâu ta cũng nghĩ xem có kiếm được tiền, dành dụm thêm chút gia sản không."
 
-Trần Bình An có chút cảm khái, "Vỡ đất tử kim kia là việc lớn. Chuyện nung sứ mở gian, càng là việc lớn trong đại sự, lúc trước phối màu cùng men, cho dù trước đó nhìn đẹp nữa, phía sau nung tạo sai rồi, cũng không được việc, chỉ cần có chút sơ suất, sẽ thất bại trong gang tấc, mấy chục người, ít nhất nửa năm vất vả, toàn bộ uổng phí, cho nên chuyện mở đầu, cho tới bây giờ đều là Diêu lão nhân tự mình giám sát, cho dù là Lưu Tiện Dương đệ tử đắc ý như vậy..., Không cho. Diêu lão nhân sẽ ngồi ở trên băng ghế, tự mình gác đêm nhìn lò lửa. Nhưng Diêu lão nhân thường xuyên nhắc tới, đồ sứ vào lò nung, thành hay không thành, tốt hay xấu, tốt hay tốt, lại quản hỏa hậu, chung quy vẫn phải xem mệnh. Trên thực tế cũng là như thế, tuyệt đại bộ phận đều thành mảnh vỡ của núi sứ, lúc ấy nghe nói bởi vì là vật ngự dụng của hoàng đế lão gia, thà thiếu chứ không ẩu, thiếu một chút ý tứ, cũng muốn ngã nát bét, lúc ấy, cảm thấy lão nhân quê nhà nói những lời châm ngôn kia, nói cái gì trời cao hoàng đế xa, thật sự là đặc biệt có cảm xúc."
+Trần Bình An có phần cảm khái. "Đào đất tử kim là việc lớn, nung sứ rồi mở lò lại càng là việc lớn. Màu và men phối đẹp đến đâu, vào lò nung mà sai thì cũng vô ích. Chỉ sơ suất một chút là công sức ít nhất nửa năm của mấy chục người đổ sông đổ biển. Cho nên việc mở lò xưa nay đều do lão Diêu tự trông nom, đến đệ tử đắc ý như Lưu Tiện Dương cũng không được thay. Lão ngồi trên ghế dài, đích thân canh lửa suốt đêm. Nhưng lão Diêu vẫn thường nói, đồ sứ đã vào lò, thành hay không, tốt hay xấu, dù có coi chừng lửa kỹ đến đâu, cuối cùng vẫn phải xem số. Quả thật phần lớn đều thành mảnh vỡ trên núi sứ. Nghe đâu vì là đồ ngự dụng của hoàng đế lão gia, thà thiếu chứ không được cẩu thả, kém một chút thôi cũng phải đập nát. Hồi ấy nghe các lão nhân quê nhà nói trời cao hoàng đế xa, ta thấm câu ấy lắm."
 
-Trần Bình An cười cười, "Chỉ là lúc ấy, cảm thấy đỉnh cây hòe già này cũng rất cao, đầu nhọn của lão từ sơn cũng rất cao. Về phần xa xa không xa, đại khái đi lên núi đốn củi đốt than, cũng chính là xa. Ít nhất so với khi còn nhỏ lên núi hái thuốc, xa hơn rất nhiều."
+Trần Bình An cười. "Hồi ấy, ta thấy ngọn cây hòe già cũng cao, đỉnh núi Lão Từ cũng cao. Còn nói xa, chừng như lên núi đốn củi đốt than đã là xa rồi. Ít nhất xa hơn nhiều so với hồi bé lên núi hái thuốc."
 
-Thôi Đông Sơn luôn suy nghĩ xuất thần.
+Thôi Đông Sơn vẫn mải nghĩ đến xuất thần.
 
-Nghe đến đó, Thôi Đông Sơn nhẹ giọng nói: "Khi còn bé bị nhốt ở lầu các đọc sách, cao không cao, không cảm giác được, chỉ có thể xuyên thấu qua cửa sổ nho nhỏ nhìn ra xa xa. Lúc ấy, hận nhất chính là sách vở, ta trí nhớ tốt, đã gặp qua là không quên được, thật ra cũng nhớ kỹ, lúc ấy đã thề mình về sau bái sư cầu học, nhất định phải tìm kẻ học vấn nông cạn, ít tàng thư, sẽ không quản người ta, về sau tìm được lão tú tài chịu đói ở ngõ hẹp, Ngay từ đầu thật không cảm thấy học vấn của lão tú tài như thế nào, về sau, mới phát hiện thì ra tiên sinh, học vấn mình tùy tiện mò mẫm, thật ra có chút cao. Sau đó, được lão tú tài mang theo du lịch bốn phương, ăn rất nhiều canh cửa, cũng gặp rất nhiều người đọc sách chân chính, đợi đến lúc lão tú tài nói muốn trở về biên soạn một bộ sách, mới cảm thấy lại đi đường rất xa. Lão tú tài lúc ấy thề thốt, nói bộ sách này nếu là được bản khắc ra, ít nhất có thể bán được một ngàn bản! Nhất định có thể bán được châu quận khác. Lúc ồn ào lời này, lão tú tài giọng lớn, ta liền biết, là chột dạ."
+Nghe tới đó, Thôi Đông Sơn nhẹ giọng nói: "Hồi bé bị nhốt trên lầu đọc sách, cao hay không ta chẳng cảm thấy, chỉ có thể nhìn ra xa qua ô cửa sổ nhỏ. Khi ấy ta ghét sách nhất, nhưng trí nhớ lại tốt, đọc qua là không quên, thành ra đều nhớ kỹ. Ta từng thề sau này bái sư cầu học, nhất định tìm người học vấn nông, ít sách, lại không hay quản người. Về sau tìm được lão tú tài chịu đói trong ngõ hẹp. Ban đầu ta cũng chẳng thấy học vấn của lão tú tài có gì ghê gớm. Mãi sau mới nhận ra học vấn tiên sinh tùy tiện đem ra nói ấy, thật ra cao lắm. Rồi lão tú tài dẫn ta đi khắp nơi, bị nhiều người đóng cửa không tiếp, cũng gặp nhiều người đọc sách chân chính. Đến khi lão tú tài nói muốn về biên soạn một bộ sách, ta mới thấy mình đã đi xa đến vậy. Lúc ấy lão thề thốt rằng sách này mà khắc in ra, ít nhất bán được một ngàn bản, nhất định còn bán sang châu quận khác! Lão càng nói to, ta càng biết lão chột dạ."
 
-Trần Bình An mỉm cười nói: "Nó lựa chọn ta, là vì Tề tiên sinh, khởi điểm không liên quan gì tới Trần Bình An ta. Ngươi mặt dày mày dạn cầu xin ta làm tiên sinh của ngươi, thật ra cũng giống vậy, là lão tiên sinh dựa theo ngươi bái sư, cùng bản thân Trần Bình An ta, thời điểm sớm nhất, quan hệ không lớn."
+Trần Bình An mỉm cười: "Nó chọn ta vì Tề tiên sinh, ban đầu chẳng liên quan gì tới Trần Bình An ta. Ngươi mặt dày mày dạn xin ta làm tiên sinh, thật ra cũng vậy. Là lão tiên sinh bảo ngươi bái sư. Lúc đầu, chuyện ấy cũng chẳng có mấy liên quan đến chính ta."
 
 Thôi Đông Sơn muốn nói chuyện.
 
-Trần Bình An xua tay, tiếp tục nói: "Nhưng quan hệ không lớn, vẫn là có quan hệ, bởi vì vào thời khắc nào đó, ta chính là một trong số đó, vạn nhất, thậm chí là một phần vạn, rất nhỏ, nhưng lại là khởi đầu của mọi sự. Chuyện như vậy, ta cũng không xa lạ gì, thậm chí đối với ta mà nói, còn có một phần lớn hơn nữa, là toàn bộ của rất nhiều chuyện. Ví dụ như sau khi cha ta đi, mẫu thân sinh bệnh, ta chính là một trong số đó, nếu ta không làm gì, thì thật sự cái gì cũng không có, hai bàn tay trắng. Năm đó, chiếc cửa kia trên bàn nhà Cố Xán bọn họ, cũng là một trong số đó, không mở cửa, Trần Bình An ngõ Nê Bình, có lẽ còn có thể đổi một loại cách sống, nhưng Trần Bình An hôm nay ngồi ở đây nói chuyện với ngươi, chắc chắn sẽ không còn nữa."
+Trần Bình An xua tay, nói tiếp: "Nhưng ít liên quan thì vẫn là có liên quan. Bởi vào một lúc nào đó, ta cũng là một phần trong chuyện ấy, dù chỉ là một phần vạn, rất nhỏ, lại có thể là khởi đầu của mọi việc. Chuyện như vậy ta chẳng lạ. Thậm chí có những lúc phần của ta lớn hơn, là toàn bộ của rất nhiều việc. Ví dụ cha ta mất rồi, mẫu thân đổ bệnh, ta là một phần trong đó. Nếu ta không làm gì thì thật sự chẳng còn gì, hai bàn tay trắng. Cánh cửa nhà Cố Sán năm đó cũng là một phần. Không mở cửa, Trần Bình An ở ngõ Nê Bình có lẽ vẫn có thể sống theo một cách khác. Nhưng Trần Bình An đang ngồi đây nói chuyện với ngươi, chắc chắn sẽ không có."
 
-Nói tới đây, Trần Bình An nhẹ nhàng nắm tay, gõ gõ ngực, "Khi chúng ta nhớ mong thế giới này, sẽ phải sống cuộc sống rất vất vả."
+Nói đến đây, Trần Bình An khẽ nắm tay gõ lên ngực. "Còn lưu luyến thế gian này thì sẽ phải sống vất vả."
 
-Trần Bình An quay đầu, cười nói: "Nhưng mà trùng hợp, cái gì ta cũng sợ, duy chỉ có không sợ chịu khổ, thậm chí ta sẽ cảm thấy chịu khổ càng nhiều, càng chứng minh mình sống trên đời. Không có biện pháp, không nghĩ như vậy, sẽ sống càng gian nan."
+Trần Bình An quay đầu, cười nói: "Khéo là ta sợ đủ thứ, chỉ không sợ chịu khổ. Thậm chí ta còn thấy chịu khổ càng nhiều, càng biết mình đang sống trên đời. Hết cách. Không nghĩ như vậy thì sống còn khó hơn."
 
-Trần Bình An nhìn phía thiếu niên áo trắng kia, "Chỉ ở trên chuyện này, ngươi không bằng ta, đệ tử không bằng tiên sinh. Nhưng mà chuyện này, đừng học, không phải không tốt, mà là ngươi không cần."
+Trần Bình An nhìn thiếu niên bạch y. "Chỉ riêng chuyện này, ngươi không bằng ta, đệ tử không bằng tiên sinh. Nhưng chuyện ấy đừng học. Không phải vì nó không tốt, mà vì ngươi không cần."
 
-Thôi Đông Sơn gật gật đầu.
+Thôi Đông Sơn gật đầu.
 
-Trần Bình An ngửa ra sau, hai tay đặt lên trên đầu, nhẹ nhàng nói: "Bùi Tiền đột nhiên tập võ, là vì Tào Tình Lãng."
+Trần Bình An ngả người, hai tay đặt sau đầu, nhẹ giọng nói: "Bùi Tiền đột nhiên tập võ là vì Tào Tình Lãng."
 
 Thôi Đông Sơn ừ một tiếng.
 
-Bùi Tiền đã bắt đầu tập võ, là tự tiên sinh đoán ra, vì sao tập võ, càng là như thế.
+Bùi Tiền đã tập võ, tiên sinh tự đoán ra. Vì sao nàng tập võ, tiên sinh cũng tự hiểu.
 
-Trần Bình An nói: "Vậy ta gặp mặt, sẽ nói cho nàng, nàng có thể hoài niệm Thôi tiền bối, duy chỉ có không cần cảm thấy áy náy. Nếu Bùi Tiền gật đầu đáp ứng, lại không làm được, càng tốt hơn. Ta tin nàng cũng nhất định sẽ như vậy. Bùi Tiền, ngươi, ta, ta, thật ra chúng ta đều giống nhau, đạo lý đều biết, chính là không qua được đạo tâm khảm kia. Cho nên sau khi lớn lên, mỗi lần về quê nhà, mặc kệ là niệm tưởng, hay là đi đường, đều phải lo lắng một chút, tuổi càng lớn, càng nhìn không ra. Đối với Bùi Tiền mà nói, trúc lâu Lạc Phách Sơn chính là tâm khảm của nàng. Tâm khảm Nam Uyển quốc, Thôi tiền bối có thể dẫn theo nàng đi qua, Thôi tiền bối đi rồi, tâm khảm mới, đời này ta cảm thấy có chút tâm khảm, cả đời ở lại trên đường tâm lộ, lau không yên, chỉ có thể vụng trộm đi vòng qua, không có gì không tốt."
+Trần Bình An nói: "Gặp mặt, ta sẽ nói với Bùi Tiền rằng nàng cứ nhớ Thôi tiền bối, chỉ đừng thấy áy náy. Nếu nàng gật đầu mà vẫn không làm được thì càng tốt. Ta tin nàng sẽ như vậy. Bùi Tiền, ngươi và ta, thật ra đều giống nhau. Đạo lý thì biết cả, chỉ không bước qua nổi cửa ải trong lòng. Cho nên lớn rồi, mỗi lần trở về quê, dù trong ý nghĩ hay thật sự lên đường, cũng phải đắn đo một chút. Tuổi càng lớn, càng khó nghĩ thông. Với Bùi Tiền, trúc lâu Lạc Phách sơn chính là cửa ải trong lòng nàng. Cửa ải Nam Uyển quốc, Thôi tiền bối còn có thể dẫn nàng bước qua. Nay Thôi tiền bối đi rồi, lại có cửa ải mới. Ta nghĩ có những cửa ải suốt đời nằm trên đường trong lòng mình, không thể san phẳng, chỉ có thể lặng lẽ đi vòng. Cũng chẳng có gì không tốt."
 
-Trần Bình An cuối cùng nói: "Sợ nhất ta cảm thấy vấn tâm không thẹn, ta cảm thấy lương tâm dễ chịu, ta cảm thấy đó là điều đương nhiên, từng người ta cảm thấy như thế nào như thế đó."
+Cuối cùng Trần Bình An nói: "Sợ nhất là ta cứ cho rằng mình hỏi lòng không thẹn, lương tâm yên ổn, chuyện gì cũng đương nhiên, rồi ai nấy đều cho ý mình là phải."
 
-Thôi Đông Sơn quay đầu nhìn lại, tiên sinh đã không nói gì nữa, nhắm mắt lại, tựa như đã ngủ.
+Thôi Đông Sơn quay sang nhìn. Tiên sinh đã im lặng, nhắm mắt tựa như ngủ.
 
 Thôi Đông Sơn cũng nhắm mắt lại, suy nghĩ bay xa.
 
-Chỉ có tiếng nước róc rách, như nói chữ triện, thế núi cao hiểm trở lại không nói gì, như giải chữ triện.
+Chỉ có tiếng nước róc rách, như đang đọc chữ triện. Núi cao hiểm trở lặng im, như đang giải chữ triện.
 
-Thôi Đông Sơn có chút an tâm, cũng ngủ từ từ.
+Thôi Đông Sơn thấy lòng yên đôi chút, rồi cũng dần thiếp đi.
 
-Không biết qua bao lâu, Thôi Đông Sơn đột nhiên nói: "Nhìn thấy tiểu Bảo Bình và Bùi Tiền trưởng thành, tiên sinh ngươi thương cảm bao nhiêu. Như vậy Tề Tĩnh Xuân nhìn thấy tiên sinh trưởng thành, thì vui vẻ bấy nhiêu."
+Không biết bao lâu sau, Thôi Đông Sơn chợt nói: "Tiên sinh nhìn tiểu Bảo Bình và Bùi Tiền lớn lên mà buồn bao nhiêu, thì Tề Tĩnh Xuân nhìn tiên sinh trưởng thành lại vui bấy nhiêu."
 
 Trần Bình An không nói gì, tựa như còn đang ngủ say.
 
-Thôi Đông Sơn không nói gì nữa, trầm mặc hồi lâu, nhịn không được hỏi: "Tiên sinh?"
+Thôi Đông Sơn im lặng hồi lâu, cuối cùng không nhịn được mà khẽ gọi: "Tiên sinh?"
 
 Trần Bình An nhẹ giọng nói: "Có."
