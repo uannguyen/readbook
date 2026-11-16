@@ -1,367 +1,575 @@
-# Chương 578: Cân nhắc
+# Chương 578: 观战剑仙何其多
 
-Trần Bình An đi ra khỏi Kinh Trập phủ, trên tay cầm một cây gậy leo núi bằng trúc xanh biếc, lẻ loi tiến về phía rừng trúc.
+庞元济双指并拢在身前，微笑道：“我飞剑不多，就一把，好在够快，希望不会让你失望。”
 
-Do dự một chút, hắn tế ra một cái bùa chú hình thuyền nhỏ, cưỡi gió hướng về phía Ngọc Oánh sườn dốc. Thực ra trong lúc ở Xuân Lộ phố, hắn từng tạm mượn Phù chu bên ngoài, ngôi phủ đệ của thị nữ cũng mỉm cười nói về việc Phù chu đi lại giữa các phủ đệ. Những người trong lão hòe phố đều tốn kém thần tiên tiền, dự trữ khá nhiều tiền thần tiên tại Kinh Trập quý phủ, nhưng Trần Bình An chưa bao giờ mở ra.
+大街之上，剑气丛生，然后如有一条条溪涧潺潺而来，歪歪扭扭，毫无章法，最终各自铺散开来，聚拢成一条剑气江河。
 
-Nhập gia tùy tục, tuân theo quy củ cũ là một chuyện, nhưng bản thân hắn cũng có quy củ riêng. Chỉ cần cả hai không mâu thuẫn, những quy tắc ấy trở thành cái giam giữ, biến thành những màn trình diễn cho người xem nơi núi sông Phù chu.
+剑意无处不在，两边酒肆内的酒客，都清清楚楚感觉到了一股冰凉寒意，从大街上缓缓涌入。
 
-Trần Bình An khống chế bùa chú của Đạo gia trong mạch Thái Chân Cung, tiến vào Ngọc Oánh sườn dốc. Kết quả, hắn chứng kiến Liễu Chất Thanh, người đang tháo giày, xắn tay áo và ống quần, đứng giữa một cái đầm thanh trong, cúi xuống nhặt đá cuội. Khi thấy một viên đá cuội vừa mắt, nàng không ngẩng đầu lên mà khẽ ném về phía bờ đầm. Khi Trần Bình An rơi xuống đất và thu bùa chú vào tay áo, Liễu Chất Thanh vẫn không ngẩng đầu, lớn giọng nói: "Câm miệng, không muốn nghe ngươi nói chuyện."
+庞元济之所以被隐官大人选中为弟子，显然不是什么狗屎运，而是人人心知肚明，庞元济确实是剑气长城百年以来，最有希望继承隐官大人衣钵的那个人。
 
-Có lẽ Liễu Chất Thanh, tiểu sư thúc tổ của Kim Ô cung, không tin rằng cái người tham tiền kia lại có thể ném hàng trăm viên đá cuội xuống cái đầm trong. Phần lớn nguyên nhân là vì nàng quá nghiêm khắc với những điều như ý niệm, cầu toàn. Đáng lẽ nàng đã nên ngự kiếm quay về Kim Ô cung, nhưng giữa đường cảm thấy cái đầm vắng vẻ làm nàng phiền lòng, nên quyết định quay lại Ngọc Oánh sườn dốc. Sau khi chia tay với người họ Trần bên lão hòe phố, nàng không thể cứng nhắc đợi cái người tham tiền kia ném đá cuội, nên đành tự mình làm. Mỗi viên đá cuội nàng nhặt được đều quý giá.
+妖族最多处，即我出剑处。
 
-Trần Bình An cũng bỏ giày, tiến vào giữa khe nước, vừa nhặt lên một viên đá cuội óng ánh, định giúp nàng ném vào đầm.
+哪个剑修，对此境界，不心神往之？
 
-Chưa kịp nghĩ thì Liễu Chất Thanh nói: "Viên này không được, màu sắc quá đẹp rồi."
+一位剑修，尤其是有先天剑胚美誉的那种天之骄子，自身本命飞剑的品秩好坏，确实会决定他们最终成就的高低。
 
-Trần Bình An vẫn ném đá cuội về phía bờ đầm, kết quả bị Liễu Chất Thanh vung tay áo một cái, viên đá cuội rơi xuống khe nước. Liễu Chất Thanh tức giận nói: "Họ Trần đấy!"
+在庞元济那句话说出口后。
 
-"Được rồi, thôi đi, xem như lòng lang dạ thú, hai ta tiếp tục làm việc đi."
+大小酒肆酒楼，便有连绵不绝的喝倒彩声响，调侃意味十足。
 
-Trần Bình An khéo léo thu hồi viên đá cuội, dùng hai tay lau sạch nước, rồi nhếch môi cười, "Toàn là vàng bạc thật."
+庞元济的本命飞剑，名为“光阴”，光阴似水，故而流水不定剑无形，如果说齐狩最根本的那把本命剑跳珠，还有个数量上的直观展露，那么庞元济这把本命剑，就真不讲道理了，最不讲道理的，不止是本命飞剑的威势之大，而是有了那把“光阴”飞剑之后，庞元济被誉为“剑通万法”，飞剑不但可以淬炼体魄、还可以反哺三魂七魄，修行术法，事半功倍，加上庞元济自幼就表现出惊才绝艳的修道资质，触类旁通，一身所学杂且精，所以庞元济又有“庞百家”的昵称。
 
-Ngọc Oánh, dưới vách đầm, nơi nước suối phát nguồn, là chỗ giao nhau của mạch nước núi, trời ưu ái ban tặng linh khí dạt dào. Những viên đá cuội nơi đây đã trải qua hàng trăm ngàn năm, chịu ảnh hưởng của linh khí thanh tuyền, cho nên chất lượng tuyệt vời. Những viên đá cuội trong khe nước chỉ cần được mài dũa một chút hoặc là trang trí lại, dùng làm thư phòng cho quan to hiển quý, vẫn là thứ hàng đầu, làm đẹp mắt biết bao. Dù có thể không kéo dài tuổi thọ, nhưng đủ để khiến người ta vui vẻ.
+庞元济没有一件法袍，没有齐狩那种跟着姓氏带来的半仙兵，更没有什么多余的兵家甲胄。
 
-Liễu Chất Thanh chọn lựa rất cẩn thận, ném đi hơn mười viên đá cuội vào đầm.
+陈平安轻轻向前走去，一身拳罡如瀑流泻，走在街上，如逆水行舟。
 
-Để có cảm giác so với chọn bạn đời còn tâm huyết hơn.
+行走之时，纯粹武夫的拳意，与至精至纯的剑气，便要冲撞在一起，使得境界不够的那拨观战之人，都已经看不清那一袭青衫剑客的面容身形，街上画面如那碗中酒，人如酒中丢入了一枚铜钱，饮酒之人，晃动白碗，便让人看不真切那枚碗底铜钱。
 
-Trần Bình An theo sau Liễu Chất Thanh, một đường sửa mái nhà dột. Phần lớn là vì Liễu Chất Thanh cầm tường xem xét, rồi lại thả. Vì vậy, hắn nhìn thấy tới bốn mươi năm mươi viên đá cuội. Đã từ lâu, Trần Bình An đã nghĩ rằng, bên lão hòe phố có một cửa hàng chuyên bán đồ dùng thư phòng lâu đời, nhưng chưởng quỹ già không dễ mời, huống chi người đó cũng chưa chắc thích những viên đá này. Hắn chỉ cần tìm hai viên tiểu nhị trong cửa hàng, dù chỉ cần một nửa khả năng của lão chưởng quỹ, đối phó với những viên này thì cũng đủ. Hãy để họ giúp mài dũa một chút, rồi sau đó đem bán với giá cao, nói rằng chúng được sản xuất từ lão hố Ngọc Oánh sườn dốc và kết hợp với những câu chuyện thú vị của Kim Ô Cung, giá cả sẽ tự động tăng lên.
+始终站在原地的宁姚，轻声说道：“那场架，陈平安怎么赢的，齐狩为何会输，回头我跟你们说些细节。”
 
-Còn về việc có nên thả những viên đá cuội trở lại hay không hay chỉ chọn những viên tốt nhất, thì hắn biết làm ăn lâu dài vẫn tốt nhất. Dù sao hắn đã không còn là Bao Phục trai ở Xuân Lộ phố, mà có một cửa hàng của riêng mình. Về phần lý do cửa hàng của Xuân Lộ phố bị tiễn đưa, thực ra rất đơn giản. Đã từ lâu, Thiết Đồng phủ đã khơi mào một lời tiên tri: "Xuân Lộ mùa đông tại," đúng là muốn viết những câu chuyện về "Trần Kiếm tiên". Tuy nhiên, Tống Lan Tiều nói rằng người chấp bút sẽ giao bản thảo cho hắn xem trước khi hắn rời khỏi Xuân Lộ phố. Côi sẽ có thể ghi lại và không thể ghi lại, thực tế Xuân Lộ phố đã tính toán lâu rồi, làm kinh doanh trên núi này không hề nhẹ nhàng.
+晏琢两眼放光，呆呆望向那个背影，很是唏嘘道：“我兄弟只要愿意出手，保管打谁都能赢。”
 
-Đối với cách thức làm giàu, Trần Bình An rất thích thú mà không cảm thấy chán nản. Hắn đã có cuộc trò chuyện rất say mê với Tống Lan Tiều, với việc lấy ra học hỏi từ núi Lạc Phách cũng có thể sẽ có ích.
+然后晏琢转头笑嘻嘻道：“对吧，三秋，是谁说来着，‘说假话，一只手就能撂倒齐狩’？”
 
-Liễu Chất Thanh lên bờ, đi đến Ngọc Oánh sườn dốc, thấy người ấy vẫn chưa có ý định lên bờ, có vẻ như nàng muốn vớt thêm đá cuội để không bỏ sót chỗ nào.
+陈三秋一脸茫然说道：“应该是董黑炭说的吧。”
 
-Liễu Chất Thanh cười mỉa, "Người tốt ơi, ngươi rơi tiền trong mắt rồi à?"
+董画符怒道：“扯你娘的蛋！”
 
-Trần Bình An xoay người nhặt lấy một viên đá cuội nhỏ mịn như ngọc, nhẫn nại nhìn nó một lúc, rồi cười nói: "Khi còn bé nghèo khổ, mà học được cách này."
+叠嶂有些无奈，董黑炭其实是所有人当中，与阿良相处最久的一个，估计也是剑气长城唯一一个在阿良身上撒过尿的“绝顶强者”了，所以董黑炭要么闷葫芦不说话，只要一开口骂人，全是从阿良那边学来的脏心话，听者真要介意了，就会被笑死也气死。
 
-Liễu Chất Thanh không ngự kiếm rời khỏi Xuân Lộ phố, đương nhiên là muốn tận mắt nhìn thấy người kia ném đi hàng trăm viên đá của mình trước khi yên tâm.
+一位悄然来到破败酒肆的中年剑仙，坐在那独眼的大髯汉子旁边，抹了抹桌上灰尘，笑着点头道：“拳罡精纯，拳意通玄。无法想象，早年那个曹慈，竟然能够连赢此人三场。”
 
-Nhưng mà hiện tại Liễu Chất Thanh cũng tự hỏi liệu tên này có thể một lần nữa thu lại tất cả sau khi nàng rời đi hay không, cảm giác như thế thật điên rồ, kẻ họ Trần ấy, thực sự làm được.
+先前挨了隐官大人一脚的大髯汉子，没有半点不自在，依旧喝酒，沙哑开口道：“你来得晚了，要是亲眼见过曹慈在城头练拳的样子，就不会这么奇怪了。曹慈成就多高，破境多快，我都觉得理所当然。”
 
-Trần Bình An mang vẻ mặt như đang ôm viên ngọc lấp lánh, ánh mắt dao động, chân đi trên đất nhặt tiền. Dù sao, việc này cũng dễ dàng hơn so với việc kiếm tiền từ người khác trong túi quần, cho vào túi của mình. Hắn không cần phải cong lưng hay duỗi tay ra; Trần Bình An cảm thấy như sét đánh ngang tai.
+说到这里，大髯汉子看了眼那个不急不缓、悠然前行于剑气洪流当中的陈平安，“当然，这个年轻人，确实很不错，当年我也见过他在墙头上的往返练拳，那会儿，我想不到他能有今天的武学境界。就算当时老大剑仙说，我都未必信。”
 
-Bởi vì lý do của Trần Bình An, Liễu Chất Thanh đã phải tốn trọn nửa canh giờ để trở về bờ dốc Ngọc Oánh.
+那位刚刚从南婆娑洲来到这边没多久的中年剑仙，笑道：“听说他来自宝瓶洲的骊珠洞天，不知道与那个大骊藩王宋长镜，有没有点关系。”
 
-Khi hai người đến bên kia cỏ tranh đình, Trần Bình An đứng yên bất động, Liễu Chất Thanh liền theo dõi hắn như vậy.
+大髯汉子摇头道：“不太清楚。分明年纪不大，一看却是个厮杀惯了的老鸟。你们浩然天下，一个纯粹武夫，有那么多架可以打吗？就算有高人喂拳传法，不真正置身生死之地多次，打不出这种意思来。”
 
-Trần Bình An vỗ đầu một cái, la lớn: "Ngươi có thấy trí nhớ của ta không?!" Rồi vung tay áo, mấy trăm viên đá cuội như mưa rơi xuống. Liễu Chất Thanh chăm chú nhìn vào những viên đá đó, ước lượng rằng số lượng không sai biệt lắm. Quan trọng là hơn mười viên đá cuội hắn thích nhất đều còn đủ, vậy nên sắc mặt Liễu Chất Thanh mới chuyển biến tốt đẹp. Nếu thiếu mất một viên, hắn sẽ không còn mong muốn tới đây uống trà nữa. Việc tham tiền hay không là chuyện của nhà họ Trần, có thể kiếm tiền từ cạnh mình, đó chính là bản lãnh của hắn. Nếu không có thiện ý, đó sẽ là hai loại sự tình hoàn toàn khác nhau. Nếu Ngọc Oánh rơi vào tay loại người này, Liễu Chất Thanh sẽ coi như Ngọc Oánh đã bị hủy, và sẽ không còn chút lưu luyến nào.
+“瞧着是不像外乡人，反而像是最地道的剑气长城年轻人。”
 
-Trần Bình An vỗ tay áo, nói tiếp: "Ngươi có nghĩ rằng việc nhặt đá bên khe nước cũng là tu tâm không? Tính tình của ngươi, ta hiểu khá rõ, ưa thích sự hoàn hảo không tỳ vết. Tâm cảnh và tính cách như vậy, có thể luyện kiếm là điều tốt, nhưng làm cho tâm nhãn trở nên tẩy tủy cùng Kim Ô cung nhân, ngươi có thể sẽ rất sốt ruột. Do đó, hiện tại ta thật ra có chút hối hận vì đã nói với ngươi chuyện này."
+那位南婆娑洲的剑仙男子举起酒碗，与对方轻轻磕碰了一下，抿了口酒后，感叹道：“天大地大，如我这般不爱喝酒的，唯独到了这边，也在肚子里养出了酒瘾虫子。”
 
-Liễu Chất Thanh lắc đầu: "Càng phiền toái thì càng có thể khẳng định lợi ích thu được từ việc tẩy kiếm sẽ vượt xa những gì ta tưởng tượng."
+汉子扯了扯嘴角，这位沉默寡言的玉璞境剑修，难得流露出几分怨气神色，冷笑道：“全是那个王八蛋带出来的风气，光棍不喝酒，光棍万万年。剑仙不喝酒，元婴走一走。”
 
-Trần Bình An cười nói: "Chỉ là tìm cớ để nhắc nhở ngươi thôi."
+三场架打完了。
 
-Liễu Chất Thanh do dự một chút, ngồi xuống, bắt đầu vẽ bùa bằng ngón tay. Thế nhưng, lần này động tác của hắn chậm rãi, và cũng không che giấu sự rung động của linh khí mình nữa. Rất nhanh, có hai quả cầu lửa đỏ tươi bay vòng quanh, hắn hỏi: "Học xong chưa?"
+马上就是第四场架。
 
-Trần Bình An lắc đầu: "Thủ pháp thì ta nhớ rõ, quỹ tích vận chuyển linh khí cũng đã hiểu, nhưng hôm nay ta vẫn làm không được."
+真是过瘾得很啊。
 
-Liễu Chất Thanh nhăn mặt: "Nếu ngươi cứ để tâm vào buôn bán, chỉ dồn một nửa vào tu hành, thì sao lại có thể đạt được cảnh giới như vậy?"
+那个有些婴儿肥的小姑娘，使劲用手拍打窗台，满脸涨红，激动万分，“瞧见没，瞧见没，我眼光好不好？你们别害羞，大声说出来！”
 
-Trần Bình An cười khổ: "Liễu Chất Thanh, ngươi đừng ngồi đây nói chuyện dễ dàng, ta là một người tu hành trường sinh đang gặp khó khăn, có thể có được cảnh giới hôm nay đã rất không tệ rồi."
+没人理睬她。
 
-Những lần thảo luận trước đó, Trần Bình An đã nắm chắc phẩm hạnh của Liễu Chất Thanh.
+这让小姑娘有些懊恼，突然发现身边的董姐姐有些反常。
 
-Họ đã hẹn ở sáng hôm đó tại Ngọc Oánh, nơi Liễu Chất Thanh, một kiếm tu Kim Đan, chỉ sử dụng năm phần sức mạnh. Còn Trần Bình An thì chỉ ra quyền.
+她好奇道：“董姐姐，是不是突然发现宁姐姐挑了这么个好男人，再一看，自己岁数老大不小了，挑来挑去，也没个合适的，所以你心里边特别难受啊？那就学学我，高兴要开口，难受也要说出来，我陪你喝喝酒。我把自己的高兴，借你一些！”
 
-Trần Bình An vẽ nên một vòng tròn có bán kính mười trượng, lợi dụng lúc Lão Long gia tăng tu vi để ứng phó với phi kiếm của Liễu Chất Thanh.
+董不得趴在窗台上，双手狠狠搓脸，唉声叹气，点头道：“贼难受，这么多年，什么都比不过宁丫头。”
 
-Liễu Chất Thanh lần đầu tiên điều khiển phi kiếm, nhưng vì khinh thường trình độ của Trần Bình An, nên không quá thích ứng với đối thủ dùng tổn thương để đổi lấy tổn thương. Một quyền quật ngã mà không ra tay hai lần, vì vậy phi kiếm "Thác Nước" của Liễu Chất Thanh lần đầu xuất hiện. Dù nhanh chóng như một trận cuồng phong, nhưng cũng chỉ đâm tới một tấc vào ngực Trần Bình An. Kết quả là hắn bị phi kiếm xuyên qua vai, ngay lập tức đến gần Liễu Chất Thanh, rồi phi kiếm đó lại quay ngược về, đâm vào mắt cá chân của hắn. Liễu Chất Thanh vừa lùi ra vài trượng thì bị động tác đánh ra vòng tròn, may mà đối phương cũng chỉ ra quyền một lần, đã khiến hắn vấp phải lực cản và ngã xuống đất, trượt đi vài trượng, người nhuốm đầy bụi bặm.
+小姑娘安慰道：“董姐姐你岁数大啊，在这件事上，宁姐姐怎么都比不过你的，稳操胜券！”
 
-Liễu Chất Thanh chỉ bị chút chật vật, đứng dậy, nhìn thấy vai và mắt cá chân mình bị xuyên thủng, hỏi: "Không đau sao?"
+董不得转过头，伸手握住小姑娘的脖子，轻轻提起，微笑道：“大声点说，刚才我没听清楚。”
 
-Kiếm tu phi kiếm khó chơi, ngoài việc nhanh ra, một khi xuyên qua đối phương, khí phủ khó khả khép lại. Hơn nữa, sự va chạm của "Đại đạo" tạo ra tác động đáng sợ. Những pháp bảo còn lại cũng có thể gây ra thương tích, nhưng khí kiếm thì lại tạo ra sự tổn thương nặng nề hơn rất nhiều, như cơn lũ cuốn trôi, điên cuồng cuồng loạn xáo trộn linh khí, và trong tình huống sinh tử, một chút linh khí khuấy động cũng có thể gây ra cái chết cho người tu sĩ. Binh gia tu sĩ trên mặt đất còn không thể bằng một người có thể đánh lén, nhưng một đòn đau bất ngờ có thể làm hỏng tâm cảnh.
+少女双脚离地，恼火万分，气呼呼道：“董姐姐，你从今天起，对我放尊重一些啊，一个不小心，我就是那个陈平安的小媳妇了，到时候你要吃不了兜着走，他见我被你欺负惯了，气不过，就要打你，就像打齐狩那样，到时候我可拦不住，有心无力，只能眼睁睁看着董姐姐你在地上弹来弹去。”
 
-Một kiếm vẫn như vậy, thì những đòn tiếp theo từ kiếm tu sẽ ra sao?
+董不得将手中少女往地上一戳，笑道：“什么乱七八糟的，这种话去宁丫头跟前说去。”
 
-Người nọ chỉ cười nói: "Không sao, ra quyền đi."
+少女站定，抖了抖肩膀，“我又不傻，难道真看不出他和宁姐姐的眉来眼去啊，就是随便说说的。我娘亲经常念叨，得不到的男人，才是天底下最好的男人！我可知道，我娘那是故意说给我爹听呢，我爹每次都跟吃了屎一般的可怜模样。骂吧，不太敢，打吧，打不过，真要生气吧，好像又没必要。”
 
-Trong trận luận bàn thứ hai, Liễu Chất Thanh bắt đầu cẩn thận về khoảng cách hai bên.
+董不得按住小姑娘的脑袋，就是让后者一通“磕头”，笑骂道：“小小年纪不学好，嘴巴没个把门的，真不怕你爹娘打得你屁股开花？”
 
-Phải hiểu rằng, kiếm tu, đặc biệt là địa tiên kiếm tu, đều rất am hiểu trong cả đánh xa lẫn gần.
+在董不得收手后，少女双手胡乱抹了抹红肿额头，也不看董不得，双拳紧握，重重一敲窗台，“烦！我决定了，等他打赢了庞元济，我就跟他学拳去，他不教，我就跪在宁姐姐家门口，跪它个一炷香半炷香的，诚意十足！等我学了拳，呵呵，到时候董姐姐你晚上走路，小心些！”
 
-Trần Bình An, giờ đây, dùng tu vi mới lên để ứng phó, tránh né những đòn tấn công bất ngờ từ phi kiếm của Liễu Chất Thanh.
+就连董不得都有些拿小姑娘没办法。
 
-Kết thúc trận đấu, hai người cùng ngồi xếp bằng tại vòng tròn bên ngoài. Trần Bình An toàn thân đầy vết thương, còn Liễu Chất Thanh thì cũng bị bụi bặm bám đầy người.
+脑子有了坑，道理填不满。
 
-Lúc đó, Trần Bình An không nhịn được mà hỏi: "Ta đã từng học từ một vị Kim Đan lão kiếm tu phi kiếm, tại sao ngươi chỉ sử dụng bảy phần sức mạnh mà đã nhanh chóng như vậy?"
+董不得突然感叹道：“观战剑仙有点多。”
 
-Liễu Chất Thanh lúc đó tâm trạng không tốt: "Cũng chỉ bảy phần, có tin hay không là tùy ngươi."
+小姑娘刚要说话，就给董不得以胳膊环住她的脖子，往自己身边一拽，小姑娘脑袋一歪，两眼一翻，吐出舌头，装了个死。
 
-Ngày thứ ba, Liễu Chất Thanh nhìn người như thể không có chút gì bất thường, hỏi: "Không phải là giả bộ sao? Hôm nay xuất kiếm chín phần, mặc dù đã nói rõ không phân biệt sinh tử, nhưng mà..."
+大街之上。
 
-Chưa để Liễu Chất Thanh nói hết, Trần Bình An đã cười: "Cứ xuất kiếm đi."
+青衫白玉簪的年轻武夫，做了一件怪事。
 
-Trần Bình An lấy khả năng đã luyện được từ mây thiên kiếp để thực hiện tu vi, nhưng chỉ không dùng những đòn ẩn giấu mà thôi, lần nữa đối diện với đối thủ.
+没有凭借武夫坚韧体魄和矫健身形，没有追求以最快速度“趟水”，靠近那个庞元济。
 
-Cuối cùng, Liễu Chất Thanh đứng bên ngoài vòng tròn, phải lấy tay xoa xoa gương mặt đỏ bừng, linh khí chậm rãi tản ra.
+而是手臂轻轻一震，双手捻住一大摞品秩寻常的黄纸符箓，抛洒出去，一下子就是四五十张各色符箓。
 
-Trần Bình An đứng trong vòng tròn, nở một nụ cười rạng rỡ, trên cơ thể hắn có vài chỗ rách lớn chứa đầy máu, nhưng không phải là thương tích chí mạng, chỉ cần dưỡng bệnh trong một thời gian ngắn là được.
+几乎所有符箓都被剑气瞬间搅碎。
 
-Liễu Chất Thanh không thể không hỏi lần nữa: "Thật không đau sao?"
+但是陈平安继续如此，行走不快，丢掷符箓的速度，却让人眼花缭乱。
 
-Trần Bình An mở trừng hai mắt: "Ngươi đoán xem?"
+庞元济笑了笑，双指掐诀，脚下踏罡。
 
-Ba trận luận bàn tiếp theo.
+陈平安身后远处，涟漪阵阵，出现了一位庞元济。
 
-Hai người đã thành bạn.
+大街两侧的屋顶上，又多出十二个庞元济。
 
-Trần Bình An và Liễu Chất Thanh đều thấu hiểu lòng dạ của nhau, chỉ là không ai muốn nói ra mà thôi.
+高处的每一位“庞元济”都是或掐道法诀、或是施佛家印，各自脚下，都出现了一座符阵，庞元济与庞元济之间，符阵与符阵之间，一条条不同色泽的纤细丝线，如龙蛇游走，相互接引契合，最终结出一座囊括整条大街的符阵。
 
-Bằng không, Liễu Chất Thanh giữa lúc thanh cao, có thể đồng ý đi giúp Trần Bình An trong công việc cổ động, và còn phải cố gắng, ngạo mạn thủy ngược trôi trên con đường của chính mình?
+不但如此，站在陈平安身前身后的两位庞元济，也开始缓缓前行，一边走，一边随意敲敲点点，随手画符，悬停空中，全是那些千奇百怪的古老篆文云纹，众多凌空写就的虚符，符胆灵光绽放出一粒粒极其明亮的光亮，有些符箓，灵气水光荡漾，有些雷电交织，有些火龙缠绕，不一而足。
 
-Lúc này, Ngọc Oánh bên dưới lại hiện lên cảnh tượng trong suốt, vừa mất lại được, càng thêm động lòng người, tâm trạng của Liễu Chất Thanh khá hơn.
+陈平安最后一次，一鼓作气丢出百余张黄纸符箓后。
 
-Còn về việc Trần Bình An trường sinh cầu đã bị cắt đứt, ai mà biết được?
+瞬间一个站定，拳架再起，原本在身上汹涌流转的浑厚拳意，如剑归鞘，以一个收敛拳架，递出迅猛拳。
 
-Liễu Chất Thanh tuy trong lòng cảm thấy sợ hãi, không rõ rốt cuộc điều gì đã giúp hắn xây dựng lại Trường Sinh Cầu, nhưng hắn cũng không hỏi thêm.
+拳出如虹。
 
-Hắn vừa xua tay tán đi hai cái bảng phù chú thuật ngữ trên bàn, trở thành một lễ vật hỏa giao nhỏ nhắn, vừa hỏi: "Thương thế của ngươi như thế nào?"
+如雷震动，生发于地。
 
-Trần Bình An cười đáp: "Không sao cả, thời gian qua ta chỉ dưỡng thương và kiếm tiền ở lão hòe phố bên kia thôi."
+整条大街上的剑气长河，都随之震荡不已。
 
-Liễu Chất Thanh tiếp tục hỏi: "Ngươi đã từng nói quyền pháp của mình cơ bản có nguồn gốc từ Đông Nam Bắc Câu Lô Châu, có liên quan đến những manh mối và kiến thức đặt chân vào nước. Ngươi có thu hoạch gì từ đó không?"
+那条江河剑气，大半剑意，在一袭青衫四周聚拢，如重兵围城。
 
-Trần Bình An lắc đầu: "Trước đây vì kiếm tiền, ta đã tiết chế sức lực, tuyên bố cửa hàng bên kia sẽ không đánh gãy. Điều đó khiến ta bỏ lỡ rất nhiều cơ hội giao tiếp, thật đáng tiếc."
+街上两个庞元济依旧脚步不停也不快，继续巩固那座符阵。
 
-Liễu Chất Thanh gật đầu: "Đáng đời."
+庞元济没有白看三场架。
 
-Trần Bình An chỉ bất đắc dĩ cười.
+这个陈平安，手段太多，层出不穷，关键是还在隐藏实力。
 
-Ngoài bộ Hám Sơn quyền phổ, thực chất còn có một sự việc khác.
+例如那只尚未真正倾力出拳的左手。
 
-Đó là thảm kịch xảy ra ở Bảo Bình Châu khi chiếc thuyền vượt châu độ bị diệt vào năm ấy. Tuy nhiên, Trần Bình An không cần phải hỏi han gì, vì đã lâu lắm cái nơi đó đã bị phong tỏa. Trên thuyền, hắn từng mua một tệp sơn thủy công báo về núi Đả Tiếu, nhưng thông tin chỉ là những lời đồn đãi không chính xác. Hơn nữa, do Trần Bình An là người nơi khác, nếu hắn đột ngột hỏi về tình hình núi Đả Tiếu, sẽ có nhiều rắc rối không đáng có. Do đó, hắn hết sức thận trọng.
+还有陈平安真正的身形速度，到底有多快，庞元济仍是琢磨不出。
 
-Vì vậy, Trần Bình An định hướng Bắc Câu Lô Châu trung bộ, phải vượt qua những đồ vật vắt chéo châu bồng bềnh trên biển cả.
+与齐狩一战，这个陈平安，精心设置的障眼法，其实有很多。
 
-Hắn cần tránh né cẩn thận, và rõ ràng rằng đó là khu vực của Đại Nguyên Vương triều Sùng Huyền, nơi có Vân Tiêu cung.
+剑仙之下，除了宁姚和他庞元济，以及那些元婴剑修，兴许就只能看个热闹了。
 
-Dương Ngưng Tính không chỉ đơn thuần đổi hình thành "Thư sinh," mà thực sự lại là một người tu đạo có khí chất rất đáng nể.
+庞元济其实内心深处，都有些无奈。
 
-Song Đại Nguyên Vương triều Sùng Huyền tại Bắc Câu Lô Châu thì danh tiếng lại khá mơ hồ, vừa khen vừa chê, hơn nữa họ rất cứng rắn và bá đạo trong công việc, điều đó tạo nên phiền toái rất lớn.
+你陈平安一个纯粹武夫，下五境练气士，拥有大炼之后的一把本命物飞剑也就罢了，另外那两把很能吓唬人的仿造剑仙飞剑，算怎么回事？
 
-Vì thế, trên chặng đường xa xôi này, khám phá khắp các quốc gia, sơn thủy, thần chích từ miếu, và thế lực tiên gia, Trần Bình An cần phải cực kỳ cẩn trọng.
+天晓得这家伙还会不会偷藏了一把。
 
-Dù sao thì, bên cạnh việc không đề cập đến tính toán của Lục Trầm, nếu như việc của mình và áo xanh tiểu đồng trong tương lai liên quan đến cơ duyên chứng đạo, Trần Bình An đã cùng Thôi Đông Sơn và Ngụy Bách thảo luận rất nhiều lần. Họ đều cho rằng nếu đã đến thời điểm này, có thể tiến hành. Vì vậy, Trần Bình An cũng sẽ hết lòng thực hiện công việc này.
+庞元济觉得那家伙做得出来这种缺德事。
 
-Nhớ lại một chuyện, Trần Bình An vỗ nhẹ vào hồ lô dưỡng kiếm, và Mùng Một Mười Lăm bay ra.
+除此之外，庞元济心中戒备更加浓郁。
 
-Liễu Chất Thanh liếc nhìn, tức giận nói: "Phí của trời."
+那些被陈平安砸出的符箓，事实上是在精准勘验剑气河流的种种细微处。
 
-Thực tế, hắn sớm đã nhận ra bình rượu son đỏ là một cái hồ lô dưỡng kiếm, nửa do cảm nhận khí chất, nửa do đoán mò.
+所以庞元济毫不犹豫，就收拢了剑气，绝对不给他更多查探的机会。
 
-Còn về hai thanh “phi kiếm” không nhìn ra phẩm chất cụ thể đến đâu, khi vào tay Trần Bình An, việc phí của trời cũng không phải là oan uổng cho vị “Người tốt huynh” này.
+————
 
-Liễu Chất Thanh chậm rãi nói: "Hai thanh phi kiếm này, nếu như là kiếm tu chính thức luyện hóa, tốc độ sẽ rất nhanh. Đáng tiếc ngươi không phải là bẩm sinh kiếm phôi, chúng cũng không phải là bổn mạng vật của ngươi. Ta không biết lực sát thương của vị Kim Đan lão kiếm tu ấy ra sao, nhưng nói về tốc độ, thật sự là chậm. Nếu ngươi nghĩ rằng kiếm tu Bắc Câu Lô Châu đều như nhau và ta là ngoại lệ, thì sau này ngươi sẽ gặp rất nhiều khó khăn. Địa tiên kiếm tu và con người vẫn còn phải chém giết nhau, cũng không thể ngừng lại, nếu họ không tiếc hao tổn bản nguyên thần thông thuật pháp, hoàn toàn có thể.”
+先前陈平安一行人离开宁府后。
 
-Trần Bình An đưa tay ra, nhẹ nhàng lật hai thanh phi kiếm xanh đen trắng, treo giữa lòng bàn tay, rồi nhìn về phía thanh phi kiếm tên là Tiểu Phong Đô. "Sớm muộn gì, ta cũng sẽ luyện hóa được thanh kiếm này. Với tư cách là bổn mạng vật của ngũ hành bên ngoài, nếu may mắn thành công thì cho dù không thể so với kiếm tu có vật bổn mạng tốt như vậy, nhưng vào thời điểm này, tự nhiên sẽ mạnh hơn nhiều. Bởi vì đã tặng cho người khác, nên ta không có bất kỳ nghi ngờ nào. Chỉ có điều phi kiếm này không phải là nguyện ý đi theo ta, chỉ muốn ở lại trong hồ lô dưỡng kiếm chờ đợi, ta không thể cưỡng cầu, huống chi cưỡng cầu cũng không được."
+演武场上，纳兰夜行这位宁家老仆，已经勤勤恳恳护着宁府三代主人，此刻蹲着地上，伸出五指，轻轻摩挲着地面。
 
-Trần Bình An ánh mắt chuyển sang phi kiếm Mười Lăm, "Cái thanh này, ta rất thích, không phải là không tin người, mà chỉ sợ những điều không may sẽ đến. Vì vậy ta vẫn thấy rất áy náy với nó."
+那位早年陪着自家小姐一起来到宁府的姚家老妪，白炼霜站在一旁，恼火道：“老狗，你为何不去盯着那边，出了纰漏，如何是好？你这条狗命，赔得起吗？”
 
-Liễu Chất Thanh trầm giọng nói: "Luyện hóa cái kia phi kiếm còn lại, phẩm cấp càng cao, mạo hiểm càng lớn. Ta chỉ muốn hỏi một điều, ngươi có chăm sóc nó, phát triển các mấu chốt huyệt cho nó hay không? Nếu không làm được điều này, mọi thứ sẽ không thành công. Điều này không liên quan đến việc ngươi có bao nhiêu thần tiên tiền hay bao nhiêu thiên tài địa bảo. Tại sao các kiếm tu được coi trọng nhất không phải không có lý do đâu."
+纳兰夜行淡然道：“再凶险，能有南边的战场凶险吗？”
 
-Trần Bình An cười gật đầu, "Có, còn ba chỗ."
+白炼霜愈发火大，“人心险恶，何曾比战场厮杀差了一点半点？纳兰老狗！你是真不懂，还是装不懂？”
 
-Liễu Chất Thanh đột nhiên nói: "Họ Trần, ngươi dạy ta vài câu mắng chửi người đi!"
+纳兰夜行收手抬头，沉默不言。
 
-Trần Bình An vẫy tay, "Ta là người, nắm đấm có chút nặng, lại không... nhất định sẽ làm tổn thương người khác."
+白炼霜叹了口气，语气放缓，“有没有想过，陈公子这般出息的年轻人，换成剑气长城其他任何一大姓的嫡女，都无需如此耗费心神，早给小心翼翼供起来，当那舒心舒意的乘龙快婿了。到了咱们这边，宁府就你我两个老不死的，姚家那边，依旧选择观望，既然连姚家都没表态，这就意味着，出事情之前，是没人帮着咱们小姐和姑爷撑腰的，出了事情，就晚了。”
 
-Liễu Chất Thanh đứng dậy: "Không còn lời nào nữa, ta đi đây."
+纳兰夜行说道：“姚老儿，心里边憋着口气呢。”
 
-Trần Bình An cùng đứng dậy, thu lại cảm xúc vui vẻ, hỏi: "Liễu Chất Thanh, ngươi có trở về Kim Ô cung để tẩy kiếm, ta cũng muốn hỏi ngươi một câu cuối cùng."
+白炼霜犹豫一番，试探性问道：“不如将咱们姑爷的聘礼，泄露些风声给姚家？”
 
-Liễu Chất Thanh hỏi lại: "Cứ nói đi, không ngại đâu."
+纳兰夜行难得在老妪这边硬气说话，转头沉声道：“别糟践陈平安，也别侮辱姚家。”
 
-Trần Bình An chậm rãi nói: "Ngươi dựa vào cái gì để muốn một tòa Kim Ô cung, mọi chuyện có hợp ý ngươi không?"
+白炼霜点点头，破天荒没有还以颜色。
 
-Liễu Chất Thanh lặng im không nói.
+纳兰夜行解释道：“既然你都说了，陈平安选中了我们小姐，那就没法子了，能够说服我们，也该他陈平安说服别人，无法说服，那就打服！”
 
-Trần Bình An tiếp tục: "Trong việc tẩy kiếm trước đó, hay là trước tiên phải hiểu rõ ràng mọi chuyện."
+白炼霜埋怨道：“我又不是让你掺合其中，帮着陈平安拉偏架，只是让你盯着些，以免意外，你唧唧歪歪个半天，根本就没说到点子上。”
 
-Liễu Chất Thanh cười cười: "Đơn giản thôi, ta chỉ muốn tẩy kiếm thành công. Kim Ô cung chính là nơi có thể có thêm một vị Nguyên Anh kiếm tu. Lúc trước ta chịu đựng nỗi khổ trong việc tẩy kiếm, năm sau thì sẽ được Nguyên Anh che chở."
+纳兰夜行无奈道：“行吧，那我就违背约定，跟你说句实话。我这趟不出门，只能窝在这边挠心挠肺，是陈平安的意思。不然我早去那边挑个角落喝酒了。”
 
-Trần Bình An bĩu môi: "Kiếm tu làm việc, thật sự rất sảng khoái."
+白炼霜疑惑道：“是他早就与你打过招呼了？”
 
-Liễu Chất Thanh mỉm cười: "Nếu không thì học ngươi, đứng ở cửa hàng mà phơi nắng, hay mò mẫm dưới khe nước?"
+纳兰夜行点头道：“借我胆子，我也不敢在这种事情上糊弄你吧？就是陈平安自己的意思。”
 
-Trần Bình An vẫy tay: "Cút đi cút đi, nhìn ngươi đã thấy phiền. Nghĩ đến việc ngươi có thể trở thành Nguyên Anh kiếm tu, càng thêm phiền. Về sau nếu có luận bàn, chắc chắn ta sẽ không để ngươi dễ dàng ăn đất đâu."
+老人站起身，笑道：“理由很简单，宁府没长辈去那边，齐家就没这脸皮去。至于跟齐狩那场架，他就算输，也会输得不难看，注定会让齐狩绝对不会觉得自己真的赢了，如果齐狩敢不守规矩，不再是分胜负那么简单，而是要在某个时机，突然以分生死的姿态出手，过界行事，那他陈平安就能够逼着齐狩背后的老祖宗，出来收拾烂摊子。到时候齐家能够从地上捡回去多少面子、里子，就看当时的观战之人，答不答应了。”
 
-Liễu Chất Thanh cười nhạo: "Ngươi sẽ thấy phiền à? Ngọc Oánh sườn dốc trong nước đá cuội, một mớ đá nguyên bản trị giá mấy trăm lượng bạc, sao ngươi không bán từng viên một với giá trên trời? Ta thấy ngươi cũng tính toán rồi đấy, bốn mươi chín viên đá cuội trước không nóng nảy bán, chắc là chờ ta ra tay."
+白炼霜陷入沉思，细细思量这番言语。
 
-Trần Bình An cười lớn: "Nếu ngươi không học ta buôn bán, thật sự là đáng tiếc. Có thể tạo ra vật liệu ư, có thể tạo ra vật liệu."
+纳兰夜行又说道：“你与小姐可能还不清楚，陈平安私底下找了我两次，一次是详细询问齐狩、庞元济和高野侯三人的底细，从三位剑修的飞剑名称，性情，到厮杀习惯，再到他们的传道人，其中厮杀又分战场搏命与捉对厮杀，陈平安都一一问过了。第二次是让我帮着模仿三人飞剑，他来各自对敌，宗旨只有一点，我的出剑，必须要比三人的本命飞剑，要快上一分。我当然不会拒绝，就在陈平安那间很难辗转腾挪的屋子里边，当然无需伤人，点到为止。陈平安笑言，一旦真正放手，倾力出拳，他最少也会让这些天之骄子，与他陈平安分胜负，不是想做到就能做到的，打到最后，估摸着就要由不得他们不分生死了。”
 
-Liễu Chất Thanh chuẩn bị ngự kiếm bay đi, Trần Bình An đột nhiên nói: "Ta cho ngươi một lời khuyên miễn phí. Đến Kim Ô cung, đừng vội tẩy kiếm, trước tiên có thể làm cái... phòng thu chi, ghi chép lại gia phả của tổ sư, để ở trong tay, sau đó quan sát Kim Ô cung trong một năm nửa năm, xem toàn bộ tu sĩ từng hành động, ai nói gì, làm cái gì, đều ghi nhớ lại, rồi so sánh với họ ở thời điểm xuất thân, cảnh giới hiện tại, thật ra có những điều gì đối lập. Suy nghĩ kỹ lưỡng một lượt, xem tại sao họ lại hành động như thế. Ngươi càng quan sát lâu, càng rõ ràng về tâm lý của họ, như vị thần quản lý sông núi trong lòng bàn tay, thì khi ra tay tẩy kiếm sẽ phải thuận buồm xuôi gió hơn."
+白炼霜脸色古怪。
 
-Liễu Chất Thanh gật đầu: "Có thể thực hiện."
+纳兰夜行笑容更古怪，随手指了指叠嶂店铺那边方向，“你还担心陈平安吗？难道不是应该齐狩、庞元济他们头疼陈平安才对吗？摊上这么个对手，一旦双方境界不悬殊，估计要被陈平安活活恶心死吧。陈平安多扛揍，你白炼霜出过拳，会不清楚？”
 
-Trần Bình An phất tay từ biệt: "Chúc ngươi tẩy ra một thanh kiếm tốt."
+纳兰夜行缓缓踱步，心情舒畅，“这小子，好说话吧，懂礼数吧，到了我这边，帮着他喂剑过后，咱俩便喝了点小酒儿，小子便难得多说了些，你是没看到，那会儿的陈平安，喝过了酒，脱了靴子，大大方方学我盘腿而坐，他那会儿眼睛里的神采，加上他所说言语，是怎么个光景。”
 
-Liễu Chất Thanh hỏi: "Ngươi đi rồi, lão hòe phố này cửa hàng làm sao bây giờ?"
+纳兰夜行流露出几分缅怀神色。
 
-Trần Bình An cười nói: "Giao cho Tống Lan Tiều, một vị đệ tử hoặc một tu sĩ Chiếu Dạ Thảo Đường là được. Chín phần thành, ta đã để lại vài món pháp bảo trong cửa hàng, có đôi có cặp hai ngọn kim quan lớn nhỏ, còn có Thương Quân hồ một vị hồ quân, một chiếc ngai vàng. Dù sao giá cả đã định, sau khi trở về cửa hàng, sẽ biết cần kiếm bao nhiêu thần tiên tiền. Nếu ta không ở đây, cửa hàng mà không cẩn thận mất mát hoặc gặp trộm cướp, chắc chắn Xuân Lộ phố sẽ đền bù dựa trên giá gốc. Tóm lại, ta không lo, đảm bảo thu hoạch, kể cả hạn hay lụt."
+宁府，确实得有个男主人了，不然太闷了些。
 
-Về phần xá tím pháp bảo và những vật này, Trần Bình An sẽ không bán.
+白炼霜瞪眼道：“见了面，喊他陈公子！在我这边，可以喊姑爷。你这一口一个陈平安，像话吗，谁借你的狗胆？！”
 
-Cái đồ vật này của tiên gia tương đối đặc thù, ta vô cùng yêu thích. Cùng loại với binh gia giáp viên, thường thường giá cả đắt đỏ, trước đây có tiền mà không thể mua được. Về sau, ở trong núi Lạc Phách, những thứ như thế này trên đỉnh núi, nhiều người dần dần chỉ biết ngao ngán vì không có.
+纳兰夜行憋屈得不行，好不容易在陈平安那边挣来点面子，在这老婆姨这边，又半点不剩都给还回去了。
 
-Liễu Chất Thanh đột nhiên do dự trước mặt.
+老妪自言自语道：“老狗，你说陈公子可不可能，连赢三场。”
 
-Trần Bình An lên tiếng: "Ngươi chọn được món nào thì nhất định phải mua. Bằng hữu là một chuyện, nhưng mua bán vẫn phải phân định rõ. Ta có thể phá lệ, giảm giá cho ngươi... giảm giá sáu phần thôi, không thể thấp hơn nữa."
+纳兰夜行早有腹稿，“我当然想啊，不过若是第三场架，是庞元济、齐狩和高野侯，这三个里边的某个跳出来，还是有些难。只说可能性最大的齐狩，只要这个小崽子不托大，陈平安跟他，就有的打，很有的打。”
 
-Liễu Chất Thanh cười đáp: "Nhưng mà số lượng đồ vật như vậy ở bộ Hài Cốt ghềnh Bích Họa, ngươi ở bên cửa hàng cũng không thiếu hàng, sao lại cứ phải giảm giá cho ta? Nói tiền thương tình, giảm giá sáu phần cũng không có nghĩa lý gì với ta. Ta không mua, tiễn đưa ta là được."
+果不其然。
 
-Trần Bình An liếc qua hướng lão hòe phố, nói: "Từ đây xa lắm."
+两位老人都清晰感知到了一把古剑的沛然气息，回荡在叠嶂店铺那边的大街上。
 
-Liễu Chất Thanh cười nhạo: "Ta có thể tự mình đi đến cửa hàng khác, khi trở về, ngươi nhớ đổi khóa lại."
+然后那把被陈平安搁放在小宅厢房的仙剑，自行离开了宁府。
 
-Trần Bình An thở dài, lấy ra một bộ lang điền bản thần nữ đồ cùng hộp gỗ, đưa cho Liễu Chất Thanh.
+老妪一脚踹在纳兰夜行的膝盖上，“还不滚去看看情况！乌鸦嘴，分明是齐狩将那高烛出鞘了。”
 
-Liễu Chất Thanh cẩn thận nhận lấy, cảm thấy mỹ mãn.
+纳兰夜行虽然脸色如常，其实心中也有些着急，寻常切磋，不分生死，哪里需要一把半仙兵和仙兵对峙上？
 
-Cảnh đẹp, rượu ngon, trà ngon, hắn vẫn rất thích. Hắn ở Kim Ô Cung đã thấy dăm ba tỳ nữ, họ đều có dung mạo xuất sắc, nhưng chỉ đẹp mắt mà thôi. Hơn nữa, nếu như không tụ họp lại tất cả, chỉ tính sắc đẹp của họ cũng đã tương đương với tay môn sinh của cung chủ, thật sự chẳng khác nào mây dông bão tố mà thôi.
+纳兰夜行也顾不得什么约定不约定了。
 
-Trần Bình An đột nhiên nói: "Thật ra ta có hai bộ Bàng Sơn Lĩnh đắc ý nhất, so với những món này tốt hơn nhiều, khác nhau một trời một vực."
+只是老人没想到她竟然事到临头，反而一下子沉住气，虽然神色凝重，白炼霜依旧摇头道：“算了。咱们得相信姑爷，对此早有预料。”
 
-Liễu Chất Thanh lắc đầu: "Ngươi giữ lấy đi, quân tử không chiếm thứ tốt của người khác."
+纳兰夜行试探性问道：“真不用我去？”
 
-Trần Bình An nhẫn nại, khẽ v**t v*.
+言下之意，自然是万一那边出了问题，我纳兰夜行事后该如何做，你白炼霜可以随便使唤，但绝对不能怪罪他失职。
 
-Liễu Chất Thanh cáu kỉnh nói: "Không có tiền!"
+白炼霜点点头，“我说的！”
 
-Trần Bình An thu tay lại, cười nói: "Hai bộ thần nữ đồ không thể cho ngươi. Nhưng mà đợi ta trở về Phi Ma Tông, có thể sẽ tâm sự với lão tiên sinh Bàng, xem có thể mời ông ấy viết thêm. Nếu thành công, ta sẽ gửi về Kim Ô Cung. Không thành công, ngươi coi như không có chuyện gì."
+纳兰夜行瞥了她一眼。
 
-Liễu Chất Thanh ngự kiếm rời khỏi Ngọc Oánh sườn dốc.
+老妪怒道：“老狗-管好狗眼！”
 
-Trần Bình An cũng lấy bùa chú, quay về trúc biển.
+纳兰夜行知道她当下心情不太好，就忍了。
 
-Cả đêm, hắn điềm tĩnh tu hành, làm nhiều việc một lúc, không vì cái này mà chậm trễ.
+反正不与她计较，也不是一年两年的事情了。
 
-Khi đêm khuya buông xuống, Trần Bình An bỏ hồ lô dưỡng kiếm lên bàn, từ rương trúc lấy ra thanh kiếm tiên, rồi từ phi kiếm Mười lăm lấy ra một vật. Hắn nhanh chóng rút kiếm ra khỏi vỏ, chém xuống một nhát, từ mảnh đá mài kiếm vừa bổ thành hai, Mùng một và Mười lăm lơ lửng bên cạnh, bị kích động. Trần Bình An cầm kiếm điều chỉnh lại tay, tay bắt đầu run lên, tạm thời rơi vào trạng thái không còn tri giác, nhưng vẫn cố gắng giữ cho thanh kiếm, nhìn thật kỹ ở mũi kiếm, không để bất kỳ khuyết điểm nào có thể bị bỏ qua. Lúc này mới nhẹ nhàng thở ra.
+不久之后，有一位金丹剑修急匆匆御风而来，落在演武场上，对两位前辈行礼后，“陈平安已经赢下三场，三人分别是任毅，溥瑜，齐狩。”
 
-Trần Bình An ngồi xếp bằng, bắt đầu nhỏ luyện hai khối trảm long đài, ý định thu nhận hai tòa huyệt vị giữa, lại để cho Mùng một và Mười lăm ra khỏi hồ lô dưỡng kiếm. Hắn dùng cái này để mài mũi kiếm, từng chút từng chút một ăn tươi hai tòa trảm long đài.
+这位年近百岁却只是年轻容貌的金丹剑修，名叫崔嵬，算是纳兰夜行的不记名弟子，纳兰夜行不当真，崔嵬却一直恪守师徒之礼，其实这十多年来，被宁府那场天大灾殃牵连，日子过得极不顺心，崔嵬依旧不改初衷。
 
-Khối trảm long đài này là do kiếm linh tỷ tỷ tại Lão Long thành hiện thân đưa tặng ba khối mài kiếm đá lớn nhất.
+老妪大声叫好。
 
-Hắn vẫn chưa bỏ ra cho Mùng một Mười lăm.
+纳兰夜行问道：“陈平安伤得很重？那你怎么不护着点，就为了跑来率先邀功？”
 
-Nếu như chính thức đi trên con đường tu hành, đặc biệt là quyết định luyện hóa Mùng một Mười lăm thành vật đồng sinh đồng tử với mình, hắn sẽ không cần chút do dự nào nữa.
+崔嵬笑道：“看样子，还要再打一场，我说了消息后，还要赶紧回去观战。”
 
-Thông qua cuộc thảo luận cùng Liễu Chất Thanh – một người Kim Đan bình cảnh kiếm tu, Trần Bình An cảm thấy mình còn thiếu sót, chưa đủ, còn xa mới đủ.
+纳兰夜行一把抓住崔嵬的肩头，“将那三场架的过程，细细说来！”
 
-Khả năng nhiều mà chưa áp dụng được.
+崔嵬苦笑道：“师父，第四场架，陈平安是跟庞元济打，而且还是陈平安主动邀战。不看太可惜了，我赶来宁府的时候，就发现又临时赶去了两位北俱芦洲的剑仙前辈。”
 
-Cái bùa chú ấy, cũng có thể đem ra làm trò che mắt một lần.
+纳兰夜行问道：“那高烛？”
 
-Trong áo pháp bào, hắn giấu một đống lớn bùa chú, giả làm một sĩ đồ bùa chú đông đảo.
+崔嵬会心一笑，“剑仙高魁一锤定音，道破天机，故而齐狩只是握剑，却未出剑，已经收剑远去。”
 
-Sau lưng chính là một người thuần túy vũ phu.
+老妪却来不及欣喜，脸色微变，“什么？姑爷还要跟庞元济再打一场？！”
 
-Giữa hai bên chém giết, xem xét thời thế, tìm cơ hội biến thành kiếm tu, làm cho đối phương phải trốn khỏi Mùng một, không tránh được Mười lăm.
+纳兰夜行却笑了，“我很放心。”
 
-Cuối cùng mới chính là thanh kiếm tiên kia.
+老妪伸手一指，“去盯着！”
 
-Trần Bình An vào sáng sớm đi ra lão hòe phố, nhưng không phải để buôn bán, mà tới một cửa hàng chuyên bán thư phòng lâu đời, tìm cơ hội kết bạn với một học đồ. Sau khi thỏa thuận về việc mua bán bút, vị học đồ trẻ tuổi cảm thấy không có vấn đề gì lớn, nhưng chỉ kiên định một việc: bốn mươi chín khối đá cuội từ Ngọc Oánh sườn dốc, từ hắn mài dũa thành các loại dụng cụ lịch sự. Hắn cho biết chỉ trong vòng ba ngày, tối đa là mười ngày, có thể cho ra mười khối Tuyết hoa tiền, nhưng không thể bán tại cửa hàng kiến càng, nếu không hắn cũng sẽ không có chỗ nào để làm ăn ở lão hòe phố nữa. Trần Bình An đồng ý, sau đó hai người hẹn gặp lại sau khi cửa hàng đóng cửa, trở về để thảo luận cặn kẽ hơn.
+纳兰夜行摇头道：“不用去，赢过了齐狩，本身就已经证明陈平安，不但心中有数，出拳更有谱。”
 
-Trần Bình An tiếp tục đi một chuyến đến Chiếu Dạ thảo đường, gặp một vị đường tiên sư nổi tiếng ở Xuân Lộ phố, người này cũng là một thiên tài trong giới tu sĩ, trước kia chưa có tài năng xuất sắc, không nằm trong đệ tử dòng chính, nhưng cuối cùng trở thành một thương nhân lão luyện, dựa vào sự giàu có mà từng bước gia tăng thực lực, cuối cùng thăng tiến đến Kim Đan cảnh.
+在不记名弟子崔嵬这边，还是要讲一讲前辈风采的。
 
-Đường Thanh Thanh tự nhiên có mặt ở đây.
+不过纳兰夜行脚下悄悄挪步。
 
-Chỉ có điều Thiết Đồng Phủ Ngụy Bạch và vị lão ma ma đó đã phản hồi về Đại Quan Vương Triều.
+老妪挥挥手，“崔嵬，麻烦你再去看着点，见机不妙，就祭出飞剑传信宁府。”
 
-Đường Thanh Thanh tự tay pha trà, ngồi đối diện trò chuyện. Vị đường tiên sư đó biết được dự định của kiếm tiên trẻ tuổi đang muốn mở một cửa hàng mới, ngay lập tức chủ động đề nghị phái một tu sĩ nhanh nhẹn sang hỗ trợ cho kiến càng cửa hàng.
+崔嵬赶紧御剑离去。
 
-Trần Bình An nói chín một thành, vị đường tiên sư cười bảo không có chuyện tốt như vậy, một phần chia hoa hồng. Hắn cho rằng, việc đơn giản như ngồi đó lấy tiền mỗi ngày còn không bằng trả lương cố định. Một năm, Chiếu Dạ thảo đường phái ra một tu sĩ trên cửa hàng chỉ cần thu ba mươi khối Tuyết hoa tiền là đủ. Tuy nhiên, Trần Bình An vẫn cảm thấy chín một thành là hợp lý, vị đường tiên sư đồng ý với điều đó, lại cẩn thận hỏi một chút, nếu như ở bên lão hòe phố không bị tổn hại đến khách hàng quen và danh tiếng cửa hàng, xem dựa vào kho bãi và năng lực để bán, thì làm thế nào tính toán. Trần Bình An cho biết sẽ chia một nửa phần hoa hồng thu được từ việc tăng giá. Vị đường tiên sư gật đầu, rồi thăm dò hỏi liệu có cho phép Chiếu Dạ thảo đường phái một tiểu nhị, vào ngày sau trở lại kiến càng cửa hàng, để điều chỉnh giá lên một hai phần, cũng cho phép khách hàng mặc cả, mà mức giá thỏa thuận nhưng đương nhiên không thể thấp hơn giá ban đầu mà Trần Bình An đưa ra. Trần Bình An cười nói, như vậy thì tốt, mình làm buôn bán còn non kinh nghiệm, quả nhiên giao cho Chiếu Dạ thảo đường quản lý là lựa chọn tốt nhất.
+剑气长城这边的切磋，两位剑仙之间的那种天翻地覆，双方剑气遮天蔽日，当然不可错过。
 
-Sau khi uống trà và nói chuyện xã giao, Trần Bình An cáo từ rời đi.
+但是崔嵬半点不觉得陈平安与齐狩、庞元济之争，便不精彩。
 
-Đường Thanh Thanh cùng cha nàng đứng trước cổng lớn, nàng nghi ngờ nói: "Cha, chuyện trên thuyền bên cạnh, ta đã nói rõ với ngươi từ đầu đến cuối rồi. Hôm nay chúng ta ở Xuân Lộ phố lại coi trọng hắn như vậy, mà hắn lại là người có thể khiến Liễu Kiếm Tiên rời khỏi Ngọc Oánh sườn dốc để tự mình đến Kinh Trập phủ mời trà. Hôm nay người ta đã tìm tới tận cửa, uống trà tại nhà chúng ta, thật là một vinh dự lớn. Sao cha còn phải tính toán chi li như vậy? Nếu thật sự muốn giao hảo với hắn, nhà chúng ta không thiếu tiền thần tiên, mua toàn bộ hàng tồn kho không phải sẽ tốt hơn sao? Hắn buôn bán lời nhiều, mà nhà chúng ta chỉ thiếu một chút, cũng không phải lỗ vốn, có phải không tốt hơn nhiều?"
+事实上，很精彩。
 
-Người cha lắc đầu đáp: "Thế gian này không có cách buôn bán như vậy. Nếu vị kiếm tiên trẻ tuổi kia đến cửa đòi tiền, cha không chỉ sẽ cho hắn, mà còn có thể cho thêm một khoản nữa, ngươi cũng đừng nhăn mặt. Có thể xem như là phá tài tiêu tai. Nhưng nếu hắn đến để buôn bán với chúng ta, thì cần phải tuân thủ quy củ, như vậy mới có thể lâu dài, không biến chuyện tốt thành chuyện xấu."
+不然高魁在内的四位上五境剑仙，就不会在那边喝酒。
 
-Người cha nhận thấy con gái còn chưa hoàn toàn suy nghĩ thấu đáo, ông cười nói: "Ngoài trường hợp bỗng dưng phú quý, mọi giao dịch lâu dài trên đời này đều có quy tắc, và có nhiều loại người kinh doanh, đủ kiểu đường phát tài."
+再加上后边陆陆续续赶去，亲眼目睹最后一场晚辈切磋的剑仙，崔嵬甚至猜测最后会有双手之数的剑仙，齐聚那条大街！
 
-Người cha từ trong tay áo lấy ra một đồng tiền đồng bình thường nhất dưới núi, đã được bảo quản nhiều năm. Ông nhẹ nhàng đặt nó vào lòng bàn tay mình và nói: "Hãy tôn trọng vật này."
+当年中土神洲的曹慈现身剑气长城，起了冲突，愿意露面的剑仙才几人？
 
-Sau đó, Trần Bình An đến bái phỏng một vị bà lão, là Kim Đan chủ thuyền Tống Lan Tiều ân sư. Bà lão cũng là một tu sĩ Kim Đan, nhưng tại Xuân Lộ phố, bà đã có một vị trí nhất định. Tống Lan Tiều thì lại không được như vậy. Nói cách khác, trong cuộc họp của tổ sư đường Xuân Lộ phố, bà lão có ghế ngồi bên cạnh lão tổ Đàm Lăng, tổng cộng có tám người, mà cha của Đường Thanh Thanh cũng có một ghế, nhưng chỉ ngồi ở phía sau, còn Tống Lan Tiều chỉ có thể đứng.
+虽说这与曹慈当时武道境界还不高，出拳败敌也快，大有关系。可撇开一切原因不提，只说剑仙观战人数，那个刚到剑气长城没几天的陈平安，已经不知不觉，直追当年某人，不过后者那是一场鸡飞狗跳的大乱战，与豪杰气概，剑仙风流，半点不沾边。
 
-Khi bà lão gặp được kiếm tiên trẻ tuổi, gương mặt bà rạng rỡ, và đã kéo Trần Bình An lại để hàn huyên khách sáo suốt hơn nửa canh giờ. Trần Bình An vẫn giữ thái độ bình tĩnh, cho đến khi bà lão mở lời không muốn làm phiền Trần Kiếm Tiên tu hành, lúc này Trần Bình An mới đứng dậy cáo từ.
+老妪喃喃道：“若是老爷夫人还在，该有多好。”
 
-Đến nhà bà lão, lễ vật của Trần Bình An là một kiện linh khí không quá quý giá nhưng lại rất thích hợp cho việc sử dụng.
+纳兰夜行无言以对，唯有叹息。
 
-Bà lão muốn đáp lễ, nhưng Trần Bình An đã từ chối một cách nhã nhặn, nói rằng nếu tiền bối làm vậy, lần sau sẽ không dám đến tay không nữa. Bà lão thoải mái cười lớn, lúc này mới thôi.
+老妪揉了揉眼睛，笑道：“现在也很好了。”
 
-Khi Trần Bình An trở về lão hòe phố, vừa qua buổi trưa, ông mở cửa chính cửa hàng, vẫn ngồi trên ghế trúc phơi nắng.
+————
 
-Kinh doanh có phần ảm đạm.
+剑气长城的城头之上，有大小两座茅屋相邻近。
 
-Một canh giờ trôi qua, ông mới thực hiện được một giao dịch, nhập vào bốn khối Tuyết Hoa tiền, có một vị nữ tu trẻ tuổi đã mua một đồ vật trong phòng khuê. Khi nàng đưa tiền thần tiên cho quầy hàng và bước ra cửa, bước chân dường như hơi vội vàng.
+一位面如冠玉的年轻男子，走出那栋小茅屋，来到附近的北面城头，眺望北方那座城池，微笑道：“左前辈，隐官大人都跑过去凑热闹了，你真不看几眼？”
 
-Trần Bình An không dám nói rằng nàng sẽ quay lại.
+城头上，一位盘腿而坐的男子，横剑在膝，闭目养神，四周有纵横交错、凝虚为实的凌厉剑气，骤然间生灭不定，也亏得旁边所立男子，是风雪庙剑仙魏晋。
 
-Ông cảm thấy hối tiếc khi không kéo Liễu Chất Thanh tới làm tiểu nhị.
+魏晋是宝瓶洲李抟景之后、马苦玄之前的一洲不世出天才，至于先后三人，又公认那位死前止步于元婴巅峰剑修的李抟景，资质其实不逊色魏晋，但可惜为情所困，白白失去了成为宝瓶洲历史上第一位仙人境剑修的那个可能性，故而总体而言，还是不如魏晋，而真武山兵家修士马苦玄，宝瓶洲山上，都认为资质应该稍逊李抟景、魏晋两位前辈，只不过大道机缘太好，未来最终成就，兴许比那魏晋还要更高，至于风雷园上任园主李抟景，既然已经兵解离世，毕竟万事皆休。
 
-Liễu Đại kiếm tiên thật không biết xấu hổ khi lấy không một bộ lang điền bản thần nữ đồ, sao hắn có thể không xấu hổ mà đề nghị hắn giúp đỡ cửa hàng mời chào khách hàng?
+左右始终没有睁眼，神色淡漠道：“没什么好看的，一时争胜，毫无意义。”
 
-Đây là giúp Liễu Chất Thanh tu tâm.
+魏晋知道这位左前辈的脾气，所以言语不太忌讳，笑道：“这真不像是一位大师兄对小师弟的该有态度。”
 
-Hoàng hôn buông xuống, một vị chưởng quầy cửa hàng học đồ bước nhanh vào. Trần Bình An đeo lên một cái bảng gỗ đóng cửa, từ giữa một bao ra bốn mươi chín khối đá cuội, chất đầy quầy hàng.
+左右摇头道：“我从来没有承认过这件事。何况按照道统文脉的规矩，没挂祖师像，没敬过香磕过头，他本来就不算我的小师弟。”
 
-Người trẻ tuổi kia không thể kiềm chế nuốt nước bọt, lo lắng hỏi: "Thật sự là Ngọc Oánh sườn dốc chi vật sao?"
+魏晋就不再多说什么。
 
-Trần Bình An cười nói: "Yên tâm đi, không phải là hàng phỏng tay! Còn việc nó đến từ đâu, ngươi đừng quan tâm. Chỉ cần biết rằng tôi là người có cửa hàng không lớn ở lão hòe phố này, mà trong đó lại có nhiều vật quý như vậy, ngươi nghĩ rằng tôi lại vì một chút tiền thần tiên mà thử nghiệm xem liệu Liễu Đại kiếm tiên có nhanh không?"
+左前辈，本就是个不爱说话的，好像让他说一句话，比出剑对敌，还要吃力。
 
-Người trẻ tuổi nhẹ nhõm thở phào.
+左右和魏晋，两位剑仙，一位来自中土神洲，一位来自宝瓶洲，而且左右已经远离人间视野，如同孤魂野鬼在广袤大海之上漂泊不定，足足百余年光阴，两人原本八竿子打不着，除了都认识阿良，以及陈平安。
 
-Hắn cầm lên một viên đá cuội, nghĩ một chút, rồi thận trọng kiểm tra, cười nói: "Không hổ là Ngọc Oánh sườn dốc, đá ở đây thực sự rất tốt, đá trong suốt và êm dịu, khác hẳn với những viên đá trong núi ngọc thạch rất khó loại bỏ được lửa, quả thực là hàng tốt. Đặt vào mắt thợ chế tác dưới núi, chỉ sợ cũng sẽ là một viên đá không tệ. Chưởng quầy ơi, lần giao dịch này tôi chắn chắn sẽ làm, nhiều năm nay khổ luyện cùng sư phụ, chỉ có điều vật tốt ở trên núi rất khó tìm. Chúng ta ở cửa hàng có chút kén chọn, sư phụ không muốn chà đạp những thứ tốt, nên tự mình động thủ, chỉ để chúng tôi có thể quan sát, mà mấy đồ đệ như chúng tôi lại không có cơ hội, vậy nên vừa vặn luyện tay một chút..."
+左右对魏晋的剑术和品性，都比较顺眼，这个曾经受过阿良不小恩惠的年轻人魏晋，算是剑气长城这边众多剑修当中，左右所剩不多愿意多说几句话的存在。
 
-Nói đến đây, người trẻ tuổi có vẻ ngại ngùng.
+不过魏晋只是跻身玉璞境没多久的剑仙，反观百年之前便已经享誉天下的左右，魏晋称呼一声左前辈，很实在。
 
-Trần Bình An cười nói: "Không sao, nói thật khó nghe, nhưng lại là sự thật. Chỉ mong ngươi luyện tập có thể, hãy ra sức một chút. Dù sao Ngọc Oánh sườn dốc này, số lượng có hạn, nếu ngươi khắc hỏng một viên thì sẽ mất đi một viên."
+魏晋有些感慨。
 
-Người trẻ tuổi khép hai ngón tay lại, cổ tay siết chặt, trên mặt tràn đầy vẻ tự tin, hắn gõ vào ngực vị chưởng quầy trẻ tuổi và hứa: "Đây chính là những đường khắc đầu tiên của tôi, sẽ không qua loa đâu!"
+每一位剑修，心目中都会有一位最仰慕的剑仙。
 
-Trần Bình An ghé vào quầy, cười nói: "Vậy tôi sẽ đưa viên đá cuội đầu tiên cho ngươi, coi như là chúc mừng ngươi ra tay đầu tiên."
+例如风雪庙神仙台，他那个修为不高却会让魏晋敬重一辈子的师父，就一直很仰慕以一人之力压制正阳山的李抟景，生前的最大愿望，就是有机会向李抟景询问剑道，哪怕李抟景只说一个字，就算此生无憾。可惜师父脸皮薄，修为低，始终无法达成心愿，等到魏晋浪荡江湖，偶遇那个头戴斗笠的“刀客”，闭关破境，再想要以剑仙之姿、以师父之弟子身份，问剑风雷园，李抟景却已经逝世。
 
-Người trẻ tuổi có chút thẹn thùng, "Điều này không phải quá tốt sao."
+对于魏晋来说，自己的人生，总是如此，不求的，兴许会满满当当来，苦求的，稍纵即逝，愈行愈远。
 
-Trần Bình An chỉ vào viên đá cuội, cười nói: "Tùy ý chọn một khối, nhưng ngươi phải hứa với ta rằng viên đá cuội đầu tiên khắc xong sẽ thuộc về ngươi, còn lại, sau khi xuống đao, cũng phải cẩn trọng."
+所幸到了剑气长城，魏晋心境，为之一阔。
 
-Người trẻ tuổi mặt đỏ lên, "Chưởng quầy ơi, cứ yên tâm! Tôi cam đoan mỗi viên đá đều sẽ được tôi cố gắng thực hiện tới mức cao nhất! Có thể còn có vài phép khắc từ bút do Đao Thần mang tới nữa, tóm lại tôi sẽ không để chưởng quầy thất vọng!"
+这里有已在剑气长城独居万年的老大剑仙，有那些来自北俱芦洲慷慨赴死的同道中人，当然也有已至剑术巅峰、仿佛高出浩然天下剑修一大截的前辈左右。
 
-Trần Bình An cười gật đầu.
+先前那场战事，左右一人仗剑，深入妖族大军腹地，以一身剑气随意开道，根本无需出剑，法宝近身，自行化为齑粉。
 
-Khắc đá như đang đốt gốm sứ, cần chú ý đến cảm giác và kinh nghiệm.
+直到遇到那头一眼挑中的大妖，左右才正儿八经开打。
 
-Viên đá cuội đầu tiên sẽ thuộc về người trẻ tuổi, hắn chỉ cần dành thời gian tập trung, như vậy sau khi khắc, sẽ tạo ra một loại cảm xúc như dòng nước chảy, dù chỉ lơ là một chút, chất lượng tổng thể của viên đá cũng sẽ tốt hơn so với trước kia, tự nhiên sẽ bán được giá cao hơn, và cửa hàng sẽ dễ dàng thu hồi một viên Ngọc Oánh sườn dốc đã mất.
+那场神仙打架，殃及池鱼无数，反正方圆百里之内都是妖族。
 
-Thế sự không bao giờ đơn giản, chỉ cần xem có người có suy nghĩ hay không.
+丰采绝伦。
 
-Còn về việc liệu người trẻ tuổi này có hỏng việc ở phía sư phụ do sự tiếp xúc tại cửa hàng này hay không, thì Xuân Lộ phố vẫn còn nhiều người thông minh.
+只此一战，便让左右成为最受剑气长城本土剑修欢迎的外乡人。
 
-Trần Bình An đã để cho người học trò trẻ tuổi mang theo những viên đá cuội đó, kể cả cái bao bọc, để sau này mỗi lần mài dũa sẽ thành một kiện vật phẩm. Chỉ cần hắn hoặc để bạn bè mang tới cửa hàng là được, đã nói mình là bạn của lão chưởng quỹ, đến lúc đó chưởng quầy sẽ không gặp phải khó khăn gì. Hoặc có thể khắc một kiện rồi lấy đi một kiện, người trẻ tuổi suy nghĩ nhiều hơn về lợi hại, cảm thấy phương pháp này an toàn hơn. Cuối cùng hắn đã cam kết với vị chưởng quầy trẻ tuổi, nếu bất cẩn làm hỏng một viên đá cuội, hắn sẽ tự bỏ tiền túi bồi thường một viên Tuyết Hoa tiền.
+大战落幕后，左右独自坐在城头上饮酒，老大剑仙陈清都露面后，说了一句话，“剑术高，还不够。”
 
-Không ngờ vị chưởng quầy trẻ tuổi kia còn nói, nếu bất kì viên đá cuội nào bị ném đi, cũng không thành vấn đề, chỉ cần tay nghề vẫn còn, bên cửa hàng vẫn có thể bàn bạc.
+哪怕是面对这位被阿良敬称为老大剑仙的定海神针，左右也只回答了一句话，“那就是剑术还不够高。”
 
-Người trẻ tuổi cười rời đi.
+当时陈清都双手负后，转身而走，摇头笑道：“那个最知变通的老秀才，怎么教出你这么个学生。”
 
-Trần Bình An đứng ở cửa hàng, nhìn người nọ rời đi.
+左右懒得说话。
 
-Ông lờ mờ thấy một bóng dáng thiếu niên mang giày rơm đang đi đưa tin.
+原因很简单，打不过这个老人。
 
-Một ngày sau, cửa hàng kiến càng gắn biển đóng cửa hai ngày, mở cửa trở lại thì đã có một vị chưởng quầy mới, có nhãn lực tốt, biết người này đến từ đường tiên sư Chiếu Dạ thảo đường. Khuôn mặt tươi cười ân cần, đón tiếp chu đáo và cẩn thận, đồng thời hàng hóa trong cửa hàng cuối cùng cũng có thể trả giá.
+不然他就要用剑说话了，好让这位辈分最高的万年刑徒，提及自己先生，一定要客气些。
 
-Hôm nay, Trần Bình An vẫn mặc bộ thanh sam bình thường, mang theo rương trúc, đội mũ rộng vành, cầm gậy leo núi, nói với hai thị nữ trong dinh thự rằng hôm nay sẽ phải rời khỏi Xuân Lộ phố.
+魏晋低头凝视着摊开的手掌，笑道：“第一场，陈平安赢了，很轻松，对手是一位龙门境剑修。”
 
-Vị trẻ tuổi đệ tử Kim Đan tu sĩ đã truyền dạy nói rằng tổ tiên đã gửi lời nhắn tới dinh thự, Phù chu tặng cho Trần Kiếm Tiên rồi, không cần khách khí.
+左右沉默片刻，依旧没有睁眼，只是皱眉道：“龙门境剑修？”
 
-Sau khi Trần Bình An cảm ơn, ông cũng không khách khí.
+魏晋以为左前辈是嫌弃陈平安的对手境界太低，说道：“第二场，就是位年轻金丹了。”
 
-Ông tế bùa phi chu, đi một chuyến tới lão hòe phố, cuối phố chính là nơi có cây hòe lớn.
+不料左右愈发皱眉，“才十年？十年有了吗？就可以打龙门境剑修了？”
 
-Người thanh sam trẻ tuổi đứng dưới gốc hòe, ngẩng đầu nhìn lên, đứng hồi lâu.
+魏晋的心情，有些复杂。
 
-Rất nhiều chuyện xảy ra không thể tưởng tượng nổi, lại không thể thực hiện.
+左前辈是不是对自己的那位小师弟，太没有信心了？
+
+魏晋很快记起一事，左前辈好像在文圣门下求学之时，境界确实不高，而且也非先天剑胚。
+
+左右淡然道：“你不用跟我说那战况了。”
+
+魏晋便只是自己掌观山河。
+
+左右继续以整座剑气长城的昂然剑意，砥砺自身剑意。
+
+年轻时候，不用心读书，分心在习武练剑这些事上，不是什么好事。
+
+经历事情多了，再转头去读书，便很难吃进一些朴素的道理了。
+
+满脑子都想着如何与这个世道融洽相处，挑三拣四，为我所用之学问，能解燃眉之急之学问，才被认为是好学问，这样的学问，知道再多，对于寻常人，自然还是不小的裨益，毕竟是个人，都得有那吾心安处，可对于自己先生之学生，尤其是还是那关门弟子……就意义不大了。
+
+魏晋沉默许久，看过了第二场架后，察觉到身边左右的细微异样，忍不住问道：“左前辈既然还有牵挂，为何见他一面都不肯？”
+
+左右皱眉道：“我说了，我不认为他是我的小师弟。”
+
+那个年轻人，可以是自己先生的弟子，可以是齐静春的师弟，即便如此，也不意味着就是他左右心中的小师弟。
+
+不然他左右，为何自称大师兄，视公认的文圣首徒崔瀺如无物？
+
+退一万步说，天底下有那光顾着与小媳妇卿卿我我、就将大师兄晾在一边的小师弟？
+
+我不把你当小师弟，是你小子就敢不把我当大师兄的理由吗？
+
+魏晋安安静静远观战事。
+
+左右突然睁开眼睛，眯起眼，举目远眺城池那条大街。
+
+魏晋忍住笑，不说话。
+
+这一刻，刚好是那位齐家子弟拔剑出鞘。
+
+左右很快就闭上眼睛。
+
+魏晋会心一笑。
+
+文圣一脉，最讲道理。
+
+————
+
+剑气长城别处，隐官大人御风落在城头之下，一个蹦跳，踩在墙体上，向上而走。
+
+脚步看似不快，但是瞬间就到了城头上，驻守附近地带的一位北俱芦洲年迈剑仙，抱拳行礼。
+
+隐官大人点点头，站在北边城头上，跨出一大步，就来到了靠近南边的城头，伸手抓住自己的两根羊角辫，往上提了提，摇摇晃晃，缓缓升空。
+
+然后她一个皱眉，不情不愿，一个转身御风，如箭矢激射向脚下的某处城头，她头顶整座厚重云海都被轰然驱散，刹那之间，她就出现在一座茅屋旁边，“干嘛？我又没喝酒！”
+
+一位老人双手负后，微笑道：“跟你商量点事。”
+
+隐官说道：“没喝酒，最近没力气打架，我不去南边。”
+
+老人笑道：“这么顽劣调皮，以后真不打算嫁人了？”
+
+身穿一袭宽松黑袍的隐官大人，此刻就像一只炸毛的小黑猫。
+
+大袖飘荡，黑云缭绕小姑娘。
+
+原来老人在言语之际，已经站在了她身边，弯腰伸手，按住她的那颗小脑袋。
+
+那件飘荡不已的黑袍，瞬间松垮下去，她低头挪步，沉声道：“有事说事！”
+
+老人挥挥手，“自个儿玩去。没事了。”
+
+她怒道：“陈清都！逗我玩呢！”
+
+陈清都笑道：“听咱们隐官大人的口气，有些不服气？”
+
+她脸色阴沉。
+
+下一刻。
+
+先是茅屋附近的剑气长城，突兀出现一座小天地。
+
+然后几乎所有城头剑修都感觉到了整座城头的一阵震动。
+
+那座小天地之中。
+
+老大剑仙一只手按住隐官大人的头颅，后者双脚悬空，背靠城墙，她一身的杀气腾腾，却挣脱不开。
+
+陈清都淡然道：“我不是管不动你们，不过是我心有愧疚，才懒得管你们。你年纪小，不懂事，我才对你格外宽容。记住了没有？”
+
+隐官沉默许久，点了点头。
+
+陈清都松开手，隐官滑落在地。
+
+老人说道：“玩去。”
+
+隐官哦了一声，转过身，大摇大摆走了，两只袖子甩得飞起。
+
+老人驻足远眺南方的那座蛮荒天下。
+
+笑了笑。
+
+人间如酒，醉倒花前，醉倒月下，醉我万年。
+
+陈清都回望北边一眼。
+
+境界相差不大的情况下，与那小子为敌，心眼不多可不行。
+
+————
+
+符箓没有了用武之地。
+
+陈平安还有十五、松针、啖雷三把飞剑，可以为自己确定庞元济那把本命飞剑的诸多虚实。
+
+街上两位庞元济也应对轻松，一人停步，分出心神，驾驭三缕剑气，纠缠陈平安的三把飞剑。
+
+另外一人驾驭那座剑气，消耗出拳不停的陈平安，那一口武夫真气和一身凝练拳意。
+
+至于屋顶之上的十二位庞元济，又开始打造一座新的符阵。
+
+庞元济选择了一个最笨的法子，循序渐进，将整条大街都变成自己的小天地。
+
+如圣人坐镇书院、神灵坐镇山岳，修为更高一境！
+
+最终以元婴剑修出剑，便可瞬间分出胜负。
+
+对方显然也意识到庞元济的想法。
+
+可惜似乎力所未逮，哪怕出拳气势，已经让看客们都要心惊胆颤，一次次拳罡剑气相撞，导致整条街道地面都已经碎裂不堪。
+
+不过对阵双方，都有默契，不管怎么个天翻地覆，庞元济的剑气不入酒肆丝毫，陈平安的拳罡亦是如此。
+
+就在庞元济即将大功告成之际。
+
+那个年轻武夫，终于不再有任何留力。
+
+一个眨眼功夫，就以拳开江河，来到前方那个庞元济身前。
+
+不但如此，又有一把雪白虹光的飞剑突兀现世，毫无征兆，掠向身后的那个驾驭剑气应对三把既有飞剑的庞元济。
+
+这都不算什么。
+
+一袭白衣，拔地而起，阴神远游云霄中。
+
+出拳处，那个庞元济被一拳打烂。
+
+飞剑初一，搅碎第二个庞元济。
+
+而陈平安的阴神骤然悬停，居高临下，以颠倒而用的云蒸大泽式，拳罡如暴雨，遍布处处屋脊，个个庞元济。
+
+与此同时，街上收拳的陈平安真身，双膝微蹲，好似垮塌收拢的拳架，爆发出一股从未在陈平安身上展露的拳意，如春雷炸响，蛟龙动脊，脚下一条大街，竟是几乎从头到尾，全部塌陷下沉，陈平安身在高处，已经越过自己阴神头顶，向某处递出生平拳意最巅峰一拳。
+
+城池上空，先是那道拳意笔直而去，如同刀割白纸。
+
+随着动静，所有人头顶，轰隆隆作响。
+
+空中凭空浮现的庞元济，面对那道直直而来的拳罡，一瞬间收拢飞剑，出现了一尊身高数丈的金身法相，双臂交错，格挡在庞元济身前。
+
+那法相并不巍峨壮观，但是金光凝稠如水。
+
+庞元济与金身法相一同被打退到更高处。
+
+等到庞元济稳住身形，那尊金身法相蓦然芥子化天地，变得高达数十丈，屹立于庞元济身后，一手持法印，一手持巨剑。
+
+陈平安脚踩初一，十五。
+
+面对这等恢弘异象，不退反进，以极快速度登高。
+
+窗口处，酒肆外边，一颗颗脑袋，一个个伸长脖子，看得瞠目结舌。
+
+这两家伙，打得有些无法无天了。
+
+晏琢轻声道：“宁姚，不劝劝他？真没必要折腾到这个份上。庞元济人不坏，陈平安他更是好人，换成齐狩，我巴不得陈平安一拳下去，把齐狩的脑浆子都打出来。这么打下去，真要分生死了。”
+
+宁姚没好气道：“劝不动。”
+
+董画符有些如坠云雾，天底下还有宁姐姐都劝不动的人？
+
+阿良也好，老大剑仙也罢，在宁姐姐这边，可都是很刮目相看的。何况宁姐姐懂事早，哪怕是那两个，也从没把宁姐姐当孩子看待。也是他们当中，最早一个，至今也是唯一一个，能够与阿良、老大剑仙说大事的人。这一点，董画符的姐姐，都承认远远不如宁姚。
+
+宁姚又补充道：“不想劝。”
+
+董画符很快释然，这才是宁姐姐会说的话。
+
+庞元济高高举起一手，重重压下。
+
+身后那高大如山峰的金身法相，手持雷电交织的玄妙法印，随之一拍而下。
+
+只见那年轻武夫，一拳破开法印，犹有余力，拳找庞元济！
+
+庞元济不为所动，双指一横抹。
+
+法相持剑横扫而出，巨剑狠狠砸在那青衫年轻人的腰部。
+
+陈平安双脚扎根，非但没有被一拍而飞，坠落大地，就只是被剑刃加身的横移出去十数丈，等到法相手中巨剑劲道稍减，继续倾斜登高，左手再出一拳。
+
+这一幕，看得所有地仙之下剑修，直接头皮发麻，背脊生寒。
+
+法印再次凝聚，巨剑再次高举而落。
+
+陈平安两次身形凭空消失，来到庞元济与金身法相之间的稍高处，对着庞元济真身的脑袋，就是一拳落下。
+
+砰然一声。
+
+庞元济从空中笔直砸入大街地底下，不见人影，尘土飞扬，然后久久没有露面。
+
+一袭青衫脚踩两把飞剑，缓缓落在大街上，一条左臂颓然下垂，至于右手更无需多说。
+
+刚好身边就是那把剑仙。
+
+他站在大坑边缘，浑身鲜血，缓缓转头，望向远处的心爱姑娘。
+
+那位青衫白玉簪的年轻剑客，以白骨裸露的手心，轻轻抵住那把剑仙的剑柄，朝她眨了眨眼睛，笑容灿烂。

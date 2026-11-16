@@ -1,371 +1,205 @@
-# Chương 581: Thế sự như cờ, ván nào cũng mới
+# Chương 581: 老秀才居中坐
 
-Trà Mã cổ đạo, một người cưỡi ngựa quay đầu ngựa, chậm rãi tiến về phía người nữ tử có vải che mặt và rương trúc thư sinh bên kia.
+叠嶂往铺子外边看了眼，有些奇怪，剑气长城这边的读书人，真不多，这里没有学塾，也就没有了教书先生，如她叠嶂这般出身，陋巷孩子们的识文断字，都靠些大大小小、歪歪斜斜的石碑，随随便便矗立在大街小巷的犄角旮旯，每天认几个字，日子久了，真要用心学，也能翻书看书，至于更多的学问，也不会有就是了。
 
-Tào Phú kinh ngạc hỏi: "Tùy bá bá, Cảnh Rừng đang làm gì vậy?"
+宁姚虽然没有见过文圣，但是依稀猜出了老先生的身份，当下感触不深，唯一的感觉，就是与自己游历浩然天下之时，一些尚未彻底禁绝书籍上的文圣画像，瞧着真是不像，那些书籍大同小异，无论是半身像，还是立像，都把文圣给画得气宇轩昂，现在看来，其实就是一个瘦老头儿。
 
-Lão thị lang Tùy Tân Vũ không khỏi cau mày, trong lòng vô cùng tức giận, nhưng vẫn cố gắng giữ được bình tĩnh, cười đáp: "Cảnh Rừng từ nhỏ chưa bao giờ thích ra khỏi nhà, có lẽ hôm nay nàng gặp phải nhiều chuyện kinh hoàng, nên mới có chút cử chỉ điên rồ. Tào Phú, ngươi hãy cố gắng an ủi nàng nhé."
+叠嶂有些疑惑，宁姚说道：“我们聊我们的，不去管他们。”
 
-Tào Phú gật đầu, mỉm cười nói: "Phó bá bá yên tâm, tâm trạng Cảnh Rừng bị k*ch th*ch, điều đó là hết sức bình thường."
+外边，是一场不期而至的久别重逢。
 
-Tùy Văn Pháp ngạc nhiên nói: "Cô cô tuy không thường đi ra ngoài, nhưng có lẽ đã không như vậy trong thời gian qua. Gia đình có nhiều biến cố, cha mẹ ta đều rất lo lắng; cả mấy cô cô cũng rất điềm tĩnh. Cha đã nói về một số vấn đề khó khăn trong quan trường, đa phần đều là cô cô giúp đỡ bày mưu tính kế, mọi thứ đều rất hợp lý."
+陈平安除了笑容，也没说什么言语。
 
-Tào Phú tiếp tục truyền đạt suy nghĩ của mình với vị hộ đạo nhân, "Ngươi có nhìn ra được điều gì không?"
+老秀才转头望向铺子里边的两个小姑娘，轻声问道：“哪个？”
 
-Đao khách Tiêu Thúc Dạ do dự một chút, trả lời: "Không thể khinh thường, tốt nhất là không nên gây thù chuốc oán. Hôm nay, tình hình tại Đại Triện vương triều rất phức tạp, giống như chúng ta không rời khỏi vùng núi như trước? Ai mà biết được có con rùa to nào từ hồ sâu chui ra? Chẳng hạn như nếu đối phương là một vị Kim Lân cung phổ điệp tiên sư, thì sẽ liên lụy đến sư phụ ngươi và Kim Lân cung đấy."
+陈平安小声道：“好看些的那个。”
 
-Tào Phú đáp: "Trừ khi hắn muốn mạnh mẽ tranh giành Tùy Cảnh Rừng, bằng không thì mọi chuyện sẽ dễ dàng hơn."
+老秀才欣慰得不行，握拳在胸前，伸出大拇指。
 
-Tiêu Thúc Dạ gật đầu: "Như vậy thì tốt lắm. Đứa trẻ ấy không giống người thích xen vào việc dưới núi, nếu không thì trước đây đã không tự đi một mình ra khỏi nơi nghỉ chân."
+陈平安让老先生稍等，去里边与叠嶂招呼一声，搬了椅凳出去，听叠嶂说铺子里边没有佐酒菜，便问宁姚能不能去帮忙买些过来，宁姚点点头，很快就去附近酒肆直接拎了食盒过来，除了几样佐酒菜，杯碗都有，陈平安跟老先生已经坐在小板凳上，将那椅子当作酒桌，显得有些滑稽，陈平安起身，想要接过食盒，自己动手打开，结果给宁姚瞪了眼，她摆好菜碟，放好酒碗，将食盒搁在一旁，然后对老秀才说了句，请文圣老先生慢慢喝酒。老秀才早已起身，与陈平安一起站着，这会儿愈发笑得合不拢嘴，所谓的乐开了花，不过如此。
 
-Tào Phú cười chua chát: "Chỉ sợ chúng ta như cái bọ ngựa bắt ve, còn hắn như con chim sẻ núp ở phía sau. Kỳ thực, từ đầu hắn đã nhắm đến ta và ngươi rồi."
+宁姚喊了叠嶂离开铺子，一起散步去了。
 
-Tiêu Thúc Dạ cười nói: "Đúng là như vậy, còn có thể thế nào? Đánh một trận là được. Tùy Cảnh Rừng là sư phụ ngươi bất đắc dĩ mới phải đối mặt, nàng mang trong mình một phần đại cơ duyên. Nếu nàng tình cờ khám phá ra manh mối trước chúng ta, đừng do dự, trên con đường lớn, cơ duyên một khi bỏ qua thì trong đời này khó mà có lại. Cuối cùng, chủ nhân cũng là vì muốn tốt cho ngươi, mà ngươi với Tùy Cảnh Rừng vốn đã có sẵn duyên phận, càng thêm là ngươi đã phát hiện món pháp bào trân quý trên người nàng, vì vậy đây là một cơ hội lớn, ngươi nên tranh thủ."
+老秀才哧溜一声，狠狠抿了口酒，打了个寒颤似的，深呼吸一口气，“累死累活，总算做回神仙了。”
 
-Tiêu Thúc Dạ liếc nhìn vị thanh sam thư sinh, "Nếu hắn là một kẻ thuần túy vũ phu, chỉ cần không phải là người của Ngũ Lăng quốc Vương Độn hay những đệ tử trực truyền lúc trước của ta, thì sẽ không có vấn đề gì. Còn nếu là một người tu đạo, thì không phải là kẻ chủ mưu tính toán quá nhiều Kim Lân cung tu sĩ, thì cũng tốt. Ta đã nhắc nhở ngươi phải cẩn thận, nhưng thực tế cũng không cần quá lo lắng, hôm nay các cao nhân, phần lớn đều đã tụ tập tại Đại Triện kinh thành."
+陈平安缓缓喝酒，笑望向这位好像没有什么变化的老先生。
 
-Tào Phú gật đầu: "Đi từng bước một, xác định thân phận, không vội vàng quyết định. Hình như Tùy Cảnh Rừng đã nghi ngờ về chúng ta, thật kỳ lạ, tại sao nàng lại nhận ra được chứ?"
+老秀才夹起一筷子佐酒菜，见陈平安没动静，提了提手中筷子，含糊不清道：“动筷子动筷子，光学会喝酒可不成，不吃下酒菜的喝酒，就闷了。我当年那会儿是穷，只能靠圣贤书当佐酒菜，崔瀺那小王八蛋，一开始就死脑筋，误以为一边喝酒一边看书，真是什么文雅事，后来就有样学样了，哪里晓得若是我兜里有钱，早在酒桌上摆满菜碟了，去他娘的圣贤书。”
 
-Tiêu Thúc Dạ cười nói: "Ngươi đây không phải là người tu đạo sao? Rốt cuộc ngươi vẫn là một nửa người tu đạo. Tâm tính và trực giác của người tu đạo chắc chắn không thể so sánh với người thường. Kế hoạch lần này của chúng ta còn khá thô thiển, quá nhiều sự trùng hợp, khó tránh khỏi khiến nàng hoài nghi. Tất nhiên, cũng có thể nàng chủ ý lừa dối ngươi, ngươi hay là nên kiên nhẫn một chút, đừng nói nhiều mưu kế. Người như nàng, tâm tư kín đáo, lại dám mạo hiểm đi cược như vậy, đúng là nhân tài bẩm sinh của đạo, và nàng cùng ngươi đúng là trời sinh một đôi, về sau nhất định sẽ là quyến lữ trong tiên giới, sẽ trợ giúp cho cả ngươi lẫn sơn môn. Ta chỉ nói một câu, chủ nhân chẳng qua là muốn có được pháp bào và trâm cài từ nàng, cuối cùng cũng là thuộc về ngươi."
+骂自己最凶的人，才能骂出最有理的话。
 
-Tào Phú bất đắc dĩ nói: "Sư phụ ưu ái ta hơn cả con ruột, trong lòng ta cũng đã quy định rõ ràng."
+陈平安夹了一筷子菜，细嚼慢咽，抿了口酒，十分娴熟。
 
-Tiêu Thúc Dạ cười cười, có vài điều không tiện nói ra, thương cảm cho tình cảm của chủ nhân dành cho ngươi. Tào Phú, ngươi cũng đừng có nhận được lợi mà vẫn còn khoa trương. Chủ nhân cũng chỉ là một vị Kim Đan nữ tu, nếu không có ngươi, Tào Phú hôm nay tu vi cũng không cao, chưa đạt tới cảnh giới Quan Hải, càng xa so với Long Môn, bằng không thì hai thầy trò các ngươi đã sớm trở thành đôi lữ trên núi. Vì vậy nếu Tùy Cảnh Rừng thực sự muốn trở thành nữ nhân của ngươi, nàng nhất định sẽ phải chịu đựng những điều đó. Biết đâu sau khi đạt được trúc y màu trắng và trâm cài, ngươi sẽ tự tay làm ra cho nàng một bộ hồng phấn khô lâu.
+不是无话可说，而是根本不知道如何开口，不知可以讲什么，不可以讲什么。
 
-Tiêu Thúc Dạ tin tưởng rằng có một ngày, Tào Phú sẽ không chút do dự đưa ra quyết định chính xác.
+老秀才下筷如飞，喝酒不停，也亏得宁姚买得够多。
 
-Đại đạo vô tình, con đường trường sinh, ngoài trừ đạo khế ước với thần tiên đạo lữ, nữ tử như giày lý, mặc ngươi khuynh quốc khuynh thành cũng không thể giữ lại được.
+老先生的酒碗空了，陈平安就弯腰伸手帮着倒酒。
 
-Người cưỡi ngựa chậm rãi tiến về phía trước, tựa như sợ làm kinh hãi đến người nữ tử có vải che mặt.
+吃完了菜，喝过了酒，陈平安将酒碗菜碟都放回食盒，老秀才用袖子擦拭椅子上的酒渍汤汁。
 
-Nàng đứng lên, lần nữa tiến lại gần phía nam thanh sam, nói khẽ: "Trần công tử, ta biết ngươi là người chính thống trên núi, và đối với ta cũng như Tùy gia không hề ác ý. Chỉ là trước đây có chút thất vọng, không muốn so đo mà thôi. Nhưng Tào Phú người này tâm tư khó lường, có lẽ cố ý bẫy ta. Chỉ cần ngươi hôm nay đã cứu ta, ta nhất định sẽ trả ơn ngươi! Ta Tùy Cảnh Rừng sẵn lòng làm trâu làm ngựa, bưng trà đưa nước, cõng rương vác nặng."
+结果左右一个瞬间，飘落在店铺门口。
 
-Người nữ tử đã quay người, chầm chậm lay động quạt xếp: "Nói ít lời nói linh tinh, giang hồ hảo hán, hành hiệp trượng nghĩa, không cầu hồi báo, cái gì lấy thân báo đáp làm trâu làm ngựa chỉ là lời khách sáo, ít nói, cẩn thận đừng biến khéo thành vụng. À mà này, ngươi cảm thấy Hồ Tân Phong có nên chết không?"
+老秀才问道：“怎么来了？”
 
-Nàng suy nghĩ một chút, cân nhắc từng câu từng chữ, có lẽ là nghĩ rằng vị trẻ tuổi tiên sư đang khảo nghiệm bản thân nàng, nàng đáp: "Chẳng qua là người khiếp đảm không dũng, chưa từng giết người, tội không đáng chết."
+左右答道：“学生想要多看几眼先生。”
 
-Người kia mỉm cười gật đầu: "Đây là ngươi nói đấy, không đổi ý chứ?"
+老秀才指了指空着的椅子，气笑道：“你剑术最高，那你坐这儿？”
 
-Nàng gật đầu thật mạnh.
+左右瞥了眼陈平安，陈平安只得让出自己的那条小板凳，绕过椅子，走到老秀才身边。
 
-Người nọ khép lại quạt xếp, nhẹ nhàng gõ vai mình, thân thể hơi ngả ra sau, quay đầu cười nói: "Hồ đại hiệp, ngươi có thể biến mất."
+老秀才就只能坐在椅子上，陈平安这才落座。
 
-Hồ Tân Phong hoảng hốt chạy đi, một cú nhảy bay vọt, trực tiếp rời khỏi Trà Mã cổ đạo, một đường chạy vội xuống núi, rất có khí khái vượt mọi chông gai, chỉ trong nháy mắt đã không còn thấy tung tích.
+老秀才问道：“你们俩认了师兄弟没有？”
 
-Hai bên cách nhau chỉ hơn mười bước, Tùy Tân Vũ thở dài: "Cô gái ngốc, đừng hồ đồ, nhanh chóng trở về đi. Tào Phú đối với ngươi chẳng lẽ vẫn chưa đủ cuồng nhiệt? Ngươi có biết hành động của mình sẽ là sự trả thù ngốc nghếch không?"
+左右说道：“没觉得是。”
 
-Nói đến sau, vị lão thị lang có quyền lực trong tay này vẻ mặt tràn đầy giận dữ, tàn khốc nói: "Tùy thị gia phong nhiều thế hệ thuần chính, há có thể làm như vậy! Dù ngươi không muốn kết hôn với Tào Phú, trong lúc nhất thời khó có thể tiếp nhận sự nhân duyên bất ngờ, nhưng cha cũng tốt, vì ngươi mà khổ tâm như vậy, đều là những người phân minh cập rạch, chẳng lẽ ngươi không nên dễ dàng vô lễ, để cha phải khổ sở hay sao? Để cho chúng ta Tùy gia phải hổ thẹn?"
+陈平安说道：“同理。”
 
-Thiếu niên Tùy Văn Pháp và thiếu nữ Tùy Tâm Di đều sợ hãi, sắc mặt trắng bệch.
+坐在椅子上的老秀才，当然是偏袒自己的关门弟子，所以一巴掌就拍在矮一截的左右脑袋上，“怎么当的师兄，不过是早些拜师求学而已，你瞎了不起个啥，这都打光棍多少年了？别的不说，只说这件大事上，咱们文圣一脉，如今都靠你小师弟撑场面了！带着把剑，跑东跑西，是能帮你暖被窝啊，还是能帮你端茶递水啊。”
 
-Bọn họ chưa bao giờ thấy ông nội tức giận như vậy.
+陈平安说道：“左前辈先前在城头上，打算教晚辈剑术来着，左前辈担心晚辈境界太低，所以比较为难。”
 
-Người nữ tử có vải che mặt cười khổ nói: "Cha, con gái chỉ biết một sự thật, người tu hành là rất vô tình. Hồng trần nhân duyên, chỉ có thể tránh không kịp."
+毫无悬念，又挨了一巴掌，左右黑着脸，想着等先生离开剑气长城，我左右就半点不为难了。
 
-Tào Phú ánh mắt ôn nhu, nói khẽ: "Tùy cô nương, khi ngươi trở thành chính thức trên núi tu sĩ, ngươi sẽ biết trên núi cũng có đạo lữ như vậy. Nên biết, nếu trước đây đã kết bạn dưới núi, trên núi càng thêm nhân duyên, cũng như phượng mao lân giác, ta Tào Phú sao có thể không quý trọng? Sư phụ ta là một vị Kim Đan địa tiên, chính thức đỉnh cao của đạo, lão nhân gia bế quan nhiều năm, lần này ra ngoài, nhìn thấy ta tướng mạo, xem như hồng loan tinh động. Vì thế còn hỏi thăm về ngày tháng năm sinh của chúng ta, sau đó suy diễn đo lường, cuối cùng chỉ có bát tự lời tiên tri: Ông trời tác hợp, trăm năm khó gặp."
+陈平安又说道：“不过左前辈在刚见到姚老先生的时候，还是给晚辈撑过腰的。”
 
-Người nữ tử có vải che mặt chần chừ một chút, cuối cùng từ trong tay áo lấy ra một đồng tiền, nắm bên tay phải trong lòng bàn tay, sau đó giơ lên cao, nhẹ nhàng nhét vào lòng bàn tay trái mình.
+老秀才哦了一声，转过头，轻描淡写道：“那方才一巴掌，是先生打错了，左右啊，你咋个也不解释呢，打小就这样，以后改改啊。打错了你，不会记恨先生吧？要是心里委屈，记得要说出来，知错能改，改过不吝，善莫大焉，我当年可是就凭这句话，硬生生掰扯出了一箩筐的高深道理，听得佛子道子们一愣一愣的，对吧？”
 
-Nàng lục lọi nhặt nhạnh, cuối cùng ngẩng đầu lên, lòng bàn tay cầm cái đồng tiền, lộ vẻ sầu thảm, cười nói: "Tào Phú, ngươi biết rõ năm đó ta kết hôn lần đầu không thành, vì sao vẫn kéo ta vào cuộc hôn nhân này? Hình như ngươi coi đó là thủ tiết sao? Sau này, dù là cha ta đã thiết lập quan hệ thông gia với nhà ngươi, ta vẫn không thay đổi búi tóc, cũng bởi vì ta tin vào thuật suy tính của mình, người đó, kẻ chết yểu, mới là lương phối kiếp này của ta, còn ngươi, Tào Phú, không phải! Ngày trước không phải, hôm nay cũng không phải. Nếu như gia đình ngươi không gặp hoạn nạn, ta cũng không biết phải nhìn ngươi mà gả, dù sao phụ mệnh khó vi phạm. Tuy nhiên, sau lần đó, ta thề sẽ không lập gia đình, vì vậy, dù cha ta có ép gả cho ngươi, dù ta có hiểu lầm ngươi, ta vẫn kiên quyết không lấy chồng!"
+先生自然是都对的。所以左右闷不吭声，不过决定要教那小子两场剑术，一场是肯定不够的。
 
-Nàng ném cái đồng tiền mạnh mẽ xuống đất, rồi từ trong tay áo lấy ra một nhánh trâm cài. Trong nháy mắt, nàng xuyên qua tấm vải che mặt xuống đỉnh đầu, nâng lên cổ, có máu tươi chảy ra. Nàng nhìn về phía lưng ngựa của lão nhân, nghẹn ngào nói: "Cha, ngươi hãy chiều theo tâm ý của con gái một lần nhé?"
+陈平安突然说道：“山崖书院的副山主，一直很挂念……先生。”
 
-Tùy Tân Vũ tức giận đấm chân, nghiến răng nói: "Cải cách, thực sự là cải cách! Sao lại sinh ra một kẻ như vậy, bị ma quỷ ám ảnh? Cái gì thần nhân đưa tiễn trong giấc mơ, cái gì cao nhân tiên tri điềm lành..."
+这还是陈平安第一次称呼文圣老先生，为简简单单的先生。
 
-Tùy Tân Vũ tức tối nói năng hỗn loạn.
+老秀才硬生生打了个酒嗝，竖起耳朵，故作疑惑道：“谁，什么？再说一遍。”
 
-Tào Phú cười khổ: "Tùy bá bá, hay là thôi đi? Ta không muốn thấy Cảnh Rừng khó xử như vậy."
+左右翻了个白眼。
 
-Người thư sinh mặc áo xanh dùng quạt chống trán, vẻ mặt đau đầu, nói: "Các ngươi rốt cuộc đang náo loạn cái gì thế? Một người muốn tự sát, một người muốn ép hôn lão đầu, một người lại muốn hiểu tâm hồn mà cầu hôn, một người thì đang mê mẩn muốn tranh thủ thời gian nhận thức dượng thiếu niên... Còn một người thì lấp lửng sát khí, đang băn khoăn có nên tìm cớ ra tay hay không? Chuyện này liên quan gì đến ta? Đó là chuyện gia đình các ngươi, sao không tranh thủ thời gian về nhà, đóng kín cửa lại mà bàn bạc cho rõ ràng?"
+陈平安笑道：“茅师兄很挂念先生。”
 
-Lúc này, một người cưỡi ngựa chậm rãi lướt qua cạnh Tào Phú và Tùy Tân Vũ, hỏi: "Tại Thanh Từ quốc, Tiêu Thúc Dạ, xin hỏi công tử thuộc sư môn nào?"
+老秀才转过身，趴在椅把手上，望向陈平安，笑呵呵道：“小冬啊，最愿意用最笨的法子去教书育人，耐心极好，最像我。就是跟左右差不多，犟起来就死脑筋，转不过弯来，我当年只差没绑着茅小冬，往麻袋里一塞，再往礼记学宫一丢，我都舍了一张老脸不要，私底下帮他打点好关系了，偏不去，我当先生的，都没法子。”
 
-Người đối diện tiện tay nhặt những đồng tiền rải rác trên đường lên, mỉm cười nói: "Kim Lân cung, là một Kim Đan kiếm tu. Thực ra, ta vừa mới xuất quan không lâu. Thấy hai người không có gì hòa hợp lắm, ta cũng muốn học hỏi một chút, lại muốn một lần anh hùng cứu mỹ nhân."
+左右突然问道：“为何当年不愿承认先生是先生，如今境界高了，反而认了先生？”
 
-Sau đó, người nọ quay đầu nhìn về phía nữ tử đang đội mũ che mặt, cười khẩy: "Có gì mà tùy tiện ném tiền xem bói, ngươi lừa quỷ đó ư?"
+陈平安答道：“当年我都没读过书，凭什么认先生，就凭先生是文圣吗？那是不是至圣先师、礼圣亚圣出现在我身前，他们愿意收，我就认？先生愿意收取弟子，弟子入门之前，也要挑一挑先生！读过三教百家书，就像那货比三家，最终认定先生果真学问最好，我才认，哪怕先生反悔不认了，我自己都会孜孜不倦拜师求学，如此才算正心诚意。”
 
-Nàng không chút khẩn trương, chỉ dùng trâm cài chống đỡ cổ.
+左右愣了半天。
 
-Tào Phú nói: "Ta nghe sư phụ nhắc đến, Kim Lân cung rất cao quý, đúng là một vị Kim Đan kiếm tu, sát lực rất mạnh!"
+见过不要脸的，没见过这么不要脸的。陈平安你小子家里是开道理铺子的啊？
 
-Người đứng đầu đoàn mười người đao khách Tiêu Thúc Dạ nhẹ gật đầu, đáp: "Chuyện đang rất quan trọng, Tùy Cảnh Rừng đang có pháp bào và trâm cài, nhất là khẩu quyết kia, rất có thể liên quan đến cơ hội của chủ nhân đại đạo, cho nên không thể lùi bước. Kế tiếp ta sẽ thăm dò, nếu thật sự là Kim Lân cung, vị Kim Đan kiếm tu đó, ngươi mau chạy trốn để bảo toàn mạng sống, ta sẽ giúp ngươi kéo dài thời gian. Còn nếu là giả dối, cũng không sao."
+三场！
 
-Người nọ xoay cổ tay, quạt xếp nhẹ nhàng nhúc nhích, viên đồng tiền cũng bắt đầu lơ lửng bay lên, chậc chậc nói: "Vị đao khách này, trên người ngươi nặng nề sát khí, không biết đao khí nặng bao nhiêu, so với phi kiếm ta đây nhanh hơn hay không?"
+老秀才踹了左右一脚，“杵着干嘛，拿酒来啊。”
 
-Một tia hồng quang từ mi tâm của người thư sinh vừa xuất hiện, mạnh mẽ lướt đi.
+左右无奈道：“先生，我又不喜欢喝酒，何况陈平安身上多的是。”
 
-Khi thanh kiếm tiên từ trong túi xuất hiện, Tiêu Thúc Dạ đã lướt người, nắm lấy vai Tào Phú, bay lên không trung, một cú chuyển hướng, giẫm lên cành cây lớn mà lướt đi.
+“左右啊，你是光棍啊，欠钱什么的，都不用怕的。”
 
-Nhưng thanh sam đã đứng trên nhánh cây mà Tiêu Thúc Dạ vừa mới giẫm lên, nói: "Có cơ hội, ta hứa sẽ đến Thanh Từ quốc tìm ngươi, Tiêu Thúc Dạ cùng Tào tiên sư."
+老秀才用语重心长的口气以理服人，循循善诱道：“你小师弟不一样，又有了自家山头，马上又要娶媳妇了，这得是开销多大？当年是你帮先生管着钱，会不清楚养家糊口的辛苦？拿出一点师兄的风范气度来，别给人看轻了咱们这一脉。不拿酒孝敬先生，也成，去，去城头那边嚎一嗓子，就说自个儿是陈平安的师兄，免得先生不在这边，你小师弟给人欺负。”
 
-Nói xong, Tiêu Thúc Dạ liền ném ra một lá bùa vàng.
+左右装聋作哑。
 
-Chỉ là bị một tia kiếm quang chém vào lá bùa, sau đó nó lướt qua và quay trở lại trong tay vị trẻ tuổi kiếm tiên, bị hắn nắm trong lòng bàn tay, lập tức vỡ vụn.
+在曾经的求学生涯当中，这就是左右对自家先生的最大抗议了。
 
-Tiêu Thúc Dạ đi nhanh hơn.
+陈平安从咫尺物当中拿出了两壶酒，都递给老秀才。
 
-Quả nhiên là một vị Kim Lân cung, Kim Đan kiếm tu!
+都是龙泉家乡的糯米酒酿，所有的仙家酒水，都送给了倒悬山看门的那个抱剑汉子。
 
-Trong khi thanh sam thư sinh đã lùi lại, hắn chỉ bay lên Trà Mã cổ đạo, cầm quạt trong tay, mỉm cười nói: "Thật ra, các ngươi nên cảm động đến rơi nước mắt, nên cảm ơn đại hiệp, đại hiệp đã nói không cần, như vậy hắn sẽ tự rời đi. Thật sự... cũng chỉ vậy mà thôi."
+老秀才递给左右一壶。
 
-Hắn khẽ xoay tay, cái gậy leo núi bị hắn chọc lúc trước từ mặt đất bay lên, nhẹ nhàng bay qua, nắm trong lòng bàn tay, dường như hồi tưởng một chút chuyện. Hắn chỉ về phía lưng ngựa của lão nhân, nói: "Các ngươi những người đọc sách, nói rằng xấu cũng không hẳn, tốt cũng không phải, thông minh thì thông minh, còn vụng về thì cũng vụng về, thật sự là tính cách nản lòng. Khó trách ngươi kết bạn với Hồ đại hiệp, tin tưởng lẫn nhau giữa sinh tử. Ta khuyên ngươi nên quay lại, đừng mắng hắn, ta nghĩ hai người các ngươi, thật không có chút tình nghĩa nào cả, ai cũng đừng quở trách ai."
+左右也没拒绝。
 
-Hắn chỉ về phía thiếu niên, "Dù bản tính tốt, nhưng trong môn hộ thế này, thật khó mà thấu hiểu, sẽ chỉ tiếp tục biết cờ, không làm người lão thị lang."
+陈平安自己取出一壶。
 
-Sau đó, hắn chỉ về phía thiếu nữ, "Đối với những người thân cận, không nên sinh lòng ganh tỵ."
+老秀才笑眯眯问道：“左右，滋味如何？”
 
-Cuối cùng, hắn quay đầu lại nhìn về phía nữ tử đội mũ che mặt, cười nói: "Thật ra, lúc ngươi kéo ta xuống nước trước đó, ta có ấn tượng không tồi đối với ngươi, những người này đều như nhau... thông minh và tốt. Dĩ nhiên, tự nhận vận mệnh mà đi, đánh bạc một lần, cũng thật là điều bình thường. Dù sao, cách nào thì cũng không thiếu gì, thắng cược, tránh được một kiếp, thành công chạy ra khỏi cái bẫy đó. Thua cuộc, chỉ đơn giản là oan ức cho Tào đại tiên sư, ngươi mà nói, chẳng có gì tổn thất. Cho nên ta nói ngươi vận may... thật sự rất tốt."
+左右只得说一句尽量少昧些良心的言语，“还行。”
 
-Người thư sinh mặc áo xanh cuối cùng hỏi: "Vậy ngươi có nghĩ đến một khả năng khác không, rằng chúng ta đều thua? Ta sẽ chết đấy. Trước đó, tại đình nghỉ chân bên kia, ta chỉ là một phàm nhân, từ đầu đến cuối không liên lụy đến các ngươi, không cố ý tạo mối quan hệ nào cả, không mượn mấy chục lượng bạc gì, chuyện tốt không đổi thành chuyện tốt, chuyện xấu cũng không thành tệ hơn. Đúng không? Ngươi gọi là gì nhỉ? Tùy cái gì? Trong lòng ngươi tự hỏi, người như ngươi cho dù là tu thành tiên thuật, trở thành Tào Phú trên núi, thì thật sự có thể so với hắn giỏi hơn không? Ta thấy chưa chắc."
+老秀才摇摇头，啧啧道：“这就是不懂喝酒的人，才会说出来的话了。”
 
-Người nọ vừa bước ra, nhìn như bình thường mà đi mười trượng, giữa chừng đã không còn bóng dáng.
+老秀才转头望向陈平安。
 
-Những đồng tiền sớm đã rơi xuống đất.
+果然没有让老秀才失望。
 
-Nữ tử đội mũ che mặt thu lại trâm cài, ngồi chồm hổm trên mặt đất, từ dưới tấm che mặt tơ mỏng, lộ ra gương mặt không biểu cảm, nàng một viên một viên nhặt lên những đồng tiền đó.
+陈平安笑道：“白喝的酒水，滋味最佳。”
 
-Nàng bỏ đồng tiền vào tay áo, vẫn không đứng dậy, cuối cùng từ từ nâng cánh tay, tay nàng xuyên qua tấm lưới mỏng, xoa xoa đôi mắt, nhẹ giọng nghẹn ngào nói: "Đây mới thực sự là người tu đạo, ta đã biết, không giống như trong tưởng tượng về kiếm tiên, độc nhất vô nhị, là ta bỏ lỡ cơ duyên tu đạo lớn này..."
+老秀才哈哈大笑。
 
-Ở chân núi bên kia.
+笑了半天，发现陈平安看着自己。
 
-Hồ Tân Phong trốn ở gần một vách đá, sợ hãi.
+老秀才便咳嗽几声，“放心，以后让你大师兄请喝酒，在剑气长城这边，只要是喝酒，甭管是自己，还是呼朋唤友，都记账在左右这个名字的头上。左右啊……”
 
-Không phải hắn không muốn chạy thêm một đoạn đường, mà là đỉnh núi bên ngoài không còn vật che lấp, Hồ Tân Phong lo sợ rằng nếu hắn chạy trước, rất có thể bị ai đó nhìn thấy và gặp phải tai bay vạ gió.
+左右叹了口气，“知道了。”
 
-Kết quả, hắn thấy hoa mắt, gối mềm nhũn, suýt nữa quỳ xuống đất, thò tay đỡ lấy vách đá, rung giọng nói: "Hồ Tân Phong bái kiến tiên sư."
+老秀才又喊了声“左右啊”。
 
-Người thanh sam trẻ tuổi mỉm cười nói: "Không ngờ lại gặp nhau. Một chân một quyền một viên đá, vừa vặn ba lượt, Hồ đại hiệp có thấy ta xinh xắn, có phải muốn thu ta làm đồ đệ không?"
+左右已经说道：“不委屈。”
 
-Hồ Tân Phong thở dài: "Muốn giết muốn chém, tiên sư hãy nói một câu!"
+老秀才这才心满意足。
 
-Người thư sinh trẻ tuổi ngưỡng mộ nói: "Vị đại hiệp này thật sự kiêu ngạo!"
+陈平安喝着酒，总觉得越是如此，自己接下来的日子，越要难熬。
 
-Hắn nhẹ nhàng vỗ vai Hồ Tân Phong, cười nói: "Ta chỉ hơi tò mò, lúc trước tại đình nghỉ chân bên kia, ngươi và Hồn giang giao Dương Nguyên đã bàn bạc những gì? Các ngươi chơi cờ, tuy không có gì hay ho, nhưng có một vài điều còn hơn không. Coi như là giúp ta giết thời gian."
+不料老秀才已经善解人意道：“你师兄左右，剑术还是拿得出手的，不过你要是不乐意学，就不用学，想学了，觉得该怎么教，与师兄说一声便是，师兄不会太过分的。”
 
-Hồ Tân Phong đầu vai đau nhức, căn bản không dám k** r*n, chỉ cảm thấy toàn bộ xương vai như nát bấy, hắn không tự chủ được mà từ từ quỳ xuống. Người nọ chỉ hơi xoay người, bàn tay vẫn nhẹ nhàng đặt trên vai Hồ Tân Phong. Cuối cùng, khi Hồ Tân Phong quỳ rạp xuống đất, người đó chỉ chuyển người, thò tay ra, cười nhìn Hồ đại hiệp, người đã làm nhiều điều sai trái.
+左右说道：“可以学起来了。”
 
-Người nọ buông tay ra, sau lưng tựa một cái rương sách vào vách đá, cầm lấy một bầu rượu để uống, rồi đặt nó xuống trước mặt, đè áp xuống. Không biết hắn đang áp chế cái gì mà trên mặt đẫm mồ hôi lạnh, ánh mắt mông lung. Dù vậy, Hồ Tân Phong vẫn thấy sự kiệt lực cường tráng trong ánh mắt của hắn - một cỗ huyền cơ kỳ lạ khiến lòng người lạnh toát. Người đọc sách mỉm cười nói: "Ta sẽ giúp ngươi tìm lý do để sống, nhưng thực ra chỉ là một chuyện đơn giản. Trong lúc cảnh bức bách của đình nghỉ chân, ngươi không thể không cân nhắc tình thế, nên giết vị kia, để lại cho hai người đối phương chọn lựa nữ tử. Điều này sẽ giúp ngươi sống sót. Về sau, ngươi lại không hiểu gì mà chạy đến tìm một con rể đã thất lạc nhiều năm, làm cho ngươi bỗng dưng mất đi một lão thị lang trong tình thế khó khăn, hơn nữa lại trở mặt thành thù, khiến cho mối quan hệ càng thêm phức tạp. Do đó, khi gặp được ta, rõ ràng chỉ là một thư sinh yếu đuối, nhưng chẳng vụng về làm được gì, lại vui vẻ nhảy nhót dọc đường khiến ngươi nổi giận. Chỉ là do không cẩn thận mà không nắm vững lực đạo, ra tay có phần nặng nề, đúng không?"
+陈平安立即说道：“不着急。”
 
-Hồ Tân Phong quỳ trên mặt đất, lắc đầu nói: "Là ta đáng chết."
+左右身体前倾，盯着陈平安。
 
-Người nọ giẫm một chân lên mu bàn chân của Hồ Tân Phong, làm gãy xương chân hắn. Hồ Tân Phong chỉ có thể cắn răng mà không lên tiếng.
+陈平安看向老秀才。
 
-Rồi sau đó, người nọ đá một cú vào trán Hồ Tân Phong, khiến hắn bị đập đầu vào vách đá.
+老秀才心领神会，便立即伸手按住左右脑袋，往后一推，教训道：“让着点小师弟。”
 
-Thư sinh kia xoay người, khuỷu tay chống lên đầu gối, cười hỏi: "Biết mình đáng chết là rất tốt, như vậy thì không cần ta giúp ngươi tìm lý do nữa."
+左右开始大口喝酒。
 
-Hồ Tân Phong sắc mặt trắng bệch, run giọng nói: "Chỉ cầu một điều, nếu tiên sư muốn giết, xin hãy khẩn cầu không tai họa đến người nhà!"
+很奇怪，文圣对待门中几位嫡传弟子，好像对左右最不客气，但是这位弟子，却始终是最左右不离、相伴先生的那一个。
 
-Thư sinh kia híp mắt nhìn Hồ Tân Phong, hắn cố gắng mở miệng: "Khẩn cầu tiên sư đồng ý với việc này!"
+就连茅小冬这样的记名弟子，都对此百思不得其解。
 
-Hồ Tân Phong thấy người thư sinh trẻ tuổi cười, "Ta đã chấp nhận lý do đó. Đứng dậy đi, tốt xấu gì cũng còn chút sức sống, đừng để ta lỡ tay làm gãy nữa. Một người quỳ lâu như vậy, sẽ thành thói quen."
+只不过左右师兄脾气太孤僻，茅小冬、马瞻他们，其实都不太敢主动跟左右说话。
 
-Hồ Tân Phong lung lay đứng dậy, chỉ biết cúi đầu lau nước mắt.
+那会儿尚未欺师灭祖的崔瀺，是光彩夺目的文圣首徒，让中土神洲所有学宫书院、君子贤人们都要黯然失色，学问高，修为高，棋术更是高到绝顶，一样会经常被左右骂得不还嘴，至于崔瀺当时是不愿，还是不敢，茅小冬他们是注定已经没机会去知道答案了。
 
-Tất cả đều rất thật, không phải giả vờ đáng thương.
+至于左右的学问如何，文圣一脉的嫡传，就足够说明一切。
 
-Trong khoảnh khắc ấy, hắn cảm thấy mình thật sự muốn chết, còn nhiều người bên trong nhà, một cuộc chiến không ai thoát khỏi sự tàn khốc của các phép thuật có thể khiến máu chảy đầy đất, tuy mọi người nói "sẽ không có", nhưng điều đó dường như là một điều chắc chắn.
+只可惜被他的剑术掩盖过去了。
 
-Người nọ uống một hớp rượu, "Nói đi, lúc trước ngươi và Dương Nguyên đã nói gì?"
+故而世人每每提及大器晚成的剑仙左右，只说剑术是很高、极高还是人间最高。
 
-Hồ Tân Phong tựa lưng vào vách đá, chịu đựng đau đớn mãnh liệt ở đầu, vai và mu bàn chân, kiên trì không che đậy, đứt quãng nói: "Ta đã nói với Dương Nguyên rằng, mọi việc lớn nhỏ trong phủ, ta đều biết rõ. Hắn đã đồng ý, nói ta thông minh."
+甚至不少人都会忘记他的文圣弟子身份。
 
-Trần Bình An uống rượu, gật đầu: "Kỳ thật bây giờ, mỗi người trong các ngươi hình như cũng đã có một lựa chọn đúng đắn."
+一人力压世间所有的先天剑胚，这就是左右。
 
-Hồ Tân Phong nghe thấy sự tâm tư khó dò từ người thanh niên, hắn lại thay đổi nét mặt, cười nói: "Ngoại trừ ta."
+但是今天坐在小铺子门口小板凳上的这个左右，在老秀才眼中，从来就只是当年那个眼神清澈的高大少年，登门后，说他没钱，但是想要看圣贤书，学些道理，欠了钱，认了先生，以后会还，可若是读了书，考中状元什么的，帮着先生招徕更多的弟子，那他就不还钱了。
 
-Người thanh sam nhìn phong cảnh xa xa, tùy tiện hỏi: "Ngươi có nghe nói đến Đại Triện vùng biên giới trong núi sâu Kim Lân cung không?"
+少年当时说这番话，很认真。
 
-Hồ Tân Phong gật đầu: "Nghe Vương Độn tiền bối nói trong một buổi tiệc, khi số người cực ít, cách nói về nơi tiên gia đó. Khi ấy ta chỉ có thể kính cùng ghế hạng bét, nhưng những lời nghe được rõ ràng, đó là Vương Độn tiền bối cực kỳ kính nể Kim Lân cung. Ông nói cung chủ là một vị tiên nhân có cảnh giới cực cao trong núi, thực tế nói không chừng chỉ có vị hộ quốc chân nhân và nữ tử võ thần mới có thể sánh vai."
+那会儿年纪还不算太大的穷秀才，还没有成为老秀才，更没有成为文圣，只是刚刚出版了书籍，手头有些宽裕，不至于囊中羞涩到吃不起酒，便答应了，想着崔瀺身边没个师弟，不像话，何况穷秀才当时觉得自己这辈子最大的愿望，就是桃李满天下，有了大弟子，再来个二弟子，是好事，不积跬步无以至千里嘛，到底是自己琢磨出来的好句子，那会儿，只有个秀才功名的男人，是真没想太多，也没想太远，甚至会觉得什么桃李满天下，就只是个遥不可及的念想，就像身处陋巷时候，喝着一斤半斤买来家中的浊酒，想着那些大酒楼里边一壶一壶卖的美酒，
 
-Người thư sinh cười nhạo: "Chưa đến chín cảnh thuần túy vũ phu mà đã dám tự xưng là nữ võ thần sao?"
+过去许多年，还能够依稀记得，有座酒楼掌柜的小女儿，好像美极了。
 
-Hồ Tân Phong lau mồ hôi trên trán, sắc mặt có chút ngượng ngùng nói: "Chúng ta trong giang hồ thường kính trọng vị nữ tử kia, chứ nàng chưa bao giờ tự xưng như vậy."
+远远见之，如饮醇酒，不能多看，会醉人。
 
-Người nọ uống một hớp rượu, "Có loại dược thảo Kim Lân, hãy nhanh chóng dùng đi, đừng để đổ máu mà chết, ta không quen việc nhặt xác."
+所以后世有位儒家大圣人训诂老头子的某部书籍，将老头子写得道貌岸然，太过古板，将本意纂改许多，让老秀才气得不行，男女情动，天经地义，人非草木孰能无情，更何况草木尚且能够化作精魅，人非圣贤孰能无过，何况圣贤也会有过错，更不该奢求凡俗夫子处处做圣贤，这般学问若成唯一，不是将读书人拉近圣贤，而是渐渐推远。老秀才于是跑去文庙好好讲道理，对方也硬气，反正就是你说什么我听着，偏偏不与老秀才吵架，绝对不开口说半个字。
 
-Hồ Tân Phong cảm thấy như vừa được đại xá, nhanh chóng ngồi xổm xuống, lấy ra một cái bình sứ và bắt đầu băng bó vết thương.
+可恰恰是这样一位大有不近人情嫌疑的圣人，却以消磨自身修为殆尽，作为代价，硬生生为浩然天下撑起了那道关隘的入口，直到老秀才和那位手持仙剑的读书人联袂出现在他眼前，对方才终于放下担子，悄然陨落，对老秀才会心一笑，盍然长逝，彻底魂飞魄散，再无来世可言。
 
-Người nọ đột nhiên hỏi: "Một lọ thuốc này giá trị bao nhiêu bạc?"
+人生忽然而已。
 
-Hồ Tân Phong vội vã ngẩng đầu, cười khổ nói: "Đây là đan dược quý hiếm mà chúng ta ở Ngũ Lăng Quốc có, vô cùng đắt đỏ. Dù ta đã xác định được món này là do người ở môn phái mình mua, nhưng mua ba bình cũng đã cảm thấy đau lòng. Thật may nhờ mối quan hệ với Vương Độn tiền bối mà Tiên Thảo trang mới đồng ý bán cho ta ba bình."
+相视而笑，莫逆于心。
 
-Người nọ nói: "Kiếm tiền và vận động giang hồ thật không dễ dàng."
+老秀才喝完了一壶酒，没有着急起身离开椅子，双手抱住酒壶，晒着别家天下的太阳。
 
-Hồ Tân Phong cảm thấy mình tâm thần hỗn loạn, nhớ đến lời mẹ nói và cảm thấy rất bực bội. Hắn quyết định sẽ không đặt chân nửa bước vào Đại Triện vương triều nữa.
+左右轻声道：“先生，可以离开了，不然这座天下的飞升境大妖，可能会一起出手拦截先生离去。”
 
-Người nọ đột nhiên quay đầu cười hỏi: "Ngươi nghĩ tới một cái Kim Lân cung Kim Đan kiếm tu, có dám chạy trốn không?"
+陈平安刚要起身说话。
 
-Hồ Tân Phong do dự một chút rồi gật đầu, "Chắc là đủ rồi."
+老秀才抬起手，轻轻按下，“不用说什么，先生都知道。先生许多言语，暂时不与你多说。”
 
-Hồ Tân Phong ngồi xuống đất, suy nghĩ một chút, "Vẫn chưa chắc?"
+老秀才背靠椅子，意态闲适，喃喃自语道：“再稍稍多坐一会儿。先生已经很多年，身边没有同时坐着两位学生了。”
 
-Người thanh sam tháo bộ rương sách xuống, lấy ra một cái bàn cờ, cũng ngồi xuống bên cạnh, cười nói: "Vậy ngươi nghĩ gia đình Tùy Tân Vũ có nên chết không?"
+一左一右两学生，先生居中坐。
 
-Hồ Tân Phong lắc đầu, cười khổ nói: "Chuyện này có gì mà nói đến cái chết. Tùy Tân Vũ lúc làm quan cũng không tệ, nhưng lại khá bảo thủ, giữ mình trong sạch. Ở trên quan trường, chưa nói đến chuyện chi tiết, có thể như Tùy Tân Vũ không làm hại dân chúng thì cũng đáng quý rồi. Dĩ nhiên, ta cũng cố gắng giao hảo với Tùy gia là để nâng cao tiếng tăm của mình, có thể làm quen được với một lão thị lang như hắn. Tại Ngũ Lăng Quốc chúng ta, kỳ thực không có mấy người như vậy. Tùy Tân Vũ cũng muốn mượn ta để làm cầu nối, bước vào thế giới của Vương Độn tiền bối, nhưng ta không biết làm cách nào để giới thiệu. Sau vài lần sau, Tùy Tân Vũ cũng thôi không nhắc lại, biết rõ nỗi khổ tâm của ta. Ngay từ đầu đó cũng là cách hắn nâng giá trị bản thân."
-
-Người thanh sam không có ý kiến, chỉ đưa tay lên, hai ngón tay khép lại như một thanh phi kiếm trong truyền thuyết của tiên nhân.
-
-Hồ Tân Phong nuốt nước bọt.
-
-Thực sự là cung phụng cao nhất của Kim Lân cung sao? Là một vị nhìn trẻ nhưng thật ra đã sống hàng trăm năm như tiên nhân?
-
-Nhưng mà người thư sinh đó chỉ dùng một tay vê quân cờ, một tay cầm lấy thanh phi kiếm nhỏ nhắn, bàn tay khéo léo khắc ghi tên, sau khi khắc xong, nhẹ nhàng đặt nó lên bàn cờ.
-
-Hồ Tân Phong suy nghĩ một chút, dường như lần đầu tiên gặp mặt tại đình nghỉ chân, người tiên gia này đang học đánh cờ. Sau này, khi Tùy Tân Vũ đến để chơi cờ, tiên sư này sẽ không có trên bàn cờ hơn ba mươi quân cờ thả rơi nữa, mà chỉ là thu gom lại bên mình, hơn phân nửa giống như bây giờ, có một số quân cờ được khắc tên? Hắn lo lắng liệu Tùy Tân Vũ có tinh thông cầm quân cờ hay không và có phát hiện ra dấu vết nào đó hay không?
-
-Người nọ một lần nữa vê lên quân cờ và hỏi: "Nếu như ta không nghe nhầm, ngươi chính là bang chủ của Hoành Độ bang thuộc Ngũ Lăng quốc phải không?"
-
-Hồ Tân Phong miễn cưỡng cười đáp: "Để tiên sư chê cười rồi."
-
-Người nọ khắc qua tên quân cờ trước mặt, rồi lại khắc ba chữ Hoành Độ bang, sau đó mới đặt lên bàn cờ.
-
-Kế tiếp, người ấy lại khắc hơn mười quân cờ và sắp xếp chúng trên bàn.
-
-Ánh kiếm quang lóe lên giữa trán hắn rồi vụt biến mất.
-
-Hồ Tân Phong bắt đầu cảm nhận được vị tiên kiếm này thật sự không phải dạng vừa. Hắn chợt nhận ra rằng trước đây, tại đình nghỉ chân, dù bản thân tự tin thắng một đối thủ đánh cờ kém nhưng giờ phút này, người ngồi trước mặt hắn lại như một bậc thầy về cờ, sâu không thấy đáy.
-
-Trần Bình An đặt gậy leo núi trên đầu gối, nhẹ nhàng chỉnh lại.
-
-Trên đỉnh trấn nhỏ, mỗi một quân cờ đều như những mảng cờ chồng chất trong nơi hiểm yếu, mỗi viên cờ đều chứa đựng nguy hiểm, song vẫn toát lên khí thế mạnh mẽ.
-
-Dù không có sự xuất hiện của vị kiếm tiên Kê Nhạc, cũng không có việc đánh chết một vị Kim Đan kiếm tu từ Kim Lân cung, đó cũng là một ván cờ kỳ diệu không ngừng.
-
-Chỉ tiếc rằng Trần Bình An không thể vào trấn nhỏ này, không cách nào theo đuổi từng đường đi nước bước, bằng không thì môn chủ Lâm Thù và vị hoàng tử triều trước, đều nằm trong Tình Vanh môn của triều đình Kim Phi, vị Kim Lân cung cũng liều mình bảo vệ thân phận hoàng tử, tất cả đều là những quân cờ tự hành sinh sôi, hoàn toàn dựa vào bản lĩnh của bản thân, không còn là những quân cờ cứng nhắc.
-
-Còn về lòng người hôm nay trong ván cờ tại đình nghỉ chân này, thật sự khó chịu, tâm trạng phập phồng không yên, thiện ác bất định, mỗi quyết định tựa như một tảng đá nặng nề, không thể lường trước được điều gì, không tốt cũng chẳng tốt, hỏng cũng không hề đi tới đâu.
-
-Lão thị lang Tùy Tân Vũ, có phải xấu xa? Tự nhiên không, ăn nói văn nhã, biết chơi cờ tinh thông.
-
-Chỉ là ông ta giữ mình trong sạch, am hiểu tránh né họa. Hồ Tân Phong thậm chí cảm thấy lão thị lang này không nên chết, nhưng hắn cũng không rõ ràng, chính đáp án ấy, cộng với lời thỉnh cầu trước khi chết kia, đã cứu được hắn hai lần. Nếu không thì, một lần nữa hắn có thể sẽ phải chết.
-
-Hồ Tân Phong là một người từng trải. Lần nghỉ chân trước đây, hắn sẵn sàng hộ tống cho Tùy Tân Vũ, đi một chuyến xa xôi đến Đại Triện. Chỉ cần không lo lắng đến tính mạng, thì hắn vẫn là người hiệp nghĩa Hồ đại hiệp.
-
-Câu nói của Đỗ Du từ Quỷ Phủ cung rằng "không thấy sinh tử, không thấy anh hùng" thật đúng. Có thể chết đi, cũng như thế mà thôi.
-
-Trong đình nghỉ chân, Tùy Tân Vũ ngốc nghếch đã giúp đỡ dàn dựng một đoàn kịch cùng Dương Nguyên; dù tu vi cao nhưng chính là một trăm phương ngàn kế Tào Phú. Về tiếng xấu, có lẽ không một ai có thể vượt qua Hồn giang Dương Nguyên, nhưng vào lúc ấy, Dương Nguyên lại buông tha cho một người đọc sách có thể bị nghiền nát chỉ bằng một cái chạm tay, thậm chí còn cảm thấy "Trần Bình An" có chút khí khái nhân nghĩa, thực tế còn hơn cả Tùy Tân Vũ, người mà chỉ biết công thành tư thân mà hưởng lợi từ triều đình và dân gian.
-
-Hồ Tân Phong ngồi đối diện với vị cao nhân này, thương tích tuy chỉ đang cầm máu, nhưng thật sự rất đau.
-
-Người nọ không ngẩng đầu lên, thuận miệng hỏi: "Trên giang hồ hành hiệp trượng nghĩa, một quyền đánh chết kẻ trùm tội ác, còn lại vẽ đường cho hươu chạy đồng lõa, tội không đáng chết. Đại hiệp sẽ khiển trách một phen, nghênh ngang rời đi, người được cứu cảm tạ dập đầu, ngươi nói vị đại hiệp ấy có tiêu sái không?"
-
-Hồ Tân Phong bật thốt lên: "Tiêu sái cái rắm."
-
-Nói đến đây, Hồ Tân Phong tự cho mình một cái bạt tai, sau đó vội vàng sửa lời: "Bẩm báo tiên sư, không phải là tiêu sái. Nếu quả thật có đại hiệp trợ giúp dân nơi đây, việc đó còn dễ nói. Đám ác nhân chết thì chết, nhưng những người bị thương thì đã chịu đau khổ, hơn phân nửa không dám có ý đồ xấu với người được cứu. Song, nếu vị đại hiệp này chỉ là đi xa, một năm, nửa năm còn có thể nói, nhưng ba năm, năm năm, ai dám đảm bảo rằng người được cứu sẽ không dưới trận thảm họa? Không thể nói trước rằng việc chỉ là cưỡng đoạt nữ dân, cuối cùng lại phải giết cả nhà. Vậy thì, sự kiện thảm khốc này, rốt cuộc nên trách ai? Vị đại hiệp ấy có tội không? Ta thấy là có."
-
-Người nọ nhẹ gật đầu: "Vậy nếu ngươi là vị đại hiệp kia, ngươi sẽ làm gì bây giờ?"
-
-Hồ Tân Phong chậm rãi nói: "Chuyện tốt hãy làm đến cùng, đừng hấp tấp, cố gắng cọ xát một chút với những ác nhân kia. Đừng để khoe khoang cái gì đại hiệp phong phạm. Ác nhân thì cần có ác nhân cọ xát để lần sau sợ đến tận xương tủy, tốt nhất là giữa đêm mơ thấy ác mộng mới tỉnh lại, giống như mỗi buổi sáng mở mắt ra, vị đại hiệp ấy sẽ xuất hiện trước mặt. Chỉ e rằng từ đó, mới thật sự bảo toàn được người được cứu."
-
-Người nọ ngẩng đầu, mỉm cười nói: "Nghe ngươi nói mà không thấy có sự chuẩn bị tìm từ, có lẽ ngươi đã làm qua điều này không chỉ một lần?"
-
-Hồ Tân Phong thực sự không chịu nổi cơn đau, hắn không kìm được mà lau trán mồ hôi, nhanh chóng gật đầu: "Khi còn trẻ, ta đã làm một số việc tương tự, sau này có gia đình, môn phái riêng, sẽ không làm nhiều nữa. Đến một lần không thể quản nhiều, dễ gây phiền phức, giang hồ không dám nói mình lăn lộn khắp nơi, nhưng thực sự thì không ai dám nói mình đã nhiều lần thực hiện được ý muốn. Có thù phải báo, thời gian mười năm không muộn, cũng không phải là chịu oan khuất, có những ân oán máu hải, người tốt, người xấu, ác nhân và bạn hữu, đều như vậy, có nỗi lòng ẩn nhẫn."
-
-Người nọ gật đầu: "Ngươi sống đã hiểu rõ người giang hồ. Sau này khi gặp phải việc được mất lớn, tâm trạng không yên, hãy nhớ phải kìm nén ác niệm trong lòng... Đừng để bản thân rơi vào hoàn cảnh khó xử, không quan trọng thiện ác là ở đâu, tại bản thân ngươi và mọi người đều không phải là điều tốt."
-
-Hồ Tân Phong mặt mày ngạc nhiên.
-
-Sao hắn lại cảm thấy như thể mình đã chết?
-
-Những lời này có phải đang đè nén hắn không?
-
-Người kia cười vẫy tay: "Còn không đi? Tại sao cứ ở lại đây giúp ta trò chuyện mãi thế? Vẫn cảm thấy ta tệ hại trong cờ, học lão thị lang đánh cờ một ván, nếu như không bằng lòng thì không nghĩ đến việc muốn giết ta trên bàn cờ?"
-
-Hồ Tân Phong khó xử nói: "Trần tiên sư, ta thật sự phải đi rồi sao?"
-
-Người nọ ngẩng đầu, sắc mặt cổ quái hỏi: "Sao vậy, ngươi còn muốn ta cầu xin ngươi mới chịu đi sao?"
-
-Hồ Tân Phong liên tục từ chối, đứng lên khập khiễng và chạy vội đi.
-
-Lúc này không phải vì sợ đau.
-
-Nhìn xung quanh, hắn thấy khắp nơi đều có bóng dáng của Trần Bình An.
-
-Trần Bình An mỉm cười, tiếp tục dừng lại bên bàn cờ, trên quân cờ đều là những nước đi của Hồ Tân Phong, những thứ này người dưng không quen.
-
-Cảm thấy ý nghĩa không lớn, liền vung tay áo thu hồi quân cờ, đen trắng giao thoa, tùy ý thả vào giữa bàn cờ, trắng đen lẫn lộn cũng không sao cả. Sau đó, hé một tay áo, đem lúc trước nghỉ chân đặt đặt ở bàn cờ, ném quân cờ lên bàn.
-
-Quân cờ dừng lại ở vị trí đó.
-
-Một tay chống cằm, tay còn lại dao động quạt xếp.
-
-Cao chót vót ngọn núi bên kia, bàn cờ nhỏ bé ấy, nếu bỏ qua về độ cao và sự phức tạp không nói, thật ra cũng có chút mạch lạc, tuy có cách làm khác nhau nhưng kết quả lại giống nhau một cách kỳ diệu.
-
-Trầm mặc hồi lâu, hắn thu hồi quân cờ, xếp lại gọn gàng, rồi thả cái rương trúc chính giữa. Hắn đem mũ rộng vành, gậy leo núi và rương trúc đều thu hồi, buộc chặt quạt xếp, treo lại cái miếng hôm nay đã không còn chứa kiếm hồ lô để dưỡng kiếm.
-
-Trần Bình An một lần nữa dán lên người một tấm Đà Bi phù, bắt đầu ẩn nấp tiềm hành.
-
-Có chuyện, hắn cần phải nghiệm chứng một chút.
-
-Có câu nói mà trước đó hắn đã quên nói.
-
-Chẳng qua có nói hay không, thật sự cũng không quan trọng. Thế gian có rất nhiều người, tự biến mình từ một kẻ chế giễu thành một kẻ khác bị chế nhạo. Khi gặp phải trở ngại, hầu hết chỉ biết oán trách thế đạo, chứ không tự trách mình mà tự xem xét lại. Dần dần, những người này sống qua ngày, có người còn cam chịu đau khổ mà không nhận ra, cứu giúp người khác trong đau khổ lại càng cảm thấy khoan khoái, đẹp đẽ khi được gọi là cường giả, cha mẹ không dạy bảo, thần tiên cũng khó mà sửa đổi.
-
-Đi lên chân núi Trà Mã cổ đạo, bốn người Tùy gia cưỡi ngựa lặng lẽ xuống núi, mỗi người đều có tâm tư riêng.
-
-Người thanh tú trong nhóm không kiềm được, mở miệng hỏi: "Cô cô, cái Tào Phú đó chỉ dùng để giả dối và tâm hiểm ác, Hồn giang giao Dương Nguyên nhóm người kia, có phải hắn cố ý phái đến diễn kịch cho chúng ta xem không, đúng không?"
-
-Người phụ nữ có vải che mặt cười lạnh nói: "Hỏi ông nội ngươi đi, hắn chơi cờ rất giỏi, có học vấn lớn, nhìn người rất chính xác."
-
-Lão nhân hừ lạnh một tiếng.
-
-Người thiếu nữ kia lại càng thất hồn lạc phách, lung lay, nhiều lần suýt nữa thì ngã khỏi lưng ngựa.
-
-Tùy Tân Vũ cuối cùng cũng đã từng là một thị lang già, đối với hai thiếu niên thiếu nữ nói: "Ngữ pháp, văn biểu, các ngươi đi trước vài bước, ta cùng cô cô của các ngươi có chút chuyện cần bàn bạc."
-
-Thiếu niên gọi vài tiếng không gọi được tỷ tỷ của mình, hai người liền vội vàng đi trước, nhưng không dám thúc ngựa đi xa, khoảng cách giữa hai người với phía sau là hai mươi bước.
-
-Lão nhân giảm tốc độ ngựa, sau đó đi bên cạnh con gái, lo lắng, nhíu mày hỏi: "Tào Phú hôm nay là một người tu đạo trên núi, vị lão giả kia càng không phải Hồ Tân Phong khó mà so sánh với cao thủ đứng đầu. Không chừng hắn cùng Vương Độn lão tiền bối có thực lực như đại tông sư giang hồ, về sau chúng ta phải làm sao? Cảnh Rừng, ta biết ngươi oán cha mù quáng, không thể nhìn ra Tào Phú tâm hiểm ác, nhưng tiếp theo đây chúng ta Tùy gia làm sao vượt qua cửa ải này, đó mới là điều quan trọng."
-
-Người phụ nữ có vải che mặt lời lẽ đạm mạc, "Tạm thời Tào Phú sẽ không dám quấy rầy chúng ta, nhưng về đường về quê, gần ngàn dặm, trừ phi vị họ Trần kiếm tiên lại xuất hiện, bằng không thì chúng ta rất khó mà sống trở lại quê hương, có lẽ còn không về được đến kinh thành."
-
-Lão nhân tức giận nói: "Cái người giấu đầu hở đuôi cố ý diễn cái vẻ đáng thương! Tiếp đó ở bến nghỉ chân kia giả vờ không có bản sự, còn chưa tính, vì sao lại để lộ thân phận sau này như thế, sao có thể làm như vậy mà lại hàm hồ, nếu là cái nhân vật kỳ quái trong tiểu thuyết kiếm tiên, sao không dứt khoát giết Tào Phú hai người, hôm nay không phải là thả hổ về rừng lưu lại hậu hoạn sao?!"
-
-Tùy Cảnh Rừng tựa hồ cảm thấy rất ấm ức, không kìm được tháo xuống mũ có vải che mặt, lộ ra khuôn mặt tuyệt mỹ, mắt nhìn về phía trước, không đếm xỉa đến xung quanh, học theo khẩu khí của lão thị lang, vừa cười vừa nói: "Tại bến nghỉ chân hôm trước, chúng ta thấy chết mà không cứu được, còn chưa tính, người sau nhà bất kể như thế nào cuối cùng cũng đã cứu chúng ta một lần, hôm nay chúng ta lại quay ra oán trách hắn chuyện không làm đủ. Chẳng phải là đồ ăn lương tâm loại đó của con cháu Tùy gia sao?"
-
-Lão nhân tức giận đến mức suýt nữa đã giơ roi lên đánh cô con gái không biết điều này!
-
-Hắn hạ thấp giọng, "Việc cấp bách là chúng ta giờ phải làm gì mới có thể tránh được trận này tai bay vạ gió!"
-
-Nói đến đây, lão nhân tức giận đến nghiến răng ngứa, "Ngươi thử nói chút đi, ngươi có ý tốt mà nói nhiều như vậy? Nếu không phải ngươi, Tùy gia chúng ta sẽ gặp đại họa sao? Có mặt ở đây mà dám nói cha ngươi?"
-
-Người phụ nữ có vải che mặt thậm chí nhẹ gật đầu, "Cha nói rất đúng, vô cùng hợp lý."
-
-Lão nhân không nhịn được nữa, một roi quân cờ hung hăng đánh vào người con gái.
-
-Trước mặt, hai thiếu niên thiếu nữ chứng kiến cảnh tượng này, lập tức quay đầu, thiếu nữ một tay che miệng, âm thầm nước mắt rơi rào rạt, thiếu niên cũng hiểu rằng trời đất đảo lộn, không biết làm sao.
-
-Tùy Cảnh Rừng thờ ơ, chỉ nhíu mày, "Ta còn nghĩ rằng điểm này không quan trọng, nếu bị thương, có thể sẽ rơi vào tình cảnh sống dở chết dở, nhưng vì cha ngươi là cờ thủ nổi tiếng hơn mười năm, chút lý cờ đó cũng hiểu chứ?"
-
-Lão nhân lại giơ tay lên, suýt nữa đã đánh vào mặt nàng, nhưng do dự hồi lâu, cúi đầu buồn bã, rũ tay xuống, "Thôi, cứ chờ chết đi."
-
-Cô gái trầm lặng một lát, nhìn xung quanh, rồi khẽ nói: "Giả định xấu nhất kết quả, chính là Tào Phú hai người không chịu từ bỏ hy vọng, âm thầm theo đuôi chúng ta. Hiện tại, cơ hội sống sót duy nhất của bốn người chúng ta chính là chỉ có thể đánh cược vào một kết quả tốt hơn. Vị họ Trần kiếm tiên kia, đồng hành cùng chúng ta, đang trên đường hướng về khu vực kinh thành Ngũ Lăng. Lúc trước nhìn hắn hành động lộ tuyến, có khả năng là như vậy. Nhưng cha, ngươi cũng đừng vui mừng quá sớm, ta cảm thấy Tào Phú hai người chỉ cần không bị kiếm tiên đó nhìn thấy, thì sẽ cẩn thận đối phó chúng ta. Họ Trần kiếm tiên cũng sẽ không màng đến sống chết của chúng ta. Không thể không nói, trong chuyện này, cha ngươi có sai, mà ta cũng không khác gì."
-
-Nàng tự giễu nói: "Quả thật không hổ danh là phụ nữ, thêm cái nhu thuận ở phía trước, chẳng phải là một nhà không tới một nhà cửa."
-
-Lão nhân cả giận nói: "Nói ít đi mà châm chọc! Rốt cuộc cũng không phải là tự mình lãng phí bản thân!"
-
-Tùy Cảnh Rừng thở dài, "Vậy thì tìm cơ hội, giả vờ rằng vị họ Trần kiếm tiên ngay xung quanh chúng ta, vừa lúc để Tào Phú hai người nhìn thấy, làm cho họ nghi ngờ không dám cùng chúng ta đánh cược mệnh."
-
-Lão nhân vẻ mặt có chút vui vẻ, "Kế này rất hay, Cảnh Rừng, chúng ta cần phải mưu tính cho thật khéo léo, tranh thủ làm hết sức cẩn thận, tự nhiên thiên thành."
-
-Người nữ tử lại lộ ra vẻ ảm đạm, "Nhưng Tào Phú dù có bị chúng ta mê hoặc, họ cũng sẽ muốn phá giải cục diện này, thật ra rất dễ dàng, ta nghĩ rằng Tào Phú sớm muộn cũng sẽ tìm ra."
-
-Lão nhân trong lòng hoảng sợ, nghi ngờ hỏi: "Nói như thế nào?"
-
-Nàng khổ sở cười nói: "Nếu để cho Hồn giang giao Dương Nguyên lại đến giết chúng ta một lần, không phải sẽ biến thành như vậy sao?"
-
-Lão nhân mặt đầy bi ai, "Mạng ta xong rồi!"
-
-Nàng không khỏi lệ rơi đầy mặt, một lần nữa mang mũ che mặt, quay đầu nói: "Cha ngươi kỳ thật không sai, nghìn sai vạn sai, đều do con gái sai. Nếu không phải ta, thì sẽ không xảy ra nhiều tai hoạ như vậy, có lẽ ta đã sớm gả cho một người đọc sách, hôm nay lại ở nơi xa tha hương, giúp chồng dạy con, cha ngươi cũng an ổn tiếp tục đi, cùng Hồ Tân Phong hướng Đại Triện kinh thành, có lẽ còn chưa từng đoạt được trăm bảo khảm, mà tới lúc đó sẽ làm cờ cho người, về sau còn có thể gửi cho con gái và con rể một ít bản..."
-
-Nàng ngừng lại, nghẹn ngào.
-
-Lão nhân một lâu không nói gì, chỉ thở dài một tiếng, cuối cùng lộ vẻ sầu thảm mà cười, "Được rồi, ngốc gái, cũng không thể trách con, cha cũng không oán con."
-
-Hai phụ nữ cưỡi ngựa chầm chậm tiến về phía trước.
-
-Tại xa xa trên con đường cổ Trà Mã, có một thanh sam thư sinh lưng tựa vào gốc cây, nhẹ nhàng dao động quạt, ngửa đầu nhìn trời, mỉm cười, cảm khái nói: "Sao lại có thể có một người con gái khôn khéo như vậy, đánh bạc vận càng là nhất đẳng. So với người như Đồng Diệp châu Diêu Cận Chi còn muốn sâu sắc, nếu người này đi theo Thôi Đông Sơn lên núi tu hành một thời gian, xuống núi sau đó, thì chỉ có trời mới biết có thể bị nàng dẫn dắt bao nhiêu tu sĩ đùa bỡn tại vỗ tay? Có chút ý tứ, miễn cưỡng coi như là một ván mới đã định."
-
-Trầm mặc một lát, từng điểm từng điểm thu liễm niềm vui, Trần Bình An lẩm bẩm nói: "Bàn cờ là mới, còn nhân tâm thì sao?"
+先生身边，终于不独独只有左右了。

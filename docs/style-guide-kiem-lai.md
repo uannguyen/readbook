@@ -1,5 +1,7 @@
 # Style guide biên tập — Kiếm Lai (từ chương 578)
 
+> Cập nhật 2026-11-07: chuẩn tham chiếu dịch hiện tại là **chương 1–300**, theo [hồ sơ văn phong](./translation-profile-kiem-lai.md) và [phân tích chi tiết](./style-analysis-kiem-lai-1-300.md). Áp dụng cho cả dịch từ bản Trung và dịch lại hoặc biên tập bản Việt có sẵn. Các số đếm Đ ở tài liệu này vẫn là khảo sát lịch sử chương 1–200, chưa đổi thành số đếm 300 chương. Những chỉ dẫn tách đoạn theo số từ và quy trình thay thế máy ở mục 7–8 (kể cả giới hạn không viết lại cả chương) không dùng làm quy trình cho bản dịch mới hoặc khi người dùng yêu cầu dịch lại; ưu tiên sự tự nhiên theo ngữ cảnh và soát với bản Trung khi có, hoặc bản Việt nguồn khi chỉ có bản Việt.
+
 Tài liệu cho agent biên tập. Số trong ngoặc là số lần xuất hiện đo bằng script: **Đ** = ch.1–200 (~2,6 triệu ký tự), **M** = ch.581–600 chưa sửa (~850 nghìn ký tự). Các quy tắc sửa được bằng máy nằm trong `scripts/style-lint.mjs`; khi đổi bảng ở đây phải đổi cả script.
 
 ## 1. Thứ tự ưu tiên khi các nguồn mâu thuẫn
@@ -116,7 +118,6 @@ Script chỉ bắt lỗi từ vựng, trật tự từ và xưng hô đã biết
 ## 10. Chờ chủ dự án quyết
 
 - "gậy leo núi" (M 36): có thể đổi thành "hành sơn trượng". Tôi nhớ nguyên văn là 行山杖 nhưng chưa đối chiếu được.
-- "Tùy Cảnh Rừng": "Rừng" có vẻ là chữ bị dịch nghĩa, có thể là "Cảnh Trừng". Chưa kiểm chứng.
 - Tên quốc gia: ch.1–200 viết "nước Hoàng Đình", đoạn sau viết "Ngũ Lăng quốc". Tạm giữ theo từng chương vì mục 3 ưu tiên Hán-Việt.
 
 ## 11. Tên riêng chuẩn (từ ch.1–200)
@@ -125,6 +126,8 @@ Nhân vật: Trần Bình An (3072), Tống Tập Tân (565), Lý Hòe (471), L�
 
 Địa danh / thế lực: Đại Ly (825), Chính Dương (175), Đông Bảo Bình Châu (150), Sơn Nhai (98), Kỳ Đôn (95), Ly Châu (91), Đại Tùy (87), Phúc Lộc (86), Phong Tuyết (75), Phong Lôi (73), Bàn Sơn (71), Long Tuyền (64), Vân Hà (62), Chân Vũ (62), Hoàng Đình (58), Hạnh Hoa (50).
 
+Tên đã đối chiếu bản chữ Hán: **Tùy Cảnh Trừng (隋景澄)**; gọi rút gọn là Cảnh Trừng. Không dùng “Cảnh Rừng” hoặc “Cảnh Lâm”.
+
 Giới tính chủ dự án đã xác nhận: Liễu Chất Thanh là **nam**, luôn dùng "hắn", dù bản dịch máy có chỗ viết "nàng".
 
-Tên chỉ có ở ch.578+ (chưa xác minh): Hồ Tân Phong, Tào Phú, Tùy Cảnh Rừng, Liễu Chất Thanh, Dương Nguyên, Đại Triện, Kim Phi, Tùy Tân Vũ, Kim Lân, Lâm Thù, Ngũ Lăng, Đỗ Huỳnh, Tiêu Thúc Dạ, Tranh Vanh, Trịnh Thủy Châu, Ngọc Oánh, Xuân Lộ, Lan Phòng, Bắc Câu Lô Châu, Trà Mã, Vương Độn, Phó Trăn, Kê Nhạc, Thanh Từ, Tùy Văn Pháp, Tống Lan Tiều, Hoành Độ.
+Tên chỉ có ở ch.578+ (chưa xác minh): Hồ Tân Phong, Tào Phú, Liễu Chất Thanh, Dương Nguyên, Đại Triện, Kim Phi, Tùy Tân Vũ, Kim Lân, Lâm Thù, Ngũ Lăng, Đỗ Huỳnh, Tiêu Thúc Dạ, Tranh Vanh, Trịnh Thủy Châu, Ngọc Oánh, Xuân Lộ, Lan Phòng, Bắc Câu Lô Châu, Trà Mã, Vương Độn, Phó Trăn, Kê Nhạc, Thanh Từ, Tùy Văn Pháp, Tống Lan Tiều, Hoành Độ.

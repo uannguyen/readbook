@@ -1,557 +1,579 @@
 # Chương 604: Được bảo
 
-Bốn người dừng lại một lát, đợi đến khi tay ấn chuôi đao Địch Nguyên Phong, cùng Hoàng sư nhìn nhau, lúc này mới cùng nhau chạy về phía ngọn núi xanh kia.
+Bốn người dừng lại một lát. Địch Nguyên Phong đặt tay lên chuôi đao, nhìn Hoàng Sư một cái, rồi cả bọn mới cùng chạy về phía ngọn núi xanh.
 
-Lúc trước bọn hắn đặt chân, có một khối đá xanh tròn lớn cùng loại đồ án tảo giếng, vốn nên ở phía trên đạo quán chùa miếu, chưa từng nghĩ ở bí cảnh tiên gia này, liền bị người giẫm dưới chân.
+Chỗ bọn họ vừa đặt chân có một phiến đá xanh hình tròn rất lớn, hoa văn giống như tảo tỉnh vốn thường nằm trên trần các đạo quán, chùa miếu. Không ngờ trong bí cảnh tiên gia này, nó lại ở dưới chân người ta.
 
-Chỗ tâm tảo tỉnh này là một đóa hoa sen, vòng ngoài là hai con giao long ngậm đuôi, bên ngoài nữa là mười sáu phi thiên, tầng rất nhiều, rậm rạp tinh mỹ.
+Chính giữa là một đóa sen, vòng ngoài có hai con giao long ngậm đuôi nhau, ngoài nữa là mười sáu phi thiên. Từng vòng từng lớp, hoa văn dày đặc mà tinh mỹ.
 
-Địch Nguyên Phong lấy trúc trượng gõ nhiều lần, có tiếng kim loại, không thể phá vỡ.
+Địch Nguyên Phong đã dùng gậy trúc gõ thử nhiều lần, tiếng vang như kim thạch, cứng rắn không thể phá.
 
-Nhưng cho dù có thể dọn đi, Địch Nguyên Phong cũng không dám làm bậy, dù sao bọn họ còn phải thông qua nơi này rời khỏi di chỉ tiên phủ.
+Nhưng dù có thể chuyển đi, hắn cũng chẳng dám làm bừa. Dù sao cả bọn còn phải qua chỗ này mới rời được di chỉ tiên phủ.
 
-Vừa rồi hắn và Hoàng sư ra vẻ dừng lại, đương nhiên là để phòng ngừa vạn nhất.
+Vừa rồi hắn và Hoàng Sư cố ý nán lại, đương nhiên là đề phòng bất trắc.
 
-Nếu có người vụng trộm đi theo bọn họ lẻn vào nơi đây, sẽ bị hai người bọn họ một đao một quyền.
+Nếu có kẻ lén theo bọn họ vào đây, sẽ phải chịu một đao một quyền của hai người.
 
-Trần Bình An rơi ở cuối cùng, vụng trộm vê ra một tấm Dương Khí Thiêu Đăng Phù, vẫn không có chút dấu hiệu sát khí, so với thiên địa bên ngoài, phù lục thiêu đốt càng thêm chậm chạp.
+Trần Bình An đi cuối, lặng lẽ lấy ra một tấm Dương Khí Thiêu Đăng Phù. Vẫn chẳng có lấy chút dấu hiệu sát khí. So với thiên địa bên ngoài, lá phù còn cháy chậm hơn.
 
-Chắc là do linh khí nơi đây dồi dào.
+Có lẽ do linh khí nơi này dồi dào.
 
-Ba người còn lại chỉ liếc mắt liền không so đo nữa.
+Ba người kia chỉ liếc nhìn rồi không để tâm nữa.
 
-Giữa non xanh nước biếc, có một cây cầu hình vòm bằng bạch ngọc.
+Giữa non xanh nước biếc có một cây cầu vòm bạch ngọc.
 
-Như nước nằm bạch hồng.
+Tựa cầu vồng trắng nằm trên mặt nước.
 
-Trên mỗi cột trụ trên cột cầu, có khắc đủ loại dị thú, không có một loại trùng lặp, xảo đoạt thiên công, tựa như vật sống trong ngủ say.
+Đầu những cột lan can chạm khắc đủ loại dị thú, không con nào trùng con nào. Tay nghề tinh xảo như tạo hóa, trông chẳng khác vật sống đang say ngủ.
 
-Dưới cầu phụ cận có ụ đá lớn, điêu khắc dị thú trong truyền thuyết là một trong những loài rồng, đỉnh đầu có hai sừng, toàn thân phủ đầy vảy rồng, tạo thành hình dạng nằm sấp, thò đầu nhìn nước.
+Dưới cầu, sát mặt nước có một ụ đá lớn, tạc hình dị thú tương truyền thuộc long chủng. Đầu có hai sừng, toàn thân phủ vảy rồng, nằm sấp, thò đầu nhìn xuống nước.
 
-Trần Bình An lâm vào trầm ngâm.
+Trần Bình An trầm ngâm.
 
-Vật dưới cầu này cũng không phải tượng dị thú hiếm thấy cỡ nào, chỉ có điều tên gọi của con rồng này lại rất kỳ quái.
+Tượng dị thú dưới cầu không phải thứ hiếm thấy, nhưng tên gọi của long chủng này lại có điều kỳ lạ.
 
-Ở Hạo Nhiên Thiên Hạ, bình thường được xưng là bát hạ hoặc là bá hạ, nhưng mà ở Ngẫu Hoa phúc địa, lúc ấy Trần Bình An nhìn hết cả Nam Uyển quốc cầu sông lớn nhỏ, cũng từng thấy vật ấy, chỉ là hình thức có chút khác biệt với Hạo Nhiên thiên hạ, hơn nữa căn cứ trong những bộ sách quốc sư Chủng Thu từ Công bộ cầm về, quyển《 Doanh Tạo Pháp Thức 》kia Trần Bình An đọc nhiều nhất, đối với nó ghi lại là 《, Tị Thủy Thú, có thể nuốt nước sông, được cộng chủ giang hồ thời đại viễn cổ nuôi dưỡng, tương truyền bị Hỏa Thần không thích, lấy phương pháp nấu hồ Phần Hải sinh luyện giết.
+Ở Hạo Nhiên thiên hạ, nó thường được gọi là Bát Hạ hoặc Bá Hạ. Còn tại Ngẫu Hoa phúc địa, khi đi xem hết các cây cầu lớn nhỏ ở Nam Uyển quốc, Trần Bình An cũng từng gặp, chỉ là hình dáng hơi khác.
 
-Nhưng ở Hạo Nhiên Thiên Hạ, thì không có ghi chép cổ quái này, chỉ có ghi chép mơ hồ một trong long sinh cửu tử, cơ bản giống nhau, tuyệt đối không có cách nói "Giang hồ cộng chủ" gì.
+Trong số sách quốc sư Chủng Thu mang về từ Công bộ, hắn đọc nhiều nhất cuốn *Doanh tạo pháp thức*. Sách chép loài này là Công Phúc, một giống thú tránh nước, có thể nuốt nước sông, được vị cộng chủ sông hồ thời viễn cổ nuôi dưỡng. Tương truyền Hỏa thần không ưa, dùng phép nấu hồ đốt biển luyện giết nó.
 
-Trần Bình An đè xuống ý niệm trong lòng, không suy nghĩ nhiều nữa, lại kẹp ra một tấm kiếm khí Quá Kiều Phù, do dự một phen, không đưa cho bọn Hoàng sư, trực tiếp đi lên cầu hình vòm.
+Nhưng ở Hạo Nhiên thiên hạ không có ghi chép kỳ lạ ấy. Chỉ có những dòng mơ hồ, đại đồng tiểu dị, nói nó là một trong chín đứa con của rồng, tuyệt nhiên không nhắc tới “cộng chủ sông hồ”.
 
-Không gió không sóng, không kinh không hiểm.
+Trần Bình An đè ý nghĩ xuống, không nghĩ thêm, lại lấy một tấm Kiếm Khí Quá Kiều Phù. Hắn hơi do dự, không đưa cho bọn Hoàng Sư mà đi thẳng lên cầu.
 
-Trần Bình An cứ như vậy đi qua cầu vòm bằng bạch ngọc, quay đầu nhìn lại, vẫy vẫy tay, ý bảo không có cơ quan, có thể yên tâm qua cầu.
+Không sóng không gió, không kinh không hiểm.
 
-Ba người còn lại tâm tư khác nhau, Tôn đạo nhân cảm thấy vị Trần đạo hữu này, đoán chừng là mọi người sắp đi vào Bảo Sơn, muốn biểu hiện một chút. Làm phí công mà thôi, vị đạo hữu này, đáng chết hay vẫn là phải chết. Lúc ấy ở bên kia khe suối bên kia dốc đá, cũng không nên đồng hành, càng không nên cùng nhau tiến vào di tích tiên gia tài bảo khắp nơi này. Chỉ là nghĩ như vậy, còn chưa kịp thỏ chết cáo buồn, đạo nhân cao gầy liền sợ hãi cả kinh, sẽ không phải mình cũng gặp bất trắc chứ?
+Cứ thế đi qua cầu vòm bạch ngọc, hắn quay đầu vẫy tay, ra hiệu không có cơ quan, có thể yên tâm qua.
 
-Tiên sư gia phả tuổi còn trẻ xuống núi lịch lãm, vì tầm bảo cũng là tu đạo, chỉ cần không phải môn phái đối địch gặp được, thường thường hòa hợp êm thấm, cho dù bèo nước gặp nhau, sáng tỏ thân phận, chính là một phần đạo duyên cùng tình hương khói, tướng ăn chung quy không đến mức quá khó coi.
+Ba người còn lại mỗi người một ý. Tôn đạo nhân nghĩ, vị Trần đạo hữu này chắc thấy mọi người sắp vào núi báu, muốn thể hiện đôi chút.
 
-Nhưng sơn trạch dã tu ôm đoàn lẫn nhau, đại đa số ba bốn người kết bè kết đảng, thiếu không được việc gì, nhiều dễ dàng nhiều thị phi, có chút gió thổi cỏ lay, cũng chưa chắc đợi được chia của không đồng đều thời lúc đó, đã tranh đoạt cơ duyên với tiên sư gia phả, khó như lên trời, cho nên trong quá trình tranh đoạt, thường thường so với người trước càng thêm nguyện ý liều mạng hơn, một khi thân hãm vào tuyệt cảnh, tán tu thậm chí còn có thể càng thêm chung mối thù, không bỏ tiền vốn, nhưng sau khi chia của qua đi, đen ăn đen có gì khó? Thân là sơn trạch dã tu, sau khi đại cục đã định, còn chưa có chút ý niệm một mình nuốt chỗ tốt, còn làm dã tu bỏ công sức?
+Phí công mà thôi. Vị đạo hữu này, phải chết thì vẫn chết. Hồi ở vách đá ven suối, lẽ ra không nên nhận lời đồng hành, càng không nên cùng vào di tích tiên phủ đâu đâu cũng có tài bảo này.
 
-Địch Nguyên Phong phát hiện ánh mắt Tôn đạo nhân dao động bất định, cười nói: "Sao hả, lo lắng bị ta và Hoàng sư hãm hại? Một phúc địa hiếm thấy như vậy, ba anh em chúng ta cuối cùng có thể chuyển đi được bao nhiêu? Nếu chuyển cũng không xong rồi, còn cần ngươi giết ta, ta giết ngươi?"
+Nhưng vừa nghĩ vậy, chưa kịp thỏ chết cáo thương, đạo nhân cao gầy đã lạnh cả người. Chẳng lẽ bản thân cũng có thể gặp bất trắc?
 
-Tôn đạo nhân vừa nghe lời này, cảm thấy có lý, nhịn không được liền bắt đầu vuốt râu híp mắt mà cười.
+Những tiên sư có tên trên gia phả khi còn trẻ xuống núi lịch lãm, vừa tìm bảo vật vừa tu đạo, chỉ cần không phải môn phái đối địch gặp nhau, thường vẫn hòa thuận. Dù bèo nước gặp nhau, nói rõ thân phận, cũng coi như có một phần đạo duyên, một chút tình hương hỏa, tranh lợi chung quy không đến mức quá khó coi.
 
-Ba người đi qua cầu vòm bạch ngọc, Tôn đạo nhân thừa dịp người không chú ý, ngồi xổm xuống s* s**ng cầu bạch ngọc một phen, không phải dương chi mỹ ngọc tầm thường thế tục, con mẹ nó chẳng phải là lại một khoản tiền thần tiên nằm ở đây không động đậy?
+Nhưng dã tu sơn trạch kết nhóm thì khác. Phần lớn ba bốn người đi cùng, ít quá không làm nên việc, nhiều quá lại dễ sinh thị phi. Chỉ cần chút gió lay cỏ động, có khi chưa đợi đến lúc chia chác không đều đã trở mặt.
 
-Tôn đạo nhân bấm tay gõ nhẹ, thanh âm thanh thúy, thật sự là tương đối dễ nghe.
+Tranh cơ duyên với tiên sư có gia phả khó như lên trời, cho nên trong lúc tranh đoạt, bọn họ thường càng liều mạng hơn. Một khi lâm vào tuyệt cảnh, tán tu thậm chí còn đồng lòng chống địch hơn nữa, chẳng tiếc vốn liếng. Nhưng chia của xong, đen ăn đen có gì khó? Đã là dã tu sơn trạch, sau khi đại cục yên rồi mà chẳng nghĩ đến chuyện nuốt riêng lợi lộc, còn làm dã tu cái nỗi gì?
 
-Tựa như lần đầu tiên trong đời nghe được tiếng vang nhẹ nhàng gõ hai đồng tiền Tiểu Thử, làm người ta si mê, nghe hoài không chán.
+Địch Nguyên Phong thấy ánh mắt Tôn đạo nhân đảo qua đảo lại, bèn cười: “Sao, sợ ta và Hoàng Sư hãm hại? Một tòa phúc địa hiếm có rộng đến vậy, cuối cùng ba huynh đệ chúng ta chuyển được bao nhiêu? Đã chuyển không hết, còn cần ngươi giết ta, ta giết ngươi?”
 
-Địch Nguyên Phong sau khi tới gần sơn môn, ngửa đầu nhìn về phía một bậc thang đi thẳng l*n đ*nh núi, cười nói: "Đi đường vòng một chút, nhìn phong cảnh một chút, sau khi xác nhận không có người, chúng ta sẽ trực tiếp trèo l*n đ*nh."
+Tôn đạo nhân nghe thấy có lý, không nhịn được vuốt râu, híp mắt cười.
 
-Ba người còn lại đều không dị nghị.
+Ba người đi qua cầu bạch ngọc. Thừa lúc không ai để ý, Tôn đạo nhân ngồi xổm xuống sờ mặt cầu. Không phải ngọc dương chi tầm thường dưới thế tục. Mẹ nó, chẳng phải lại một khoản tiền thần tiên nằm yên ở đây sao?
 
-Sơn môn có một tòa cổng chào to lớn tạo hình mộc mạc, hoành khảm chữ to hùng kình "Động Thiên Phúc Địa".
+Lão co ngón tay gõ nhẹ, tiếng vang trong trẻo, thật là dễ nghe.
 
-Câu đối hai bên vẫn như cũ là khắc bằng đá.
+Giống như lần đầu trong đời nghe hai đồng tiền tiểu thử khẽ chạm nhau, khiến người ta mê mẩn, nghe mãi chẳng chán.
 
-Yên lặng bất động tương thông thì là thần.
+Đến gần sơn môn, Địch Nguyên Phong ngẩng nhìn con đường bậc thang lên thẳng đỉnh núi, cười: “Đi vòng một chút, xem phong cảnh. Xác nhận không có người rồi, chúng ta lên thẳng đỉnh.”
 
-Trên mặt đất, người thanh tú là linh hoạt nhất.
+Ba người còn lại không phản đối.
 
-Trần Bình An chăm chú nhìn câu đối này hồi lâu.
+Nơi sơn môn dựng một cổng chào lớn, kiểu dáng mộc mạc. Phía trên khảm ngang bốn chữ mạnh mẽ “Động thiên phúc địa”.
 
-Kỳ thật nửa điểm cũng không đúng.
+Hai bên vẫn là câu đối khắc đá.
 
-Nhưng khẩu khí lớn, ý tứ lớn.
+Lặng yên không động, cảm thông thì là thần.
 
-Hoàng sư là người sớm nhất không nhìn đến tấm biển và câu đối ngang, đã sớm dời tầm mắt đến chỗ xa và chỗ cao.
+Trên mặt đất, tụ được khí tú là linh nhất.
 
-Địch Nguyên Phong thì nhìn về phía sau cổng chào, hai bên lần lượt hướng lên, đứng sừng sững ba mươi sáu dãy bia đá khắc cao thấp không đồng nhất, chỉ là chẳng biết tại sao, chữ viết khắc đều đã bị mài phẳng.
+Trần Bình An nhìn câu đối rất lâu.
 
-Dường như nơi di chỉ này có thể nói cho hậu nhân nơi sâu xa này cũng chỉ có bốn chữ "Động Thiên Phúc Địa" là không viết. Về phần hai bức câu đối, thì càng khó hiểu.
+Thật ra chẳng đối nhau chỉnh tề chút nào.
 
-Tôn đạo nhân ngửa đầu nhìn phía Cổ Sàm kia hoành phi, chậc chậc nói: "Cái gì mà nói lung tung lung tung, đáng đời bị diệt."
+Nhưng khẩu khí lớn, ý tứ cũng lớn.
 
-Trong lịch sử động thiên phúc địa có nhiều biến thiên, không phải là đã hình thành thì không thay đổi, hoặc là bị đại tu sĩ đánh nát, hoặc là biến mất không hiểu ra sao, hoặc là động thiên rơi xuống đất hàng thành phúc địa, nhưng Tôn đạo nhân tin tưởng tuyệt đối không tồn tại "thiên hạ động thiên" như vậy. Còn nữa nơi đây linh khí tuy dư thừa, nhưng cách động thiên trong truyền thuyết hẳn là vẫn có chút chênh lệch, bởi vì trên núi cũng có rất nhiều ghi chép tương tự sách tạp lục, nhắc tới động thiên, thường thường đều móc nối với "linh khí ngưng tụ như nước", nơi đây thủy vận nồng đậm, vẫn là cách cách cách cách này nói rất xa.
+Hoàng Sư là người đầu tiên thôi nhìn biển ngang và câu đối, sớm dời mắt về phía xa, phía cao.
 
-So với ba người bên cạnh, Trần Bình An hiểu biết nhiều hơn về động thiên phúc địa. Nhưng cũng chưa từng nghe nói về "thiên hạ động thiên". Về phần dựa vào phong cách kiến trúc để suy đoán niên đại động phủ, cũng là phí công, dù sao nhận thức của Trần Bình An đối với Bắc Câu Lô Châu còn rất thô thiển. Mỗi khi đến thời điểm này, Trần Bình An sẽ cảm nhận càng sâu đối với gia phả tiên sư xuất thân tông môn. Chuyện nội tình một đỉnh núi, quả thật cần đệ tử tổ sư đường nhiều thế hệ đi tích góp.
+Địch Nguyên Phong nhìn ra sau cổng. Dọc hai bên đường lên núi dựng ba mươi sáu tấm bia đá cao thấp khác nhau, chẳng biết vì sao chữ khắc đều đã bị mài sạch.
 
-Chỉ có thể ghi nhớ trước, nếu có cơ hội, quay đầu đem kiến trúc chủ yếu mô phỏng một phen, tương lai mang giấy vẽ giao cho Thôi Đông Sơn liếc mắt nhìn một cái.
+Dường như cả di chỉ chỉ còn bốn chữ “Động thiên phúc địa” viết cũng như không viết ấy để nói cho người đời sau biết nguồn gốc nơi này. Còn đôi câu đối lại càng chẳng hiểu ra sao.
 
-Địch Nguyên Phong thu hồi tầm mắt, gật đầu cười nói: "Quả thật kỳ quái."
+Tôn đạo nhân ngẩng nhìn tấm biển chữ triện cổ, chậc chậc: “Nói nhăng nói cuội cái gì thế này, đáng đời bị diệt.”
 
-Sau đó bốn người khởi hành, bước chân không chậm, đi qua từng tòa đại điện hoa ốc, đình đài lầu các, hành lang gấp khúc, bốn người thỉnh thoảng có thể nhìn thấy vô số bộ xương khô thi hài, nhìn vị trí thi cốt ngã xuống đất, vậy mà đều bỗng nhiên nổ chết bất đắc kỳ tử.
+Động thiên phúc địa trong lịch sử từng biến đổi nhiều lần, chẳng phải bất di bất dịch. Có nơi bị đại tu sĩ đánh vỡ, có nơi tự dưng biến mất, có động thiên rơi xuống đất, hạ thành phúc địa. Nhưng Tôn đạo nhân tin chắc không có nơi nào tên “Thiên Hạ động thiên”.
+
+Vả lại, linh khí nơi này tuy nhiều, vẫn còn cách động thiên trong truyền thuyết một khoảng. Trên núi cũng có nhiều ghi chép kiểu dã sử, mỗi lần nói đến động thiên thường gắn với “linh khí ngưng đặc như nước”. Thủy vận nơi này nồng đậm, nhưng còn xa mới tới mức ấy.
+
+Trần Bình An biết về động thiên phúc địa nhiều hơn ba người bên cạnh, nhưng cũng chưa nghe tới “Thiên Hạ động thiên”. Muốn dựa vào lối kiến trúc suy ra niên đại động phủ cũng vô ích, dù sao hiểu biết của hắn về Bắc Câu Lô châu còn rất nông.
+
+Mỗi khi như vậy, hắn lại càng thấm thía chỗ hơn người của tiên sư xuất thân tông môn. Căn cơ một ngọn núi quả thật cần đệ tử tổ sư đường đời này nối đời khác tích lũy.
+
+Chỉ có thể ghi nhớ trước. Nếu có cơ hội thì vẽ lại những kiến trúc chính, sau này đưa giấy vẽ cho Thôi Đông Sơn xem.
+
+Địch Nguyên Phong thu mắt, gật đầu cười: “Quả thật kỳ lạ.”
+
+Sau đó bốn người tiếp tục đi, bước chân không chậm. Qua từng tòa đại điện, nhà cao, đình đài lầu các, hành lang quanh co, lan can sơn đỏ, thỉnh thoảng lại bắt gặp những bộ xương khô. Nhìn nơi thi cốt ngã xuống, vậy mà tất cả đều chết đột ngột trong chớp mắt.
 
 Không ai đẩy cửa vào.
 
-Vẫn là muốn đi đạo quan đỉnh núi tìm tòi đến tột cùng.
+Cả bọn vẫn muốn lên đạo quán trên đỉnh núi xem trước.
 
-Nói chung, trọng bảo của sơn môn đều sẽ ở chỗ cao.
+Thông thường, trọng bảo của một sơn môn đều ở chỗ cao.
 
-Tòa tiên gia phủ đệ không biết tên này, khắp nơi đều có vết trầy xước tinh mịn, nhưng đều không khắc sâu.
+Tiên phủ không rõ tên này đâu đâu cũng có vết xước nhỏ dày đặc, nhưng không sâu.
 
-Tựa như một trận mưa to kiếm khí bàng bạc không hề báo trước dưới đất, đột nhiên xuất hiện, làm cho người ta không có phòng bị.
+Giống như chẳng có chút báo trước nào, một trận mưa lớn kiếm khí bàng bạc bất chợt trút xuống, khiến người ta không kịp đề phòng.
 
-Một kiếm này.
+Một kiếm ấy.
 
-Là Kiếm Tiên ra tay không thể nghi ngờ, cũng không biết là Ngọc Phác cảnh hay là kiếm tu Tiên Nhân cảnh.
+Chắc chắn là kiếm tiên ra tay, chỉ không biết kiếm tu Ngọc Phác cảnh hay Tiên Nhân cảnh.
 
-Về phần tại sao lại có kiếm kỳ quái như thế, kiếm khí phô thiên cái địa, hơn nữa tựa hồ còn có thể chuẩn xác tìm được người, để làm chỗ kiếm rơi.
+Vì sao lại có một kiếm kỳ lạ như vậy? Kiếm khí phủ trời lấp đất, lại dường như có thể tìm đúng từng người làm nơi kiếm rơi.
 
-Trần Bình An ngẩng đầu nhìn.
+Trần Bình An ngẩng nhìn.
 
-Thật sự là một trời mới biết.
+Đúng là chỉ có trời biết.
 
-Tóm lại, một tòa tiên gia môn phái to như vậy, cứ như vậy sụp đổ tiêu tán trong nháy mắt.
+Tóm lại, một môn phái tiên gia lớn đến vậy đã sụp đổ, tiêu tan chỉ trong chớp mắt.
 
-Một đường đi tới, dần dần lên cao, một mảnh tĩnh mịch.
+Một đường đi lên, càng lúc càng cao, khắp nơi im lìm chết chóc.
 
-Tôn đạo nhân một đường đi không yên, giống như rót một vốc nước lạnh vào đầu, vẫn vô ý thức đưa tay v**t v* Bảo Tháp Linh kia.
+Tôn đạo nhân đi mà lòng thấp thỏm, như vừa bị dội một vốc nước lạnh lên đầu, cứ vô thức đưa tay xoa chiếc chuông bảo tháp.
 
-Nếu có yêu tà quỷ mị ẩn nấp nơi đây, phải làm sao mới tốt đây?
+Nếu có yêu tà quỷ mị nấp ở đây thì làm sao?
 
-Hoặc là trong những thi cốt này, có ai sau khi chết hồn phách ngưng tụ thành lệ quỷ, chiếm cứ phủ đệ tiên gia này không biết mấy trăm năm, khi còn sống là si ngốc không khai khiếu, cũng như thế nào đều nên tu ra một Địa Tiên quỷ vật đi?
+Hay trong số thi cốt này, có kẻ chết rồi hồn phách tụ lại thành lệ quỷ, chiếm cứ tiên phủ mấy trăm năm. Dù khi sống là kẻ ngu si không khai khiếu, chừng ấy năm cũng phải tu thành quỷ vật Địa Tiên rồi chứ?
 
-Cho nên Tôn đạo nhân phải sờ nhiều Bảo Tháp Linh một chút, mới có thể an tâm.
+Cho nên lão phải sờ chuông bảo tháp nhiều một chút mới an tâm.
 
-Thật ra cái chuông này có tác dụng khác, càng là tồn tại dơ bẩn cảnh giới thấp tới gần, tiếng chuông vang lên càng dồn dập dày đặc, cảnh giới càng cao, đến Long Môn cảnh mới thôi, quả thực sẽ làm cho người đeo nó tâm phiền ý loạn, nhưng một khi có yêu vật Kim Đan ở phụ cận, Bảo Tháp Linh ngược lại sẽ không lay động kịch liệt, người bên ngoài nhìn vào sẽ không hề có tiếng động, kì thực sẽ ở trên tâm hồ sau khi luyện hóa chủ nhân, vang lên một lần tiếng vang leng keng.
+Thật ra chiếc chuông này còn có diệu dụng khác. Thứ ô uế cảnh giới càng thấp tới gần, tiếng chuông càng dồn dập. Cảnh giới tăng dần, đến Long Môn cảnh thì quả thực ồn đến mức người đeo phải bực bội rối lòng. Nhưng nếu có yêu vật Kim Đan ở gần, chuông bảo tháp ngược lại không rung dữ dội nữa. Người ngoài nhìn vào chỉ thấy nó yên lặng, thật ra trong hồ tâm của chủ nhân đã luyện hóa nó sẽ vang lên một tiếng đinh đong.
 
-Chính là lần đó Bảo Tháp Linh lặng yên nhắc nhở, để Tôn đạo nhân tránh được một kiếp.
+Chính lần chuông âm thầm nhắc nhở ấy từng cứu Tôn đạo nhân một kiếp.
 
-Tôn đạo nhân chỉ cầu lần này ngàn vạn lần chớ để tâm hồ vang lên tiếng chuông.
+Lần này lão chỉ cầu ngàn vạn đừng để tiếng chuông vang trong hồ tâm.
 
-Ba vị minh hữu từng tính toán, đối phó một vị tu sĩ Long Môn cảnh, cho dù là có một món pháp bảo bàng thân gia phả tiên sư, cũng không phải vấn đề quá lớn.
+Ba đồng minh từng bàn tính, đối phó một tu sĩ Long Môn cảnh, dù là tiên sư có gia phả mang theo một món pháp bảo, cũng không phải quá khó.
 
-Cho nên Tôn đạo nhân mong đợi bảo tháp linh bên hông lay động lợi hại hơn nữa, vang vang rung trời cũng không sao.
+Bởi vậy Tôn đạo nhân chỉ mong chuông bên hông cứ rung thật mạnh, vang đến chấn thiên cũng chẳng sao.
 
-Khi bốn người đi ngang qua những hài cốt kia, Địch Nguyên Phong đều vung tay áo, hài cốt mặc quần áo sẽ bị cương khí chấn cho tan thành tro bụi, không chỉ như thế, rất nhiều trang sức tu sĩ vốn nên chứa linh khí vẫn khó thoát khỏi kết cục hóa thành tro tàn.
+Dọc đường, mỗi lần đi qua thi cốt, Địch Nguyên Phong đều phất tay áo. Quần áo trên xương khô lập tức bị cương khí chấn thành tro bụi. Không chỉ vậy, nhiều món trang sức của tu sĩ vốn nên chứa linh khí cũng chẳng tránh được kết cục hóa tro.
 
-Chỉ có hài cốt, quyền cương phất qua, vẫn không hề hấn gì.
+Chỉ riêng thi cốt, quyền cương quét qua vẫn nguyên vẹn.
 
-Lại là một chuyện kỳ lạ.
+Lại thêm một chuyện lạ.
 
-Sau mười mấy lần ra tay, Địch Nguyên Phong không có thu hoạch gì, ông lão cao gầy bắt đầu hành động trước, nhìn bầu bầu vẽ gáo, đáng tiếc số phận không tốt, vẫn không gặp được một pháp bào.
+Ra tay hơn chục lần mà chẳng thu được gì, Địch Nguyên Phong liền thấy lão nhân cao gầy bắt đầu tranh làm trước, bắt chước cách của mình. Đáng tiếc vận may lão không tốt, vẫn chẳng tìm được một món pháp bào.
 
-Địch Nguyên Phong liền quay đầu nhìn về phía Hoàng sư, "Hoàng lão ca thử vận may một chút?"
+Địch Nguyên Phong quay sang Hoàng Sư: “Hoàng lão ca thử vận may xem?”
 
-Có lẽ thật sự là gió thổi nước chảy, Hoàng sư sau đó thật đúng là đang ở trên bậc thang lên núi, vung tay xong, trên thi cốt quần áo vẫn như cũ, Tôn đạo nhân lập tức chạy đi c** q**n áo.
+Có lẽ phong thủy thật sự luân chuyển. Sau đó, ngay trên bậc thang lên núi, Hoàng Sư vừa vung tay, quần áo trên một bộ xương vẫn nguyên. Tôn đạo nhân lập tức chạy tới lột áo.
 
-Mẹ nó, phong phạm của cao nhân Lôi Thần trạch!
+Phong phạm cao nhân Lôi Thần trạch cái con mẹ nó!
 
-Lão tử chính là sơn trạch dã tu đời này chưa từng sờ qua nửa đồng tiền Cốc Vũ!
+Lão tử chính là dã tu sơn trạch cả đời chưa từng sờ tới nửa đồng tiền cốc vũ!
 
-Chỉ có điều sau khi đắc thủ, Tôn đạo nhân vẫn nhịn đau giao cho Hoàng sư.
+Chỉ là lấy được rồi, Tôn đạo nhân vẫn nhịn đau giao cho Hoàng Sư.
 
-Đây là quy củ sơn trạch dã tu.
+Đó là quy củ của dã tu sơn trạch.
 
-Đương nhiên còn có quy củ lớn hơn nữa ở phía sau chờ bốn người, bất quá trước mắt xem ra, là chờ một mình vị Trần đạo hữu kia mới đúng.
+Đương nhiên phía sau còn quy củ lớn hơn đang đợi bốn người. Nhưng nhìn tình hình hiện giờ, hẳn chỉ đợi một mình Trần đạo hữu kia mới đúng.
 
-Tôn đạo nhân khó có được có chút không đành lòng.
+Hiếm khi Tôn đạo nhân thấy hơi không đành lòng.
 
-Chẳng lẽ mình khó có được tâm địa Bồ Tát, khuyên Địch Nguyên Phong và Hoàng Sư một chút?
+Hay mình hiếm hoi phát lòng Bồ Tát một lần, khuyên Địch Nguyên Phong và Hoàng Sư đôi câu?
 
-Nếu thật sự là người người thắng lợi trở về, cũng không thể dọn sạch kho tàng nơi này, thì không cần phải giết người cướp của nữa?
+Nếu thật sự ai cũng đầy túi trở về mà vẫn không chuyển hết kho báu nơi này, còn cần giết người cướp của sao?
 
-Chỉ là Tôn đạo nhân có chút do dự, cảm thấy không vội, trước tiên xem thu hoạch rồi lại nói những cái khác.
+Nhưng Tôn đạo nhân vẫn do dự. Lão thấy chưa cần vội, cứ xem thu hoạch thế nào rồi nói chuyện khác.
 
-Bằng không cuối cùng nếu ngay cả một hai bọc hành lý cũng không chứa đầy, mình không quả quyết như vậy, lòng dạ đàn bà, sẽ chỉ làm hai tên kia sinh lòng chán ghét, nói không chừng sẽ phải thẳng thắn làm thịt cả mình.
+Bằng không, cuối cùng ngay một hai túi hành lý cũng chưa đầy, mình cứ chần chừ, mềm lòng đàn bà thế này, chỉ làm hai tên kia chán ghét. Chưa biết chừng chúng dứt khoát giết luôn cả mình.
 
-Trần Bình An thủy chung đi theo phía sau ba người.
+Trần Bình An vẫn đi sau ba người.
 
-Đi hết một bậc thang cuối cùng, trên quảng trường bạch ngọc trước đạo quán, trên mặt đất có hai bộ hài cốt nhỏ hơn, sau khi Địch Nguyên Phong phất tay áo, quần áo không còn sót lại chút gì, mỗi người đều để lại một món di vật.
+Qua bậc thang cuối cùng, trên quảng trường bạch ngọc trước đạo quán có hai bộ thi cốt nhỏ hơn. Địch Nguyên Phong phất tay áo, quần áo biến mất sạch, mỗi bộ xương lại để lại một món di vật.
 
-Chỉ có điều hai kiện trọng khí trên núi, vết nứt rất nhiều, thương rất nhiều.
+Chỉ là cả hai món trọng khí trên núi đều chằng chịt vết nứt, phẩm tướng tổn hại rất nhiều.
 
-Địch Nguyên Phong ngồi xổm xuống thu hồi, cẩn thận thu vào trong tay áo.
+Địch Nguyên Phong ngồi xuống nhặt, cẩn thận cất vào tay áo.
 
-Hoàng Sư nói: "Xem ra linh khí pháp bảo nơi đây, phẩm tướng cũng sẽ không quá tốt."
+Hoàng Sư nói: “Xem ra linh khí pháp bảo nơi này, phẩm tướng đều chẳng tốt lắm.”
 
-Địch Nguyên Phong gật đầu cười nói: "Vậy chúng ta dùng số lượng thủ thắng."
+Địch Nguyên Phong gật đầu cười: “Vậy chúng ta lấy số lượng thủ thắng.”
 
-Tôn đạo nhân vui mừng khôn xiết.
+Tôn đạo nhân vui không khép miệng.
 
-Hoàng sư cũng hiếm khi lộ ra một nụ cười.
+Ngay cả Hoàng Sư cũng hiếm hoi nở một nụ cười.
 
-Trần Bình An vẫn không xen vào, hắn vẫn quen trước muốn đường lui, lại đến nói tầm bảo cầu tài.
+Trần Bình An vẫn không góp chuyện. Hắn quen nghĩ đường lui trước, rồi mới nói tới tìm bảo kiếm tiền.
 
-Đứng ở đỉnh núi, đưa mắt nhìn ra xa, tầm nhìn có thể đạt được, bên ngoài núi xanh cùng nước biếc, cảnh tượng trong phạm vi trăm dặm đều có thể thấy được, đơn giản là xa gần có khác, tầm mắt dần dần trở nên mơ hồ, nhưng xa hơn chút nữa, giống như tồn tại một giới tuyến vô cùng rõ ràng, sau khi lướt qua, chính là đột nhiên biến đổi, biến thành một mảng sương mù mông lung, cho Trần Bình An một loại cảm giác áp lực của trời đất trống rỗng.
+Đứng trên đỉnh núi phóng mắt ra xa, ngoài núi xanh nước biếc, cảnh vật trong vòng trăm dặm đều có thể trông thấy. Chẳng qua xa gần khác nhau, tầm nhìn dần mờ đi. Nhưng xa hơn nữa, dường như có một ranh giới rõ rệt. Qua khỏi đó, cảnh tượng đột ngột đổi khác, biến thành một mảng sương mù, khiến Trần Bình An cảm thấy ngột ngạt, như đường đã tận, trời đất trống không.
 
-Đây là chuyện tốt, cũng là chuyện xấu.
+Đây vừa là chuyện tốt, vừa là chuyện xấu.
 
-Chuyện tốt là tòa tiên gia động phủ này, là một nơi không có căn cơ trong truyền thuyết, tương tự như viễn cổ động thiên phúc địa bị phá nát, cũng không phải là kiến tạo ở trong sơn thủy chân chính.
+Tốt ở chỗ tiên gia động phủ này là một vùng đất không gốc trong truyền thuyết, giống mảnh động thiên phúc địa viễn cổ vỡ ra, chẳng phải dựng giữa sơn thủy thực sự.
 
-Điều này nói rõ Tiên gia di chỉ nơi này nhất định có lịch sử lâu đời, có nguồn gốc sâu xa, nói không chừng thật sự có thiên tài địa bảo có giá trị liên thành, có thể xuất hiện một hai quyển bí kíp tiên gia nhắm thẳng vào Địa Tiên cảnh.
+Như vậy có nghĩa di chỉ tiên gia nơi đây nhất định lịch sử lâu đời, lai lịch sâu xa. Biết đâu thật sự có thiên tài địa bảo giá trị liên thành, có một hai bộ bí kíp tiên gia chỉ thẳng đến Địa Tiên cảnh.
 
-Nhưng chuyện xấu, chính là tiến vào dễ dàng đi ra ngoài khó khăn, trừ phi có người có thể phá vỡ cấm chế tiểu thiên địa.
+Xấu ở chỗ vào dễ, ra khó, trừ khi có người phá được cấm chế tiểu thiên địa.
 
-Sau lưng Trần Bình An có một thanh kiếm tiên ở vỏ, đương nhiên làm được, nói vậy màn trời dù kiên cố đến đâu, cũng không thể so sánh được với bãi xương Quỷ Hống cốc.
+Sau lưng Trần Bình An có thanh Kiếm Tiên trong vỏ, đương nhiên làm được. Màn trời nơi này dù chắc đến đâu, hẳn cũng chẳng bằng Quỷ Vực cốc ở bãi Hài Cốt.
 
-Nhưng đến lúc đó hắn sẽ trở thành mục tiêu công kích của các bên trên đỉnh núi, điều này trái ngược với dự tính ban đầu " len lén kiếm tiền lậu của hắn, lặng lẽ rời khỏi đây" của hắn.
+Nhưng khi ấy hắn sẽ trở thành mục tiêu của các ngọn núi. Như vậy trái với ý định ban đầu: lặng lẽ nhặt món hời kiếm chút tiền, lặng lẽ rời đi, đừng ai để ý đến mình.
 
-Trần Bình An cũng không hy vọng trở thành Khương Thượng Chân thứ hai, trở thành con chuột qua đường trong mắt tu sĩ Bắc Câu Lô Châu, người người kêu đánh kêu giết.
+Trần Bình An không muốn thành Khương Thượng Chân thứ hai, trở thành con chuột chạy ngang đường trong mắt tu sĩ Bắc Câu Lô châu, người người đòi đánh đòi giết.
 
-Ba người Hoàng sư yên tâm thoải mái như thế, hẳn là chưa phát hiện dị tượng sơn thủy nơi xa, bởi vậy có thể thấy được, vị võ phu Kim Thân cảnh này của Hoàng sư, không phải giấy dán, nhưng cũng không tính là quá mạnh.
+Ba người Hoàng Sư vẫn yên lòng đến vậy, hẳn chưa nhận ra dị tượng sơn thủy nơi xa. Có thể thấy vị võ phu Kim Thân cảnh này tuy không phải hạng giấy dán, nhưng cũng chẳng quá mạnh.
 
-Tồn tại của sợi dây đó, thật ra đối với Trần Bình An mà nói, ý nghĩa không lớn.
+Ranh giới ấy, lúc này thật ra không có ý nghĩa lớn với Trần Bình An.
 
-Nhưng một khi kết quả xấu nhất xuất hiện, hắn lại là người duy nhất có thể thấy được, hơn nữa đi ra khỏi tiểu thiên địa.
+Nhưng một khi tình huống tệ nhất xảy ra, hắn lại là người duy nhất vừa nhìn thấy, vừa ra khỏi được tiểu thiên địa.
 
-Ba người còn lại, thì vẫn như cũ bị che mờ trong trống, có lẽ lúc này đang âm thầm trao đổi, nên làm thế nào đen ăn đen vị đạo hữu này của hắn.
+Ba người kia vẫn chẳng hay biết gì, có lẽ giờ này còn đang âm thầm bàn bạc nên đen ăn đen vị đạo hữu là hắn ra sao.
 
-Tòa đạo quan trước mắt này không lớn, tấm biển đã không còn, bốn người trước khi đi vào đạo quán, đều nhịn không được nhìn nóc nhà ngói lưu ly xanh biếc, trên núi có rất nhiều kiến trúc, chỉ có nơi này mới có ngói này.
+Đạo quán trước mắt không lớn, biển ngạch đã mất. Trước khi vào, cả bốn đều không nhịn được nhìn ngói lưu ly xanh biếc trên mái. Kiến trúc trên núi nhiều như vậy, chỉ nơi này mới dùng thứ ngói ấy.
 
-Năm tháng dằng dặc, mái ngói vẫn bảo quang lưu chuyển, hiển nhiên không phải hoàng cung vương triều thế tục, vương phủ loại ngói lưu ly tầm thường kia, là bảo bối chân chính trên núi, vật dùng của thần tiên nhân gia.
+Qua bao năm tháng, ngói vẫn lưu chuyển bảo quang. Rõ ràng không phải ngói lưu ly tầm thường ở hoàng cung, vương phủ thế tục, mà là bảo vật trên núi, đồ dùng của thần tiên chân chính.
 
-Tóm lại mỗi một viên ngói, đều là tiền của thần tiên.
+Tóm lại, mỗi viên ngói đều là tiền thần tiên.
 
-Một màn này khiến Tôn đạo nhân nhìn mà cả người run rẩy, đánh giá như thế nào cũng đáng giá bảy tám đồng Tiểu Thử tiền? Nếu thật là ngói lưu ly thượng đẳng bí pháp tiên gia kia nung chế, nói không chừng mang tiền Tiểu Thử đổi thành tiền Cốc Vũ, cũng có khả năng!
+Tôn đạo nhân nhìn mà run cả người. Ước chừng thế nào cũng phải đáng bảy tám đồng tiền tiểu thử? Nếu thật là ngói lưu ly thượng hạng nung bằng bí pháp tiên gia, biết đâu đổi tiền tiểu thử thành tiền cốc vũ cũng có thể!
 
-Hoàng sư và Địch Nguyên Phong đều xuất thân là võ phu thuần túy, đối với giá trị của những ngói lưu ly này, chưa từng xuất hiện trên đỉnh núi tông môn, thật ra cũng không thể tính toán chuẩn xác như Tôn đạo nhân. Nhưng mà môn phái tiên phủ đã từng giao thiệp với sơn đầu, cũng chưa từng hướng nóc nhà nhà mình trải ra loại ngói lưu ly này, thế tục dưới núi, cũng không hiếm thấy.
+Hoàng Sư và Địch Nguyên Phong đều xuất thân võ phu thuần túy, chưa từng qua lại với những đại sơn môn tông môn, cho nên thật ra cũng như Tôn đạo nhân, chẳng ước lượng chính xác được giá trị những viên ngói. Nhưng các môn phái tiên phủ bọn họ từng giao thiệp đều không lợp ngói lưu ly như vậy trên mái, còn chốn thế tục dưới núi thì lại chẳng hiếm.
 
-Trần Bình An cuối cùng nhìn phía chỗ bốn người đến, vẫn không có động tĩnh.
+Trần Bình An nhìn lần cuối về phía bốn người đi vào, vẫn chưa có động tĩnh.
 
-Có một vấn đề, hắn có cơ hội muốn hỏi thăm một chút để sai người.
+Có một việc, nếu có cơ hội hắn muốn hỏi nhóm người tiếp theo.
 
-Đại khái là thời gian bao lâu mới tiến vào tiểu thiên địa này.
+Bọn họ vào tiểu thiên địa này khoảng giờ nào.
 
-Thật ra Trần Bình An vẫn luôn tính toán thời gian.
+Thật ra Trần Bình An vẫn luôn nhẩm tính thời gian.
 
-Một khi tốc độ dòng sông thời gian nơi đây trôi qua, cùng Hạo Nhiên Thiên Hạ xuất hiện sự sai lệch rõ rệt, như vậy Trần Bình An có hai dự tính tốt nhất cùng tệ nhất.
+Một khi tốc độ chảy của dòng sông thời gian ở đây lệch rõ rệt so với Hạo Nhiên thiên hạ, hắn sẽ có hai dự tính, tốt nhất và xấu nhất.
 
-Nhóm người Tiểu Hầu gia Chiêm Tình của Bắc Đình quốc đi tới cửa động phủ.
+---
 
-Vị võ phu Kim Thân cảnh thân là gia tộc cung phụng kia đang thăm dò dấu chân trên mặt đất.
+Tiểu hầu gia Bắc Đình quốc Chiêm Tình cùng đoàn người tới cửa động phủ.
 
-Cao Lăng võ tướng Phù Dung quốc trầm giọng nói: "Tiểu Hầu gia, phụ cận đỉnh núi có không ít người trốn tránh."
+Vị võ phu Kim Thân cảnh làm cung phụng gia tộc đang xem dấu chân dưới đất.
 
-Chiêm Tình cười nói: "Đi theo sau mông chúng ta ăn bụi là được. Đã có lá gan vào động phủ, thì phải có lá gan đầu thai."
+Võ tướng Phù Cừ quốc Cao Lăng trầm giọng: “Tiểu hầu gia, có không ít người nấp quanh núi.”
 
-Hắn đối với sơn trạch dã tu cùng gia phả tiên sư, cũng chưa nói tới có hảo cảm.
+Chiêm Tình cười: “Cứ theo sau mông chúng ta mà ăn bụi. Đã có gan vào động phủ thì phải có gan đi đầu thai.”
 
-Cho dù chính hắn chính là một người tu đạo chính nhi bát kinh, nhưng có lẽ trong xương cốt vẫn là đệ tử hào phiệt, thường thấy đế vương tương tướng và vương hầu phủ đệ, cũng thành thói quen dụng tâm mưu đồ cùng thuận thế mượn thế, mà không phải dựa vào một đôi nắm tay vài món bảo vật, giết tới giết lui, cho nên Chiêm Tình đối với những đồng đạo cao cao tại thượng kia, thật sự là phiền chán đến cực điểm. Bất quá thật muốn đến hoàn cảnh cần thuật pháp giết người, Chiêm Tình tự nhiên sẽ không có bất luận ướt át bẩn thỉu gì.
+Dã tu sơn trạch hay tiên sư có gia phả, hắn đều chẳng có thiện cảm gì.
 
-Bạch Bích trêu ghẹo nói: "Thật sự không nóng nảy chút nào, không sợ cho hai nhóm người kia nhanh chân đến trước sao?"
+Dù bản thân là người tu đạo thực thụ, có lẽ trong xương cốt vẫn là con cháu hào môn. Quen thấy đế vương tướng lĩnh, phủ đệ vương hầu, hắn cũng quen dụng tâm mưu tính, thuận thế mượn thế, thay vì dựa vào đôi nắm tay cùng mấy món bảo vật giết tới giết lui. Bởi vậy, những đồng đạo cao cao tại thượng kia khiến Chiêm Tình vô cùng chán ghét. Nhưng nếu thật đến lúc cần dùng thuật pháp giết người, hắn đương nhiên cũng không dây dưa chút nào.
 
-Chiêm Tình cười nói: "Bọn họ nếu là có thể ở trong thời gian nháy mắt, liền luyện hóa tiên gia chí bảo, ăn hết bí kíp gì, cho dù vận khí của ta kém, nhận thua là được? Nếu không, người và vật, lại có thể trốn đi nơi nào."
+Bạch Bích trêu: “Thật sự không vội chút nào? Không sợ hai nhóm kia nhanh chân giành trước?”
 
-Cao Lăng đối với người này, càng thêm lau mắt mà nhìn.
+Chiêm Tình cười: “Nếu trong nháy mắt bọn họ luyện hóa được chí bảo tiên gia, nuốt hết bí kíp gì đó, coi như vận khí ta kém, nhận thua là xong. Bằng không, người và vật còn chạy đâu được?”
 
-Lúc trước đối với Tiểu Hầu gia Bắc Đình quốc gì đó, chỉ coi là một phế vật đầu thai tốt.
+Cao Lăng càng nhìn hắn bằng con mắt khác.
 
-Bây giờ xem ra, tương lai ai dám khinh thường người này, nổi lên cái gọi là đại đạo chi tranh trên con đường tu hành, đối phương cam đoan sẽ lật thuyền trong mương.
+Trước kia, tiểu hầu gia Bắc Đình quốc gì đó, trong mắt hắn chẳng qua là phế vật đầu thai tốt.
 
-Hai vị võ phu Kim Thân cảnh mở đường, giơ ngọn nến đi vào hang động âm u.
+Bây giờ xem ra, sau này ai dám xem nhẹ người này, xảy ra cái gọi là tranh đại đạo trên đường tu hành, kẻ ấy chắc chắn lật thuyền trong mương.
 
-Bạch Bích tâm tình thanh thản, chỉ cần không xảy ra chuyện gì quá lớn ngoài ý muốn, lần này thăm núi tầm bảo, căn bản không cần nàng tự mình ra tay.
+Hai võ phu Kim Thân cảnh cầm nến mở đường vào hang tối.
 
-Cho dù là hai người Thải Tước phủ Tôn Thanh và Vân Thượng Thành Thẩm Chấn Trạch đích thân tới, cũng chỉ có thể coi là một chuyện ngoài ý muốn nhỏ.
+Bạch Bích nhàn nhã. Chỉ cần không có biến cố quá lớn, chuyến thăm núi tìm bảo lần này căn bản chẳng cần nàng đích thân ra tay.
 
-Hai vị võ phu thất cảnh trong đội ngũ của mình, đã đủ ăn một bình.
+Dù Tôn Thanh phủ Thải Tước và Thẩm Chấn Trạch thành Vân Thượng đích thân đến, cũng chỉ coi là một biến cố nhỏ.
 
-Đoàn người đi tới động phòng vẽ tranh thiên vương bốn bức tranh kia.
+Hai võ phu thất cảnh trong đoàn đã đủ khiến họ khốn đốn.
 
-Chiêm Tình có chút nhíu mày, chuyện phá trận, mình không am hiểu, sư phụ Nguyên Anh của mình, thân là sơn trạch dã tu, sở học hỗn tạp, hẳn là quen thuộc, chỉ là chưa bao giờ truyền thụ Chiêm Tình bất cứ môn đạo nào liên quan tới tìm kiếm cơ duyên bí cảnh, luôn nói những cơ quan thuật bàng môn tả đạo, sẽ chậm trễ tu hành, đợi đến khi Chiêm Tình hắn chen thân Long Môn cảnh lại nói chuyện khác.
+Cả bọn tới gian động có bốn bức bích họa Thiên Vương.
 
-Nếu nhóm dã tu đầu tiên và tu sĩ Vân Thượng Thành đều đã không thấy, chắc là đã lần lượt tiến vào di tích tiên phủ kia.
+Chiêm Tình hơi nhíu mày. Chuyện phá trận, hắn không giỏi. Vị sư phụ Nguyên Anh của mình xuất thân dã tu sơn trạch, học đủ thứ hỗn tạp, hẳn rất quen những việc này. Nhưng sư phụ chưa từng truyền cho hắn bất cứ môn đạo nào liên quan tới tìm cơ duyên trong bí cảnh, cứ nói những thứ cơ quan thuật bàng môn tả đạo ấy sẽ làm lỡ tu hành, đợi hắn vào Long Môn cảnh rồi hãy bàn chuyện khác.
 
-Bạch Bích mỉm cười nói: "Tiếp theo làm sao bây giờ? Chúng ta liền trừng mắt to ở đây?"
+Nhóm dã tu đầu tiên và tu sĩ thành Vân Thượng đều đã mất tăm, hẳn đã lần lượt vào di tích tiên phủ.
 
-Chiêm Tình bất đắc dĩ nói: "Nếu là biết phương vị xuất khẩu, ôm cây đợi thỏ là được, sợ là chỉ sợ cách xa nhau hơn trăm dặm, chúng ta phát hiện không được."
+Bạch Bích mỉm cười: “Tiếp theo làm sao? Chẳng lẽ chúng ta đứng trơ ra đây nhìn nhau?”
 
-Bạch Bích chắp hai tay sau lưng, nhìn quanh bốn phía, "Trước tìm manh mối, thật sự không được, ngươi phải nợ ta một ân tình lớn bằng trời."
+Chiêm Tình bất đắc dĩ: “Biết lối ra ở đâu thì cứ ôm cây đợi thỏ. Chỉ sợ cách hơn trăm dặm, chúng ta không phát hiện nổi.”
 
-Chiêm Tình hỏi: "Trả giá rất lớn?"
+Bạch Bích chắp hai tay sau lưng, nhìn quanh: “Tìm manh mối trước đã. Thật sự không được, ngươi phải nợ ta một ân tình lớn bằng trời.”
 
-Bạch Bích gật đầu nói: "Không tính là nhỏ. Sẽ tổn hại ta tương đương với mười năm đạo hạnh."
+Chiêm Tình hỏi: “Cái giá rất lớn?”
 
-Vị đệ tử đích truyền Thủy Long Tông lão tổ này, thật cẩn thận tế ra một vật bản mạng, là một lá bùa màu xanh cực kỳ hiếm thấy, thế mà lại là đồ án phù lục nước chảy róc rách, vừa đơn giản, vừa cổ quái, lá bùa vẽ dòng nước chậm rãi chảy xuôi, thậm chí lờ mờ có thể nghe thấy tiếng nước chảy.
+Bạch Bích gật đầu: “Không nhỏ. Sẽ tổn hao tương đương mười năm đạo hạnh của ta.”
 
-Một vị tu sĩ Kim Đan xuất thân tông môn nguyện ý luyện hóa một tấm phù lục làm vật bản mạng, như vậy phẩm trật của tấm phù lục này, ít nhất cũng là pháp bảo.
+Vị đệ tử đích truyền của lão tổ Thủy Long tông cẩn thận tế ra một vật bản mệnh. Đó là tấm phù lục màu xanh cực hiếm. Hoa văn trên phù lại là dòng nước róc rách, vừa đơn giản vừa kỳ lạ. Nước vẽ trên giấy chậm rãi chảy, thậm chí còn nghe loáng thoáng tiếng nước.
 
-Bạch Bích nói: "Đây là một tấm phù lục cổ xưa, là sư phụ ta trước kia trong lúc vô tình lấy được, đến từ di chỉ một trong tam đại cổ lão từ miếu, tên là Thốn Kim Phù. Diệu dụng rất nhiều, tu hành thủy pháp, làm ít hưởng nhiều. Vì quyền sở hữu tấm phù lục này, sư môn bên kia huyên náo có chút không quá khoái trá, không đề cập tới cũng được. Tóm lại một diệu dụng trong đó, có thể giúp chúng ta đi vào bí cảnh."
+Một tu sĩ Kim Đan xuất thân tông môn chịu luyện hóa phù lục làm vật bản mệnh, vậy phẩm trật lá phù ít nhất cũng phải là pháp bảo.
 
-Thốn Kim Phù, lại được vinh danh là Quang Âm Phù.
+Bạch Bích nói: “Đây là một tấm cổ phù, sư phụ ta tình cờ có được từ nhiều năm trước, đến từ di chỉ một trong ba ngôi miếu cổ lớn của Tế Độc, tên Thốn Kim Phù. Diệu dụng rất nhiều, tu hành thủy pháp có thể bỏ nửa công, được gấp đôi kết quả. Vì quyền sở hữu nó, sư môn từng có chuyện không vui, không nhắc cũng được. Tóm lại, một trong những diệu dụng ấy có thể giúp chúng ta vào bí cảnh.”
 
-Huyền diệu khó giải thích.
+Thốn Kim Phù còn được gọi là Quang Âm Phù.
 
-Chiêm Tình tuy rằng không rõ căn nguyên của tấm phù lục này, nhưng vẫn lắc đầu nói: "Hay là thôi đi."
+Huyền diệu khó lường.
 
-Bạch Bích thở dài, "Ta đã là Kim Đan Địa tiên, tương đương với mười năm tu vi của Luyện khí sĩ Long Môn cảnh trước kia, lại tính là cái gì? Càng về sau, chênh lệch một cảnh càng khác nhau một trời một vực. Luyện khí sĩ là như thế, võ phu càng là như thế."
+Chiêm Tình không biết lai lịch lá phù, nhưng vẫn lắc đầu: “Thôi vậy.”
 
-Chiêm Tình cười khổ nói: "Bạch tỷ tỷ."
+Bạch Bích thở dài: “Ta đã là Kim Đan Địa Tiên. Mười năm tu vi của luyện khí sĩ Long Môn cảnh thuở trước thì đáng gì? Càng về sau, chênh nhau một cảnh càng như trời vực. Luyện khí sĩ đã vậy, võ phu còn hơn thế.”
 
-Bạch Bích cười nói: "Một tiếng Bạch tỷ tỷ, như vậy là đủ rồi."
+Chiêm Tình cười khổ: “Bạch tỷ tỷ.”
 
-Dù Chiêm Tình là con cháu vương hầu tính tình bội bạc như vậy, cũng khó kìm lòng nổi, muốn đưa tay nắm lấy tay nàng.
+Bạch Bích cười: “Một tiếng Bạch tỷ tỷ là đủ rồi.”
 
-Bạch Bích lại lắc đầu, tâm tình bình thản, nói: "Đám dong chi tục phấn bị ngươi oa giấu vẻ yêu kiều kia, không ít nữ tử đều nguyện ý đi tìm chết vì ngươi, vì sao ngươi không cảm động? Cũng bởi vì ta là Kim Đan Địa tiên, tổn hại mấy năm đạo hạnh, ngươi liền động tâm? Loại nhi nữ tình trường này, ta thấy không cần cũng được. Nếu tương lai trên đường tu hành, đổi thành một vị Nguyên Anh nữ tu, vì ngươi trả giá như vậy, ngươi có phải liền muốn gặp người tư thiên hay không? Thần tiên đạo lữ chân chính trên núi, xa xa không phải nông cạn như thế."
+Ngay cả con cháu vương hầu tính tình bạc bẽo như Chiêm Tình cũng hơi khó kìm lòng, muốn đưa tay nắm lấy tay nàng.
 
-Chiêm Tình như bị sét đánh, không phản bác được.
+Bạch Bích lại lắc đầu, tâm cảnh bình hòa: “Đám dong chi tục phấn ngươi giấu trong lầu son gác tía, không ít nữ tử sẵn lòng chết vì ngươi, sao ngươi chẳng cảm động? Chỉ vì ta là Kim Đan Địa Tiên, hao tổn mấy năm đạo hạnh, ngươi liền động lòng? Thứ tình trường nam nữ ấy, theo ta không cần cũng được. Nếu sau này trên đường tu hành có một nữ tu Nguyên Anh cũng hy sinh như vậy vì ngươi, chẳng phải ngươi sẽ thay lòng đổi dạ? Đạo lữ thần tiên chân chính trên núi, còn lâu mới nông cạn như thế.”
 
-Bạch Bích đột nhiên nói: "Trước khi sử dụng Thốn Kim Phù, phải cân nhắc manh mối trước, sau đó xông vào một phen, nắm tay của hai võ phu Kim Thân cảnh không thể lãng phí, hai thứ đều không được, để ta tới."
+Chiêm Tình như bị sét đánh, không biết đáp thế nào.
 
-Chiêm Tình thoáng dễ chịu trong lòng vài phần.
+Bạch Bích bỗng nói: “Trước khi dùng Thốn Kim Phù, cứ suy xét manh mối, rồi thử xông vào bằng sức mạnh. Nắm đấm của hai võ phu Kim Thân cảnh không thể để phí. Cả hai cách đều không được, hãy để ta.”
 
-Lại nhìn vị Bạch tỷ tỷ dung mạo động lòng người này, liền có chút xa lạ.
+Chiêm Tình mới thấy dễ chịu hơn đôi chút.
 
-Sau khi Hoàn Vân xuất hiện tại động phủ tiên gia này, lập tức dán lên ba người bên cạnh một tấm phù lục độc môn, che lấp khí cơ thân hình.
+Lại nhìn vị Bạch tỷ tỷ dung mạo động lòng người ấy, hắn chợt thấy có phần xa lạ.
 
-Về phần khí cơ gợn sóng khi ba người kia hành tẩu, Hoàn Vân hắn chỉ là Kim Đan Địa Tiên Phù Lục phái, cũng không phải đạo môn thiên quân thuật pháp thông thiên kia, không có cách nào làm được tận thiện tận mỹ.
+---
 
-Vị lão cung phụng Long Môn cảnh Vân Thượng Thành kia nhẹ nhàng thở ra, không có một trận phục sát, chung quy là chuyện tốt.
+Vừa vào tiên gia động phủ, Hoàn Vân lập tức dán lên mỗi người trong ba người bên cạnh một tấm phù lục độc môn, che giấu thân hình và khí cơ.
 
-Hoàn Vân đột nhiên nói: "Kế tiếp các ngươi tự mình đi dạo, trừ chém giết sinh tử, lão phu sẽ mặc kệ ba vị các ngươi. Trừ sinh tử ra thì được mất phúc họa, đều dựa vào thiên mệnh."
+Còn những gợn khí cơ khi ba người di chuyển, hắn chỉ là Kim Đan Địa Tiên phái phù lục, không phải thiên quân Đạo môn thuật pháp thông thiên, chẳng thể làm chu toàn tất cả.
 
-Sau đó Hoàn Vân cười nói: "Yên tâm, lão phu sẽ không tranh đoạt với các ngươi, nhiều nhất chỉ là các ngươi chọn phần còn lại, hoặc là các ngươi không thể phát hiện, lão phu mới có thể nhặt được thứ rách nát."
+Vị lão cung phụng Long Môn cảnh thành Vân Thượng thở phào. Không gặp phục sát, chung quy là chuyện tốt.
 
-Hoàn Vân thân hình tiêu tán, như mây như sương, không có nửa điểm gợn sóng.
+Hoàn Vân đột nhiên nói: “Tiếp theo các ngươi tự đi xem. Ngoài chém giết sống chết, lão phu không quản ba người nữa. Được mất họa phúc ngoài sinh tử, mỗi người tùy thiên mệnh.”
 
-Lão cung phụng cùng hai vị vãn bối cười nói: "Hoàn chân nhân xưa nay nói lời giữ lời, đi thôi, tiếp theo làm sao đối phó đám dã tu kia, mới là hai người các ngươi cần lo lắng."
+Rồi hắn cười: “Yên tâm, lão phu không tranh với các ngươi. Cùng lắm chỉ nhặt chút đồ thừa các ngươi chọn bỏ lại, hoặc thứ các ngươi không phát hiện.”
 
-Nghe ra ngụ ý của vị hộ đạo nhân này, nữ tử lo lắng nói: "Sư bá ngươi?"
+Thân hình Hoàn Vân tan đi như mây như sương, chẳng lưu lại chút gợn sóng.
 
-Lão cung phụng bất đắc dĩ nói: "Chẳng lẽ còn muốn ta giúp hai người các ngươi nhặt đồ, vác đồ? Các ngươi du sơn ngoạn thủy rồi? Sư bá này của ta là khuân vác của các ngươi?"
+Lão cung phụng cười nói với hai vãn bối: “Hoàn chân nhân xưa nay nói là giữ lời. Đi thôi. Tiếp theo đối phó nhóm dã tu kia thế nào, mới là chuyện hai ngươi cần lo.”
 
-Lão cung phụng ngự phong mà lên, muốn nhìn một chút màn trời tòa động phủ này rốt cuộc cao bao nhiêu, hơn nữa từ chỗ cao quan sát đại địa, càng dễ dàng nhìn thấy càng nhiều dấu diếm huyền cơ.
+Nghe ra ý ngoài lời của người hộ đạo, nữ tử lo lắng: “Sư bá, người…?”
 
-Nhưng vì lý do cẩn thận, lão nhân vẫn lấy ra một món linh khí không phải vật bản mạng, dẫn đầu bay lên không xoay quanh, để tránh bản thân đụng đầu vào trận pháp sơn thủy.
+Lão cung phụng bất đắc dĩ: “Chẳng lẽ còn muốn ta giúp hai ngươi nhặt đồ, vác đồ? Các ngươi tới du sơn ngoạn thủy sao? Sư bá ta là phu khuân vác của các ngươi?”
 
-Tiến vào loại di chỉ Tiên Phủ vô chủ này, tự nhiên khắp nơi là tiền có thể nhặt.
+Lão cung phụng ngự phong bay lên, muốn xem màn trời động phủ cao đến đâu. Hơn nữa từ trên cao nhìn xuống, cũng dễ thấy những chỗ giấu huyền cơ hơn.
 
-Cũng sẽ có sát khí khắp nơi đang đợi nhặt tiền.
+Nhưng vì cẩn thận, lão vẫn tế một món linh khí không phải vật bản mệnh, cho bay lên lượn quanh trước, tránh bản thân đâm đầu vào trận pháp sơn thủy.
 
-Thật ra lão nhân có vui có buồn, vui chính là cơ duyên nơi đây, tất nhiên không nhỏ, vượt quá tưởng tượng, tuyệt đối không phải phủ đệ tu đạo của tu sĩ Long Môn cảnh, mà là cả một môn phái, chỉ nhìn quy mô kiến trúc, cũng đã không kém hơn chút nào so với Vân Thượng Thành và Thải Tước phủ.
+Vào di chỉ tiên phủ vô chủ thế này, đương nhiên đâu đâu cũng có tiền nhặt.
 
-Cho nên lần này thành chủ Thẩm Chấn Trạch xuất ra kiện Phương Thốn Vật kia giao cho mình, là đúng đến không thể lại đúng.
+Cũng đâu đâu cũng có sát cơ chờ kẻ nhặt tiền.
 
-Lo lắng là tiên phủ này không thể mang đi được, một khi thật sự là nơi tu đạo của Nguyên Anh Địa Tiên, thậm chí là đại tu sĩ thượng ngũ cảnh, đợi bọn họ quay về Vân Thượng Thành, chỉ cần có chút tiếng gió tiết lộ ra ngoài, đến lúc đó lại tới chơi núi tầm bảo, chỉ sợ một vị Kim Đan cũng không kiếm được nửa điểm canh thừa thịt nguội. Sẽ chỉ bị tông môn gần quan được ban lộc kia, lấy thần thông Bàn Sơn trong truyền thuyết di chuyển mà đi. Tông môn gần nhất với Bắc Đình quốc, một tây một bắc, cách nơi đây, chênh lệch không lớn, chút khác biệt đó, đối với tu sĩ tông môn có được độ thuyền nhà mình mà nói, hoàn toàn có thể bỏ qua không tính.
+Thật ra lão nhân vừa mừng vừa lo. Mừng vì cơ duyên nơi này nhất định không nhỏ, vượt xa tưởng tượng. Đây tuyệt chẳng phải động phủ tu hành của một tu sĩ Long Môn cảnh, mà là cả một môn phái. Chỉ riêng quy mô kiến trúc đã không kém thành Vân Thượng và phủ Thải Tước chút nào.
 
-Vị lão cung phụng này chỉ hy vọng chủ nhân cũ nơi đây chỉ là một Địa Tiên bừa bãi vô danh, cảnh giới ngàn vạn đừng có cao hơn nữa.
+Bởi vậy lần này thành chủ Thẩm Chấn Trạch giao món Phương Thốn vật kia cho mình, đúng là chẳng thể đúng hơn.
 
-Kim Đan là tốt nhất, Nguyên Anh sẽ có chút phiền phức, sau đó khó có thể kết thúc công việc.
+Lo ở chỗ không mang nổi cả tiên phủ đi. Nếu thật là nơi tu đạo của Địa Tiên Nguyên Anh, thậm chí đại tu sĩ thượng ngũ cảnh, đợi bọn họ về thành Vân Thượng, chỉ cần để lộ chút tin, sau này trở lại tìm bảo, chỉ e ngay cả Kim Đan cũng chẳng vớt được chút canh thừa thịt nguội.
 
-Không chừng sẽ có tiên sư xuất thân tông môn đến nhà bái phỏng Vân Thượng Thành, không cần đối thoại mở miệng, thành chủ cũng chỉ có thể phun ra phần lớn thịt mỡ, ngoan ngoãn giao cho đối phương, còn phải lo lắng đối phương không hài lòng.
+Nơi này sẽ bị tông môn gần đó dùng thần thông Bàn Sơn trong truyền thuyết chuyển đi. Hai tông môn gần Bắc Đình quốc nhất, một ở tây, một ở bắc, khoảng cách đến đây không chênh bao nhiêu. Chút xa gần ấy, với tu sĩ tông môn có đò nhà mình, hoàn toàn chẳng đáng tính.
 
-Một khi là di chỉ đỉnh núi nơi tu sĩ thượng ngũ cảnh tọa trấn, nghĩ cũng không cần nghĩ, vô cùng có khả năng chính là phúc họa tương y, sau đại phúc duyên chính là đại họa lâm môn.
+Lão cung phụng chỉ mong chủ nhân cũ là một Địa Tiên vô danh, ngàn vạn đừng có cảnh giới cao hơn nữa.
 
-Trừ phi Vân Thượng Thành bọn họ có thể lập tức đánh nát tiểu thiên địa này, một hơi tiêu hủy tất cả dấu vết.
+Kim Đan là tốt nhất. Nguyên Anh sẽ hơi phiền, chuyện sau này khó thu xếp.
 
-Đáng tiếc Vân Thượng Thành tuyệt đối không làm được.
+Biết đâu có tiên sư tông môn tới thăm thành Vân Thượng. Chẳng cần đối phương mở miệng, thành chủ đã phải nhả phần lớn miếng thịt béo, ngoan ngoãn giao ra, còn phải lo người ta chưa hài lòng.
 
-Trừ phi Thẩm Chấn Trạch quyết định thật nhanh, sau khi ba người bọn họ cùng Hoàn Vân cùng nhau trở về Vân Thượng Thành, chủ động tìm được một tông môn trong đó, thương lượng ra một phần chia coi như công bằng với đối phương.
+Nếu là di chỉ sơn môn có tu sĩ thượng ngũ cảnh tọa trấn, khỏi cần nghĩ, rất có thể phúc họa liền nhau, phúc duyên lớn tới trước, đại họa nối gót gõ cửa.
 
-Về phần tòa bảo địa phong thủy thủy vận nồng đậm này, cộng thêm nhiều kiến trúc hùng vĩ có sẵn như vậy, tự nhiên là một chỗ thắng địa tránh nóng tương lai của tông môn đối phương.
+Trừ khi thành Vân Thượng lập tức đánh vỡ được tiểu thiên địa này, một hơi hủy sạch mọi dấu vết.
 
-Kiện linh khí dùng để dò đường kia bay vút bốn phía, cũng không có bất kỳ cản trở gì.
+Đáng tiếc, thành Vân Thượng tuyệt đối không làm được.
 
-Lão cung phụng liền yên tâm ngự phong lên không.
+Hoặc Thẩm Chấn Trạch phải quyết đoán ngay. Đợi ba người bọn họ cùng Hoàn Vân về thành, chủ động tìm một trong hai tông môn, thương lượng với đối phương cách chia lợi coi như công bằng.
 
-Ngay tại thời điểm lão cung phụng cách mặt đất đã mấy trăm trượng, món linh khí đó nổ lớn vỡ vụn, lão cung phụng trong lòng biết không ổn, đột nhiên bị người kéo, hướng trên mặt đất rơi xuống.
+Còn vùng đất phong thủy bảo địa thủy vận nồng đậm này, cộng thêm bao kiến trúc nguy nga sẵn có, tự nhiên sẽ thành thắng địa tránh nóng của tông môn đối phương sau này.
 
-Lão cung phụng trong lòng chấn động, sau đó thở phào nhẹ nhõm, thì ra là lão chân nhân Hoàn Vân đè lại đầu vai của hắn, mang theo hắn cùng nhau hướng mặt đất lao đi.
+Món linh khí dò đường bay khắp bốn phía, chẳng gặp trở ngại.
 
-Sau đó lão cung phụng liền phát giác được trên đỉnh đầu, có một sợi khí cơ tinh tế, chợt lóe lên, thoáng qua liền biến mất.
+Lão cung phụng liền yên tâm ngự phong lên cao.
 
-Hoàn Vân trầm giọng nói: "Khuyên ngươi đừng đi lên nữa, cho dù là tu sĩ binh gia của Kim Đan Địa tiên cũng không chịu nổi một luồng kiếm khí tuần thú tứ phương kia."
+Đúng lúc cách mặt đất mấy trăm trượng, món linh khí nổ tung. Lão cung phụng biết không ổn, chợt bị ai kéo, rơi thẳng xuống đất.
 
-Lúc trước lão chân nhân sử dụng mấy đạo Tuần Du Phù, ném vào bốn phương thiên địa, phát hiện mỗi khi có phù lục đi tới chỗ cao, đều sẽ trong nháy mắt hóa thành bột mịn.
+Lão kinh hãi, rồi thở phào. Thì ra lão chân nhân Hoàn Vân ấn vai, đưa lão cùng lao xuống.
 
-Lão cung phụng ngửa đầu nhìn lại, khí tức lúc trước đã không còn dấu vết để mà tìm kiếm.
+Sau đó lão mới nhận ra trên đỉnh đầu có một tia khí cơ mảnh nhỏ chợt lóe rồi mất hút.
 
-Vị Long Môn cảnh của Vân Thượng Thành này khiếp sợ nói: "Chẳng lẽ di chỉ này còn có Kiếm Tiên tọa trấn?!"
+Hoàn Vân trầm giọng: “Khuyên ngươi đừng lên nữa. Dù là tu sĩ Binh gia Kim Đan Địa Tiên, cũng không chịu nổi luồng kiếm khí tuần thú bốn phương ấy.”
 
-Hoàn Vân đã lặng lẽ đi vòng quanh núi xanh lắc đầu, "Đều đã chết hết, không còn người sống, cũng không có quỷ vật. Chỉ còn lại đạo kiếm khí này tiếp tục tồn tại ở phương tiểu thiên địa này."
+Trước đó lão chân nhân đã tung mấy đạo Tuần Du Phù ra bốn phía, phát hiện cứ lá phù nào lên chỗ cao là lập tức hóa bột mịn.
 
-Hoàn Vân sắc mặt ngưng trọng, "Lại nói cho ngươi một tin tức tốt xấu nửa nọ, nơi đây là một địa vực huyền diệu do động thiên phúc địa cổ xưa vì nguyên cớ vỡ nát, lưu lại, bản đồ lớn nhỏ, đại khái là phương viên trăm dặm. Tuổi tác của tiểu thiên địa, khó mà nói, có thể ngàn năm, thậm chí càng lâu hơn. Nhưng động phủ đỉnh núi này là từ lúc nào lặng lẽ tiêu vong, lão phu đại khái suy tính ra, ước chừng bảy tám trăm năm, nhưng mà điều này cũng không bình thường, trong lịch sử Bắc Đình quốc, căn bản không có môn phái Tiên gia như vậy."
+Lão cung phụng ngẩng nhìn. Khí tức vừa rồi đã không còn dấu vết.
 
-Hoàn Vân dừng rơi xuống, cách mặt đất hơn trăm trượng, cùng vị lão cung phụng kia ngự phong huyền đình, chậm rãi nói: "Vậy chỉ có một khả năng, tiểu thiên địa này, sau khi môn phái nơi đây bị diệt, từng được thế ngoại cao nhân không biết tên mang theo bên người, một đường di chuyển đến Bắc Đình quốc bên này. Chỉ là không biết vì sao, vị tiên nhân này vẫn chưa thể chiếm cứ bí cảnh này, thuận lợi tu hành, sau đó dựa vào nơi đây, khai sơn lập phái ở bên ngoài, hoặc là gặp tai họa bất ngờ, gánh chịu một món chí bảo nào đó của tiểu thiên địa, không bị người phát hiện, rơi xuống giữa núi sâu Bắc Đình quốc, hoặc là người này sau khi tới Bắc Đình quốc, không đi xa nữa, trốn ở nơi này vụng trộm bế quan, sau đó yên lặng không nghe thấy địa binh giải chuyển thế."
+Vị Long Môn cảnh thành Vân Thượng kinh hãi: “Chẳng lẽ di chỉ này còn có kiếm tiên tọa trấn?!”
 
-Hoàn Vân thở dài, "Sinh tử bất định, đại đạo vô thường."
+Hoàn Vân đã lặng lẽ đi quanh ngọn núi một vòng, lắc đầu: “Chết sạch rồi, không có người sống, cũng không có quỷ vật. Chỉ còn đạo kiếm khí này tồn tại trong tiểu thiên địa.”
 
-Mỗi khi nghĩ đến việc này, hắn đều hỏi lại.
+Sắc mặt hắn ngưng trọng: “Nói thêm cho ngươi một tin nửa tốt nửa xấu. Đây là vùng đất huyền diệu còn lại sau khi một động thiên phúc địa cổ xưa vì cớ gì đó vỡ nát, rộng chừng trăm dặm. Tuổi của tiểu thiên địa khó nói, có thể ngàn năm, thậm chí lâu hơn. Nhưng động phủ trên núi lặng lẽ tiêu vong từ khi nào, lão phu đã tính được đại khái, khoảng bảy tám trăm năm. Chuyện ấy cũng không bình thường, trong lịch sử Bắc Đình quốc căn bản chẳng có môn phái tiên gia nào như vậy.”
 
-Khiến người ta khó tránh khỏi có chút nản lòng thoái chí.
+Hoàn Vân dừng rơi, cách mặt đất hơn trăm trượng, cùng lão cung phụng ngự phong lơ lửng. Hắn chậm rãi nói: “Vậy chỉ còn một khả năng. Sau khi môn phái ở đây bị diệt, tiểu thiên địa từng được một vị cao nhân thế ngoại không rõ tên mang bên người, một đường chuyển tới Bắc Đình quốc. Chỉ không biết vì sao vị tiên nhân ấy không thể chiếm cứ bí cảnh, thuận lợi tu hành, rồi dựa vào nơi đây khai sơn lập phái bên ngoài. Hoặc gặp tai họa bất ngờ, món chí bảo chứa tiểu thiên địa rơi xuống núi sâu Bắc Đình quốc mà chẳng ai phát hiện. Hoặc tới Bắc Đình quốc rồi người ấy không đi xa nữa, trốn trong này bí mật bế quan, sau đó lặng lẽ binh giải chuyển thế.”
 
-Chỉ có điều sau khi Hoàn Vân cảm khái, lập tức giật mình tỉnh lại, nhớ tới câu nói an ủi Thẩm Chấn Trạch của mình ở Vân Thượng Thành, trong nháy mắt liền khôi phục như thường, trong tâm cảnh không còn nửa điểm lo lắng.
+Hoàn Vân thở dài: “Sinh tử bất định, đại đạo vô thường.”
 
-Đạo gia tu hành, tự ngộ nhất lầm người, như thế mới có tam giáo bách gia bên trong, khó vượt qua nhất đạo Khấu Tâm quan.
+Mỗi lần nghĩ tới chuyện ấy, đạo lý ấy, người ta khó tránh nản lòng.
 
-Lão chân nhân Hoàn Vân, thật ra tư chất vô cùng tốt, chỉ là toàn bộ địa tiên đỉnh núi ven đường Bắc Câu Lô Châu, đều cảm thấy Hoàn Vân hắn ở trên đường phù lục, tiền đồ rộng lớn, phù hợp với đại đạo bản thân, mới có phong quang hôm nay, thật ra trong lòng Hoàn Vân biết rõ, cái này gọi là câm điếc ăn vàng liên tục có khổ nói không nên lời. Từng có cao nhân nói rõ, Hoàn Vân hắn nếu là sớm tiến vào tiên gia đầu chữ Tông, sau đó đừng học đồ chơi quỷ quỷ họa phù hoa trong hoa kia, đã sớm là một vị tu sĩ Nguyên Anh có hy vọng tễ thân thượng ngũ cảnh.
+Nhưng vừa cảm khái, hắn đã bừng tỉnh, nhớ lại câu mình từng khuyên Thẩm Chấn Trạch ở thành Vân Thượng. Trong nháy mắt hắn trở lại bình thường, tâm cảnh chẳng còn chút u ám.
 
-Cho nên đối với hai chữ được mất, Hoàn Vân cảm xúc cực sâu.
+Đạo gia tu hành, tự mình làm lỡ mình mới tai hại nhất. Bởi vậy mới có cửa Khấu Tâm khó vượt nhất trong tam giáo bách gia.
 
-Lúc thực sự bất đắc dĩ, chỉ có thể coi như một hồi tu hành đạo tâm để giải ưu sầu.
+Lão chân nhân Hoàn Vân thật ra tư chất cực tốt. Nhưng các Địa Tiên ở những ngọn núi dọc đại độc Bắc Câu Lô châu đều nghĩ con đường phù lục của hắn tiền đồ rộng lớn, hợp với đại đạo bản thân, nên mới có phong quang ngày nay. Thật ra Hoàn Vân tự biết, ấy là người câm ăn hoàng liên, đắng mà chẳng nói được.
 
-Tòa đạo quan trên đỉnh núi kia, thờ phụng một pho tượng thần tư của đạo nhân trung niên, mắt nhìn phía trước, hai tay giang tay xếp chồng đặt ở trước người.
+Từng có cao nhân nói thẳng, nếu hắn sớm vào một tiên gia tông môn, lại đừng học những trò vẽ bùa lòe loẹt kia, đã sớm là tu sĩ Nguyên Anh có hy vọng bước vào thượng ngũ cảnh.
 
-Trên hương án có một lư hương nhỏ bằng đồng thau, còn sót lại nửa lô hương khói tro tàn.
+Bởi vậy, với hai chữ được mất, Hoàn Vân cảm nhận rất sâu.
 
-Ai cũng biết cái lư hương nhỏ sáng có thể soi gương kia, tuyệt đối là một kiện trọng khí của Đạo môn, nhưng không ai đụng vào.
+Thật sự bất đắc dĩ, chỉ đành xem như một lần rèn đạo tâm để giải sầu.
 
-Địch Nguyên Phong nhẹ giọng hỏi: "Tôn đạo nhân, có từng thấy người này trên tập chân dung tượng thần Đạo môn các ngươi không?"
+---
 
-Tôn đạo nhân lắc đầu, "Chưa bao giờ thấy qua."
+Trong đạo quán trên đỉnh núi thờ tượng một đạo nhân trung niên ngồi nhìn thẳng phía trước, hai bàn tay ngửa xếp chồng trước người.
 
-Có câu hắn không dám nói ra miệng, vị đạo nhân trước mắt này, tướng mạo bình thường, cả tòa tượng thần cho người ta cảm giác, đơn giản chính là bình thản không có gì lạ, thậm chí không bằng bốn pho tượng Thiên Vương trong động thất mang đến cho người ta cảm giác rung động.
+Trên hương án có một chiếc lư hương nhỏ bằng đồng vàng, còn nửa lư tro hương.
 
-Trần Bình An chăm chú nhìn tượng thần, tựa như năm đó lão đạo nhân Đông Hải Quan đạo quan kia cùng nhau du lịch hơn ba trăm năm trong dòng chảy thời gian ở Ngẫu Hoa phúc địa, thi thoảng sẽ nhìn thấy lão quan chủ cũng sẽ xuất hiện tư thế ngồi như vậy, chỉ là không thường thấy, có lẽ trong mắt phàm phu tục tử, loại tư thế ngồi này cuối cùng không quái được, thế nhưng Trần Bình An lại có một loại cảm giác mơ hồ không rõ, luôn cảm thấy chân ý tu đạo của lão quan chủ, có chút giống như thần tượng của trung niên đạo sĩ trước mắt.
+Ai cũng biết chiếc lư sáng đến soi gương ấy tuyệt đối là một món trọng khí Đạo môn, nhưng chẳng ai chạm vào.
 
-Trần Bình An nhớ lại bốn chữ trên một bộ điển tịch đạo gia.
+Địch Nguyên Phong khẽ hỏi: “Tôn đạo nhân, trong các tập tranh tượng Đạo môn, lão từng thấy người này chưa?”
 
-Tọa vong ly cảnh.
+Tôn đạo nhân lắc đầu: “Chưa từng.”
 
-Năm tháng dần trôi qua.
+Có một câu lão không dám nói. Đạo nhân trước mắt tướng mạo bình thường, cả pho tượng cũng chỉ đem lại cảm giác nhạt nhòa chẳng có gì lạ, thậm chí không chấn động bằng bốn pho Thiên Vương trong gian động.
 
-Tu sĩ không biết dưới núi nóng lạnh, người đã qua đời, chỉ để lại một tòa tượng thần, mặc cho ngươi khi còn sống đạo pháp tuyệt diệu như thế nào, lại có thể thế nào? Chẳng phải là càng không biết bốn mùa thay đổi, đạo nhân tu đạo, tu đến cuối cùng, rốt cuộc sẽ cao tới đâu?
+Trần Bình An nhìn chăm chú. Năm xưa cùng lão đạo nhân Đông Hải Quan Đạo quán du lịch hơn ba trăm năm giữa dòng thời gian Ngẫu Hoa phúc địa, dường như hắn cũng thỉnh thoảng thấy lão quán chủ ngồi như vậy, chỉ là không thường xuyên.
 
-Trần Bình An thở dài trong lòng, từ trong vật gang tấc lấy ra ba nén sơn thủy hương, sau khi chà xát đốt hương, cắm ở trong lư hương nhỏ.
+Có lẽ trong mắt phàm phu tục tử, tư thế ấy chẳng có gì kỳ lạ. Nhưng Trần Bình An mơ hồ cảm thấy chân ý tu đạo của lão quán chủ có mấy phần giống với pho tượng đạo nhân trung niên trước mắt.
 
-Tôn đạo nhân cảm thấy vị đạo hữu này thật sự là si tâm vọng tưởng, chẳng lẽ còn mong đợi tượng thần đạo nhân còn lưu lại nguyên thần, bởi vì ngươi đốt ba nén hương, liền có cơ duyên giáng lâm?
+Hắn nhớ bốn chữ trong một bộ điển tịch Đạo gia.
 
-Hoàng Sư và Địch Nguyên Phong đều không ngăn cản người này dâng hương.
+Ly cảnh tọa vong.
 
-Trên thực tế, muốn thông qua hành động liều lĩnh của lão giả áo đen để phán đoán lò hương nhỏ kia có thể vì vậy mà kích phát cơ quan hay không, tạo ra một cơ duyên, hoặc là kích phát cơ quan, rước lấy họa sát thân hay không.
+Năm tháng dằng dặc.
 
-Bởi vì lư hương nhỏ là tất nhiên phải mang đi, có người nguyện ý mạo hiểm dò đường là tốt hơn.
+Tu sĩ không biết nóng lạnh dưới núi. Người đã mất chỉ để lại một pho tượng, khi sống đạo pháp cao diệu thế nào, rốt cuộc còn làm được gì? Chẳng phải càng không biết bốn mùa đổi thay? Đạo nhân tu đạo, tu đến cuối cùng, rốt cuộc cao được tới đâu?
 
-Đợi đến khi đốt hết ba nén hương, không còn động tĩnh gì nữa.
+Trần Bình An thầm thở dài, lấy ba nén hương sơn thủy trong Chỉ Xích vật, xoa cho bén lửa rồi cắm vào chiếc lư nhỏ.
 
-Địch Nguyên Phong liền cười nói: "Hoàng lão ca trước tiên lấy được một cái pháp bào, ta có hai món trang sức, như vậy cái lư hương này nên thuộc về ai? Tôn đạo trưởng, Trần lão ca?"
+Tôn đạo nhân thấy vị đạo hữu này thật si tâm vọng tưởng. Chẳng lẽ còn mong đạo nhân trong tượng có nguyên thần lưu lại, chỉ vì ngươi thắp ba nén hương mà ban cơ duyên?
 
-Trần Bình An cười nói: "Ta thì không sao, trong núi nhiều kiến trúc như vậy, mười bảy mười tám cũng chưa đi dạo, sau khi chia nhau làm việc, đủ ta bận rộn. Nếu Tôn đạo trưởng muốn cái lư hương này, cứ việc cầm đi."
+Hoàng Sư và Địch Nguyên Phong đều không ngăn.
 
-Hoàng Sư nói: "Ta có thể dùng món pháp bào kia trao đổi lư hương với Tôn đạo trưởng."
+Thật ra bọn họ còn muốn qua hành động hấp tấp thắp hương của lão giả hắc bào, xem chiếc lư có vì vậy khởi động cơ quan, đem đến cơ duyên, hay kích hoạt cơ quan rước họa sát thân không.
 
-Tôn đạo nhân đau thịt một trận, vẫn gật đầu đáp ứng.
+Bởi lư hương nhất định phải mang đi, có người chịu mạo hiểm dò đường thì càng tốt.
 
-Hoàng sư ném pháp bào kia ra, tự mình chuyển lư hương để vào trong bao.
+Ba nén hương cháy hết, vẫn chẳng có động tĩnh.
 
-Sau đó hắn dọn dẹp sạch sẽ quần áo, bình lọ không đáng tiền trong túi lớn kia, tùy tiện vứt xuống đất.
+Địch Nguyên Phong cười: “Hoàng lão ca được một món pháp bào trước, ta có hai món trang sức. Vậy lư hương này nên thuộc về ai? Tôn đạo trưởng, Trần lão ca?”
 
-Sau đó xé bọc hành lý thành hai nửa, một nửa ném cho Địch Nguyên Phong, xem như vật chứa. Hoàng Sư liếc Tôn đạo nhân ánh mắt lúng túng: "Trên người Tôn đạo trưởng mặc một bộ đạo bào lớn như vậy, cởi không phải là bao sao?"
+Trần Bình An cười nói: “Ta thôi vậy. Trong núi nhiều kiến trúc thế, mười phần còn chưa xem được hai ba, chia nhau hành động rồi đủ cho ta bận. Nếu Tôn đạo trưởng muốn, cứ lấy.”
 
-Tôn đạo nhân bừng tỉnh đại ngộ, lòng tràn đầy vui mừng.
+Hoàng Sư nói: “Ta có thể dùng món pháp bào đổi lư hương với Tôn đạo trưởng.”
 
-Bốn người tiếp theo đều bận rộn trong tiểu đạo quán. Địch Nguyên Phong tìm được một bồ đoàn trắng như tuyết, Tôn đạo nhân kéo xuống mấy tấm vải lụa màu vàng không biết làm bằng chất liệu gì.
+Tôn đạo nhân xót ruột một trận, vẫn gật đầu.
 
-Hoàng sư suy đoán trong tượng thần có giấu huyền cơ, liền dứt khoát một quyền đánh nát cả tượng thần, chỉ là không đoạt được gì.
+Hoàng Sư ném pháp bào qua, tự tới chuyển lư hương vào bọc.
 
-Lúc ấy Trần Bình An đang ngồi ở trên đất, đưa tay vuốt những viên gạch xanh ẩm ướt cực nặng kia, gõ gõ đánh đánh, vừa mới có một phen tính toán, chợt nghe được động tĩnh đó, ngẩng đầu nhìn mắt Hoàng sư, người sau nhếch miệng cười với Trần Bình An.
+Rồi hắn dọn quần áo, chai lọ không đáng tiền trong túi hành lý lớn, tiện tay vứt xuống đất.
 
-Tôn đạo nhân giật mình kêu lên, Địch Nguyên Phong chỉ liếc mắt nhìn những khối thần tượng vỡ vụn đầy đất, đúng là những bức tranh vẽ bằng gỗ không đáng tiền nhất, nên không nhìn nhiều nữa.
+Hắn xé túi làm hai, ném nửa cho Địch Nguyên Phong làm bọc đựng đồ. Liếc Tôn đạo nhân đang lúng túng, Hoàng Sư nói: “Tôn đạo trưởng mặc đạo bào rộng như vậy, cởi ra chẳng phải thành bọc sao?”
 
-Bốn người cùng nhau ra khỏi đạo quán, Tôn đạo nhân vừa bước qua ngưỡng cửa.
+Tôn đạo nhân bừng tỉnh, mừng rỡ trong lòng.
 
-Ở bên hông vị đạo nhân cao gầy này, vang lên một chuỗi tiếng nổ.
+Sau đó bốn người đều bận rộn trong tiểu đạo quán. Địch Nguyên Phong tìm được một tấm bồ đoàn trắng như tuyết. Tôn đạo nhân kéo xuống mấy tấm lụa vàng kim chẳng rõ chất liệu.
 
-Đúng là chuỗi Bảo Tháp Linh kia trực tiếp nổ tung.
+Hoàng Sư đoán trong tượng giấu huyền cơ, dứt khoát đột ngột tung quyền đánh nát cả pho, nhưng không thu được gì.
 
-Tôn đạo nhân k** r*n không thôi, "Thảm cũng thảm! Đích thị là hành động đại bất kính của chúng ta, chọc giận vị đạo môn thần tiên lão gia này."
+Lúc ấy Trần Bình An đang ngồi xổm, đưa tay sờ những viên gạch xanh hơi ẩm rất nặng, gõ chỗ này chỗ kia. Vừa có dự tính, hắn nghe tiếng động, ngẩng nhìn Hoàng Sư. Đối phương nhe răng cười với hắn.
 
-Hoàng sư và Địch Nguyên Phong liếc nhau, không chút do dự, xuống núi đi kiến trúc khác chia nhau tầm bảo.
+Tôn đạo nhân giật nảy. Địch Nguyên Phong chỉ liếc mảnh tượng vỡ đầy đất, thấy đúng là tượng gỗ tô màu rẻ tiền nhất, liền không nhìn nữa.
 
-Tôn đạo nhân do dự một chút, không lựa chọn đi theo Địch Nguyên Phong, mà là đuổi theo Hoàng sư kia, hô to chờ ta, chạy vội qua.
+Bốn người cùng ra khỏi đạo quán. Tôn đạo nhân vừa bước qua ngưỡng cửa, bên hông lão vang lên một chuỗi tiếng nổ.
 
-Rất nhanh tòa tiểu đạo quan sau lưng bốn người ầm vang sụp đổ, bụi đất tung bay, che khuất bầu trời.
+Chuỗi chuông bảo tháp vậy mà trực tiếp nổ tung.
 
-Trần Bình An không sốt ruột xuống núi tầm bảo như ba người kia.
+Tôn đạo nhân kêu than không ngớt: “Thảm rồi, thảm rồi! Nhất định chúng ta đại bất kính, chọc giận vị thần tiên lão gia Đạo môn này.”
 
-Mà là bắt đầu nhặt đồ mà ba người còn lại đều không muốn lấy nhiều.
+Hoàng Sư và Địch Nguyên Phong nhìn nhau, không chút do dự, xuống núi chia ra tìm bảo trong các kiến trúc khác.
 
-Ví dụ như những ngói lưu ly xanh biếc quá mức nặng nề, chiếm địa bàn, còn có những viên gạch xanh ngưng tụ thủy vận nồng đậm.
+Tôn đạo nhân hơi chần chừ, không theo Địch Nguyên Phong mà đuổi Hoàng Sư, hô to đợi ta rồi chạy như bay tới.
 
-Trừ trên người dựa chéo vào cái bọc, Trần Bình An còn có Phương thốn vật cùng Chỉ xích vật.
+Chẳng bao lâu, tiểu đạo quán sau lưng bốn người ầm ầm sụp xuống. Bụi đất tung trời, che kín ánh ngày.
 
-Vừa vặn lúc trước mở cửa hàng ở phố Lão Hòe Xuân Lộ Phố, dọn ra rất nhiều vị trí.
+Trần Bình An không vội xuống núi tìm bảo như ba người kia.
 
-Nhưng mà thứ Trần Bình An thật sự muốn thu thập, lại là tượng thần gỗ vụn bị Hoàng sư một quyền đánh nát kia.
+Hắn bắt đầu nhặt những thứ cả ba đều không muốn lấy nhiều.
 
-Ở trong phế tích đạo quan, động tác lấy đồ của Trần Bình An không nhanh không chậm.
+Ví như ngói lưu ly xanh biếc vừa nặng vừa chiếm chỗ, còn có gạch xanh ngưng tụ thủy vận nồng đậm.
 
-Từng mảnh ngói lưu ly tràn đầy màu sắc được dẫn đầu thu vào trong vật gang tấc, cùng lúc đó, không ngừng ra tay nhẹ nhàng đem phế tích đạo quán tạp vật ném đến trên quảng trường, cẩn thận lựa chọn những tượng thần gỗ vụn, vừa tìm kiếm gỗ vụn, vừa chuyên chở ngói lưu ly. Tương truyền tòa Lưu Ly các kia của Bạch Đế thành có ngói xanh ngọc bích chế tạo bí, tầng tầng lớp lớp phủ lên trên nóc nhà, có mỹ dự "Lưu Ly các thượng ngói vạn mảnh, chiếu khắp biển mây như sóng xanh biếc".
+Ngoài bọc đeo chéo trên người, hắn còn có Phương Thốn vật và Chỉ Xích vật.
 
-Trần Bình An sau khi thu nạp toàn bộ tượng thần gỗ vụn, còn đựng một trăm hai mươi mảnh ngói lưu ly, tâm tư bắt đầu có chút cổ quái.
+Vừa khéo trước đó mở cửa hiệu Tỳ Phù ở phố Lão Hòe, Xuân Lộ phố, đã dọn ra được không ít chỗ trống.
 
-Vừa ngẩng đầu nhìn, coi như phế tích đạo quán bị chính mình dời đi một vị trí, từ di chỉ ban đầu dọn đi tới trên quảng trường bạch ngọc.
+Nhưng thứ Trần Bình An thật sự muốn thu gom lại là những mảnh gỗ của pho tượng bị Hoàng Sư đánh nát.
 
-Còn nữa những viên gạch ẩn chứa từng đợt từng đợt thủy vận, mà không phải linh khí tầm thường, khiến cho Trần Bình An lâm vào một cái tình cảnh lưỡng nan.
+Giữa phế tích đạo quán, hắn lấy đồ thong thả, không nhanh không chậm.
 
-Nếu muốn thu thập xong ngói lưu ly trên nóc đạo quan cùng gạch xanh trên mặt đất, chỉ sợ Trần Bình An cho dù có bỏ thêm vài món Chỉ Xích Vật cũng không làm được.
+Từng viên ngói lưu ly ánh màu lưu chuyển được cất vào Chỉ Xích vật trước. Đồng thời hắn không ngừng nhẹ tay ném tạp vật ra quảng trường, cẩn thận nhặt từng mảnh gỗ tượng thần, vừa tìm gỗ vụn vừa thu ngói.
 
-Nhưng đối với điều này, Trần Bình An không có nửa điểm rối rắm.
+Tương truyền Lưu Ly các ở thành Bạch Đế có ngói lưu ly xanh biếc chế theo bí pháp, lợp tầng tầng trên mái, được ca ngợi: “Lưu Ly các thượng ngói muôn mảnh, soi khắp biển mây tựa sóng xanh.”
 
-Mà trong vật gang tấc có đặt một ít đồ vật cũ không đáng tiền.
+Gom đủ gỗ vụn tượng thần, lại cất một trăm hai mươi viên ngói, Trần Bình An bắt đầu thấy lòng hơi kỳ lạ.
 
-So với những viên gạch chứa tinh hoa thủy vận, hoặc là bảo vật cơ duyên khác đi tới những lầu các điện kia, có thể nói là một trời một vực.
+Thứ nhất, ngẩng nhìn lên, cứ như mình đã chuyển phế tích đạo quán sang chỗ khác, từ nền cũ ra quảng trường bạch ngọc.
 
-Trần Bình An ngồi xổm xuống tại chỗ, hai tay lồng trong tay áo.
+Thứ hai, những viên gạch xanh chứa từng tia thủy vận chứ chẳng phải linh khí bình thường ấy khiến hắn lâm vào thế khó.
 
-Trần Bình An ngẩng đầu lên, đưa tay sờ sờ cằm, đứng lên, lại tận lực chuyển nhiều gạch xanh ngói lưu ly.
+Muốn thu hết ngói lưu ly trên mái và gạch xanh dưới đất, chỉ e có thêm mấy món Chỉ Xích vật cũng chẳng làm nổi.
 
-Vật cũ trong Chỉ Xích Vật, một món không mất.
+Nhưng chuyện ấy không khiến hắn phân vân.
 
-Cuối cùng Trần Bình An lại thắp ba nén hương, cắm ở giữa khe hở hai viên gạch của di chỉ đạo quán.
+Điều khiến hắn do dự là trong Chỉ Xích vật có vài món đồ cũ chẳng đáng một đồng.
 
-Đợi đến sau khi thiêu đốt hầu như không còn, nhẹ nhàng thổi một hơi, thổi tan một chút tro tàn.
+So với gạch xanh chứa tinh hoa thủy vận, hoặc bảo vật cơ duyên có thể tìm được trong những điện các lầu đài tiếp theo, quả là một trời một vực.
 
-Trần Bình An đào gạch xanh, đều là xuống tay chỉnh tề, không có một khối đông một khối tây một khối, lại xóa đi dấu vết đào bới trên mặt đất.
+Trần Bình An ngồi xổm tại chỗ, hai tay lồng trong tay áo.
 
-Cuối cùng ngay cả Phương thốn vật cũng không buông tha, cùng với Chỉ xích vật đựng hơn ba mươi khối gạch xanh.
+Hắn ngẩng đầu, đưa tay xoa râu lún phún dưới cằm rồi đứng dậy, lại cố chuyển thêm một ít gạch xanh ngói lưu ly.
 
-Nghĩ nghĩ, Trần Bình An đeo chéo túi của mình, lại đựng một viên gạch xanh cùng hai viên ngói lưu ly, nặng trịch, làm người ta cảm thấy rất kiên định.
+Đồ cũ trong Chỉ Xích vật, không bỏ món nào.
 
-Vì thế Trần Bình An lại nhét thêm hai viên gạch vào trong bao.
+Cuối cùng, Trần Bình An lại thắp ba nén hương, cắm vào khe giữa hai viên gạch trên nền đạo quán.
 
-Lúc này mới xuống núi.
+Đợi hương cháy hết, hắn khẽ thổi, làm tan chút tro tàn.
 
-Đi xem vị Tôn đạo hữu tâm địa mềm yếu nhất kia.
+Gạch xanh hắn đào luôn thành hàng ngay ngắn, chẳng lấy chỗ này một viên, chỗ kia một viên, rồi còn xóa dấu đào trên đất.
 
-Nếu không có gì bất ngờ xảy ra, đợi đến khi vị Tôn đạo hữu này tìm được một kiện trọng bảo khiến Hoàng sư cũng phải thèm nhỏ dãi, cũng chính là thời khắc Tôn đạo hữu thân tử đạo tiêu.
+Cuối cùng, ngay Phương Thốn vật cũng không bỏ qua, cùng Chỉ Xích vật chứa hơn ba mươi viên gạch xanh.
 
-Mà vị Tôn đạo hữu này trước khi hô to với Hoàng sư chờ ta, thật ra lấy tiếng lòng nói cho Trần Bình An một câu: Ngàn vạn lần cẩn thận Tần Cự Nguyên kia, đạo hữu tốt nhất đừng xuất hiện nữa, nhân cơ hội này, nhặt được bảo vật liền chạy, càng xa càng tốt, mạng so với tiền đáng giá hơn!
+Nghĩ một lát, hắn lại cho vào bọc đeo chéo một viên gạch và hai viên ngói lưu ly. Bọc nặng trĩu, khiến lòng người rất vững.
 
-Trần Bình An cảm thấy chỉ bằng lời nói này, nên để cho Tôn đạo hữu bớt đi một cái ngoài ý muốn.
+Thế là Trần Bình An nhét thêm hai viên gạch nữa.
 
-Lần này đi thăm núi tầm bảo, được bảo đã vượt xa tưởng tượng của Trần Bình An, loại nằm mơ cũng có thể cười tỉnh.
+Lúc ấy mới xuống núi.
 
-Cho nên tiếp theo, chính là một trận du lịch sơn thủy.
+Đi xem vị Tôn đạo hữu mềm lòng nhất kia.
 
-Nếu như lại ngẫu nhiên có được thì càng tốt, lại không có chút thu hoạch nào, cũng không kém.
+Nếu không có gì bất ngờ, lúc Tôn đạo hữu tìm được một món trọng bảo khiến Hoàng Sư cũng thèm thuồng, chính là lúc lão thân tử đạo tiêu.
 
-Chẳng qua chuỗi bảo tháp chuông của Tôn đạo nhân vô duyên vô cớ vỡ nát nổ tung, rất kỳ quái.
+Trước khi hô Hoàng Sư đợi mình, vị Tôn đạo hữu ấy thật ra đã truyền tiếng lòng cho Trần Bình An: Nhất định phải cẩn thận Tần Cự Nguyên. Đạo hữu tốt nhất đừng xuất hiện nữa, nhân cơ hội nhặt được bảo vật thì chạy, càng xa càng tốt, mạng đáng giá hơn tiền!
 
-Chỉ là so với động phủ này cổ quái khắp nơi, hình như lại không thấy lạ nữa.
+Trần Bình An thấy chỉ bằng những lời ấy, cũng nên để Tôn đạo hữu bớt đi một lần bất trắc.
 
-Cho dù Trần Bình An vừa rồi lại đốt một tấm Dương Khí Thiêu Đăng Phù, vẫn là dấu hiệu thiên địa thanh minh, không hề ô uế sát khí.
+Chuyến thăm núi tìm bảo này, thu hoạch phong phú đã vượt xa tưởng tượng của hắn, đến nằm mơ cũng có thể cười tỉnh.
 
-Trần Bình An không có cách nào.
+Bởi vậy tiếp theo chỉ là một chuyến du lịch sơn thủy.
 
-Đơn giản là binh tới tướng chắn, nước tới đất ngăn.
+Nếu tình cờ lại có thu hoạch thì càng tốt, không có thêm chút gì cũng chẳng tệ.
 
-Rất nhiều thiên tai nhân họa, kỳ thật cũng chỉ là nhân họa.
+Có điều chuỗi chuông bảo tháp của Tôn đạo nhân vô duyên vô cớ nổ vụn, rất kỳ lạ.
 
-Trần Bình An vòng qua phế tích đạo quan chất thành núi trên quảng trường bạch ngọc, Trần Bình An lúc trước lật xem nhặt, cẩn thận tỉ mỉ, thủ pháp xảo diệu, sẽ không bỏ lỡ cái gì.
+Chỉ là giữa một động phủ chỗ nào cũng kỳ lạ thế này, dường như chuyện ấy lại chẳng đáng ngạc nhiên.
 
-Nếu bỏ lỡ, càng không cần suy nghĩ nhiều.
+Ngay cả khi vừa rồi Trần Bình An thắp thêm một tấm Dương Khí Thiêu Đăng Phù, vẫn chỉ thấy thiên địa thanh minh, không có chút ô uế sát khí.
 
-Trần Bình An đứng ở đỉnh bậc thang, đưa mắt nhìn lại.
+Hắn cũng hết cách.
 
-Rốt cuộc đã có nhóm người thứ hai.
+Chẳng qua binh đến tướng ngăn, nước đến đất chặn.
 
-So với đám người đầu tiên lén lén lút lút, đám người này nghênh ngang hơn rất nhiều.
+Rất nhiều thiên tai nhân họa, thật ra chỉ là nhân họa.
 
-Là tiểu Hầu gia của Bắc Đình quốc Chiêm Tình và nữ tu Bạch Bích của Thủy Long tông, người của Nhân tộc Phù Lục quốc.
+Trần Bình An vòng qua đống phế tích đạo quán chất như núi trên quảng trường bạch ngọc. Vừa rồi hắn lật tìm, nhặt nhạnh rất tỉ mỉ, tay nghề khéo léo, sẽ chẳng bỏ sót gì.
 
-Trần Bình An dán một tấm Đà Bi Phù lên người mình, một đường đi xuống, lướt như chim bay.
+Nếu thật sự bỏ sót, càng không cần nghĩ nhiều.
+
+Hắn đứng trên đầu bậc thang, phóng mắt nhìn.
+
+Rốt cuộc nhóm người thứ hai đã tới.
+
+So với nhóm đầu lén lút, đám này nghênh ngang hơn nhiều.
+
+Chính là tiểu hầu gia Bắc Đình quốc Chiêm Tình, cùng nữ tu đích truyền Thủy Long tông Bạch Bích, người Phù Cừ quốc.
+
+Trần Bình An dán một tấm Đà Bi Phù lên người, lướt thẳng xuống núi, nhanh như chim bay.

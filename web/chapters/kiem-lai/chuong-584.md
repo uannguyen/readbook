@@ -1,24 +1,24 @@
 # Chương 584: Giang hồ uống rượu đắc ý nhất
 
-Tùy Cảnh Rừng có chút không thích ứng với tình huống.
+Tùy Cảnh Trừng có chút không thích ứng với tình huống.
 
 Trong ấn tượng của ta về Vương Độn, lão tiền bối, ông là người đầu tiên trong Ngũ Lăng quốc về võ học, được xưng là đại tông sư có thể đánh bại mọi đối thủ trong giang hồ Ngũ Lăng. Triều đình và dân gian đều nể phục, từ những kẻ vũ phu nơi giang hồ cho đến văn nhân sĩ phu, hay những người buôn bán nhỏ, tất cả đều tôn vinh Vương Độn như một lão giả áo xanh với khí độ nho nhã. Ông không những tài năng ấn tượng trong cầm kỳ thư họa, mà còn sở hữu đủ bản lĩnh, đã từng giữ yên biên cảnh, đẩy lùi nhóm kỵ binh của địch quốc, nhờ đó giúp Ngũ Lăng quốc có được thời gian chiến thắng.
 
-Trần Bình An ngồi xuống, Tùy Cảnh Rừng cũng theo đó ngồi xuống.
+Trần Bình An ngồi xuống, Tùy Cảnh Trừng cũng theo đó ngồi xuống.
 
 Vương Độn đứng dậy, đi sang quầy, ôm ba bầu rượu, mỗi người một bình, hào hứng nói: "Ta mời khách."
 
-Đến lúc nhấc bầu rượu ra cho Tùy Cảnh Rừng, ông thì thầm: "Lão thị lang Tùy Tân Vũ có một cô con gái đẹp, phải không? Hình như cô ấy rất xinh đẹp. Tứ đại mỹ nhân nổi danh mỗi người mỗi vẻ, không có ai hơn ai, thật sự làm cho nữ tử Ngũ Lăng quốc thêm phần tự hào. So với cái gọi là lão kỹ năng cuối đời của ta, càng đáng giá hơn tấm biển hoàng đế. Nhưng ta cũng phải nói một câu công đạo, ngươi tìm vị kiếm tiên này, có thể là thầy hay chồng, đều có chút hẹp hòi khi chỉ cho ngươi một chén rượu."
+Đến lúc nhấc bầu rượu ra cho Tùy Cảnh Trừng, ông thì thầm: "Lão thị lang Tùy Tân Vũ có một cô con gái đẹp, phải không? Hình như cô ấy rất xinh đẹp. Tứ đại mỹ nhân nổi danh mỗi người mỗi vẻ, không có ai hơn ai, thật sự làm cho nữ tử Ngũ Lăng quốc thêm phần tự hào. So với cái gọi là lão kỹ năng cuối đời của ta, càng đáng giá hơn tấm biển hoàng đế. Nhưng ta cũng phải nói một câu công đạo, ngươi tìm vị kiếm tiên này, có thể là thầy hay chồng, đều có chút hẹp hòi khi chỉ cho ngươi một chén rượu."
 
-Tùy Cảnh Rừng liếc nhìn Trần Bình An ở bàn đối diện, tựa như phối hợp vạch trần bùn phong, rót rượu vào bát tô. Anh ta cười nói với lão hành: "Vương lão trang chủ..."
+Tùy Cảnh Trừng liếc nhìn Trần Bình An ở bàn đối diện, tựa như phối hợp vạch trần bùn phong, rót rượu vào bát tô. Anh ta cười nói với lão hành: "Vương lão trang chủ..."
 
 Vương Độn nghe vậy không khỏi cảm thấy không hài lòng, khoát tay: "Không có già đâu! Người già nhưng tâm không già. Gọi ta là Vương trang chủ là được rồi, nếu không thì cứ gọi thẳng tên ta là Vương Độn cũng không sao."
 
-Tùy Cảnh Rừng gật đầu: "Vương trang chủ, hôm nay vị đao khách Tiêu Thúc Dạ của Thanh Từ quốc đã bị giết."
+Tùy Cảnh Trừng gật đầu: "Vương trang chủ, hôm nay vị đao khách Tiêu Thúc Dạ của Thanh Từ quốc đã bị giết."
 
 Vương Độn thở dài khi nghe điều này, nhấp một ngụm rượu và nói: "Có lẽ ta cũng không còn là nhân vật lớn. Chỉ một lão gia hỏa nào đó từ Đế Triều mà ra, cũng có thể cao tay hơn ta."
 
-Tùy Cảnh Rừng cảm thấy mình không còn gì để nói.
+Tùy Cảnh Trừng cảm thấy mình không còn gì để nói.
 
 Vương Độn cười ha hả, quay về phía Trần Bình An, người trẻ tuổi mặc áo thanh sam, nổi bật trong một số báo chí gần đây về sự tích của họ Trần, bắt nguồn từ một chuyến đi trên thuyền ở Xuân Lộ phố, sau đó đánh gục một kẻ vũ phu từ Thiết Đồng phủ. Nghe đồn rằng sau đó, Liễu Chất Thanh, một kiếm tiên từ Kim Ô cung, đã đến bên cạnh và cùng nhau uống trà, trở thành bằng hữu. Hôm nay, anh lại đang mang đầu lâu Tiêu Thúc Dạ vào Ngũ Lăng quốc.
 
@@ -32,7 +32,7 @@ Trần Bình An đáp: "Ước chừng ba trăm tuổi."
 
 Vương Độn buông bát rượu, xoa ngực: "Điều này thật dễ chịu. Nếu không thì ta vẫn có cảm giác mình sống tới tuổi này như một con chó."
 
-Tùy Cảnh Rừng mỉm cười.
+Tùy Cảnh Trừng mỉm cười.
 
 Tuy nhiên, trong ấn tượng của mình về Vương Độn lão tiền bối, ông giống như một người bình thường, ngồi uống rượu mà không quá khác biệt với Sái Tảo sơn trang lão trang chủ, cảm giác thật dễ chịu.
 
@@ -58,7 +58,7 @@ Vương Độn hơi ngạc nhiên: "Ta thật sự muốn làm như vậy, khôn
 
 Cả hai gần như đồng thời tiến đến cái bàn lớn.
 
-Tùy Cảnh Rừng muốn đứng dậy rời quán rượu, nhưng Trần Bình An ra hiệu bảo nàng không cần đứng lên.
+Tùy Cảnh Trừng muốn đứng dậy rời quán rượu, nhưng Trần Bình An ra hiệu bảo nàng không cần đứng lên.
 
 Vương Độn dừng lại, ôm quyền nói: "Ngũ Lăng quốc, Sái Tảo sơn trang, Vương Độn, quyền pháp tiểu thành, mong được chỉ giáo."
 
@@ -86,11 +86,11 @@ Vương Độn lão tiền bối không hổ danh là người thứ nhất củ
 
 Tuy rằng vị kiếm tiên kia chưa tung ra một chiêu phi kiếm nào, nhưng chỉ với vậy thôi, có thể thấy rằng lão tiền bối Vương Độn đã đặt cả tính mạng và danh dự vào trận đấu này. Ông ta đánh bạc bằng cả cuộc đời, chưa từng thua trận, và đã mang lại một uy tín lớn cho tất cả những người trong giang hồ của Ngũ Lăng quốc! Lão tiền bối Vương Độn, thật sự là niềm tự hào của chúng ta ở Ngũ Lăng quốc!
 
-Những người chỉ dám đứng xa xem cuộc chiến của các hảo hán trong giang hồ, lại chưa từng một lần chính thức trở thành võ học tông sư, khoảng cách với tửu quán cũng khá xa, tự nhiên còn không bằng Tùy Cảnh Rừng, người đã nhìn thấy mọi thứ rõ ràng.
+Những người chỉ dám đứng xa xem cuộc chiến của các hảo hán trong giang hồ, lại chưa từng một lần chính thức trở thành võ học tông sư, khoảng cách với tửu quán cũng khá xa, tự nhiên còn không bằng Tùy Cảnh Trừng, người đã nhìn thấy mọi thứ rõ ràng.
 
 Chẳng hạn như nàng đã chứng kiến ý định của tiền bối muốn kết thúc trận đấu này, khi tỷ thí, một lần ra tay bỗng nhanh hơn, tiến lên một bước, cổ tay nhéo lại, đã đánh Vương Độn một quyền, một chưởng tiếp tục hướng tới trước, có khả năng sẽ vỗ vào mặt Vương Độn. Lẽ ra, chưởng đó sẽ đẩy Vương Độn bay ra khỏi cái bàn lớn trước mặt, nhưng không ngờ Vương Độn đã nhanh chóng liếc nhìn, lão tiền bối nhẹ nhàng gật đầu. Quyền của Vương Độn, vốn hơi chậm hơn một nhịp, bỗng chốc ngưng lại và đụng vào một chưởng của tiền bối gần như đồng thời. Cả hai người cùng lùi lại hai bước, tâm ý tương thông, đều dừng lại trước mặt bàn.
 
-Tùy Cảnh Rừng thấy Vương Độn bắt đầu nháy mắt, và người thanh sam kia cũng bắt đầu làm vậy. Nàng không hiểu tại sao, cảm thấy như là đang mặc cả. Tuy nhiên, dù cò kè mặc cả, hai người vẫn ra đòn liên tục, càng lúc càng nhanh, lực lượng ngang nhau, không ai chiếm được ưu thế. Với người ngoài, đây quả thực là một trận chiến không phân biệt cao thấp giữa các tông sư.
+Tùy Cảnh Trừng thấy Vương Độn bắt đầu nháy mắt, và người thanh sam kia cũng bắt đầu làm vậy. Nàng không hiểu tại sao, cảm thấy như là đang mặc cả. Tuy nhiên, dù cò kè mặc cả, hai người vẫn ra đòn liên tục, càng lúc càng nhanh, lực lượng ngang nhau, không ai chiếm được ưu thế. Với người ngoài, đây quả thực là một trận chiến không phân biệt cao thấp giữa các tông sư.
 
 Cuối cùng, hai người dường như đã thỏa thuận về "giá cả", một người đấm vào ngực đối phương, chân đạp vào mặt bàn để đứng lại, rồi mỗi người ôm quyền.
 
@@ -100,7 +100,7 @@ Vương Độn cười to nói: "Thật không ngờ một vị kiếm tiên l�
 
 Đối phương cất cao giọng nói: "Ngươi Vương Độn quyền ý quá nặng, đánh bóng càng không tỳ vết. Lâu thì mười năm, ngắn thì năm năm, ta còn muốn đến Sái Tảo sơn trang cùng ngươi Vương Độn thảo luận về quyền pháp."
 
-Tùy Cảnh Rừng vuốt trán, cúi đầu uống rượu, cảm thấy không thể nhìn thẳng được. Đối với hai vị này, nàng cảm thấy như giang hồ đang hòa quyện với rượu, không còn ranh giới rõ ràng.
+Tùy Cảnh Trừng vuốt trán, cúi đầu uống rượu, cảm thấy không thể nhìn thẳng được. Đối với hai vị này, nàng cảm thấy như giang hồ đang hòa quyện với rượu, không còn ranh giới rõ ràng.
 
 Nếu là Hồ Tân Phong hay Tiêu Thúc Dạ mà hành xử như vậy, nàng cũng không có gì để nói, nhưng mà sự vô liêm sỉ của Vương Độn lão tiền bối làm nàng không khỏi cảm thán, đời này chắc chắn không muốn dính dáng đến giang hồ diễn nghĩa tiểu thuyết.
 
@@ -184,7 +184,7 @@ Người trong sơn trang thường không dám mở miệng đi cùng Vương T
 
 Vương Độn cùng hai người khác không có ở quán rượu, mà ba người đứng cạnh cửa khách sạn.
 
-Không có lời khách sáo nào, Trần Bình An và Tùy Cảnh Rừng nhanh chóng lên ngựa và giục ngựa chạy đi xa.
+Không có lời khách sáo nào, Trần Bình An và Tùy Cảnh Trừng nhanh chóng lên ngựa và giục ngựa chạy đi xa.
 
 Hai vị thiếu niên đeo kiếm, tay nắm tay, phấn khởi nói: "Không hổ là kiếm tiên trong truyền thuyết!"
 
@@ -332,7 +332,7 @@ Dẫu sao, chưa bao giờ có đại chiến tiêu tốn hết sức lực qu�
 
 Hơn mười năm trước, một vị thanh kiện quân quý đã chủ động yêu cầu tiến về phương Nam, lập tức sẵn sàng ra trận, tạo ra kỵ quân, nhiều lần gây rối. Ngũ Lăng quốc khó lòng chỉ ra một nhân tài giỏi giang về binh pháp, trước đây không lâu đã đảm nhận phòng tuyến phía Bắc. Do đó, trong vài năm gần đây thường xuyên xảy ra các cuộc chiến nhỏ, nếu không nhờ Vương Độn đúng lúc có mặt tại biên giới, ngăn chặn quân Kinh Nam tấn công, có thể rằng Ngũ Lăng quốc sẽ phải mất đi một vài thành trì quan trọng, dẫu sau thì họ cũng đã lấy lại được, nhưng vào những thời điểm đó sẽ có nhiều binh lính và tướng quân thương vong trên chiến trường.
 
-Trần Bình An cùng Tùy Cảnh Rừng dẫn theo hai kỵ sĩ, tại một địa điểm không có trọng binh gác rào thuộc Ngũ Lăng quốc, trình quan điệp, họ đi qua vùng biên giới. Sau đó, không theo con đường quan đạo của Kinh Nam quốc mà vẫn tiếp tục theo lộ tuyến đã được Trần Bình An quy hoạch, với ý định tìm kiếm một ít đường mòn hẻo lánh qua núi, qua sông, khám phá những điều bí ẩn.
+Trần Bình An cùng Tùy Cảnh Trừng dẫn theo hai kỵ sĩ, tại một địa điểm không có trọng binh gác rào thuộc Ngũ Lăng quốc, trình quan điệp, họ đi qua vùng biên giới. Sau đó, không theo con đường quan đạo của Kinh Nam quốc mà vẫn tiếp tục theo lộ tuyến đã được Trần Bình An quy hoạch, với ý định tìm kiếm một ít đường mòn hẻo lánh qua núi, qua sông, khám phá những điều bí ẩn.
 
 Không lâu sau khi nhập cảnh, họ đã chứng kiến một trận giao tranh giữa hai nhóm trinh sát tại một khu vực yên tĩnh.
 
@@ -340,17 +340,17 @@ Không lâu sau khi nhập cảnh, họ đã chứng kiến một trận giao tr
 
 Nhóm kỵ sĩ từ phía nam là của Ngũ Lăng quốc, còn nhóm phía bắc là của Kinh Nam quốc.
 
-Tùy Cảnh Rừng nghi ngờ nói: "Trước giờ, Kinh Nam quốc luôn chủ động xuôi nam, tấn công vào cửa quan, sao giờ chúng ta lại thấy trinh sát của họ tiến vào khu vực của đối phương nhỉ?"
+Tùy Cảnh Trừng nghi ngờ nói: "Trước giờ, Kinh Nam quốc luôn chủ động xuôi nam, tấn công vào cửa quan, sao giờ chúng ta lại thấy trinh sát của họ tiến vào khu vực của đối phương nhỉ?"
 
 Trần Bình An đáp: "Điều này cho thấy vị tướng trẻ danh chấn triều đình và dân gian của Ngũ Lăng quốc không phải là một nhân vật đơn giản. Chỉ trong chưa đầy mười năm, y đã thăng tiến lên vị trí đại tướng tam phẩm của một quốc gia vùng biên giới, chắc chắn có điều gì đặc biệt."
 
-Hai kỵ sĩ nhanh chóng rời khỏi con đường kính đạo, dừng lại giữa rừng rậm, buộc ngựa lại. Trần Bình An và Tùy Cảnh Rừng đứng trên các ngọn cây, quan sát chiến trường.
+Hai kỵ sĩ nhanh chóng rời khỏi con đường kính đạo, dừng lại giữa rừng rậm, buộc ngựa lại. Trần Bình An và Tùy Cảnh Trừng đứng trên các ngọn cây, quan sát chiến trường.
 
 Kinh Nam quốc từ lâu đã nổi tiếng với lực lượng thủy quân mạnh mẽ, gần sát với Đại Triện vương triều và Đại Quan vương triều phía nam, nhưng có vẻ như họ chưa bao giờ có kỵ quân chính quy tham gia chiến trường. Trong hơn mười năm qua, chính vị tướng ngoại thích liên kết với Hậu Lương quốc phía tây mới bắt đầu xây dựng một đội kỵ quân khoảng bốn nghìn người. Tuy nhiên, trong một lần xuất quân, họ đã gặp phải Vương Độn, một bậc thầy võ học của Ngũ Lăng quốc, và đã thất bại thê thảm khi đối mặt.
 
 Ngược lại, kỵ quân của Ngũ Lăng quốc, mặc dù không xuất sắc trong bản đồ quân sự, thậm chí có thể nói là yếu kém, nhưng khi đối mặt với lực lượng thủy quân của Kinh Nam quốc, họ lại nắm giữ ưu thế.
 
-Vì vậy, Tùy Cảnh Rừng, là người Ngũ Lăng quốc, cảm thấy rằng sau khi hai tốp trinh sát gặp nhau, kết quả chắc chắn sẽ nghiêng về phía mình.
+Vì vậy, Tùy Cảnh Trừng, là người Ngũ Lăng quốc, cảm thấy rằng sau khi hai tốp trinh sát gặp nhau, kết quả chắc chắn sẽ nghiêng về phía mình.
 
 Tuy nhiên, tình hình chiến trường lại nghiêng về một bên. Khi hai nhóm trinh sát gặp nhau, không có bất kỳ vòng tránh nào, họ đều lao vào chiến đấu mà không do dự.
 
@@ -410,45 +410,45 @@ Tiếng hoan hô vang lên ở bốn phía.
 
 Cuối cùng, những trinh sát dũng mãnh của Kinh Nam Quốc gào thét ra đi.
 
-Trong rừng, Tùy Cảnh Rừng sắc mặt tái nhợt, từ đầu đến cuối, nàng không nói một lời nào.
+Trong rừng, Tùy Cảnh Trừng sắc mặt tái nhợt, từ đầu đến cuối, nàng không nói một lời nào.
 
 Trần Bình An hỏi: "Tại sao ngươi không mở miệng để ta xuất thủ cứu người?"
 
-Tùy Cảnh Rừng chỉ lắc đầu.
+Tùy Cảnh Trừng chỉ lắc đầu.
 
 Hai người dẫn ngựa đi ra khỏi rừng rậm, Trần Bình An leo lên ngựa, quay đầu nhìn về con đường phía sau, thấy võ sĩ trẻ tuổi xuất hiện ở xa, ngừng ngựa và không tiến thêm. Sau một hồi, người đó nở một nụ cười nhẹ nhàng, gật đầu về phía người mặc thanh sam rồi quay đầu ngựa, trầm mặc rời đi.
 
-Tùy Cảnh Rừng hỏi: "Có phải là người giang hồ ẩn thân trong quân không?"
+Tùy Cảnh Trừng hỏi: "Có phải là người giang hồ ẩn thân trong quân không?"
 
 Trần Bình An nhẹ nhàng thúc ngựa, một người một ngựa từ từ tiến về phía trước, lắc đầu nói: "Mới khó khăn lắm mới đạt tới tam cảnh, hẳn là hắn đã trải qua trận chiến trên sa trường để tích lũy được cảnh giới, rất xuất sắc."
 
-Tùy Cảnh Rừng có chút nghi hoặc.
+Tùy Cảnh Trừng có chút nghi hoặc.
 
 Bởi vì đối với một kẻ tùy tiện giết chóc như Tiêu Thúc Dạ, một người chỉ là vũ phu tam cảnh biên quân thì làm sao có thể được gọi là "rất xuất sắc"?
 
 Trần Bình An nói: "Dưới đời này, hầu hết những người đứng trên đỉnh cao đều từng bước một đi đến vị trí đó."
 
-Hai kỵ sánh vai bên nhau, vì không vội vàng chạy đi nên móng ngựa hạ thấp, không gấp gáp. Tùy Cảnh Rừng hiếu kỳ hỏi: "Còn người kia thì sao?"
+Hai kỵ sánh vai bên nhau, vì không vội vàng chạy đi nên móng ngựa hạ thấp, không gấp gáp. Tùy Cảnh Trừng hiếu kỳ hỏi: "Còn người kia thì sao?"
 
 Trần Bình An cười đáp: "Mệnh tốt."
 
-Tùy Cảnh Rừng không phản bác được.
+Tùy Cảnh Trừng không phản bác được.
 
 Trần Bình An nói: "Có nhiều thứ, khi ngươi sinh ra không có, có thể ở đời này cũng sẽ không có. Đó là điều không thể tránh khỏi, phải chấp nhận số phận."
 
 Một lát sau, Trần Bình An mỉm cười nói: "Nhưng không sao cả, vẫn còn rất nhiều thứ, dựa vào chính mình cũng có thể giành được. Nếu như chúng ta luôn chăm chăm vào những thứ đã định sẵn không thể có, thì thực sự chỉ còn hai bàn tay trắng."
 
-Tùy Cảnh Rừng cảm thấy có lý.
+Tùy Cảnh Trừng cảm thấy có lý.
 
 Tuy nhiên, khi nghĩ đến hoàn cảnh sống của mình, nàng cũng có chút chột dạ.
 
 Trần Bình An mỉm cười nói: "Những gì được sinh ra đã có, không phải là điều tốt hơn sao? Cần gì phải xấu hổ?"
 
-Tùy Cảnh Rừng dường như cảm thấy đã thu được lợi ích, trầm ngâm một lát, quay đầu cười nói: "Tiền bối, ngươi có thể cho ta vài lời tâm huyết được không?"
+Tùy Cảnh Trừng dường như cảm thấy đã thu được lợi ích, trầm ngâm một lát, quay đầu cười nói: "Tiền bối, ngươi có thể cho ta vài lời tâm huyết được không?"
 
 Trần Bình An trả lời: "Ngậm miệng."
 
-Khi mũ có vải che mặt được hạ xuống, Tùy Cảnh Rừng ánh mắt u oán, nhếch môi.
+Khi mũ có vải che mặt được hạ xuống, Tùy Cảnh Trừng ánh mắt u oán, nhếch môi.
 
 Hai kỵ tiếp tục bắc du.
 
@@ -458,33 +458,33 @@ Còn có một nhóm trẻ em vui vẻ đuổi theo hai kỵ binh, tạo ra ti�
 
 Tại một ngọn núi lớn, họ tình cờ gặp một người tu đạo, người này đang cưỡi trên gió, lơ lửng bên một gốc cổ thụ, mở ra giấy Tuyên và từ từ vẽ tranh. Khi thấy họ, người đó chỉ mỉm cười gật đầu, sau đó tiếp tục phối hợp với việc vẽ tranh các cây tùng, cuối cùng lặng lẽ rời đi trong màn đêm.
 
-Tùy Cảnh Rừng nhìn về phía xa, nơi người tu sĩ đã đi xa.
+Tùy Cảnh Trừng nhìn về phía xa, nơi người tu sĩ đã đi xa.
 
 Trần Bình An ngay lập tức bắt đầu tẩu thung.
 
-Tùy Cảnh Rừng thu hồi ánh mắt, cẩn thận hỏi: "Tiền bối, nếu ta tu thành tiên pháp, khi gặp những trận chém giết như này, có nên nghĩ đến việc cứu người không?"
+Tùy Cảnh Trừng thu hồi ánh mắt, cẩn thận hỏi: "Tiền bối, nếu ta tu thành tiên pháp, khi gặp những trận chém giết như này, có nên nghĩ đến việc cứu người không?"
 
 Trần Bình An đáp: "Đương nhiên có thể. Nhưng ngươi hãy nghĩ kỹ, liệu có thể chấp nhận những hậu quả mà ngươi không thể tưởng tượng nổi, chẳng hạn như kẻ trinh sát ngươi cứu đó, nếu trốn về Ngũ Lăng Quốc, liệu hắn có thể thành công giao những thông tin quân tình cho đại tướng? Nếu điều đó không hiệu quả, có thể sẽ dẫn đến việc gây hấn trên biên giới, khiến hàng trăm, hàng nghìn người chết, hoặc thậm chí kéo theo chiến tranh giữa hai nước, gây ra cảnh khốn khổ cho dân chúng."
 
-Tùy Cảnh Rừng im lặng không nói.
+Tùy Cảnh Trừng im lặng không nói.
 
 Trần Bình An tiếp tục tẩu thung, chậm rãi nói: "Vì vậy, nói rằng người tu đạo không vướng bận hồng trần, rời xa nhân gian, không hoàn toàn là lạnh lùng vô tình. Ngươi tạm thời không hiểu rõ những điều này cũng không sao, ta cũng phải trải qua thời gian dài tu hành mới hiểu được, từ từ thay đổi cách nghĩ để đối mặt với nhân gian. Ngươi còn nhớ lần trước chúng ta chơi cờ trên núi không? Ngươi đã quên ai là người nên được cứu? Ai cần được giúp đỡ? Có phải là vị hoàng đế Lâm Thù ngu trung của tiền triều? Hay là người học giả đã mưu tính cho bản thân một lối thoát? Hay là những người trẻ tuổi bất hạnh đã hi sinh tại Tranh Vanh môn? Ngươi có nghĩ rằng người nên được cứu cuối cùng lại khiến Lâm Thù ra sao, người học giả làm sao thực hiện được đại nghiệp phục quốc? Rồi xa hơn nữa, giữa Kim Phi Quốc và triều đình trước, ai mới thực sự có công với quốc gia và dân chúng? Ngươi có muốn tìm hiểu không? Những kẻ đã biết rõ chân tướng, vẫn muốn vì hoàng tử tiền triều mà hi vọng chịu chết. Vậy, họ sẽ làm gì đây? Ngươi trở thành người tốt, sẵn sàng ra tay, có thực sự thoải mái không?"
 
-Tùy Cảnh Rừng nhẹ nhàng gật đầu, ngồi xếp bằng bên sườn dốc, gió mát thổi vào mặt, nàng hạ mũ vải, tóc đen bay trong gió.
+Tùy Cảnh Trừng nhẹ nhàng gật đầu, ngồi xếp bằng bên sườn dốc, gió mát thổi vào mặt, nàng hạ mũ vải, tóc đen bay trong gió.
 
 Trần Bình An đến gần bên cạnh nàng, nhưng không ngồi xuống, "Làm người tốt không phải do ta cảm thấy, làm việc tốt cũng không phải do ta cho rằng. Chính vì vậy, làm người tu đạo không có gì xấu, có thể thấy nhiều điều xa xôi hơn."
 
-Trần Bình An lấy ra cây gậy leo núi lâu ngày không sử dụng, hai tay chống trượng, nhẹ nhàng lắc lắc, "Tuy nhiên, người tu đạo trải qua nhiều điều, sẽ biết rằng có một số phiền phức, bởi vì tìm kiếm tuyệt đối tự do cường giả sẽ ngày càng nhiều. Mặc dù những người này chỉ ra tay một hai lần, nhưng với nhân gian mà nói, đó đã là long trời lở đất. Tùy Cảnh Rừng, ta hỏi ngươi, một chiếc ghế đặt lâu, có thể lay động không?"
+Trần Bình An lấy ra cây gậy leo núi lâu ngày không sử dụng, hai tay chống trượng, nhẹ nhàng lắc lắc, "Tuy nhiên, người tu đạo trải qua nhiều điều, sẽ biết rằng có một số phiền phức, bởi vì tìm kiếm tuyệt đối tự do cường giả sẽ ngày càng nhiều. Mặc dù những người này chỉ ra tay một hai lần, nhưng với nhân gian mà nói, đó đã là long trời lở đất. Tùy Cảnh Trừng, ta hỏi ngươi, một chiếc ghế đặt lâu, có thể lay động không?"
 
-Tùy Cảnh Rừng suy nghĩ một chút, "Chắc chắn sẽ lay động?"
+Tùy Cảnh Trừng suy nghĩ một chút, "Chắc chắn sẽ lay động?"
 
 Trần Bình An quay lại nhìn, "Trong đời này sẽ không có ai làm cho cái ghế đó lay động sao?"
 
-Tùy Cảnh Rừng im lặng, mắt nhìn thẳng, sắc mặt có chút ngây thơ.
+Tùy Cảnh Trừng im lặng, mắt nhìn thẳng, sắc mặt có chút ngây thơ.
 
 Trần Bình An bất đắc dĩ nói: "Chẳng lẽ ngươi chưa từng thấy qua?"
 
-Tùy Cảnh Rừng hơi xấu hổ.
+Tùy Cảnh Trừng hơi xấu hổ.
 
 Tùy thị vốn là người phú quý nhất Ngũ Lăng Quốc.
 
@@ -492,7 +492,7 @@ Trần Bình An vuốt cằm, cười nói: "Vậy ta nên nói như thế nào 
 
 Và thế là hắn thu gậy leo núi, tiếp tục tẩu thung.
 
-Tùy Cảnh Rừng cảm thấy hơi thất vọng, nhưng cũng không khỏi vui vẻ.
+Tùy Cảnh Trừng cảm thấy hơi thất vọng, nhưng cũng không khỏi vui vẻ.
 
 Chính nàng cũng không nghĩ thông suốt, điều đó liên quan gì đến nàng.
 
@@ -506,4 +506,4 @@ Nàng cười nói: "Dù đắt bao nhiêu cũng mua!"
 
 Kết quả, người ấy lắc đầu nói: "Trông giống như nợ tiền ký sổ, không bàn nữa."
 
-Tùy Cảnh Rừng thở dài một tiếng, liền như vậy ngả lưng ra đất, bầu trời giữa đêm lốm đốm như bức tranh đẹp nhất với hàng trăm bảo tài, treo lơ lửng trên những ngôi nhà đèn đuốc.
+Tùy Cảnh Trừng thở dài một tiếng, liền như vậy ngả lưng ra đất, bầu trời giữa đêm lốm đốm như bức tranh đẹp nhất với hàng trăm bảo tài, treo lơ lửng trên những ngôi nhà đèn đuốc.

@@ -1,147 +1,151 @@
 # Chương 600: Trên con đường tu hành
 
-Lúc đi xuống đỉnh núi, Trần Bình An do dự một chút, mặc vào chiếc pháp bào màu đen, tên là Bách Tình Thao Thiết, là "nhặt" từ trên người Dương Ngưng Tính của Đại Nguyên Vương Triều Sùng Huyền Thự.
+Lúc xuống núi, Trần Bình An thoáng do dự, rồi khoác lên mình chiếc pháp bào đen mang tên Bách Tình Thao Thiết. Đó là món đồ hắn đã “nhặt được” từ chỗ Dương Ngưng Tính, người của Sùng Huyền thự thuộc Đại Nguyên vương triều.
 
-Pháp bào Kim Lễ vẫn quá chói mắt, trước đó thay Thao Thiết bào bằng thanh sam tầm thường, là cẩn thận cho phép, lo lắng dọc theo hai con sông lớn kỳ quái này đi xa, sẽ rước lấy tầm mắt không cần thiết, chỉ là sau khi theo Tề Cảnh Long tế kiếm ở đỉnh núi, Trần Bình An cân nhắc qua đi, lại thay đổi chú ý, dù sao hôm nay chen thân Liễu Cân cảnh lưu nhân nhất, mặc vào một món pháp bào phẩm tướng không tầm thường, có thể giúp hắn nhanh chóng hấp thu thiên địa linh khí, lợi cho tu hành.
+Pháp bào Kim Lễ vẫn quá chói mắt. Trước đó, hắn đổi áo Thao Thiết lấy một bộ thanh sam bình thường cũng chỉ vì cẩn thận. Dòng Đại Độc này kỳ lạ ở chỗ cả hai đầu đều đổ ra biển, hắn sợ đi xa men theo dòng nước sẽ rước lấy những ánh mắt không cần thiết. Nhưng sau lần cùng Tề Cảnh Long tế kiếm trên đỉnh núi, nghĩ đi nghĩ lại, hắn lại đổi ý. Dù sao bây giờ đã bước vào Liễu Cân cảnh, cảnh giới dễ níu chân tu sĩ nhất. Mặc một món pháp bào phẩm chất khá tốt sẽ giúp hắn hấp thu linh khí trời đất nhanh hơn, có lợi cho tu hành.
 
-Lộc Cửu quận là quận lớn có Phù Lục quốc số một, văn phong nồng đậm, Trần Bình An mua không ít tạp thư ở thư phường quận thành bên kia, trong đó còn mua được một quyển sách ở tiệm sách ăn bụi nhiều năm, là khuyến nông chiếu Phù Lục quốc ban phát đầu xuân năm đó, có chút văn chương nổi bật, có chút văn chất mộc mạc. Dọc theo đường đi Trần Bình An cẩn thận lật qua tập, mới phát hiện thì ra hàng năm mùa xuân ở ba châu chi địa, nhìn thấy những hình ảnh tương tự, thì ra thật ra đều là quy củ, ruộng vườn cầu cốc, quan viên tuần du, khuyên dân nông canh.
+Lộc Cửu là một trong những quận lớn hàng đầu của Phù Cừ quốc, văn phong rất thịnh. Trần Bình An mua không ít tạp thư tại các hiệu sách trong quận thành. Trong đó có một tập sách đã nằm phủ bụi nhiều năm, chép những bài khuyến nông chiếu được Phù Cừ quốc ban xuống vào đầu xuân qua các đời. Có bài văn chương rực rỡ, cũng có bài lời lẽ mộc mạc. Dọc đường, hắn đọc kỹ tập sách, bấy giờ mới hiểu những cảnh tượng giống nhau mà mỗi độ xuân về hắn từng trông thấy trên đất ba châu đều có phép tắc cả: làm lễ cày ruộng cầu mùa, quan viên đi tuần, khuyên dân chăm lo cày cấy.
 
-Đọc sách và đi xa tốt, đó là có thể ngẫu nhiên, lật đến một quyển sách, tựa như bị các tiên hiền giúp người lật sách đời sau xách lên một chuỗi tuyến, xâu chuỗi nhân tình thế sự thành một chuỗi hạt châu, rực rỡ muôn màu.
+Cái hay của đọc sách và đi xa là ở đó. Có khi chỉ tình cờ giở một quyển sách, người đọc đời sau đã được các bậc tiên hiền giúp nhấc lên một sợi dây, xâu chuyện đời cùng lòng người thành một chuỗi minh châu muôn màu rực rỡ.
 
-Trần Bình An đi dạo một vòng quanh phong cảnh danh thắng trong Lộc Cửu quận thành, cùng ngày ở tại khách sạn lâu đời trong quận thành.
+Trần Bình An dạo qua một lượt các danh thắng trong quận thành Lộc Cửu, rồi nghỉ lại một khách điếm lâu đời ở đó.
 
-Sau khi tiến vào Lộc Cửu quận, liền cố ý áp chế pháp bào trên người hấp thu linh khí, bằng không sẽ trêu chọc một số tầm mắt nào đó của Thành Hoàng các, Văn Võ miếu.
+Từ lúc vào quận, hắn đã cố ý ghìm bớt khả năng hấp thu linh khí của pháp bào, bằng không sẽ khiến thần linh ở Thành Hoàng các và Văn miếu, Võ miếu để mắt tới.
 
-Trên thực tế, mỗi một vị Luyện khí sĩ nhất là tu sĩ chen thân trong ngũ cảnh, du lịch nhân gian sơn hà cùng vương triều thế tục, thật ra đều là động tĩnh như là một loại giao long đi sông, không tính là nhỏ, chỉ là nói chung, xuống núi tiếp tục tu hành, hấp thu sơn thủy linh khí các nơi, đây là hợp quy củ, chỉ cần không quá phận, toát ra dấu hiệu chỉ thấy lợi trước mắt mà bắt cá, thần linh sơn thuỷ các nơi đều sẽ mở một con mắt nhắm một con mắt.
+Thật ra, luyện khí sĩ, nhất là tu sĩ đã vào trung ngũ cảnh, du lịch giữa sơn hà nhân gian và các vương triều thế tục, động tĩnh chẳng khác nào giao long đi sông, không hề nhỏ. Có điều, xuống núi vẫn phải tiếp tục tu hành, hấp thu linh khí sơn thủy các nơi vốn hợp quy củ. Miễn đừng quá đáng, để lộ ý tát cạn ao bắt cá, thần linh sơn thủy thường đều mắt nhắm mắt mở cho qua.
 
-Trong màn đêm, Trần Bình An ở trong phòng khách sạn châm đèn trên bàn, lại tùy tay lật xem tập sách ghi lại Khuyến Nông Chiếu bao năm qua, sau khi khép sách lại, sau đó bắt đầu tâm thần đắm chìm.
+Đêm xuống, Trần Bình An thắp ngọn đèn trên bàn trong phòng khách điếm, tiện tay giở lại tập sách chép các bài khuyến nông chiếu. Khép sách xong, hắn bắt đầu thu tâm thần vào trong.
 
-Trần Bình An không có bằng vào pháp bào Thao Thiết hấp thu chút linh khí mỏng manh của quận thành, không có nghĩa là không tu hành, hấp thu linh khí chưa bao giờ là toàn bộ tu hành, một đường đi tới, trong thiên địa nhỏ của cơ thể con người, giống như hai khiếu huyệt mấu chốt thủy phủ và từ đường Sơn Nhạc này, chuyện linh khí tích lũy, rèn luyện trong đó, cũng là căn bản của tu hành, sơn thủy hai vật bản mạng dựa vào nhau, cần tu luyện ra khí tượng tương tự thủy vận nơi chân núi, nói ngắn gọn, chính là cần Trần Bình An tinh luyện linh khí, củng cố căn cơ thủy phủ cùng từ đường, chỉ là Trần Bình An hôm nay linh khí tích tụ còn xa mới đạt tới cảnh giới tràn đầy bên ngoài, cho nên việc cấp bách trước mắt vẫn là cần tìm một chỗ phong thuỷ bảo địa vô chủ, chẳng qua cái này cũng không dễ dàng, cho nên có thể lui mà cầu tiếp, bế quan vài ngày ở khách sạn tiên gia tương tự Lục Oanh quốc Long đầu độ.
+Không dùng pháp bào Thao Thiết để hút chút linh khí mỏng manh trong quận thành, chẳng có nghĩa là không tu hành. Hấp thu linh khí chưa bao giờ là toàn bộ chuyện tu hành. Suốt dọc đường, linh khí tích tụ trong tiểu thiên địa thân thể, nhất là ở hai khiếu huyệt then chốt chứa thủy phủ và sơn nhạc từ đường, vẫn cần được tôi luyện. Đó cũng là căn bản của tu hành. Hai vật bản mạng nương nhau tạo thành thế sơn thủy, phải dần luyện được khí tượng của sơn căn và thủy vận. Nói giản dị, hắn cần tinh luyện linh khí để củng cố nền móng thủy phủ và sơn từ.
 
-Thật ra cũng có thể dùng tiền thần tiên bản thân đã tích tụ linh khí, trực tiếp lấy ra luyện hóa thành linh khí, thu vào khí phủ.
+Chỉ là linh khí tích góp được bây giờ còn lâu mới đầy đến mức tràn ra ngoài. Việc cần làm trước mắt vẫn là tìm một nơi phong thủy bảo địa vô chủ. Chuyện ấy không dễ, đành lùi một bước, tìm khách điếm tiên gia như ở bến đò Long Đầu của Lục Oanh quốc, bế quan vài ngày cũng được.
 
-Chẳng qua Trần Bình An ngay cả có linh khí cũng chưa rèn luyện xong, hành động này được không bù mất, cảnh giới càng thấp, hấp thu linh khí càng chậm, mà tiền thần tiên cực kỳ thuần túy, tản mạn quá nhanh, cái này giống như rất nhiều phù lục trân quý "Khai sơn", một khi không cách nào phong sơn, vậy cũng chỉ có thể trơ mắt nhìn một tấm phù lục quý giá giá liên thành, biến thành một tờ giấy lộn không đáng một đồng. Cho dù tiền thần tiên sau khi bị bóp nát luyện hóa, có thể bị pháp bào trên người hấp thu tạm lưu, nhưng vô hình trung này sẽ cùng chướng nhãn pháp tướng xung với trên pháp bào, càng thêm rêu rao khắp nơi.
+Thật ra, hắn còn có thể lấy tiền thần tiên vốn chứa linh khí ra luyện hóa, rồi thu linh khí ấy vào khí phủ.
 
-Mỗi một người tu đạo, kỳ thật chính là mỗi một tòa tiểu thiên địa, dựa vào công phu của mình, làm Thánh Nhân của mình.
+Nhưng số linh khí đang có còn chưa tôi luyện hết, làm vậy sẽ mất nhiều hơn được. Cảnh giới càng thấp, hấp thu linh khí càng chậm, mà linh khí trong tiền thần tiên lại quá tinh thuần, tản đi rất nhanh. Cũng giống nhiều loại phù lục trân quý, sau khi “khai sơn” mà không thể phong sơn, chỉ đành trơ mắt nhìn một lá phù giá trị liên thành biến thành tờ giấy bỏ đi, chẳng đáng một đồng. Dẫu có thể nhờ pháp bào giữ lại tạm thời linh khí từ tiền thần tiên bị bóp nát luyện hóa, làm vậy cũng sẽ xung đột với thuật che mắt trên áo, khiến hắn càng thêm nổi bật giữa đường.
 
-Quan trọng là phải xem cương vực của một phương thiên địa lớn nhỏ ra sao, cùng với trình độ khống chế của mỗi một vị "lão thiên gia", con đường tu hành, thật ra không khác gì một mũi thiết kỵ sa trường mở mang bờ cõi.
+Mỗi người tu đạo đều là lão thiên gia trong tiểu thiên địa của chính mình, dựa vào công phu của mình mà làm thánh nhân ở đó.
 
-Đến cuối cùng, cảnh giới cao thấp, đạo pháp lớn nhỏ, phải nhìn xem đến cùng có mấy tòa phủ đệ mở ra, thế gian phòng xá trăm ngàn loại, lại phân chia cao thấp, động phủ cũng như thế, phẩm tướng tốt nhất, tự nhiên là động thiên phúc địa kia.
+Cốt yếu là thiên địa ấy rộng đến đâu, vị “lão thiên gia” ấy nắm giữ được bao nhiêu. Con đường tu hành chẳng khác nào một đội thiết kỵ chinh chiến sa trường, mở mang bờ cõi.
 
-Trần Bình An sau khi nín thở ngưng thần, dẫn đầu đi tới ngoài cửa tòa thủy phủ kia, tâm niệm vừa động, tự nhiên mà vậy có thể xuyên tường mà qua, giống như thiên địa quy củ không câu nệ, bởi vì ta tức là quy củ, quy củ tức ta.
+Đến cuối cùng, cảnh giới cao thấp, đạo pháp lớn nhỏ, đều phải xem đã mở được bao nhiêu tòa phủ đệ. Nhà cửa thế gian có trăm ngàn loại, chia thành cao thấp, động phủ cũng vậy. Phẩm chất tốt nhất đương nhiên là động thiên phúc địa.
 
-Nhưng Trần Bình An vẫn dừng chân nghỉ chân một lát ngoài cửa, hai tiểu đồng áo xanh rất nhanh mở cửa, chắp tay hành lễ với vị lão gia này, đám tiểu tử vẻ mặt vui mừng.
+Trần Bình An nín thở ngưng thần, trước tiên tới ngoài cửa thủy phủ. Chỉ cần khẽ động tâm niệm, hắn đã có thể xuyên tường đi vào, không chịu quy củ trời đất câu thúc. Bởi ta chính là quy củ, quy củ chính là ta.
 
-Thủy phủ hôm nay của Trần Bình An, lấy một ấn chữ huyền đình cùng bức bích họa thủy vận kia làm căn bản một lớn một nhỏ, những tiểu đồng áo xanh này rốt cuộc có việc để làm, hôm nay tâm tình không tệ, mười phần bận rộn, cuối cùng không mỗi ngày không ăn không ngồi rồi như vậy, trước kia mỗi lần thấy Trần Bình An đi dạo tiểu thiên địa, tâm thần giới tử của tiểu động phủ nhà mình, chúng nó thích chỉnh tề ngồi trên mặt đất, mỗi người ngẩng đầu nhìn Trần Bình An, ánh mắt u oán, cũng không nói gì.
+Nhưng hắn vẫn đứng đợi ngoài cửa một lát. Hai tiểu đồng thanh y nhanh chóng mở cửa, chắp tay thi lễ với lão gia nhà mình, gương mặt nhỏ đầy vẻ vui mừng.
 
-Chúng nó là tiểu nhân rất cần cù, chưa từng lười biếng, chỉ là đối với Trần Bình An người này đối với tu hành cực không để tâm, thật sự là không bột đố gột nên hồ, làm sao có thể không thương tâm?
+Thủy phủ bây giờ lấy chiếc ấn chữ Thủy treo lơ lửng cùng bức bích họa thủy vận làm hai gốc rễ, một lớn một nhỏ. Đám tiểu đồng lục y cuối cùng cũng có việc để làm, ngày ngày bận rộn, tâm tình rất tốt, không còn phải ngồi không như trước nữa. Trước kia, mỗi lần trông thấy tâm thần Trần Bình An hóa thành giới tử đi tuần tiểu thiên địa, ghé qua động phủ nhà mình, chúng đều thích ngồi xổm thành hàng ngay ngắn, ngẩng đầu nhìn hắn với ánh mắt u oán, chẳng nói lời nào.
 
-Bây giờ đã hoàn toàn thay đổi một cảnh tượng, trong Thủy phủ khắp nơi khí thế ngất trời, từng tiểu tử kia chạy không ngừng, vui vẻ hớn hở, chịu mệt chịu khổ, vui vẻ trong đó.
+Chúng vốn là những tiểu nhân chăm chỉ, chưa từng lười biếng. Khổ nỗi gặp phải một chủ nhân chẳng mấy để tâm tới tu hành như Trần Bình An, không bột đố gột nên hồ, sao chúng không buồn cho được?
 
-Từ trong một "hồ nước nhỏ" tựa như miệng giếng nhỏ hẹp đưa tay vốc nước, từ sau khi đánh Thương Nghiễn hồ, Trần Bình An thu hoạch tương đối khá, trừ mấy luồng thủy vận tương đối tinh túy nồng đậm kia, còn từ trong tay vị hồ quân hồ Thương Nghiễn kia được một lọ thủy đan, đồng tử áo lục trong thủy phủ chia làm hai nhóm, một nhóm thi triển bản mạng thần thông, đem từng luồng thủy vận màu sắc u lục, không ngừng đưa tới trong thủy tự ấn chậm rãi xoay tròn.
+Bây giờ đã đổi hẳn cảnh tượng. Khắp thủy phủ hăng hái làm việc, đám tiểu tử chạy tới chạy lui, vui mừng hớn hở, chịu khó chịu nhọc mà vẫn thích thú vô cùng.
 
-Một đám đồng tử khác, thì cầm bút lông nhỏ không biết từ chỗ nào biến ảo ra, ở trong ao nước "bát mực", sau đó chạy vội về phía bích họa, vẽ bức tường nước thuỷ vận đồ giống như bút vẽ công văn, cẩn thận miêu tả, tăng thêm màu sắc rực rỡ, ở trên bích hoạ thật lớn, đã vẽ ra từng vị thuỷ thần, từng tòa từ miếu hơi lớn, Trần Bình An nhận ra được, đều là những thuỷ thần miếu lớn nhỏ mình tự mình du lịch qua kia, trong đó có tòa Bích Du phủ kia của Đồng Diệp châu thủy thần nương nương, nhưng hôm nay hẳn là cần tôn xưng là Bích Du cung.
+Trong phủ có một “ao nhỏ”, hẹp như miệng giếng, đưa tay vào là vốc được nước. Từ sau chuyến tới hồ Thương Quân, Trần Bình An thu hoạch không ít. Ngoài mấy luồng thủy vận tinh thuần nồng đậm, hắn còn được vị hồ quân nơi đó tặng một lọ thủy đan. Đám tiểu đồng lục y chia làm hai nhóm. Một nhóm thi triển thần thông bản mạng, không ngừng đưa từng luồng thủy vận xanh thẫm vào chiếc ấn chữ Thủy đang chầm chậm xoay tròn.
 
-Chẳng qua một vị thuỷ thần kia cũng chưa điểm mắt, từ miếu thuỷ thần càng không cảnh tượng hoạt bát hương khói lượn lờ, tạm thời vẫn là vật chết, không sống động như dòng sông cuồn cuộn trên tranh tường kia.
+Nhóm còn lại cầm những cây bút lông nhỏ xíu không biết biến ra từ đâu, chấm “mực” trong ao rồi chạy như bay tới bích họa. Chúng cẩn thận tô thêm màu sắc cho bức thủy vận đồ trên tường, vốn chỉ có những đường nét thanh mảnh. Trên bích họa rộng lớn đã hiện ra từng vị thủy thần bé bằng hạt gạo, cùng những tòa từ miếu nhỉnh hơn đôi chút. Trần Bình An nhận ra, đó đều là những tòa thủy thần miếu lớn nhỏ hắn đã đích thân ghé qua, trong đó có cả Bích Du phủ của thủy thần nương nương sông Mai ở Đồng Diệp châu. Có điều bây giờ hẳn phải tôn xưng là Bích Du cung rồi.
 
-Trần Bình An đứng ở bên cạnh ao nhỏ, cúi đầu ngưng thần nhìn lại, bên trong có con giao long vận chuyển thủy vận được đám tiểu đồng áo xanh khiêng vào hồ Thương Nghi, chậm rãi du duệ, vẫn chưa trực tiếp bị người tí hon áo xanh "đánh giết" luyện hóa thành thủy vận, trừ cái đó ra, lại có dị tượng, bình đan hoàn mà hồ quân Ân Hầu đưa tặng, không biết tiểu đồng áo xanh làm như thế nào, giống như toàn bộ luyện hóa thành một hạt châu nhỏ kỳ diệu bộ dáng cùng loại với "ly châu xanh biếc", mặc kệ con giao long nhỏ trong ao bơi đi như thế nào, trước sau treo ở bên miệng nó, như long ngậm châu, du du giang hồ, hành vân bố vũ.
+Chỉ là các vị thủy thần đều chưa được điểm mắt, từ miếu cũng chưa có cảnh hương khói vấn vít đầy sức sống. Tạm thời chúng vẫn như vật chết, chẳng được sống động như dòng sông cuồn cuộn trên bích họa.
 
-Trần Bình An tính đi tới bên kia từ đường nhìn xem, một ít đồng tử áo xanh lộ vẻ tươi cười với hắn, giơ lên nắm tay nhỏ, hẳn là muốn Trần Bình An hắn tiếp tục cố gắng?
+Trần Bình An đứng bên ao, cúi đầu chăm chú nhìn. Con giao long thủy vận của hồ Thương Quân được đám tiểu đồng lục y khiêng về đang chầm chậm bơi trong nước. Nó chưa bị chúng trực tiếp “đánh giết” để luyện hóa thành thủy vận. Ngoài ra còn một dị tượng khác. Lọ đan hoàn hồ quân Ân Hầu tặng, không biết qua tay đám tiểu đồng thế nào, dường như đã được luyện cả thành một viên châu nhỏ kỳ diệu, trông giống “ly châu” xanh biếc. Con giao long nhỏ bơi đi đâu, viên châu ấy cũng lơ lửng bên miệng nó, tựa rồng ngậm châu, thong dong giữa giang hồ, hành vân bố vũ.
 
-Trần Bình An có chút bất đắc dĩ, thủy vận một vật, càng cô đọng như thanh ngọc Oánh Nhiên, càng là căn bản đại đạo của thuỷ thần thế gian, nào có đơn giản như vậy tìm kiếm, càng là vật thần tiên tiền khó mua. Thử nghĩ một phen, có người nguyện ý ra giá một trăm đồng tiền Cốc Vũ, mua một ngọn núi căn cơ thạch của một từ đường Trần Bình An, Trần Bình An cho dù biết coi như là mua bán kiếm tiền, nhưng sao có thể thật sự nguyện ý bán? Mua bán trên giấy mà thôi, đại đạo tu hành, chưa bao giờ nên tính sổ như thế.
+Trần Bình An định sang sơn từ xem thử. Mấy tiểu đồng lục y cười với hắn, còn giơ nắm tay nhỏ lên. Hẳn là muốn bảo hắn tiếp tục cố gắng?
 
-Trần Bình An rời khỏi thủy phủ, bắt đầu đi xa "phóng sơn", đứng ở một chân núi giống như phúc địa, ngửa đầu nhìn phía đỉnh núi có mây năm màu quanh quẩn lưu chuyển, thân núi như sương mù dày đặc, bày biện ra màu xám đen, vẫn cho người ta một loại cảm giác mờ ảo bất định, khí tượng núi cao xa xa kém xa thủy phủ lúc trước.
+Hắn hơi bất đắc dĩ. Thủy vận càng cô đọng, càng trong sáng như thanh ngọc, lại càng là căn bản đại đạo của thủy thần thế gian. Đâu có dễ tìm như vậy, ngay cả tiền thần tiên cũng khó mua được. Thử nghĩ, có người chịu bỏ một trăm đồng tiền cốc vũ để mua viên đá đặt nền của ngọn núi có sơn từ kia, dù biết bán đi là có lời, Trần Bình An thật sự nỡ bán sao? Chẳng qua là mua bán trên giấy. Đại đạo tu hành vốn không nên tính sổ như thế.
 
-May mà dưới chân núi lại có cảnh tượng một chút thạch anh, chẳng qua so với cả đỉnh núi nguy nga, địa bàn trắng như tuyết này vẫn ít đến đáng thương, nhưng đây đã là thành quả tu hành vất vả suốt dọc đường sau khi Trần Bình An rời khỏi bến đò Lục Oanh quốc.
+Ra khỏi thủy phủ, Trần Bình An tiếp tục đi xa “thăm núi”. Hắn đứng dưới chân một ngọn núi tựa như phúc địa, ngẩng đầu nhìn mây ngũ sắc quanh quẩn lưu chuyển trên đỉnh. Thân núi xám đen như sương mù dày đặc, vẫn mờ ảo bất định. Khí tượng nơi này thua xa thủy phủ ban nãy.
 
-Lão đại kiếm tiên Kiếm Khí Trường Thành, Trần Thanh đều tuệ nhãn như đuốc, khẳng định nếu hắn là bản mạng từ sứ không vỡ, đó là tư chất Địa tiên.
+May mà dưới chân núi đã có chút cảnh tượng đá trắng sáng trong. So với cả ngọn núi nguy nga, khoảng đất trắng lấp lánh như tuyết ấy vẫn ít đến đáng thương. Nhưng đó đã là thành quả hắn vất vả tu hành suốt đường từ lúc rời bến đò Lục Oanh quốc.
 
-Lục địa thần tiên trên ý nghĩa thế tục, tu sĩ Kim Đan là, Nguyên Anh cũng thế, đều là Địa Tiên.
+Lão đại kiếm tiên ở Kiếm Khí Trường Thành, Trần Thanh Đô, có tuệ nhãn như đuốc, từng quả quyết rằng nếu đồ sứ bản mạng không vỡ, hắn sẽ có tư chất Địa tiên.
 
-Nhưng mà có thể ở trong mắt vị lão đại Kiếm Tiên kia, hai người không có gì khác nhau.
+Theo cách gọi của thế tục, tu sĩ Kim Đan là lục địa thần tiên, tu sĩ Nguyên Anh cũng vậy, đều thuộc Địa tiên.
 
-Cho nên Trần Bình An đã không tự cao tự đại, cũng không cần tự coi nhẹ mình.
+Có lẽ trong mắt vị lão đại kiếm tiên ấy, hai cảnh giới này chẳng khác nhau là mấy.
 
-Trong lòng Trần Bình An biết rõ, cùng là từ đường thủy phủ, đổi thành Tề Cảnh Long thiên tài chân chính thân mang khí vận một châu như vậy, khí tượng sẽ chỉ càng lớn hơn nữa.
+Cho nên Trần Bình An không tự cao tự đại, cũng chẳng cần xem nhẹ mình.
 
-Nhưng mà tu sĩ thế gian vẫn là thiên tài hiếm có bình thường nhiều. Trần Bình An nếu ngay cả chút định lực này cũng không có, như vậy võ đạo một đường, ở Kiếm Khí Trường Thành bên kia cũng đã mất hết tâm khí, về phần tu hành, lại càng bị liên tiếp đả kích đến tâm cảnh tan tành, không khá hơn trường sinh kiều bị chặt đứt chỗ nào. Căn cốt Luyện khí sĩ, tỷ như Trần Bình An tư chất Địa tiên, đây là một "cát sắt" trời sinh, nhưng mà còn phải chú ý tư chất, tư chất lại chia ngàn vạn loại, có thể tìm được một loại phương pháp tu hành thích hợp với mình nhất, bản thân chính là tốt nhất.
+Hắn hiểu rõ, cũng là thủy phủ và sơn từ, nếu nằm trong người một thiên tài chân chính mang khí vận cả châu như Tề Cảnh Long, khí tượng hẳn còn lớn hơn nữa.
 
-Tranh với người, bất kể là lực hay là lý, luôn có chỗ thua, cả đời một kiếp đều khó viên mãn.
+Nhưng tu sĩ trên đời rốt cuộc vẫn ít thiên tài, nhiều người bình thường. Nếu ngay chút định lực ấy cũng không có, Trần Bình An đã mất hết tâm khí võ đạo từ hồi ở Kiếm Khí Trường Thành. Còn chuyện tu hành, những lần đả kích liên tiếp đã đủ khiến tâm cảnh hắn vỡ nát, chẳng khá hơn trường sinh kiều bị chặt đứt là bao. Căn cốt của luyện khí sĩ, chẳng hạn tư chất Địa tiên của hắn, là một “bát cơm sắt” trời sinh. Nhưng ngoài căn cốt còn phải xét tư chất, mà tư chất có ngàn vạn loại. Tìm được một phép tu hành thích hợp với mình nhất, tự nó đã là chuyện tốt nhất rồi.
 
-Nhưng so tài với mình, lại có lợi ích lâu dài, từng chút từng chút một tích góp xuống, cũng là của cải của mình.
+Tranh với người khác, bất kể bằng sức hay bằng lý, luôn có chỗ thiếu sót, có lúc thua người. Cả một đời cũng khó được viên mãn.
 
-Mỗi một lần phạm sai lầm, chỉ cần có thể biết sai có thể sửa, những con đường sai lầm đó, quay đầu lại nhìn, tựa như suối nước róc rách, sông ngòi cuồn cuộn, cho dù tâm lộ vẫn khó xóa đi, lòng sông ở lâu, cũng không cần sợ hãi lũ lụt thành tai, đây là tu tâm, bảo đảm người tu hành gặp được kiếp nạn nhấp nhô lớn hơn nữa, chỉ cần người không chết, đạo tâm sẽ không sụp đổ. Lấy tâm cảnh quan sát mình, cho dù mặt kính có một tia khe hở, chẳng lẽ cầm kính nhìn người trong gương, sẽ thật sự cho rằng mình hoàn toàn thay đổi, không đến mức.
+Còn so tài với chính mình lại có lợi về lâu dài. Từng chút tích góp được đều là của cải nhà mình.
 
-Trần Bình An từng sợ hãi mình trở thành người trên núi, tựa như sợ hãi mình và Cố Xán sẽ biến thành người chán ghét nhất năm đó. Ví dụ như người năm đó ở ngõ Nê Bình thiếu chút nữa đánh chết Lưu Tiện Dương, đã sớm một cước đá hán tử say trên bụng Cố Xán, cùng với Phù Nam Hoa, Bàn Sơn Viên sau đó, sau đó nữa Lưu Chí Mậu, Khương Thượng Chân.
+Mỗi lần phạm sai lầm, chỉ cần biết sai mà sửa, khi ngoảnh đầu nhìn lại, những con đường từng đi lầm sẽ giống lòng những con suối róc rách, những dòng sông cuồn cuộn. Dẫu dấu vết trên đường lòng khó xóa, lòng sông còn mãi, cũng không cần sợ nước lũ gây tai họa nữa. Đó là tu tâm, để người tu hành dẫu gặp kiếp nạn lớn đến đâu, chỉ cần người chưa chết, đạo tâm vẫn không sụp đổ. Lấy tâm cảnh soi lại mình, dù mặt gương có từng vết nứt, chẳng lẽ cầm gương nhìn người trong đó, mình sẽ thật sự cho rằng bản thân đã hoàn toàn đổi khác? Không đến nỗi ấy.
 
-Trần Bình An thậm chí sẽ sợ hãi mạch lạc học thuyết lão quan chủ Quan đạo quán, sau khi bị mình lần lượt dùng để cân nhắc thế sự nhân tâm, cuối cùng sẽ ở một ngày nào đó, lặng yên bao trùm trình tự học thuyết của Văn Thánh lão tiên sinh, mà không tự biết.
+Trần Bình An từng sợ mình trở thành người trên núi, cũng như sợ mình và Cố Sán biến thành những kẻ năm xưa mình căm ghét nhất. Chẳng hạn kẻ ở ngõ Nê Bình suýt đánh chết Lưu Tiện Dương, hán tử say rượu trước đó từng đá vào bụng Cố Sán, rồi đến Phù Nam Hoa, Bàn Sơn Viên, sau nữa là Lưu Chí Mậu và Khương Thượng Chân.
 
-Nhưng trên thực tế, khi chân chạm đất, từng bước một đi tới, đạo lý thế gian, mặc kệ là tam giáo bách gia, thật ra chưa bao giờ đáng sợ, đáng sợ chính là, mình không rõ lại tự nhận đã "biết".
+Hắn còn sợ sau bao lần dùng học thuyết mạch lạc của lão quan chủ Quan đạo quán để cân nhắc thế sự nhân tâm, đến một ngày nào đó, học thuyết ấy sẽ lặng lẽ lấn át học thuyết thứ tự của lão tiên sinh Văn Thánh, mà chính hắn vẫn không hay biết.
 
-Khi thật sự mở mắt ra là thấy ánh sáng.
+Nhưng thật ra, khi đặt chân xuống đất, từng bước đi tới, đạo lý thế gian, bất kể của tam giáo hay bách gia, chưa bao giờ đáng sợ. Đáng sợ là bản thân còn chưa hiểu rõ mà đã tự nhận mình “biết”.
 
-Câu nói này là Trần Bình An ở đỉnh núi sau khi nhắm mắt ngủ say lại mở mắt ra, chẳng những nghĩ tới câu này, hơn nữa còn bị Trần Bình An nghiêm túc khắc lên trên thẻ tre.
+Thật sự mở mắt, sẽ thấy ánh sáng.
 
-Trần Bình An ở trên thẻ tre ghi lại câu thơ từ ngữ gần như phong phú, nhưng mà ngôn ngữ mình ngộ ra, hơn nữa sẽ trịnh trọng khắc ở trên thẻ tre, có thể đếm được trên đầu ngón tay.
+Câu ấy nảy ra trong đầu Trần Bình An sau khi hắn nhắm mắt ngủ say trên đỉnh núi rồi tỉnh dậy. Hắn không chỉ nghĩ tới, mà còn nghiêm túc khắc lên thẻ tre.
 
-Trần Bình An rời khỏi tòa "Sơn từ" năm màu kia, đi tới một tòa quan ải.
+Thơ văn câu chữ chép trên thẻ tre của hắn đã có rất nhiều. Nhưng những lời tự mình ngộ ra, lại được trịnh trọng khắc lên thẻ, vẫn chỉ đếm được trên đầu ngón tay.
 
-Kiếm khí như cầu vồng, như thiết kỵ gõ quan, thủy triều, khí thế hùng hổ, lại trước sau không thể công phá tòa thành trì không thể phá vỡ kia.
+Rời tòa “sơn từ” ngũ sắc, Trần Bình An đi tới một quan ải.
 
-Đây là một đạo quan ải cuối cùng của Kiếm Khí Thập Bát Đình.
+Kiếm khí như cầu vồng, như thiết kỵ đánh thành, cuồn cuộn tựa nước triều. Thế tới hung mãnh là vậy, nhưng trước sau vẫn không phá nổi tòa thành kiên cố kia.
 
-Trần Bình An đứng ở đỉnh núi một bên nơi thiết kỵ cùng quan ải giằng co, ngồi xếp bằng, nâng má, trầm mặc hồi lâu.
+Đó là quan ải cuối cùng của Kiếm Khí Thập Bát Đình.
 
-Sau khi đứng dậy đi tới hai "Kiếm trủng", theo thứ tự là nơi luyện hóa sơ nhất và mười lăm.
+Trên đỉnh núi cạnh nơi thiết kỵ và quan ải đối đầu, Trần Bình An ngồi xếp bằng, chống má, im lặng thật lâu.
 
-Hai thanh phi kiếm nhỏ nhắn tinh xảo của kiếp sau hiện thế ở trong mắt người, ở giữa hai tòa khí phủ của Trần Bình An, kiếm lớn như ngọn núi, treo ngược mà dừng, ở trên hai sân núi thật lớn hơn nữa bằng phẳng, mũi kiếm để ở trên sàn đá Trảm Long Đài hiển hóa mà thành, đốm lửa văng khắp nơi, cả tòa khí phủ đều là cảnh tượng hoành tráng ánh lửa văng khắp nơi như mưa. Cho dù Trần Bình An sớm lãnh hội qua hình ảnh này, nhưng mỗi một lần xem, vẫn như cũ tâm thần lay động.
+Đứng dậy, hắn lại đi tới hai tòa “kiếm trủng”, nơi lần lượt luyện hóa Sơ Nhất và Thập Ngũ.
 
-Có thể tưởng tượng, nếu hai thanh phi kiếm rời khỏi khí phủ tiểu thiên địa, quay về Hạo Nhiên Đại Thiên Hạ, nếu cũng là người đối địch với mình, sẽ cảm thụ như thế nào?
+Hai thanh phi kiếm khi hiện ra ngoài chỉ nhỏ nhắn trong mắt người đời, ở trong hai tòa khí phủ của hắn lại lớn như ngọn núi, treo ngược giữa không trung. Trên hai khoảng sân núi rộng lớn bằng phẳng, mũi kiếm tì vào nền đá do Trảm Long Đài hiển hóa, tia lửa bắn tung tóe. Khắp khí phủ là cảnh tượng tráng lệ của lửa văng như mưa. Trần Bình An đã từng thấy, vậy mà mỗi lần nhìn lại vẫn không khỏi rung động tâm thần.
 
-Trần Bình An tâm thần rời khỏi chỗ mài kiếm, thu hồi ý niệm trong đầu, rời khỏi tiểu thiên địa.
+Có thể thử tưởng tượng, nếu hai thanh phi kiếm rời khí phủ trong tiểu thiên địa, trở về Hạo Nhiên đại thiên hạ mà vẫn có khí tượng như thế, kẻ đối địch với hắn sẽ cảm thấy thế nào?
 
-Thật ra còn có một chỗ tu đạo chi địa giống như kết cỏ tranh bên hồ tâm, chỉ có điều gặp hay không gặp, không có khác nhau.
+Tâm thần Trần Bình An rời nơi mài kiếm. Hắn thu ý niệm, ra khỏi tiểu thiên địa.
 
-Bởi vì đều là mình.
+Thật ra còn một nơi tu đạo, tựa như túp lều cỏ dựng bên hồ tâm cảnh. Nhưng gặp hay không gặp cũng chẳng khác gì.
 
-Cho dù không cần thần niệm nội chiếu, Trần Bình An đều biết rõ ràng.
+Bởi đều là chính mình.
 
-Sau khi mở mắt ra, Trần Bình An nhẹ nhàng phun ra một ngụm trọc khí, sau đó tiếp tục nhắm mắt, lấy phương pháp thổ nạp chậm rãi luyện hóa linh khí từ đường thủy phủ.
+Không cần dùng thần niệm soi vào trong, hắn vẫn biết rõ mồn một.
 
-Rất nhanh đã đến lúc tảng sáng, Trần Bình An dừng lại linh khí luyện hóa, sau khi đi cọc một canh giờ, tính tiền rời khỏi khách sạn.
+Mở mắt, Trần Bình An khẽ thở ra một ngụm trọc khí, rồi lại nhắm mắt, dùng phép thổ nạp từ từ luyện hóa linh khí trong thủy phủ và sơn từ.
 
-Lộc Cửu quận không có khách sạn tiên gia, Phù Lục quốc cũng không có môn phái tiên gia lớn, tuy không phải là nước phiên thuộc của Đại Nguyên vương triều, nhưng các đời hoàng đế tướng lĩnh, triều dã của Phù Lục quốc, trên dưới đều ngưỡng mộ văn mạch đạo thống của Đại Nguyên vương triều, gần như si mê sùng bái, không nói quốc lực, chỉ nói về điểm này, thật ra có chút tương tự văn đàn Đại Ly năm xưa, hầu như toàn bộ người đọc sách đều trợn to mắt nhìn chằm chằm văn chương đạo đức của vương triều Lô thị và Đại Tùy, văn hào thiên, học vấn của người trong nhà bên cạnh có làm tốt đến mấy, nếu không có sự tán thành của hai rừng sĩ lâm này, vẫn là văn chương thô bỉ, trị học thấp kém, Lô thị từng có một vị cuồng sĩ tuổi còn trẻ từng nói, cho dù hắn dùng chân kẹp bút viết ra thi văn, cũng tốt hơn so với bài văn dụng tâm của mọi rợ Đại Ly làm ra.
+Chẳng mấy chốc trời đã tảng sáng. Hắn ngừng luyện hóa linh khí, đi cọc một canh giờ, sau đó trả tiền rời khách điếm.
 
-Về sau nghe nói vị cuồng sĩ hàng năm mua say bất đắc chí ở kinh thành vương triều Lô thị kia, gặp vó ngựa cùng đao của thiết kỵ dưới trướng Đại Ly Tống Trường Kính, kinh nghiệm cụ thể, không ai biết được, dù sao cuối cùng người này lắc mình biến hóa, thành một trong những quan văn đóng giữ quan thân Đại Ly, về sau đi Hàn Lâm viện kinh thành Đại Ly, phụ trách biên tu sách sử tiền triều Lô thị, tự tay viết Trung Thần Truyện cùng nịnh thần truyền, đặt mình ở áp trục thiên nịnh thần truyền, sau đó đều nói là treo cổ tự sát.
+Quận Lộc Cửu không có khách điếm tiên gia, Phù Cừ quốc cũng chẳng có môn phái tiên gia lớn. Tuy không phải nước phiên thuộc của Đại Nguyên vương triều, từ hoàng đế, tướng lĩnh qua các đời đến khắp triều dã Phù Cừ quốc đều ngưỡng mộ văn mạch đạo thống của Đại Nguyên, gần như si mê sùng bái.
 
-Có người nói là quốc sư Thôi Sàm chán ghét người này, sau khi người này viết xong hai truyện, liền vụng trộm giết hắn, sau đó ngụy trang thành huyền lương. Cũng có người nói vị cuồng sĩ cả đời cũng không thể làm quan ở vương triều Lô thị này, sau khi thành sử quan của mọi rợ Đại Ly, mỗi một quyển sách trung thần truyền đều phải đặt một vò rượu ngon lên trên bàn, chỉ biết ở ban đêm nâng bút, vừa viết vừa uống rượu, thường xuyên ở nửa đêm canh ba hô to tai mắt, mỗi lần viết một thiên truyện thần, đều ở ban ngày, nói là muốn để cho đám loạn thần tặc tử này phơi nắng dưới thanh thiên bạch nhật, sau đó người này đều sẽ nôn ra máu, nôn ra ở trong chén không, cuối cùng tụ lại thành một vò rượu hối hận, cho nên cũng không phải treo cổ, cũng không phải chém giết, là uất ức mà chết.
+Không bàn quốc lực, chỉ riêng chuyện ấy cũng có phần giống văn đàn Đại Ly năm xưa. Gần như mọi người đọc sách đều mở to mắt nhìn chằm chằm vào đạo đức văn chương của Lô thị và Đại Tùy, vào thơ văn của những bậc văn hào nơi đó. Người bên cạnh mình dù học vấn tốt đến đâu, chưa được hai giới sĩ lâm ấy nhận xét, thừa nhận, thì vẫn bị xem là văn chương thô bỉ, học vấn thấp kém. Lô thị từng có một cuồng sĩ trẻ tuổi nói rằng, dẫu hắn dùng chân kẹp bút viết thơ văn, cũng hay hơn bài văn đám mọi rợ Đại Ly dốc lòng viết ra.
 
-Lân quốc của Phù Dung quốc có một bến đò tiên gia, hơn nữa có một tuyến đường chuyên môn, đi thẳng đến Long Cung tiểu động thiên, tuyến đường đi qua đường Đại Độc sẽ đi qua tuyệt đại đa số sơn thủy hình thắng, hơn nữa có nhiều dừng lại, để hành khách du sơn ngoạn thủy, thăm dò tầm thắng, kỳ thật bản thân đây chính là một tuyến đường du lãm, mua bán tài vật tiên gia, ngược lại là thứ yếu. Nếu như không có tầng quan hệ giữa Vân Tiêu Cung Sùng Huyền sở và Dương Ngưng Tính, Long Cung động thiên là phải đi, Trần Bình An đều sẽ đi một chuyến đến tòa động thiên trứ danh phát tài hữu đạo này.
+Về sau nghe nói, vị cuồng sĩ năm nào cũng mua say vì bất đắc chí trong kinh thành Lô thị ấy đã gặp vó ngựa và đao kiếm của thiết kỵ dưới trướng Tống Trường Kính nước Đại Ly. Chuyện cụ thể ra sao, không ai biết. Chỉ biết cuối cùng hắn lắc mình biến thành một viên quan văn của Đại Ly ở lại trấn giữ địa phương, rồi được điều về Hàn Lâm viện kinh thành Đại Ly, phụ trách biên soạn sử sách tiền triều Lô thị. Hắn đích thân viết Trung Thần Truyện và Nịnh Thần Truyện, đặt mình ở thiên cuối cùng của Nịnh Thần Truyện. Sau đó, người ta đều nói hắn treo cổ tự sát.
 
-Long Cung động thiên là do ba nhà nắm giữ, ngoại trừ Đại Nguyên vương triều Sùng Huyền Thự Dương gia ra, nữ tử kiếm tiên Cù Bình Kiếm Hồ cũng là một trong số đó.
+Có người bảo quốc sư Thôi Sàm ghét hắn, đợi hắn viết xong hai truyện bèn lén đầu độc, rồi dựng thành cảnh treo cổ. Cũng có người kể, vị cuồng sĩ cả đời không được làm quan ở vương triều Lô thị ấy, sau khi làm sử quan cho đám mọi rợ Đại Ly, mỗi lần viết một thiên Trung Thần Truyện đều đặt một vò rượu ngon lên bàn, chỉ đêm xuống mới cầm bút. Hắn vừa viết vừa uống, thường giữa đêm khuya hô lớn: “Tráng thay!” Còn Nịnh Thần Truyện, mỗi thiên hắn đều viết vào ban ngày, nói phải đem đám loạn thần tặc tử ấy phơi dưới thanh thiên bạch nhật. Rồi hắn lại nôn máu vào chén không, cuối cùng góp thành một vò rượu hối hận. Cho nên hắn không treo cổ, cũng không bị đầu độc, mà chết vì uất ức.
 
-Theo lý thuyết, Phù Bình Kiếm Hồ chính là một tấm Hộ Thân Phù quan trọng mà Trần Bình An hắn du lịch Long Cung động thiên, khẳng định có thể miễn đi rất nhiều ngoài ý muốn.
+Nước láng giềng của Phù Cừ quốc có một bến đò tiên gia, lại có riêng một tuyến thuyền đi thẳng tới Long Cung tiểu động thiên. Dọc đường, thuyền đi qua hầu hết những nơi sơn thủy đẹp đẽ ven Đại Độc, thường dừng lại cho khách du sơn ngoạn thủy, tìm cảnh u tĩnh, thăm nơi danh thắng. Thật ra bản thân nó đã là một tuyến du ngoạn, chuyện mua bán tài vật tiên gia chỉ xếp sau. Dẫu không có quan hệ với Vân Tiêu cung của Sùng Huyền thự cùng Dương Ngưng Tính khiến hắn nhất định phải đến Long Cung động thiên, Trần Bình An vẫn sẽ ghé thăm tòa động thiên nổi tiếng biết cách kiếm tiền ấy.
 
-Nhưng giao tình một vật hương khói, có thể tiết kiệm thì tiết kiệm, dựa theo phong tục trấn nhỏ quê nhà, như bữa cơm đêm năm đó cùng rượu và thịt mùng một tháng giêng, dư lại càng tốt.
+Long Cung động thiên do ba nhà cùng nắm giữ. Ngoài Dương gia ở Sùng Huyền thự của Đại Nguyên vương triều, Phù Bình Kiếm Hồ của nữ tử kiếm tiên Ly Thải cũng là một trong số đó.
 
-Rất nhiều bằng hữu lui tới, nhất định phải có, tiền đề là ngươi tùy thời tùy chỗ liền phải có.
+Theo lý mà nói, Phù Bình Kiếm Hồ chính là tấm bùa hộ thân quan trọng cho chuyến du lịch Long Cung động thiên của hắn, hẳn sẽ giúp tránh được nhiều chuyện bất ngờ.
 
-Trần Bình An không cảm thấy mình hôm nay có thể trả lại cho Phi Ma Tông Trúc Tuyền, hoặc là nhân tình sau khi Phù Bình Kiếm Hồ tìm kiếm giúp đỡ.
+Nhưng giao tình cùng tình hương hỏa, dành được thì cứ dành. Theo phong tục trấn nhỏ quê nhà, cũng như cơm đêm giao thừa, rượu thịt mùng một tháng giêng, có dư lại vẫn tốt hơn.
 
-Về phần Tề Cảnh Long, là ngoại lệ.
+Nhiều phen nhân tình qua lại giữa bằng hữu bình thường là chuyện cần có, nhưng trước hết, bất cứ lúc nào, ở đâu, ngươi cũng phải trả nổi.
+
+Trần Bình An không nghĩ bây giờ mình trả nổi nhân tình nếu cầu Trúc Tuyền của Phi Ma tông hoặc Ly Thải của Phù Bình Kiếm Hồ giúp đỡ.
+
+Tề Cảnh Long là ngoại lệ.
 
 Khách khí với hắn làm gì?
 
-Đây không phải là xem thường ánh mắt kết giao bằng hữu của vị Lục Địa Giao Long này sao.
+Làm vậy chẳng phải xem thường mắt nhìn người khi kết giao bằng hữu của vị Lục Địa Giao Long ấy sao?
 
-Trần Bình An không gió không sóng rời khỏi Lộc Cửu quận thành, lưng đeo kiếm tiên, cầm trong tay thanh trúc trượng, trèo non lội suối, chậm rãi mà đi, đi hướng nước láng giềng.
+Trần Bình An yên ổn rời quận thành Lộc Cửu, đeo Kiếm Tiên sau lưng, tay cầm trượng trúc xanh, trèo đèo lội suối, thong thả đi về phía nước láng giềng.
 
-Cuối cùng không có cơ hội, đụng phải người đọc sách tự xưng Lỗ Đôn kia.
+Rốt cuộc hắn vẫn không có dịp gặp lại người đọc sách bản quận tự xưng là Lỗ Đôn kia.
 
-Nhân sinh thường thường như thế, gặp phải, chia ly, rốt cuộc không thấy nữa.
+Đời người thường như vậy. Gặp nhau, chia tay, rồi chẳng bao giờ gặp lại.
 
-Không có những chuyện khiến người ta cảm thấy cho dù cảnh còn người mất, cũng có cố sự lưu trong lòng.
+Không có những chuyện khiến người ta cảm thấy rằng, dẫu cảnh còn người mất, trong lòng vẫn lưu lại một câu chuyện.
 
-Trần Bình An đi trên đường tu hành.
+Trần Bình An đang đi trên con đường tu hành.
 
 Ai cũng vậy.

@@ -2,6 +2,12 @@
 
 This file provides guidance to Codex (claude.ai/code) when working with code in this repository.
 
+# Hướng dẫn cho agent
+
+Đọc và tuân thủ toàn bộ hướng dẫn trong [CLAUDE.md](./CLAUDE.md) trước khi làm việc với repository này. File đó là nguồn hướng dẫn chung cho các agent trong dự án.
+
+Khi cần cập nhật hướng dẫn chung, sửa trực tiếp `CLAUDE.md`, không sao chép lại nội dung vào file này.
+
 ## Tổng quan
 
 PWA đọc truyện cá nhân (hiện chỉ có bộ "Kiếm Lai"), không build step, không framework, không test. Nội dung cào từ truyenfull.live về dạng một file Markdown mỗi chương. Người dùng nói tiếng Việt; tài liệu và trả lời viết tiếng Việt có dấu.

@@ -1,413 +1,301 @@
-# Chương 579: Sơn thủy xa xôi
+# Chương 579: 文圣一脉师兄弟
 
-Một bộ thanh sam đi qua Lan Phòng quốc, hành trình bắc du.
+庞元济缓缓走出，身上除了些没有刻意掸落的尘土，看不出太多异样。
 
-Lan Phòng quốc dồi dào hoa lan quý giá, quốc gia này như đang say mê, không tiếc tiền bạc, của cải phong phú. Giá cả hoa lan trên thị trường gần như cao ngất ngưởng, chỉ còn lại vài cọng.
+陈平安与他相视一眼，庞元济点点头，与陈平安擦肩而过，走向先前酒肆，庞元济记起一事，大声道：“押我赢的，对不住了，今天在座各位的酒水钱……”
 
-Ngoài điều đó ra, quốc gia này không có đặc thù gì nổi bật, nhưng một số tập tục đã in sâu vào trí nhớ người dân. Chẳng hạn, phụ nữ thường ném tiền để cầu may, dân chúng, dù là giàu có hay nghèo hèn, đều thích thả cá phóng sinh. Tại đây, phong tục thịnh hành cả trong triều đình lẫn dân gian; tuy nhiên, việc phóng sinh lại có sự phân chia rõ ràng giữa thượng du và hạ du. Ở thượng du, người ta thường thành kính thả cá, trong khi hạ du, nhiều người lại đi bắt cá và rùa. Ngoài ra, có cả những người kéo thuyền, bất kể là phụ nữ thanh tú hay đầu trần chân đất, đều phơi mình dưới ánh nắng mặt trời.
+庞元济笑道：“跟我没半颗铜钱的关系，该付账付账，能赊账赊账，各凭本事。”
 
-Tại những nơi bị hạn hán úng lụt, người dân cũng hay dùng giấy Long vương để dạo phố. Điều này không chỉ đơn thuần để cầu mưa hay tránh mưa mà còn thể hiện cho sự tôn kính của họ, khi họ liên tục quất những tờ giấy Long vương cho đến khi chúng vỡ nát.
+说到这里，庞元济捂住嘴巴，摊开手后，甩了甩，皆是鲜血。
 
-Phía bắc Lan Phòng quốc là Thanh Từ quốc, nơi mà quyền lực được đặt lên hàng đầu với tôn sùng đạo gia. Đạo quán như mây, trong khi Phật môn lại bị áp bức, các chùa miếu hoàn toàn vắng vẻ.
+到了酒肆那边，本土剑仙高魁已经递过去一只酒碗，南婆娑洲剑仙元青蜀笑着没说话。
 
-Tiến xa hơn về phía bắc, ta sẽ gặp Đại Triện vương triều, là vùng đất bị Kim Phi quốc cai trị. Đặc trưng của nơi này là sự phân chia rõ ràng giữa võ thuật và văn hóa, và cảnh hỗn loạn xảy ra gần như khắp nơi. Thi thoảng ta còn bắt gặp cảnh máu chảy, nhiều nhà phú quý trẻ tuổi lại đam mê võ thuật, họ tham gia vào các cuộc đấu tranh, chẳng cần quan tâm đến ai khác.
+庞元济无奈道：“让两位剑仙见笑了。”
 
-Kim Phi quốc có quân chủ xuất thân từ quân đội, với chính sách trọng võ khinh văn. Do vậy, trong triều đình, các văn thần thường xuyên trở về nhà với thân thể bầm dập.
+高魁说道：“输了而已，没死就行。”
 
-Tại một nơi không thể tin được ở Kim Phi, người dân đã quen với việc lạm dụng và chế giễu các đại học sĩ hay lễ bộ thượng thư, mà chỉ coi họ như một chủ đề tán gẫu khi rượu bia.
+元青蜀点头道：“比齐狩好多了。”
 
-Dọc đường đi, Trần Bình An gặp phải thời tiết mưa phùn, màn mưa như tấm vải rũ xuống, tiếng mưa rơi lên tiếng gió nhẹ như tiếng chuông.
+庞元济转头望去，那一行人已经远去，晏琢祭出了一枚核雕，蓦然变出一驾豪奢马车，带着朋友一起离开大街。
 
-Trong rừng núi, có người đốn củi bỗng nhiên phát hiện một cây hoa lan, khiến tâm trí họ vui vẻ như điên dại. Đêm khuya, tiếng côn trùng kêu vang, ánh trăng chiếu sáng như nước, bên cạnh bếp lửa lập lòe.
+宽敞车厢内，陈平安盘腿而坐，宁姚坐在一旁。
 
-Trời sắp chuyển sang mưa dầm.
+那把剑仙与陈平安心意相通，已经自行破空而去，返回宁府。
 
-Hôm nay Trần Bình An lang thang bên ngoài một khu quận thành của Kim Phi quốc. Khu vực này cũng chứa nhiều hổ dữ, nên người dân và những môn đồ quyền quý thường xuyên đến đây săn bắn. Dọc đường, hắn đã gặp nhiều nhóm người cầm đao, mang cung đi săn, tiếng hét vang lên như một trào lưu, phần lớn là những thanh niên trẻ tuổi, không ít trong đó là nữ lưu, họ đều có dáng vẻ mạnh mẽ.
+晏琢占地大，与陈三秋、董黑炭和叠嶂相对而坐。
 
-Vài ngày trước, Trần Bình An tận mắt chứng kiến một đám thanh niên từ kinh thành Kim Phi tụ tập ở một ngọn núi thần miếu. Họ uống rượu thả ga, đến nỗi đã lưu lại những hình vẽ kỳ quái trên tường miếu. Một vị thanh niên cao lớn đã không ngần ngại nâng một bức tượng thần lên và tuyên bố muốn thử sức với sơn thần. Còn những vị thần linh thinh lặng ad phải chứng kiến đám thanh niên này, chỉ biết thở dài ngao ngán.
+气氛有些沉默。
 
-Khi màn đêm buông xuống, Trần Bình An không vào quận thành mà rời xa con đường chính, leo núi băng rừng theo lối nhỏ. Thỉnh thoảng hắn bắt gặp bóng dáng người qua lại, đa phần là những nhân sĩ giang hồ. Trong bộ thanh sam, hắn lướt nhẹ như làn khói xanh giữa rừng núi. Vào ban đêm, khi không còn ánh đèn, hắn bất chợt dừng lại, đứng dưới một gốc cây lớn, ngước nhìn về phía xa. Một tòa núi lớn với bốn mặt đều là vách đá, ngọn đèn sáng rực, nhà cửa chật chội. Dưới chân hắn, có một cầu gỗ bằng xích sắt có thể dẫn l*n đ*nh núi.
+陈平安开口问道：“宁府有那帮着白骨生肉的灵丹妙药吧？”
 
-Đó dường như là một môn phái võ lớn, nhưng do xung quanh thiếu linh khí, nơi đây chỉ là vùng biên của các quốc gia khác mà thôi, không phải là nơi lý tưởng cho việc tu luyện.
+宁姚点点头。
 
-Trần Bình An ngồi trên cành cây, nhai một miếng bánh, trong hồ lô bên cạnh là hơn mười cân rượu Lan Phòng quốc. Hắn chưa uống nhiều còn lại khá nhiều. Hắn nhắm mắt lại để hồi phục sức lực, dù có luyện nhưng vẫn không thể hoàn toàn hóa giải hai khối trảm long đài.
+晏胖子瞥了眼陈平安的那条胳膊，问道：“半点不疼吗？”
 
-Thời gian trôi qua, ánh đèn đối diện đỉnh núi dần dần tắt, chỉ còn lại những chấm sáng le lói.
+对于伤势，车厢内所有剑修，都不陌生，只说叠嶂，便曾经被妖族砍掉一条胳膊。
 
-Sáng sớm hôm sau, Trần Bình An mở mắt, hướng về phía mình, lấy bức phù mà Đỗ Du đã dạy ở Quỷ Phủ để tiếp tục tu luyện.
+但是如陈平安这般，从头到尾，眉头都不皱一下的，不常见。
 
-Trên con đường bắc du, hắn sẽ đi từ từ, chỉ cần tới Bắc Câu Lô Châu phía đông vào mùa thu, nơi đó có con sông lớn vào đại độc. Vùng trung tâm của Bắc Câu Lô Châu cao ngất, các vật thể nghiêng về phía biển, khu vực phía bắc còn cao hơn. Tất cả Bắc Câu Lô Châu từ Hài Cốt ghềnh hướng bắc đều có đặc điểm địa lý như bậc thang. Ở phía bắc có hơn mười dòng sông lớn hội tụ về một dòng, tạo thành cái kỳ quan hiếm thấy này.
+陈平安笑道：“还好。就是解决掉庞元济那把光阴飞剑，和齐狩跳珠飞剑的残余剑气，有些麻烦。”
 
-Sau khi tập trung rèn luyện hai khối trảm long đài, Trần Bình An đặt chúng ở hai nơi mà trước đây có "Một đám kiếm khí nhỏ", phi kiếm Mùng Một và Mười Lăm lần lượt trú ngụ trong đó.
+宁姚说道：“少说话。”
 
-Mỗi lần phi kiếm va chạm với trảm long đài, ma luyện mũi kiếm phát ra tia lửa, Trần Bình An cảm thấy tâm trạng nặng nề. Dạo này hắn đi không nhanh, vì tốc độ nhỏ luyện rất chậm. Hắn khó khăn lắm mới có thể theo kịp tốc độ của Mùng Một và Mười Lăm. Khi chúng đã hấp thụ đủ trảm long đài, mới tới công đoạn tiếp theo, đó là biến chúng thành vật mà hắn tâm đắc, quá trình này tất yếu gặp nhiều nguy hiểm và khó khăn.
+陈平安便开始闭目养神。
 
-Tuy nhiên, cảm giác như trở về trên Lạc Phách lầu trúc lại khiến Trần Bình An cảm thấy an tâm.
+到了宁府，白嬷嬷和纳兰夜行早已等在门口，瞧见了陈平安这副模样，哪怕是白炼霜这种熟稔打熬体魄之苦的山巅武夫，也有些于心不忍，纳兰夜行只说了一句话，两人飞剑残余剑气剑意，他就不帮着剥离出去了，留给陈公子自己抽丝剥茧，也算一桩不小的裨益。陈平安笑着点头，说有此打算。
 
-Trên cầu vang lên tiếng xe cộ lăn, bên cầu phía này núi cao có một khu vườn rau rộng lớn. Sau đó, một nhóm người gánh nước từ khe núi đi ra, trong đó có những đứa trẻ mang theo gậy, chạy nhảy vui vẻ. Ở bên trong trấn nhỏ trên đỉnh núi, vang lên tiếng luyện tập quyền cước của những người võ sĩ.
+老妪领着陈平安去宁府药库，抓药疗伤。
 
-Sống trên núi không phải là những người tu chân, mà cũng có khá nhiều phiền phức. Những hình bóng của người quay về trong đêm trước đó chủ yếu là những người chung quanh, trong số đó có những người gánh hàng nặng đi qua cầu trở về nhà.
+宁姚和四个朋友坐在斩龙崖的凉亭内。
 
-Trần Bình An quyết định ở lại đây thêm hai ngày nữa để tiếp tục rèn luyện kỹ năng trong việc cầu mưa ở Bích Du Cung, cố gắng rèn luyện hai khối trảm long đài một cách toàn diện, rồi lại tiếp tục hành trình.
+晏胖子四人，除了董黑炭依旧没心没肺，坐在原地发呆，其余三人，大眼瞪小眼，千言万语，到了嘴边，也开不了口。
 
-Kể cả trong quốc gia Kim Phi mà có hơn mười nước, đứng đầu là Đại Triện vương triều, nơi có võ thuật thịnh vượng, giang hồ cũng hỗn loạn, khiến cho nhiều võ sĩ liên thủ tấn công các môn phái bí ẩn.
+宁姚缓缓说道：“只分胜负，齐狩如果不托大，不想着赢得好看，一开始就选择全力祭出三飞剑，尤其是更用心驾驭跳珠剑阵，不给陈平安近身的机会，加上那把能够盯紧对手魂魄的心弦，陈平安会输。武夫和剑修，相互比拼一口纯粹真气的绵长，气府灵气的积蓄多寡，肯定是齐狩占优。”
 
-Trên bản đồ rộng lớn, chỉ có một vị Nguyên Anh trấn giữ Kim Lân cung, miễn cưỡng giữ an toàn, nhưng trong số đệ tử của họ xuống núi rèn luyện vẫn cần phải cẩn trọng.
+“若分生死，陈平安和庞元济都会死。”
 
-Trần Bình An lần đầu tiên nghe được tin tức này từ Xuân Lộ phố và đã cảm thấy thật khó tin, nhưng khi nghe rằng bốn người võ sĩ mạnh mẽ ở Bắc Câu Lô Châu, trong đó có một người ở sau Đại Triện vương triều, hắn đã dần hiểu ra.
+宁姚随后补充道：“可最后还是陈平安赢下这两场苦战，不是陈平安运气好，是他脑子比齐狩和庞元济更好。对于战场的天时地利人和，想的更多，想周全了，那么陈平安只要出拳出剑，够快，就能赢。不过这里边还有个大前提，陈平安接得住两人的飞剑，你们几个，就都不行。你们的剑修底子，比起庞元济和齐狩，差得有点远，所以你们跟这两人对战，不是厮杀，只是挣扎。说句难听的，你们敢在南边战场赴死，杀妖一事，并无半点怯懦，死则死矣，故而十分修为，往往能有十二分的剑意，出剑不凝滞，这很好，可惜如果让你们当中一人，去与庞元济、齐狩捉对厮杀，你们就要犯怵，为何？纯粹武夫有武胆一说，按照这个说法，就是你们的武胆太差。”
 
-Bắc Câu Lô Châu hiện tại có bốn người mạnh mẽ đứng đầu, trong đó người lớn tuổi nhất là một vị có tiếng tăm dưới núi, cùng là bạn tri kỷ của những thanh kiếm tiên trên núi. Không rõ vì lý do gì, vào vài năm trước, ông đã mắc sai lầm nghiêm trọng, khiến cho mấy vị tu sĩ ở đây tốn rất nhiều công sức để giam giữ. Dù sao họ cũng không dám dễ dàng tấn công, sợ làm tổn thương đến tính mạng hữu ích của ông, vì vậy ông đã kiên nhẫn chờ đợi thiên quân Tạ Thực từ Bảo Bình châu quay về để ban hành chỉ dụ.
+宁姚继续道：“对阵齐狩，战场形势发生改变的关键时刻，是齐狩刚刚祭出心弦的那一瞬间，陈平安当时给了齐狩一种错觉，那就是仓促对上心弦，陈平安的身形速度，止步于此，所以齐狩挨拳后，尤其是飞鸢始终离着一线，无法伤及陈平安，就明白，即便飞鸢能够再快上一线，其实一样无用，谁遛狗谁，一眼可见。只不过齐狩是在表皮，看似对敌潇洒，实则在一点一滴挥霍优势，陈平安就要更加隐蔽，环环相扣，就为了以第一拳开道后的第二拳，拳名神人擂鼓式，是一种我换伤你换命的拳法，也是陈平安最擅长的拳招。”
 
-Người trẻ tuổi nhất chỉ mới trăm tuổi, là người thuộc một tông môn cao nhất ở phía bắc. Vợ của hắn là một nữ kiếm tiên dưới ngọn Ngọc Phác cảnh, thật ra bên nhau cũng là việc không dễ dàng.
+宁姚说话的时候。
 
-Sau đó, có một vị cao nhân sống ẩn dật trong Đại Triện vương triều, vẫn sống trong cảnh bí ẩn suốt hàng chục năm qua. Nhiều tin đồn cho rằng ông đã chết, nhưng cũng nói rằng ông chết vì một cuộc chiến với kẻ thù vốn là một đại kiếm tiên. Mặc dù Đại Triện vương triều che dấu rất tốt, cũng có lời đồn cho rằng ông đi về hướng hoa sơn trà động thiên, dự định làm những việc lớn, dùng linh khí rèn luyện cơ thể, giống như hồi còn trẻ đánh triều ở bờ biển, và hơn nữa, ông cũng từng chém giết với đại kiếm tiên Viên Đề sơn cách đây 60 năm trước.
+晏琢他们甚至都不会询问什么，就只是安静聆听。
 
-Mới đây, có một người xuất hiện với lai lịch cổ quái. Hắn ra tay không nhiều lần, nhưng mỗi lần đều khiến đối thủ không chết mà chỉ bị thương nặng. Hắn đã phá hủy hai tòa đỉnh núi của đường Tổ Sư, nơi có những người tu luyện Nguyên Anh trấn giữ, vì vậy mà Bắc Câu Lô Châu mới dám ngắt lời người này. Tin đồn cho rằng hắn liên quan đến Sư Tử phong, và tên thật có khả năng là một cái tên giả, Lý Nhị.
+宁姚正色道：“现在你们应该清楚了，与齐狩一战，从最早的时候，就是陈平安在为跟庞元济厮杀做铺垫，晏琢，你见过陈平安的方寸符，但是你有没有想过，为何在大街上两场厮杀，陈平安总计四次使用方寸符，为何对峙两人，方寸符的术法威势，云泥之别？很简单，天底下的同一种符箓，会有品秩不同的符纸材质、不同神意的符胆灵光，道理很简单，是一件谁都知道的事情，庞元济傻吗？半点不傻，庞元济到底有多聪明，整座剑气长城都明白，不然就不会有‘庞百家’的绰号。可为何仍是被陈平安算计，凭借方寸符扭转形势，奠定胜局？因为陈平安与齐狩一战，那两张普通材质的缩地符，是故意用给庞元济看的，最巧妙之处，在于第一场战事当中，方寸符出现了，却对胜负形势，裨益不大，我们人人都倾向于眼见为实，庞元济无形之中，就要掉以轻心。若只是如此，只在这方寸符上较劲，比拼脑子，庞元济其实会更加小心，但是陈平安还有更多的障眼法，有意让庞元济看到了他陈平安故意不给人看的两件事情，相较于方寸符，那才是大事，例如庞元济注意到陈平安的左手，始终未曾真正出拳，例如陈平安会不会藏着第四把飞剑。”
 
-Trong Đại Triện vương triều, còn có một vị vũ phu cảnh giới tám, khá quen thuộc, đó là một nữ kiếm khách đại tông sư. Hiện tại cô đảm nhiệm vai trò tùy tùng thân cận của hoàng đế Chu thị. Tuy nhiên, tiền đồ của cô không được coi trọng; việc đạt đến Viễn Du cảnh cũng đã là hết sức khó khăn, và sống trong đời này, cô gần như vô vọng vươn tới Sơn Điên cảnh.
+晏琢和陈三秋相视苦笑。
 
-Nói một cách ngắn gọn, tại đây, giang hồ đều coi những vũ phu có tiếng là kẻ mạnh nhất, với nắm đấm cứng rắn nhất.
+叠嶂听得脑袋都有些疼，尤其是当她试图静心凝气，去仔细复盘大街战事的所有细节后，才发现，原来那两场厮杀，陈平安花费了多少心思，设置了多少个陷阱，原来每一次出拳都各有所求。叠嶂突然意识到一件事，一开始他们四个听说陈平安要待到下一场城头大战，其实顾虑重重，会担心极有默契的队伍当中，多出一个陈平安，非但不会增加战力，反而会害得所有人都束手束脚，现在看来，是她把陈平安想得太简单了。
 
-Hôm nay, Trần Bình An đối với núi Lạc Phách bên ngoài, có phần không lường trước được sức mạnh của các vũ phu Kim thân cảnh.
+董画符还好，因为想的不多，这会儿正忧愁回了董家，自己该如何对付姐姐和娘亲。
 
-Trước đây, hắn từng muốn hỏi Tống lão tiền bối về kiếm tiên Tô Lang, đó là người đầu tiên. Thương Quân hồ Long cung cũng từng đánh lén hắn, đó là người thứ hai. Trên thuyền của tiểu công tử Ngụy Bạch có một tên tùy tùng, là người thứ ba.
+宁姚沉默片刻，望向四个朋友，笑道：“其实陈平安一开始就知道黑炭和叠嶂切磋，还有你晏胖子的挑衅，是为了什么。他知道你们都是为他考虑，只不过当时你们都不相信他能够打赢三场，他就不好多说什么，但是我知道，他心里边，会领情，他从来就是这样的人。”
 
-Thực ra, Trần Bình An rất muốn tìm một vị Viễn Du cảnh vũ phu để luận bàn một phen, đáng tiếc rằng trên thuyền Cao Thừa phân thân, chỉ có một vũ phu cảnh giới tám. Tuy vậy, vị lão kiếm khách khí thế phi phàm đó, đã khiến hắn cảm thấy áp lực. Khi hắn cầm kiếm chém đầu kẻ thù, câu nói "Ba vị Phi Ma tông Ngọc Phác cảnh, không xứng để ta chém" thực sự thể hiện được khí phách anh hùng của hắn.
+宁姚笑问道：“是不是放心之余，内心深处，会觉得陈平安其实很可怕？一个城府这么深的同龄人，如果想要玩死自己，好像只会被戏耍得团团转？会不会给他骗了还帮着数钱？”
 
-Trước đó, tại Kim Phi quốc, giữa một hồ nước, Trần Bình An đã thuê một chiếc thuyền nhỏ để thả câu trong đêm và xa xa chứng kiến một cuộc chém giết đẫm máu.
+陈三秋点头道：“确实有点。”
 
-Dường như đây là một cuộc vây quét đã được lên kế hoạch từ trước. Một chiếc thuyền neo giữa hồ đã xảy ra nội chiến, với hơn mười người chia thành hai phái, sử dụng nhiều loại vũ khí khác nhau. Số người này có thể được coi là những cao thủ hàng đầu trong giang hồ Kim Phi quốc, đa phần là những vũ phu từ năm đến sáu cảnh. Họ chiến đấu quyết liệt, khiến đầu lâu và tay chân bay tứ tung. Sau đó, bảy tám chiếc chiến thuyền quân đội Kim Phi quốc xuất hiện, treo đèn sáng chói, ánh sáng từ đèn lấp lánh như ban ngày, bao vây chiếc thuyền. Một loạt mũi tên từ những cung nỏ mạnh mẽ b*n r*, khi chém giết diễn ra, cả hai bên đã trở nên thê thảm, với hơn mười đầu thi thể lăn lóc. Những người còn lại lập tức bỏ chạy về thuyền, tìm cách tránh né. Chiến thuyền quân đội đã lao vào tấn công chiếc thuyền đang gặp nguy hiểm, trong lúc hỗn loạn, nhiều cao thủ giang hồ đã tìm cách thoát thân nhưng không tránh khỏi bị thiệt mạng, có người thì bị ngã xuống nước và bị dìm xuống đáy.
+宁姚摇摇头，“不用，陈平安与谁相处，都有一条底线，那就是尊重。你是值得敬佩的剑仙，是强者，陈平安便诚心敬仰，你是修为不行、身世不好的弱者，陈平安也与你心平气和打交道。面对白嬷嬷和纳兰爷爷，在陈平安眼中，两位长辈最重要的身份，不是什么曾经的十境武夫，也不是昔年的仙人境剑修，而是我宁姚的家里长辈，是护着我长大的亲人，这就是陈平安最在意的先后顺序，不能错，这意味着什么？意味着白嬷嬷和纳兰爷爷就算只是寻常的年迈老人，他陈平安一样会十分敬重和感恩。于你们而言，你们就是我宁姚的生死战友，是最要好的朋友，然后，才是你晏琢是晏家独苗，陈三秋是陈家嫡长房出身，叠嶂是开铺子会自己挣钱的好姑娘，董画符是不会说废话的董黑炭。”
 
-Trần Bình An đã khống chế thuyền của mình, lặng lẽ rời xa hiện trường đó.
+宁姚不再说话。
 
-Hình ảnh cuối cùng trong ký ức của hắn thật sâu sắc. Nữ kiếm khách trên chiếc thuyền, không ngừng xuất kiếm, bất kể là thi thể trôi nổi hay những người bị thương, đều bị nàng đâm chết bằng những nhát kiếm nhanh chóng. Có lẽ cuối cùng sẽ không còn ai sống sót trên chiếc thuyền đó, và những người có khả năng sống sót chỉ sợ chính là nội ứng của triều đình.
+远处走来一个陈平安。
 
-Trần Bình An đã thấy có ba người lên chiếc chiến thuyền cao nhất, cúi chào vị võ tướng mặc áo giáp cam. Hắn nhắm mắt lại, tiếp tục tham gia rèn luyện tại trảm long đài.
+换上了一身清爽青衫，是白嬷嬷翻出来的一件宁府旧藏法袍，陈平安双手都缩在袖子里，走上了斩龙崖，脸色微白，但是没有半点萎靡神色，他坐在宁姚身边，笑问道：“不会是聊我吧？”
 
-Việc tu hành và giao tiếp với người khác sẽ khiến ta nhận ra điều không đáng giá lại là giá trị nhất, đó chính là thời gian. Còn về những việc trong giang hồ, Trần Bình An thực sự không có ý định can thiệp.
+董画符点头，正要说话，宁姚已经说道：“刚说你不讲废话？”
 
-Trong màn đêm hôm nay, Trần Bình An nhẹ nhàng thở ra, nhìn thấy trên cầu có một đôi nam nữ trẻ tuổi. Nữ tử vẫn còn vẻ ngây thơ, nhất định là một vũ phu tam cảnh, nam tử thì nho nhã, giống như một thư sinh chưa được học hành chính thức, không phải là một vũ phu thuần túy. Nữ tử động đậy chiếc áo xích sắt bước chậm rãi, tuy tuổi còn trẻ nhưng lại tỏ ra lo lắng cho nam tử bên cạnh. Khi họ đến đầu cầu, nữ tử nhẹ nhàng nhảy xuống và được nam tử nắm tay dắt đi.
+董画符便识趣闭嘴。
 
-Hai người dọc theo con đường núi, tay trong tay trò chuyện rôm rả. Trần Bình An nghe được một số thông tin về triều đình và giang hồ Kim Phi quốc.
+陈平安抬起左手，捻出两张缩地符，一张黄符材质，一张金色材质。
 
-Nguyên lai những năm gần đây, trên giang hồ vô cùng bất ổn. Đương kim quân chủ sau khi soán ngôi đăng cơ, theo như các ghi chép trong "Kim Phi quốc sách tạp lục" đã nói, vị hoàng đế này ngay sau khi ngồi lên ngai vàng, đã lập tức ra tay với các hoàng thất cửu tộc. Hắn sai người gọi những người có tên trong danh sách hoàng thất đến đại điện, mở ra từng trang gia phả, từ những đại thần đã treo cổ tự vẫn, lập tức hô lên một cái tên, và bên ngoài đại điện sẽ không thiếu một cái đầu mất đi. Hắn đã giết sạch tất cả những kẻ có liên quan đến triều đại trước. Trong vòng một đêm, máu chảy thành sông, nhưng cuối cùng vẫn có một cá lọt lưới – là con út của tiên triều, may mắn được cung nữ mang theo trốn ra khỏi hoàng cung. Dưới sự bảo vệ tận tụy của trung thần, hắn đã an toàn ra khỏi kinh thành, và kể từ đó sống lưu vong trên giang hồ, xa xôi không rõ tin tức. Vì vậy, nhiều năm qua, trên giang hồ thường xuất hiện những vụ thảm án diệt môn bí ẩn, chủ yếu là các đại phái. Dù cho đối với những kẻ rõ ràng đã chết vì báo thù, các quan phủ vẫn không dám truy cứu, chỉ sợ nếu bất cẩn sẽ lại chạm đến vị vua đang nắm quyền ở kinh thành.
+晏琢瞪大眼睛，却不是那符箓的关系，而是陈平安左臂的抬起，自然而然，哪里有先前大街上颓然下垂的惨淡样子。
 
-Các quan phủ vô cùng lúng túng, bởi Kim Phi quốc vốn coi trọng võ lực, các võ tướng nơi đây càng yêu thích việc tiêu diệt kẻ cướp ngụy trang, sử dụng một loạt người trong giang hồ để huấn luyện quân đội. Trong khi đó, những nhân sĩ giang hồ chính nghĩa, lại sống trong cảnh khốn cùng không thể tả.
+陈平安收起两张符箓，坦诚笑道：“最后一拳，我没有尽全力，所以左手受伤不重，庞元济也有意思，是故意在大街坑底多待了会儿，才走出来，我们双方，即使都在做样子给人看，我也不想真的跟庞元济打生打死，因为我敢确定，庞元济一样有压箱底的手段，没有拿出来。所以是我得了便宜，庞元济这都愿意认输，是个很厚道的人。两场架，不是我真能仅凭修为，就可以胜过齐狩和庞元济，而是靠你们剑气长城的规矩，以及对他们心性的大致猜测，林林总总，加在一起，才侥幸赢了他们。远远近近观战的那些剑仙，都心里有数，看得出我们三人的真正斤两，所以齐狩和庞元济，输当然还是输了，但又不至于赔上齐家和隐官大人的名声，这就是我的退路。”
 
-Giang hồ, dù sao vẫn đang trong tình trạng hỗn loạn, nhưng đây không phải vấn đề lớn. Vì vậy, trong số những cao thủ võ lâm của Kim Phi quốc có hơn chục người, cộng với bảy tám kẻ ma đạo hùng bá, họ khó khăn lắm mới cùng nhau tạm gác lại thành kiến, ý định bí mật tổ chức một yến hội. Dĩ nhiên, đó không phải là để lật đổ chính quyền, mà là để làm hoàng đế không yên lòng, khiến triều đình và dân chúng trong tình trạng hoảng loạn. Họ quyết định hợp lực, giúp hoàng đế đào bới lên những gì đã chôn vùi trong giang hồ, tìm kiếm vị hoàng tử đã mất tích từ lâu của triều trước. Nếu kẻ đó bị tiêu diệt, hoàng đế tất nhiên sẽ vui mừng, tình thế giang hồ cũng sẽ chuyển biến tích cực hơn, tạo điều kiện để các anh hùng giang hồ thở phào nhẹ nhõm.
+出拳要快，落拳要准，收拳要稳。
 
-Trong lòng những nam nữ trẻ tuổi, họ vẫn lo lắng về những cuộc chiến đẫm máu và bạo lực.
+若是出剑，亦是如此。
 
-Môn phái của họ, gọi là Tranh Vanh môn, là thế lực hàng đầu trong giang hồ Kim Phi quốc. Theo như môn phái trong võ lâm phân chia, có gần trăm môn phái lớn nhỏ có thể điều tra được. Mối quan hệ giữa các môn phái này cũng có sự phân chia rõ ràng dựa theo thời đại hoàng đế đương nhiệm. Giang hồ chia ra làm mới và cũ, các môn phái mới thường phụ thuộc vào người có quyền lực ở kinh thành, trong khi những kẻ lão luyện thì vẫn đứng vững. Tranh Vanh môn tự nhiên thuộc về những lão luyện, với nữ tử là con gái của một trong bốn cao thủ chính đạo.
+陈三秋笑道：“有些事情，你不用跟我们泄露天机的。”
 
-Tin tức mà nàng nhận được muộn nhất là việc yến hội cuối cùng cũng đã được định rõ. Địa điểm chọn là một hồ lớn, hứa hẹn là nơi không có cơ hội cho cả hai bên động tay động chân.
+陈平安摇摇头，“没什么不能说的，出门打架之前，我说得再多，你们多半会觉得我大言不惭，不知轻重，我自己还好，不太看重这些，不过你们难免要对宁姚的眼光产生质疑，我就干脆闭嘴了。至于为什么愿意多讲些本该藏藏掖掖的东西，道理很简单，因为你们都是宁姚的朋友。我是相信宁姚，所以相信你们。这话可能不中听，但是我的实话。”
 
-Hai nhà Hắc Bạch đều không muốn đến thảo luận trên lãnh thổ của đối phương, và không ai biết liệu có thể tránh khỏi việc bị tận diệt hay không. Người chính đạo cảm thấy những kẻ trong ma đạo rất tàn bạo, còn đám người hắc đạo thì châm biếm những kẻ tự xưng hiệp sĩ kia, cho rằng họ cũng chẳng tốt đẹp gì hơn.
+晏胖子道：“中听，怎么就不中听了。陈兄弟你这话说得我这会儿啊，心里暖洋洋的，跟天寒地冻的大冬天，喝了酒似的。”
 
-Chỉ có một điều khiến người ta lo lắng, dưới ánh trăng, mọi người dường như mong chờ một điều gì đó, giữa không gian tĩnh lặng, tự nhiên không thể kiềm chế cảm xúc, dẫn đến những hành động nhỏ nhặt.
+陈平安微笑道：“最近我是真喝不了酒，受伤真不轻，估摸着最少十天半个月，都得好好养伤。”
 
-Trước đây, nữ tử đã cầm một nhánh cây trong tay, nhảy múa trong gió, một tay múa quyền, tay kia thì tạo ra những cánh hoa kiếm xinh đẹp.
+宁姚斜眼说道：“看你现在这样子，活蹦乱跳，还话多，是想要再打一个高野侯？”
 
-Trần Bình An nhẹ nhàng thở dài, người nói rằng Tranh Vanh môn chính là một trong ba cao thủ giang hồ cuối cùng, người này ra quyền rất chi là tương tự với nữ tử ở bên cạnh, cổ tay hắn quấn quanh một thanh nhuyễn kiếm, ngay khi xuất kiếm, cổ gót bị chém đứt, kiếm thuật vô cùng mềm mại và biến hóa kỳ diệu.
+陈平安笑道：“高野侯，不是我吹牛，我哪怕当时在街上不走，只要高野侯肯抛头露面，我还真能对付，因为他是三人当中，最好对付的一个，打他高野侯，分胜负，分生死，都没问题。事实上，齐狩，庞元济，高野侯，这个顺序，就是最好的先后，不管面子里子什么的，反正可以让我连赢三场，不过我也就是想想，高野侯不会这么善解人意。”
 
-Nam nữ hối hả dựa sát vào nhau, trong những động tác có chút gì đó kh*** g**.
+晏胖子膝盖都有点软。
 
-Nếu chỉ là như thế, thì cũng vậy thôi. Trần Bình An chỉ cần nhắm mắt tu hành là đủ. Có thể hắn đã sợ rằng nam nữ đ*ng t*nh tạm thời, có thể gây ra thiên lôi động đến địa hỏa.
+陈三秋哭笑不得。
 
-Quả thật, điều ta sợ thường sẽ đến. Ở phía sau cây, nam nữ vây quanh đã chọn một chỗ bóng cây rậm rạp hơn một chút để ngồi, nhằm bảo đảm bí mật hơn. Nếu không, họ sẽ không cho hắn động tay động chân.
+董画符觉得这样的男人，才配得上宁姐姐。
 
-Nam tử cười và đồng ý, nữ tử trẻ tuổi liền nắm lấy bả vai người yêu, cả hai đều muốn nhảy lên.
+叠嶂也替宁姚感到高兴。
 
-Trên người hắn có một tấm Đà Bi phù. Trần Bình An ngắm nhìn bốn phía, búng ngón tay và một viên đá nhẹ nhàng vỡ vụn dưới bụi cỏ.
+宁姚一只脚踩在陈平安脚背上，脚尖一拧。
 
-Nam nữ càng thêm hoảng sợ và vội vàng quay đầu lại nhìn.
+陈平安微笑道：“我认输，我错了，我闭嘴。”
 
-Trần Bình An đứng dậy, lướt qua và đi.
+晏胖子觉得这位好兄弟，是高手啊。
 
-"Được rồi, địa bàn này sẽ dành cho các ngươi."
+陈三秋笑道：“行了行了，让陈平安好好养伤。对了，陈平安，有空记得去我家坐坐。”
 
-Trần Bình An tiến về phía ngọn núi cao hơn, tiếp tục luyện tập trảm long đài.
+董画符一根筋，直接说道：“我家别去，真去了，我姐我娘，她们能烦死你，我保证比你应付庞元济还不省心。”
 
-Chẳng qua sau khi đôi nam nữ bớt hoảng sợ và v**t v* an ủi một lát, họ nhanh chóng chạy về phía cầu dây bên kia, vì Tranh Vanh môn trên dưới đều thắp đèn dầu, sáng trắng như tuyết.
+陈平安站起身，笑着点头。
 
-Sau đó, họ vọt tới cửa chính bên kia, tựa hồ đều muốn nghênh đón khách quý.
+四人刚要离开山顶凉亭，白嬷嬷站在下边，笑道：“绿端那个小丫头方才在大门外，说要与陈公子拜师学艺，要学走陈公子的一身绝世拳法才罢休，不然她就跪在门口，一直等到陈公子点头答应。看架势，是挺有诚意的，来的路上，买了好几袋子糕点。好在给董姑娘拖走了，不过估计就绿端丫头那颗小脑瓜子，以后咱们宁府是不得清净了。”
 
-Trần Bình An nhìn xa xăm, trên con đường mòn trong núi, bất chợt hiện ra một con rồng lửa rất nhỏ, chậm rãi di chuyển về phía trước. Nó giống như bùa chú rồng lửa mà Liễu Chất Thanh vẽ trên bàn, nhìn vào mắt không có gì khác biệt.
+晏琢和陈三秋都有些幸灾乐祸。
 
-Hẳn là có một đội lớn đang lên núi bái phỏng Tranh Vanh sơn vào đêm nay.
+那丫头他们都熟悉，是出了名的难缠鬼。
 
-Thực ra, Trần Bình An đã nhận ra dấu vết từ đêm qua, phát hiện có mấy vị trinh sát giang hồ đang lén lút, tựa hồ đang điều tra địa hình.
+宁姚说道：“拖进来打一顿就老实了。”
 
-Trần Bình An suy nghĩ, đứng dậy, lượn quanh con đường xa đi ven vách núi, cố gắng tránh xa ánh đèn dầu bên kia sơn môn. Hắn lùi lại vài bước, rồi lướt đi, một tay bám lấy nơi đỉnh núi Tranh Vanh dựng đứng trên vách đá, sau đó lướt phải leo trèo, cuối cùng lặng lẽ trốn ở cầu dây bên dưới, một tay năm ngón tay đinh vào thạch bích, thân hình theo gió nhẹ nhàng lắc lư, một tay tháo hồ lô dưỡng kiếm uống rượu.
+陈平安不说话。
 
-Tại đầu cầu dây, môn chủ Tranh Vanh môn, Lâm Thù, sắc mặt trắng nhợt. Trong một trận chiến, hắn bị thương không nhẹ, vẫn chưa khỏi hẳn. Nhưng lại vừa thắng lớn, trở thành một môn môn phú quý trong tám ngày, tinh thần rất tốt.
+陈三秋几个出了宁家大门后，没有各自打道回府，去一座熟悉酒肆喝酒去了。
 
-Lần này, thuận đường bái phỏng Tranh Vanh môn là ba vị khách quý: Trấn quốc đại tướng quân Đỗ Huỳnh, cùng với nghĩa tử được đương kim bệ hạ ban thưởng. Ngoài ra còn có một vị ngự mã giám hoạn quan thân thủ cao thâm mạt trắc, và một vị khách quý đến từ Đại Triện vương triều, Trịnh Thủy Châu. Nàng có kiếm thuật trác tuyệt và là sư phụ của nàng, chính là người giữ cửa trong hoàng cung của Đại Triện.
+凉亭只剩下陈平安和宁姚。
 
-Trịnh Thủy Châu là một trong những đệ tử được sủng ái của vị nữ thần võ thuật trong Đại Triện, có tư chất tốt nhất, được ưu ái tối đa. Nàng lần này tham dự chiến dịch quét sạch trên hồ Kim Phi quốc, chỉ là để giải sầu, không có trách nhiệm sư môn bên mình. Lâm Thù từ sớm đã lựa chọn quy hàng vào giang hồ tông sư, nhưng sau đó đã ở ẩn hơn mười năm. Những tin đồn cho rằng có một con hắc giao hung mãnh chiếm giữ bên ngoài kinh thành Đại Triện, đạo hạnh rất cao, đã sống bình an với nhân gian nghìn năm. Không biết vì lý do gì, gần đây liên tiếp xảy ra thủy tai, mơ hồ có khả năng đe dọa thành phố. Vì vậy, Lâm Thù lờ mờ đoán ra rằng Trịnh Thủy Châu xuôi nam có thể liên quan đến việc cung phụng ở kinh thành Kim Phi quốc.
+陈平安轻声道：“我没事，你心里也可以放心。”
 
-Dù sao, sư phụ của Trịnh Thủy Châu, mặc dù là một đại tông sư có thể cưỡi gió đi xa, nhưng bội kiếm cũng chỉ là một kiện thần binh lợi khí. Để đối phó với một con thủy giao gây sóng gió, quả thật thiếu một kiện tiên gia binh khí vừa vặn học được.
+宁姚冷哼一声。
 
-Còn thanh bảo đao của Kim Phi quốc, đã nhuốm máu tươi của hơn một trăm vị tiền triều long tử long tôn. Hơn thế nữa, nó từng chặt đứt đầu lâu của tiền nhiệm Trấn quốc đại tướng quân, đó là một mối công huân trác tuyệt, góp phần cho bệ hạ hiện tại lên ngôi.
+陈平安背靠栏杆，仰起头，“我真的很喜欢这里。”
 
-Có thể nói, chính thanh đao này đã triệt để chặt đứt tiền triều long mạch quốc tộ.
+宁姚伸出双指，轻轻捻起陈平安右手袖子，看了一眼，“以后别逞强了，人有万算，天只一算，万一呢？”
 
-Ở đầu bên kia cầu dây, đại tướng quân Đỗ Huỳnh vẫn mặc giáp trắng như tuyết, lấy đao chống đất, không nói gì.
+宁姚轻轻松开他的袖子，说道：“真不去见一见城头上的左右？”
 
-Cô gái tuổi khoảng hai mươi lăm, hai mươi sáu tuổi, lưng đeo trường kiếm "Tị Nguyệt". Thanh kiếm này là vật sư phụ nàng yêu quý, bồi bạn sư phụ đã qua luyện thân thể và luyện khí trong suốt năm tháng, cho đến khi phải luyện thần cảnh, sư phụ mới tặng nó cho đệ tử quan môn Trịnh Thủy Châu. Điều này trước kia bốn vị sư huynh sư tỷ cũng không có được vinh hạnh như vậy. Khi tặng kiếm, Trịnh Thủy Châu mới chỉ sáu tuổi, hai tay đỡ kiếm, kiếm còn cao hơn cả người nàng. Sư phụ thấy cảnh đó đã cười to, nhưng Trịnh Thủy Châu lúc ấy đã nhận ra ánh mắt khác nhau của bốn vị đồng môn.
+陈平安想了想，道：“见过了老大剑仙再说吧，何况左前辈愿不愿意见我，还两说。”
 
-Bây giờ, Trịnh Thủy Châu ngắm nhìn xung quanh, gió núi thổi từng trận, đối diện với ánh đèn sáng trưng xây dựng trên ngọn núi nhỏ, trong đêm tối, tựa như một chiếc đèn lồng lớn trôi nổi trong không trung.
+宁姚突然说道：“这次跟陈爷爷见面，才是一场最最凶险的问剑，很容易画蛇添足，这是你真正需要小心再小心的事情。”
 
-Về phần lão hoạn quan ngự mã giám, tuy tóc đã bạc trắng nhưng làn da cũng vẫn trắng nõn, nét mặt tỏa sáng, ông là một vị võ phu Kim thân cảnh, được vinh dự trong đêm thần dạ du của Kim Phi quốc.
+陈平安点了点头。
 
-Trong cuộc luận bàn về giới giang hồ đầy chém giết, lão hoạn quan thực chất chỉ muốn vượt trội hơn Trịnh Thủy Châu một cách rõ rệt. Tuy nhiên, con đường đi xuống phía Nam và trở về phía Bắc lại rất xa xôi. Lão hoạn quan vẫn đối xử với cô gái trẻ tuổi này bằng lòng cung kính, mặc dù nàng đã đạt tới cảnh giới năm phách, nhưng thực lực có thể ngang hàng với sáu cảnh kiếm khí. Điều này được xem như là lợi thế từ truyền thừa bề thế trong gia đình, cũng là bùa hộ mệnh giúp người ta hành tẩu giang hồ. Đặc biệt là danh tính sư phụ của nàng, giống như một tấm bùa hộ mệnh, cùng với rất nhiều mối quan hệ chằng chịt trong triều đình, giúp nàng có thể tùy ý thực hiện những âm mưu của mình mà không bị ai truy cứu. Trịnh Thủy Châu có thể giết người chỉ cần không phải là tướng của quốc gia khác thì không ai dám lên tiếng. Chỉ có điều, đây là lần đầu nàng rời khỏi kinh thành, và với nhiệm vụ bí mật bên mình, vì thế nàng không được danh tiếng như bốn vị sư huynh, sư tỷ.
+宁姚问道：“什么时候动身去剑气长城？”
 
-Ba vị khách quý dừng lại, Lâm Thù đành phải ở lại chỗ cũ.
+陈平安笑道：“不着急，去早了，庞元济和齐狩，尤其是他们背后的长辈，会很没面子。”
 
-Đỗ Huỳnh đột nhiên lên tiếng: "Ta đã chịu trách nhiệm tìm hiểu về những dư nghiệt tiền triều hơn mười năm nay, từng khám phá sâu vào hơn một trăm môn phái giang hồ, tự mình quan sát chúng. Cùng với kinh nghiệm từ triều đình, trong giang hồ, thậm chí còn không thiếu các thế lực dòng họ tiên gia. Từ khi một đứa trẻ bốn tuổi đến nay, đã nhiều năm không ngừng tìm kiếm, giờ đây đã trở thành một thanh niên sắp trưởng thành, ta là một kẻ vũ phu trên sa trường, tuy được phong là Trấn quốc đại tướng quân mà vẫn phiêu bạt giang hồ như thế, không còn nơi trở về, thật sự rất vất vả. Coi như cha ruột đi tìm đứa con bị thất lạc cũng không khổ sở như ta. Ngươi cứ nói đi, Lâm môn chủ?"
+宁姚皱眉道：“想那么多做什么，你自己都说了，这里是剑气长城，没有那么多弯弯绕绕。没面子，都是他们自找的，有面子，是你靠本事挣来的。”
 
-Lâm Thù ôm quyền đáp: "Đại tướng quân khổ cực thật đáng trân trọng! Lần này đại tướng quân nhất định sẽ có kế hoạch để triệt tiêu các thế lực giang hồ, ta tin rằng đại tướng quân khi trở về kinh thành..."
+陈平安说道：“习惯了，你要是觉得不好，我以后改一改。除了某件事，没什么是我不能改的。不会改的那件事情，以及什么都能改的这个习惯，就是我能一步步走到这里的原因。”
 
-Đỗ Huỳnh vung tay cắt ngang lời Lâm Thù, "Chỉ là lần này cùng Lâm môn chủ hợp tác, mới chợt nhận ra rằng mình đã lâu không tự mình điều tra."
+宁姚看了眼坐在自己左边的陈平安。
 
-Mồ hôi lập tức toát ra trên trán Lâm Thù.
+陈平安便立即起身，坐在宁姚右手边。
 
-Đỗ Huỳnh cười nói: "Tất nhiên, việc tất cả nằm ở bên Lâm môn chủ. Trước đây ta đã từng cẩn thận kiểm tra các gián điệp trong triều đình, giữa hai bên không hề có mối liên hệ nào."
+宁姚没有说话，陈平安轻轻握住她的手，闭上眼睛，也没有说话。
 
-Lâm Thù như trút được gánh nặng, nâng cao cánh tay hướng về phía kinh thành ôm quyền, giọng điệu trầm lắng nói: "Đại tướng quân, ta Lâm Thù cùng Tranh Vanh sơn trung thành với đức vua, trời đất chứng giám!"
+————
 
-Đỗ Huỳnh từ từ rút ra một thanh đao, chỉ vào đỉnh núi nhỏ bên kia, "Hiện tại có một cách an toàn, xem xem Lâm môn chủ có đủ quyết tâm và dũng khí để thực hiện hay không. Số liệu trên sổ sách của Tranh Vanh môn tại huyện thành có thể bị giả mạo, vì vậy không bằng giết hết những kẻ ở trong trấn nhỏ, số tuổi từ mười tám đến hai mươi, cùng đánh chết cho gọn gàng. Tất cả đều đại cát."
+三天后。
 
-Đỗ Huỳnh cười, "Tất nhiên người không thể chết một cách vô ích. Ta, Đỗ Huỳnh, không có lý do gì để bạc đãi kẻ có công, trở về ta sẽ kiến nghị với đức vua để ban thưởng. Tối nay, tội phạm Tranh Vanh sơn, một đầu lâu sẽ được bồi thường cho Lâm Thù một ngàn lượng bạc trắng. Thế nào? Mỗi kiếm một cái đầu, ta sẽ kéo những kẻ ở mấy vùng hồ đó tặng cho Tranh Vanh môn quản lý."
+剑气长城城头和城池这边，也差不多聊足了三天的宁府年轻人。
 
-Lâm Thù khổ sở đáp: "Nhưng trong Tranh Vanh môn có tiểu nhân quấy phá, báo cáo sai lệch cho đại tướng quân? Chúng muốn hãm hại ta, Lâm Thù này sao?"
+陈平安在夜幕中，独自去往剑气长城，见到了熟悉的大小两座茅屋，陈平安收起符舟入袖，笑道：“晚辈拜见老大剑仙。”
 
-Đỗ Huỳnh gật đầu: "Quả đúng là tiểu nhân. Có một kẻ đệ tử bất tài không tiếc lòng, cảm thấy trong tình cảnh bình thường thì không thể kế thừa vị trí môn chủ, lại từng bị ngươi đuổi ra khỏi sư môn. Có vẻ hắn mang đầy oán hận, muốn nhờ cơ hội này để chiếm đoạt vị trí chủ nhân. Ta đã đáp ứng hắn rồi. Trở lại lâm cửa Chúa Tể hắn là được. Những kẻ này, đừng nói đến việc quản lý một nửa giang hồ, mà cả một tòa Tranh Vanh môn cũng khó mà kiểm soát, nếu ta thu nạp hắn sẽ có ý nghĩa gì?"
+陈清都就站在城头这边，点点头，似乎有些欣慰，“不与天地贪图小便宜，便是修道之人，登高愈远的大前提。宁丫头没一起来，那就是要跟我谈正事了？”
 
-Đỗ Huỳnh chỉ tay về phía cổng lớn, chậm rãi nói: "Còn một người nữa, đó là một thanh niên luôn sống nương tựa vào gián điệp triều đình. Kẻ gián điệp này trước đây là thầy dạy ở trấn nhỏ của các ngươi. Hắn, dẫu rằng một hạt giống học trò, nhưng lại có tình cảm với con gái duy nhất của ngươi. Ngươi thấy hắn không có thiên phú võ thuật thì không xứng với con gái. Sau đó, lão gián điệp chết trước khi qua đời đã thấy hắn là một người có triển vọng, nên đã sắp xếp cho hắn kế thừa danh tính thầy dạy, từ đó làm quen với triều đình, thực chất, việc thủ tiêu tất cả các đệ tử Tranh Vanh môn đều có phần ý định của hắn. Ta đã đồng ý, không chỉ là bảo hộ bí mật mà còn sắp xếp cho hắn tiến vào quan trường, chắc chắn sẽ có tên trên bảng vàng. Sau mười đến hai mươi năm nữa, hắn sẽ được phong lại ở một nơi nào đó của Kim Phi quốc."
+陈平安在犹豫两件大事，先说哪一件。
 
-Lâm Thù tức giận đến sắc mặt xanh mét, nghiến răng nói: "Bọn người vô ơn này, cha mẹ hắn mất sớm, còn lại là một kẻ thấp hèn, nếu không phải vì Tranh Vanh môn mỗi tháng trợ cấp tiền cho hắn, hắn đã không sống nổi!"
+陈清都笑道：“边走边聊，有话直说。”
 
-Lão hoạn quan ngự mã giám dùng hai ngón tay véo lên cái đầu tóc trắng rối bù, giọng điệu cao ngược: "Những chuyện này đều là việc nhỏ, vấn đề chính là một gián điệp khác. Các ngươi Tranh Vanh môn còn có một cao nhân đã chiếm giữ trong nhiều năm, chính là ẩn giấu rất tốt, cho đến giờ vẫn chưa lộ danh tính, đây mới thật sự là khó giải quyết."
+陈平安犹豫片刻，轻声说道：“老前辈，是不是看到那个结局了？”
 
-Lâm Thù sững sờ.
+陈清都嗯了一声，“在算时间。”
 
-Trịnh Thủy Châu cau mày nói: "Đỗ tướng quân, chúng ta ở nơi này đâu có tổn thất? Tiền triều dư nghiệt có nằm ở đỉnh núi kia không? Chỉ cần thử dùng đao một lần là sẽ biết ngay. Nếu thật sự có Kim Lân cung luyện khí sĩ trốn ở đây, thì khả năng cao chính là hoàng tử hộ đạo nhân. Một mũi tên trúng hai con nhạn, vừa chém giết dư nghiệt, vừa có thể bắt được Kim Lân cung tu sĩ."
+陈平安又问道：“老前辈，从来就没有想过，带着所有剑修，重返浩然天下？”
 
-Ở giữa đội ngũ có một vị hán tử chất phác đang cầm một chiếc hộp dài.
+陈清都笑道：“当然想过。”
 
-Đỗ Huỳnh cười nói: "Nếu như Kim Lân cung có vị thần tiên cảnh giới cực cao, chúng ta chỉ có khoảng trăm chiến sĩ mặc giáp này, chắc chắn không thể chịu nổi vài chiêu tiên pháp của đối phương. Dù cho địch chỉ có ba người, một khi đối phương dẫn theo người cưỡi gió, ba chúng ta cũng chỉ có thể trơ mắt nhìn họ bỏ đi, không thể nhảy xuống núi được."
+陈平安脸色惨白。
 
-Trịnh Thủy Châu quay đầu nhìn hán tử nâng hộp, cười nói: "Chúng ta đã có đại đệ tử của hộ quốc chân nhân đến đây, còn sợ một vị luyện khí sĩ trốn gần mười năm ở Tranh Vanh sơn sao?"
+陈清都缓缓而行，缓缓言语，道：“万年悠悠岁月，我见过一些很有意思的外乡人，年轻人。最近的，是剑术很好的左右，前几年是那少年曹慈，前边些，是阿良，再往前，是南婆娑洲的醇儒陈淳安，再往前，是一个中土神洲的读书人，当时还很意气风发，半点不落魄，再往前，还有些。加在一起，约莫得有十个了吧。每次见到了他们，我对浩然天下便没那么失望。可是只靠这些早已算是外乡人的年轻人，怎么成？让人失望的人和事，实在太多了。”
 
-Đại Triện vương triều cũng là nơi chịu trách nhiệm hộ giá cho phù long chi thần. Trịnh Thủy Châu, với dòng máu thuần phu, và hộ quốc chân nhân ở xà nhà cầu vồng là những người tu đạo hàng đầu, giữa hai bên luôn tồn tại một sự căng thẳng và xung đột. Đại Triện vương triều tuy đất rộng, nhưng ngoài vùng núi sâu phía bắc này, hoàng đế tùy ý sử dụng nhân tài của hai bên để tranh giành, tự nhiên sẽ không để tâm đến nhau. Trịnh Thủy Châu, một nguyên bản có tư chất tốt, nhưng đã từng bị ba người che giấu thân phận vây công, đã phải cắt đứt đôi chân và hiện giờ chỉ có thể ngồi xe lăn, trở thành nửa phế nhân. Còn về một vị đệ tử đích truyền của hộ quốc chân nhân, dù đã rèn luyện, nhưng đến nay thi thể vẫn chưa tìm thấy.
+陈清都抬起双手，摊开手掌，如一杆秤的两端，自顾自说道：“浩然天下，术家的开山鼻祖，曾经来找过我，算是以道问剑吧。年轻人嘛，都志向高远，愿意说些豪言壮语。”
 
-Hán tử kia với vẻ mặt lạnh lùng liếc nhìn Trịnh Thủy Châu, nghĩ bụng rằng: cô gái nhỏ này luôn tỏ ra kiêu ngạo, ở kinh thành thì không biết an phận, lại còn dựa vào người cưng chiều. Năm vừa rồi, cô ta có giao du với một vị đại triện hoàng tử, thật sự cho rằng mình là khâm định hạ nhiệm Hoàng hậu sao?
+陈清都笑了笑，“有些他觉得最大的道理，可以成为不被世道世风推移摇晃的根本大木，在我看来，其实稚气，可是有些无心之言，还是不错的，随着世道推移，分量会越来越重，在人间扎根越深，只不过他当时，自己都还没有意识到。也好，才有了后边开枝散叶的余地。”
 
-Đỗ Huỳnh hỏi: "Lâm môn chủ, ý ngươi thế nào?"
+陈清都指了指南边的蛮荒天下，“那边曾经有妖族大祖，提出一个建议，让我考虑，陈平安，你猜猜看。”
 
-Lâm Thù có chút tức giận nói: "Những nam tử trẻ tuổi trên núi đều đáng chết! Nhưng ta có hai yêu cầu: người đệ tử kia phải chết, và cái tên lấy oán báo ơn cũng phải chết! Ta Tranh Vanh môn xử lý phản đồ thật sự không ao ước gì, nhưng mà dạy cho họ sống không bằng chết là điều không khó."
+陈平安说道：“蛮荒天下，归剑气长城，浩然天下，归他们妖族。”
 
-Đỗ Huỳnh lắc đầu nói: "Cái trước thì giết cũng không sao, nhưng tên sau lại đầy tham vọng, hắn tài trí không tầm thường. Những năm qua, hắn luôn gửi mật tín cho triều đình, không chỉ mưu đồ ở giang hồ mà còn nhiều lần trực tiếp vào triều chính. Ta đã cẩn thận đọc qua từng bức thư và thấy rất rõ ràng, Hoàng đế bệ hạ cũng đã xem qua những mật báo đó, và hắn không phải loại người dễ dàng bị xem nhẹ."
+陈清都好像半点不奇怪被这个年轻人猜中答案，又问道：“那你觉得为何我会拒绝？要知道，对方承诺，剑气长城所有剑修只需要让出道路，到了浩然天下，我们根本无须帮他们出剑。”
 
-Lâm Thù cố gắng kìm nén tức giận, vẻ mặt âm trầm: "Đại tướng quân, người này năm nay khoảng 24-25 tuổi, thật sự đã gần hai mươi!"
+陈平安答道：“这是对方用心最为险恶的地方，在让路和开道的过程当中，剑气长城的剑修，就会分崩离析，人心涣散，此时此刻，剑气长城有几个对浩然天下心怀敌意的剑修，在那条道路上，就会有更多的剑修，对剑气长城失去信心，选择离开，或是干脆就愤然出剑，与剑气长城站在对立面。兴许剑气长城最终确实可以占据蛮荒天下，但是绝对守不住这么大一块广袤天地，千百年过后，这座天下遗留下来的不起眼妖族，最终会崛起，再无慷慨赴死大理由的剑修，也会逐渐在安逸人生当中，一点点消磨剑意。蛮荒天下，终究还是妖族的天下，除非前辈愿意死死盯着天下，每出现一头上五境妖族，就出剑斩杀一个，我若是那妖族大祖，甚至都不会签订什么盟约，就让前辈你出剑，只管出剑，百年千年，总有一天，前辈自己就会心神不济，疲惫不堪，气力犹在，出剑却要越来越慢，甚至终有一天，彻底不愿意再次出剑。”
 
-Đỗ Huỳnh không nhịn được cười, trầm mặc một chút, rồi lắc đầu: "Tối nay đến nhà, vốn dĩ để đề phòng vạn nhất, giúp Lâm môn chủ thanh lý môn hộ, quét sạch mọi chướng ngại trên con đường giang hồ. Ta không phải là kẻ thích lạm sát."
+陈清都点头道：“说得很好。”
 
-Ngự mã giám lão hoạn quan cười nhẹ: "Hành sự tùy theo hoàn cảnh, không cần nóng vội, tối nay sẽ có nhiều điều thú vị để xem."
+陈平安缓缓斟酌，慢慢思量，继续说道：“但这只是老大剑仙你不点头的原因，因为前辈放眼望去，视野所及，习惯了看千年事，万年事，甚至故意与家族撇清关系，才能够保证真正的纯粹。可是老大剑仙之外，人人皆有私心，我所谓的私心，无关善恶，是人，便有那人之常情，坐镇此地的是三教圣人，会有，每个大姓之中皆有剑仙战死的存世之人，更有，与倒悬山和浩然天下一直打交道的人，更会有。”
 
-Đỗ Huỳnh nhìn sang cầu dây, "Ta sợ rằng nếu Kim Lân cung tu sĩ thực sự ra tay, khi chúng ta đi đến giữa cầu mà nó bị đứt thì sao?"
+陈平安环顾四周，“如果不是北俱芦洲的剑修，不是那么多主动从浩然天下来此杀敌的外乡人，老大剑仙也守不住这座城头的人心。”
 
-Lão hoạn quan gật đầu: "Đúng là một phiền toái lớn."
+陈清都点头道：“说的不差。”
 
-Hán tử chất phác lạnh nhạt nói: "Đỗ tướng quân yên tâm, chỉ cần đối phương có gan ra tay, cầu tuyệt sẽ không bị đứt, người kia chắc chắn sẽ phải chết."
+陈平安说道：“晚辈只是想了些事情，说了些什么，老大剑仙却是做了一件实实在在的壮举，而且一做就是万年！”
 
-Đỗ Huỳnh cười hỏi: "Tiên sư chắc không?"
+陈清都笑了笑，“比阿良还要会说话啊。”
 
-Hán tử gật đầu: "Chúng ta Quốc sư phủ sẽ không lừa gạt Đỗ tướng quân."
+陈平安无言以对。
 
-Một vị từ nhất phẩm Trấn quốc đại tướng quân lại là hoàng đế nghĩa tử của Kim Phi quốc. Nếu hắn chết thì đương nhiên sẽ gây phiền toái, bởi Kim Phi quốc có tân quân lên ngôi, trong khi đó quốc sư phủ của Đại Triện vương triều đang mưu đồ trật tự. Một võ tướng cầm trọng binh phản loạn không thể so sánh với một vị mặc long bào danh chính ngôn thuận, hai bên thân phận hoàn toàn khác nhau. Người trước có thể dễ dàng mượn dao giết người, còn người sau thì tuyệt đối không thể.
+陈清都说道：“媒人提亲一事，我亲自出马。”
 
-Đỗ Huỳnh thu đao vào vỏ, vung tay lên: "Qua cầu!"
+陈平安赧颜道：“老大剑仙，晚辈这还没有开口请求……”
 
-Ngay lúc đó, trên ngọn núi cao, một lão giả đã bắt được một vị trẻ tuổi, cưỡi gió bay vút mà đi. Lão giả trên người phát ra ánh sáng rực rỡ như cá vàng ở trong suốt, giữa màn đêm cực kỳ thu hút ánh nhìn.
+陈清都转头笑问道：“难为情？”
 
-Đỗ Huỳnh ngửa đầu nhìn lại, nói: "Quả nhiên là âm hồn bất tán Kim Lân cung tu sĩ, xem ra họ không thể ngồi yên."
+陈平安使劲摇头道：“半点不难为情，这有什么好难为情的！”
 
-Sau lưng Đỗ Huỳnh, hán tử nâng hộp đã một phất tay đi qua, hóa thành một vệt hồng quang, là một vị Kim Đan tu sĩ của Quốc sư phủ Đại Triện, cũng là học trò hàng đầu của hộ quốc chân nhân.
+陈清都点点头，“不愧是那个酸秀才的关门弟子，尽得真传。”
 
-Đối phương là Kim Lân cung tu sĩ, chắc chắn là một vị Long Môn cảnh tu sĩ. Hắn dẫn theo người cùng chạy xa, trong khi hán tử cầm đao lại mạnh mẽ hơn, binh khí trên tay là một trong những trọng khí quốc gia được người dân kính ngưỡng. Hắn vung đao bổ tới, lão tu sĩ Kim Lân cung nhanh chóng bấm niệm pháp quyết, ánh kim quang từ pháp bào bỗng nhiên bùng lên, lơ lửng ở chỗ cũ, chợt biến lớn như một chiếc lưới vàng, chắn trước ánh đao. Lão giả lập tức tiếp tục đưa người trẻ tuổi rời xa ngọn núi cao.
+陈清都挥挥手，“宁丫头偷偷跟过来了，不耽误你俩花前月下。”
 
-Đại triện quốc sư phủ Kim Đan tu sĩ đánh một đao, chém tan pháp bào, cưỡi gió lao nhanh, trong chớp mắt đã đến gần lão tu sĩ Kim Lân cung. Hắn chém một đao cận thân, lão tu sĩ muốn hết sức ném người trẻ tuổi ra phía ngoài. Người trẻ tuổi này cũng có vài bùa phép Kim Lân cung, giúp hắn tạm thời cưỡi gió như một luyện khí sĩ, nhưng lão tu sĩ biết rõ đây chỉ là vùng vẫy giãy chết mà thôi. Ai có thể nghĩ Kim Phi quốc không chỉ tìm được Tranh Vanh sơn mà còn có một vị Kim Đan tu sĩ của quốc sư phủ Đại Triện?
+陈平安沉默片刻，伸出那只包裹严实的右手，郑重其事抱拳弯腰行礼，“浩然天下陈平安一人，斗胆为整座浩然天下说一句，长者赐不敢辞，更不能忘！”
 
-Cổ tay lão giả hơi vặn, đao trong tay đã thay đổi quỹ tích, một đao bổ xuống, chém đứt đầu lão tu sĩ và người trẻ tuổi.
+陈清都笑道：“怕了你了。”
 
-Trước khi chết, lão tu sĩ nổ tung toàn bộ khí linh khí, muốn cùng một vị Kim Đan tu sĩ chôn cùng.
+老人一挥手，城池那边宁府，那把已是仙兵品秩的剑仙，依旧被迫出鞘，转瞬之间如破开天地禁制，无声无息出现在城头之上，被老人随随便便握在手中，一手持剑，一手双指并拢，缓缓抹过，微笑道：“浩然气和道法总这么打架，窝里横，也不是个事儿，我就倚老卖老，帮你解决个小麻烦。”
 
-Hán tử cầm đao sau đó lướt đi, treo lơ lửng giữa không trung, khi hai thi thể của lão già và người trẻ tuổi hòa làm một, biến thành bột mịn, phát ra một cơn gió mạnh, khiến cho sợi dây cầu xa xa cũng rung lên mạnh mẽ, các chiến sĩ mặc giáp trên cầu bị quẳng xuống, sau đó bị Đỗ Huỳnh và Trịnh Thủy Châu sử dụng thiên cân trụy, lúc này mới ổn định lại cầu.
+老人抵住剑尖片刻，收手后，持剑之手轻轻一晃，那把剑仙便被丢入宁府桌上的剑鞘当中。
 
-Hán tử chất phác cúi đầu nhìn thanh bảo đao, nhẹ gật đầu rồi nhíu mày, cưỡi gió trở về cầu dây, nhẹ nhàng đáp xuống.
+陈平安目瞪口呆。
 
-Đỗ Huỳnh hạ thấp giọng hỏi: "Thế nào? Thật sự là dư nghiệt sao?"
+陈清都已经转身，双手负后，说道：“忙你的去。胆子大些。”
 
-Hán tử gật đầu: "Vết máu không giả, nhưng khí long chưa đủ, có chút không hoàn hảo, chắc chắn sẽ hao tổn hiệu quả của đao này. Nhưng điều này cũng bình thường, quốc tộ vừa đứt, cho dù là hoàng đế tiền triều thì cũng khó mà giữ được khí long."
+————
 
-Đỗ Huỳnh hít sâu một hơi, nắm chặt xích sắt, vui vẻ nói: "Ta cuối cùng có thể thẳng tắp cái eo, trở lại kinh thành làm một danh tướng thực thụ rồi!"
+天地寂寥的城头之上，宁姚与陈平安并肩而行。
 
-Hán tử kia cẩn thận thu đao vào chiếc hộp dài, trên mặt lộ ra một chút vui vẻ, nói: "Đỗ tướng quân không chỉ có công lớn ở bên hoàng đế."
+宁姚高高举起那枚玉牌，月色下，熠熠生辉。
 
-Hán tử trực tiếp đem hộp gỗ vứt cho Trịnh Thủy Châu, ánh mắt trở nên vui vẻ, “Ở bên này của chúng ta, Trịnh nữ hiệp, cũng có không ít hương khói tình cảm đấy.”
+正面篆刻有“平安”二字，所以这算是一块天底下最名副其实的平安无事牌了。
 
-Trịnh Thủy Châu vẻ mặt nghi ngờ, cau mày hỏi: “Phùng Dị, sao ngươi không trực tiếp mang về quốc sư phủ?”
+她轻轻翻转，背面刻着四个字，我思无邪。
 
-Nàng rõ ràng lo lắng cho vị Kim Đan tu sĩ này, sợ rằng hắn cầm bảo đao đi đến hoàng đế tranh công.
+她高举玉牌，仰起头，一边走一边随口问道：“聊了些什么？”
 
-Người đàn ông kia không muốn tốn thời gian nói nhảm với người phụ nữ này.
+陈平安走在她身边，说道：“老大剑仙，最后要我胆子大些，我也不明白是什么意思。”
 
-Hắn đang phải đối phó với những âm mưu đen tối, cố gắng dìm nước để chiếm lấy cả kinh thành, khiến cho toàn bộ kinh thành trở thành nước của hắn, trong khi sư phụ của hắn chỉ là một vị tinh thông nước pháp Nguyên Anh tu sĩ. Hắn không biết làm thế nào để so đấu pháp thuật với một người có xuất thân thủy giao bẩm sinh. Nói cho cùng, hắn cần đến sự trợ giúp của sư phụ nhỏ bé này, dựa vào bảo đao Kim Phi quốc, mới có hy vọng một nhát g**t ch*t kẻ thù, thuận lợi kết liễu đám hung ác, cùng nhiều tu sĩ ở quốc sư phủ. Chỉ cần tránh được cuộc đại chiến sẽ là tốt nhất, giữ cho kinh thành không bị hồng thủy bao phủ. Một khi mất cảnh giác, có thể cả bàn cờ sẽ thua, vận mệnh của cả triều đại Chu thị đều có thể bị hủy hoại. Quốc sư phủ có thể lâm vào tình trạng nguy cấp như thế, sao có thể tranh giành công lao với một cô nương nhỏ bé như vậy? Hơn nữa, khi đại chiến bắt đầu, ai sẽ là người thực sự làm việc? Hẳn như Phùng Dị sẽ chỉ là một chân nhân hộ quốc thượng dẫn, có đáng để từ tay tiểu cô nương đó mà giành lấy bảo đao, rồi lại chạy đến trước mặt bà lão, dâng hai tay, cười khanh khách, cầu khẩn nàng nhận lấy bảo đao để ra ngoài giết kẻ thù không?
+宁姚手握玉牌，停下脚步，用玉牌轻轻敲着陈平安的额头，教训道：“当年某人的老实本分，跑哪里去了？”
 
-Lâm Thù cảm thấy hai chân như nhũn ra, một tay phải tựa vào xích sắt.
+陈平安突然蹲下身，转过头，拍了拍自己后背。
 
-Quả thật kẻ thù đang ẩn mình ngay dưới chân mắt của mình!
+当年骊珠洞天神仙坟那边，宁姚背过陈平安。
 
-Đỗ Huỳnh cười nói: “Được rồi, Lâm Thù, đã bao năm ngươi cẩn trọng vì hoàng đế bệ hạ, truyền đạt mật báo tới kinh thành. Lần này, ở trên hồ, ngươi lại giúp ta tiêu diệt hai đạo cao thủ chính tà, tối nay còn được biết đến ân oán xưa.”
+宁姚满脸不屑，却耳根通红。
 
-Lâm Thù cười có phần ngại ngùng. Nghe Đỗ Huỳnh nói vậy, nàng cảm thấy nhẹ nhõm, nhưng không dám hoàn toàn yên tâm, chỉ sợ triều đình có chuyện gì thì sẽ quy trách nhiệm cho mình.
+陈平安没有起身，笑道：“原来宁姚也有不敢的事情啊？”
 
-Đỗ Huỳnh cũng không muốn nói thêm điều gì, để Lâm Thù chờ đợi trong lo lắng. Lâm Thù và Tranh Vanh Sơn là thế lực giang hồ, giống như bùn nhão trong nước, tuy nhất định phải có, nhưng nếu là người khác, khi thay triều đình làm việc chắc chắn sẽ ra sức, nhưng chưa chắc đã đạt hiệu quả như Lâm Thù. Hơn nữa, với nhiều quyền lực nắm trong tay Đỗ Huỳnh và triều đình, Tranh Vanh Sơn sẽ chỉ càng dễ bị chi phối, và làm việc không còn từ bi.
+最后城头之上，陈平安背着宁姚，脚步缓慢。
 
-Đỗ Huỳnh do dự một chút rồi nói: “Tối nay sẽ đặt chân tại Tranh Vanh Sơn.”
+夜幕中，陈平安背着心爱女子，就像背着天下所有的动人明月光。
 
-Lâm Thù nhỏ giọng hỏi: “Những người trẻ tuổi phù hợp thì sao?”
+走着走着，宁姚突然满脸通红，一把扯住陈平安的耳朵，使劲一拧，“陈平安！”
 
-Đỗ Huỳnh có chút do dự.
+陈平安哎呦喂一声，赶紧侧过脑袋。
 
-Kim Đan hán tử ở quốc sư phủ chợt giật giật khóe miệng, thuận miệng nói: “Cẩn thận chèo thuyền đi được vạn năm, Lâm đại môn chủ tự xem xét.”
+宁姚一板栗砸在这个家伙的后脑勺上，羞怒道：“你再这样，我真生气了啊！”
 
-Lâm Thù ánh mắt lạnh lẽo đứng dậy.
+陈平安委屈道：“好好好。”
 
-Một đoàn người đi qua cầu dây, tiến vào ngôi làng đèn đuốc sáng trưng.
+城头之上，突然出现一个板着脸的老人，“你给我把宁丫头放下来！”
 
-Tại vách núi, Trần Bình An vẫn không hề tổn thương gì.
+陈平安愣了一下，没好气道：“你管我？”
 
-Trên đỉnh núi cao vút trong ngôi làng, tại hành lang của Tranh Vanh, máu tươi đã nhuộm đỏ cả mặt đất.
+宁姚轻轻说道：“他是我外公。”
 
-Lâm Thù không biểu cảm ngồi ở vị trí chủ tọa.
+陈平安就要悻悻然放下宁姚。
 
-Hán tử chất phác từ quốc sư phủ, Trịnh Thủy Châu, tướng quân Đỗ Huỳnh của Kim Phi quốc, và lão hoạn quan ngự mã giám lần lượt ngồi xuống.
+“背着！”
 
-Đối diện là một số vị Lâm thị trưởng bối từ Tranh Vanh, sau đó là Lâm Thù, con gái duy nhất, cùng tất cả đệ tử thân truyền của nàng. Họ cũng không dám nhìn về phía đối diện.
+不曾想在远处有人开口，一句话是对陈平安说的，接下来一句则是对老人说的，“你管得着吗？”
 
-Bởi vì môn chủ Lâm Thù xưa nay không hề muốn ngồi ở vị trí chủ tọa, nhưng cuối cùng vì nữ kiếm khách đó có vẻ không vui, nên Lâm Thù mới vội vàng ngồi xuống.
-
-Trong đại sảnh, những nam tử dưới hai mươi tuổi đã chết hơn nửa.
-
-Trịnh Thủy Châu sắc mặt lạnh lùng, nhìn lại và nói: “Giết những kẻ phế vật này, thú vị sao?!”
-
-Phùng Dị ở quốc sư phủ mỉm cười nói: “Biết đâu còn có thể câu được một con cá lớn từ Kim Lân cung.”
-
-Còn cách đại sảnh Tranh Vanh một đoạn đường,
-
-Một vị học trò già tiếp nhận thư đã trở thành thầy giáo trẻ tuổi, cười lạnh không thôi, đứng dậy, một cái đẩy chân, từ dưới nền đất b*n r* một thanh kiếm dài, cầm kiếm đi ra cửa chính của trường, thẳng tiến vào nơi có thị phi.
-
-Kim Lân cung và đại triện vương triều mối quan hệ căng thẳng, cả hai chỉ là tạm thời nhượng bộ nhau.
-
-Nếu như ở đây kẻ nào chết, hắn sẽ không ngần ngại danh chính ngôn thuận giết một vị Kim Đan luyện khí sĩ của đại triện, nếu như không nhìn nhầm, thì cô nương kiếm khách trẻ tuổi đó chính là đệ tử của bà lão đã mất, mà đã có hai người thiệt mạng, nhất là người đã mất cái bảo đao, lại thêm việc Đỗ Huỳnh sống sót, đủ để khiến Kim Phi quốc hoàng đế phải đau đầu, không cách nào truyền đạt lại với hoàng đế Chu thị.
-
-Ở bên vách núi, Trần Bình An buông tay, bất ngờ rơi nhanh xuống.
-
-Khi gần chạm đáy vách đá, hắn mới thò tay ra bám vào, hãm lại tốc độ rơi, nhẹ nhàng hạ xuống, chậm rãi đi xa.
-
-Có thể đây chính là một cái bẫy săn sâu xa.
-
-Tuy người người đều có mục đích riêng,
-
-Nhưng khi chính thức hiện thân, bước vào trong đó, cảnh giới càng cao, nói không chừng sẽ chết càng nhanh.
-
-Trần Bình An sẽ không thể trốn tránh.
-
-Chạy trốn khỏi kinh thành, tiền triều dư nghiệt, kim phi quốc soán vị hoàng đế, đảo loạn giang hồ nghĩa tử của Đỗ Huỳnh, tôn thờ triều đình Tranh Vanh môn Lâm Thù, âm thầm bảo vệ hoàng tử Kim Lân cung, đại triện bát cảnh vũ phu, quốc sư phủ Kim Đan tu sĩ, tất cả những điều đó, đều dìm nước đại triện của kinh thành.
-
-Một vị mười cảnh vũ phu của đại triện vương triều đã kết thành tử thù với đại kiếm tiên.
-
-Trần Bình An rời đi xa.
-
-Vị cao cấp nhất trong Kim Lân cung, một Kim Đan kiếm tu, bị một mũi xuyên thủng vào mi tâm, hồng quang lóe lên rồi biến mất, trong cơ thể Kim Đan bị xé nát chỉ trong nháy mắt.
-
-Trước khi chết, Kim Đan kiếm tu mà ít khi để lộ cảm xúc hoảng sợ trừng mắt, lẩm bẩm: “Kiếm tiên Kê Nhạc…”
-
-Thi thể nhanh chóng tan ra thành một vũng máu loãng.
-
-Ở đối diện trên đỉnh núi, một vị lão nhân thấp bé chắp tay sau lưng, “Một kẻ nhỏ bé Kim Đan, cũng dám làm hỏng chuyện của ta? Kiếp sau nếu được đầu thai chuyển thế, ta sẽ học hỏi vị trẻ tuổi đó, để hai lần tránh được tai họa.”
-
-Chỉ trong nháy mắt,
-
-Lão nhân thấp bé tiến đến bên cạnh người đàn ông trong bộ thanh sam, đi cùng nhau và nói: “Người ở nơi khác, làm sao có thể phát hiện ra điều gì không đúng? Có thể kể ra hay không? Hay chỉ tham gia náo nhiệt thôi? Nhìn ngươi tuổi không lớn mà làm việc rất thận trọng.”
-
-Trần Bình An cầm gậy leo núi trong tay, vẫn bước đi không ngừng, cười nói: “Lão tiên sinh cứ dùng cá lớn để câu cá lớn, vãn bối không dám nhúng tay vào vũng nước đục này.”
-
-Lão nhân thấp bé vuốt đầu, “Ngươi cảm thấy kẻ tiền triều dư nghiệt đó đã chết chưa?”
-
-Trần Bình An lên tiếng: "Hẳn là tiên gia cổ tay treo đầu dê mà bán thịt chó, trên người chảy xuôi Long huyết, lại không phải chính thức long chủng. Lâm Thù đúng là một nhân vật rắn rỏi của trung tâm tiền triều tiên đế, vô luận thế nào cũng đều muốn che chở cho hạt giống đọc sách kia. Đỗ Huỳnh và những người trong đoàn vẫn bị lừa gạt. Vị lão tu sĩ Kim Lân cung kia thực sự rất quyết đoán, giúp đỡ để lừa dối. Còn về phần người trẻ tuổi kia, càng phải nói là tâm tính kín đáo, nếu không thì chỉ có Lâm Thù, thật khó mà làm được bước này. Nhưng đối với lão tiên sinh mà nói, những trò hề nhỏ bé của họ đều là trò cười. Dù sao, long chủng của Kim Phi quốc tiền triều không chết thì vẫn tốt, cái cửa áp thắng của giao long thuộc bảo đao đó, kém một chút hỏa hầu nhưng vẫn rất tốt. Vì vậy, nguyên bản lão tiên sinh của Tranh Vanh môn chỉ cần đợi bất động là có thể không phải chết dưới phi kiếm của lão tiên sinh."
-
-"Thành thật mà nói, không biết thì đừng nói, biết gì thì nói nấy, như vậy sẽ tránh được một kiếp."
-
-Lão nhân thấp bé nói xong, trầm ngâm một lát, rồi kêu kỳ lạ: "Có ý nghĩa, có chút ý nghĩa. Đáng tiếc, thật sự là đáng tiếc."
-
-Người mang mũ rộng vành, mặc thanh sam đứng lại, cười nói: "Lão tiên sinh đừng làm ta sợ, ta chỉ là người gan nhỏ, với lại như vậy đằng đằng sát khí, ta chắc chắn đánh không lại lão tiên sinh, liều mạng cũng không được, ta đây chỉ có thể chuyển lời về tiên sinh cùng sư huynh vì mạng sống của mình, có cách rồi."
-
-Lão nhân thấp bé cười lớn, nhìn người trẻ tuổi kia, gật gật đầu: "Rất nhạy bén, mạng sống của ngươi, giống ta khi còn trẻ, cũng đã từng anh tuấn láu cá, coi như là nửa phần đồng đạo. Nếu ta thực sự đánh chết lão thất phu đó, ngươi sẽ đến Viên Đề sơn tìm ta, nếu có ai cản trở, hãy nói ngươi quen một cái họ Kê lão đầu nhi. Đúng rồi, ngươi thông minh như vậy, cũng đừng nghĩ đến việc đi mật báo cho đại triện Chu thị hoàng đế. Được không hoặc sẽ mất đấy."
-
-Trần Bình An thở dài.
-
-Quả thật là người trong truyền thuyết, Viên Đề sơn Tiên Nhân cảnh kiếm tu, Kê Nhạc.
-
-Trần Bình An quay đầu nhìn về đỉnh núi đơn độc sáng ngời kia, đột nhiên hỏi: "Lão tiên sinh, nghe nói đại kiếm tiên khi xuất kiếm có thể nhanh chóng chặt đứt một số nhân quả?"
-
-Lão nhân thấp bé suy nghĩ một chút rồi nói: "Ta vẫn chưa làm được."
-
-Hai người lại rơi vào im lặng.
-
-Bất chợt, lão nhân lắc đầu, nói: "Ngươi tiểu tử này, vận khí cũng quá kém chút ít, mà hai ta lại có thể gặp nhau hai lần, thiếu chút nữa đã chết ba lượt. Thật sự là càng nhìn càng nhớ lại năm xưa."
-
-Trần Bình An cười cười: "Thói quen là tốt rồi."
-
-Lão nhân phất tay, "Đi thôi, luyện kiếm nhân cần phải không chịu ác mệnh, vậy là được."
-
-Người thanh sam kia tiếp tục bước đi.
-
-Lão nhân thấp bé sờ đầu, nhìn người trẻ tuổi kia, ánh mắt phức tạp, thở dài nhẹ nhõm, rằng những điều trước đây thật sự là đáng tiếc, đó là về những người dám can đảm thực sự nghịch thiên hành sự để đọc sách.
-
-Hắn vẫn còn chút không thể nén được, vung tay áo tạo nên một phương tiểu thiên địa, sau đó hỏi: "Ngươi có phải là đệ tử của người ở Bảo Bình châu không?"
-
-Người trẻ tuổi quay đầu nhưng lại không nói gì.
-
-Kê Nhạc thần sắc lạnh nhạt, chắp tay sau lưng, trầm giọng: "Đừng để tiên sinh mất mặt."
-
-Người nọ vừa muốn nói lại thôi, nhưng chỉ gật đầu.
-
-Kê Nhạc vẫn không triệt hồi cấm chế, đột nhiên cười nói: "Có cơ hội ta sẽ nói cho ngươi về vị Tả sư bá kia, kiếm thuật của hắn... kỳ thật không cao lắm, năm đó ta cũng khinh thường, cảnh giới không cao mới gánh không nổi một kiếm của hắn."
-
-Người trẻ tuổi sắc mặt cổ quái.
-
-Kê Nhạc vung tay nói: "Nhắc nhở ngươi một câu, tốt nhất hãy thu hồi cây trâm đó, giấu kỹ đi, mặc dù ta năm đó gần Thủy Lâu Đài, hơi chút bái kiến phía nam trận biến cố, mới cảm thấy có chút quen mắt, nhưng nếu không lại gần nhìn kỹ, ngay cả ta cũng không phát hiện ra điều kỳ quái, nhưng mà vạn nhất có gì xảy ra? Thì không phải tất cả kiếm tu đều như ta mà khinh thường gây khó dễ cho vãn bối. Hôm nay ở Bắc Câu Lô Châu, chỉ cần bị bọn họ nhận ra ngươi thân phận, hơn phân nửa sẽ không kìm nén nổi mà xuất kiếm, còn về phần làm thịt ngươi, liệu có thể rước ngươi đến gặp vị Tả sư bá ở Bắc Câu Lô Châu, thì với những thứ không biết trời cao đất rộng như Nguyên Anh hay Ngọc Phác, đây chẳng qua chỉ là một chuyện thú vị trong đời, thật không đáng sợ chết tý nào, đó chính là bầu không khí Bắc Câu Lô Châu, tốt hay không tốt."
-
-Người trẻ tuổi quay sang hỏi: "Năm đó ra biển xuất kiếm Bắc Câu Lô Châu là lão tiên sinh sao? Vì sao ta đã đọc rất nhiều sơn thủy công báo, chỉ xuất hiện suy đoán, không có ghi chép rõ ràng?"
-
-Kê Nhạc bật cười: "Những kẻ đó giống như chuột, dù biết là ta Kê Nhạc, nhưng chúng dám gọi thẳng tên sao? Ngươi nhìn ba vị kiếm tiên phía sau, lại có ai biết được? Đúng rồi, về sau xuống núi luyện tập, vẫn nên cẩn thận một chút, như tối nay vậy. Ngươi sẽ không bao giờ biết một bầy kiến hôi phía sau giật dây mình, cuối cùng là thần thánh nào. Lời nói khó nghe đấy, Đỗ Huỳnh đối đãi Lâm Thù, ngươi xem Đỗ Huỳnh dừng lại, ta xem cách đối đãi của ngươi, lại có ai biết, có thể có người đang theo dõi ta Kê Nhạc không? Bao nhiêu người trên núi tu đạo, đã chết cũng không thể rút được một ít rõ ràng, càng đừng đề cập đến dưới núi. Những điều khó khăn hỗn tạp đều có thể ghi nhận, chỉ có sự ngu xuẩn mới không có thuốc nào cứu chữa."
-
-Người trẻ tuổi ôm quyền, nói: "Lão tiên sinh dạy bảo, vãn bối sẽ nhớ kỹ."
-
-Kê Nhạc vẫy tay, lóe lên rồi biến mất.
-
-Trần Bình An rời xa ngọn núi cao chót vót, tiếp tục mình du hành.
-
-Giang hồ chính là vậy, không biết sẽ gặp được gió mưa nào.
-
-Tiến vào thời tiết mưa dầm.
-
-Trần Bình An quyết tâm vượt qua Đại Triện vương triều, hướng về một vùng gần biển thuộc nước.
-
-Trên vách núi, mưa to gió lớn, Trần Bình An nhóm một đống lửa, kinh ngạc nhìn về phía bên ngoài màn mưa. Giữa trời đất, thời tiết nóng nực như thế lại hao gầy đi rất nhiều.
-
-Vũ lâm lâm, thanh thanh mạn, liễu y y, hà viên viên. Sơn thanh thanh, lộ điều điều, niệm khứ khứ, tư du du.
+果然是文圣一脉的师兄弟。

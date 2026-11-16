@@ -1,509 +1,401 @@
-# Chương 584: Giang hồ uống rượu đắc ý nhất
+# Chương 584: 还不过来挨打
 
-Tùy Cảnh Rừng có chút không thích ứng với tình huống.
+宁府相较以往，其实也就是多出一个陈平安，并没有热闹太多。
 
-Trong ấn tượng của ta về Vương Độn, lão tiền bối, ông là người đầu tiên trong Ngũ Lăng quốc về võ học, được xưng là đại tông sư có thể đánh bại mọi đối thủ trong giang hồ Ngũ Lăng. Triều đình và dân gian đều nể phục, từ những kẻ vũ phu nơi giang hồ cho đến văn nhân sĩ phu, hay những người buôn bán nhỏ, tất cả đều tôn vinh Vương Độn như một lão giả áo xanh với khí độ nho nhã. Ông không những tài năng ấn tượng trong cầm kỳ thư họa, mà còn sở hữu đủ bản lĩnh, đã từng giữ yên biên cảnh, đẩy lùi nhóm kỵ binh của địch quốc, nhờ đó giúp Ngũ Lăng quốc có được thời gian chiến thắng.
+宁府的沉寂缘由，太过沉重。
 
-Trần Bình An ngồi xuống, Tùy Cảnh Rừng cũng theo đó ngồi xuống.
+原本宁府在宁姚出生后，有机会成为董、齐、陈三姓这样的顶尖家族，如今皆已过眼云烟，却又有阴霾挥之不去。
 
-Vương Độn đứng dậy, đi sang quầy, ôm ba bầu rượu, mỗi người một bình, hào hứng nói: "Ta mời khách."
+倒是叠嶂的铺子那边，因为太徽剑宗剑仙黄童的返乡酒，老剑仙董三更亲自出马，总计六位剑仙拼桌喝酒，大驾光临，又有三位剑仙在无事牌上刻字，使得小酒铺刚要走下坡路的生意，一夜过后便生意兴隆得不像话，蹲着喝酒的剑修一抓一大把，与此同时，酒铺推出了晏记铺子独有酱菜，买一壶酒，就白送一碟，配合略显寡淡的竹海洞天酒，哧溜一口酒，嘎嘣脆一口酱菜，滋味绝佳。
 
-Đến lúc nhấc bầu rượu ra cho Tùy Cảnh Rừng, ông thì thầm: "Lão thị lang Tùy Tân Vũ có một cô con gái đẹp, phải không? Hình như cô ấy rất xinh đẹp. Tứ đại mỹ nhân nổi danh mỗi người mỗi vẻ, không có ai hơn ai, thật sự làm cho nữ tử Ngũ Lăng quốc thêm phần tự hào. So với cái gọi là lão kỹ năng cuối đời của ta, càng đáng giá hơn tấm biển hoàng đế. Nhưng ta cũng phải nói một câu công đạo, ngươi tìm vị kiếm tiên này, có thể là thầy hay chồng, đều có chút hẹp hòi khi chỉ cho ngươi một chén rượu."
+陈平安在宁府的衣食住行，极有规律，撇开每天待在斩龙崖凉亭六个时辰的炼气，往往是清晨时分，与白嬷嬷一起洒扫庭院半个时辰，在此期间，详细询问练拳事宜，在狮子峰李二帮忙喂拳，说得足够详细，只不过不同的巅峰宗师，各自阐述拳理，往往根本相通、道路迥异，风光大不一样，老妪经常说到细微处，便亲自演练拳招，陈平安有样学样。老妪其实尤为欣慰，因为陈平安在街上一战当中，就已经早早用上了她的拳架，白炼霜的拳法，与绝大多数世间拳意，反其道行之，最重收拳，神意内敛，打熬到一个仿佛圆满无漏的境地，出神入化，再谈向敌递拳。
 
-Tùy Cảnh Rừng liếc nhìn Trần Bình An ở bàn đối diện, tựa như phối hợp vạch trần bùn phong, rót rượu vào bát tô. Anh ta cười nói với lão hành: "Vương lão trang chủ..."
+每天午时，与纳兰夜行在芥子小天地演武场上，去熟悉一位玉璞境剑修的飞剑，约莫消耗半个时辰。
 
-Vương Độn nghe vậy không khỏi cảm thấy không hài lòng, khoát tay: "Không có già đâu! Người già nhưng tâm không già. Gọi ta là Vương trang chủ là được rồi, nếu không thì cứ gọi thẳng tên ta là Vương Độn cũng không sao."
+子时时分，还有一场演练，这都是纳兰夜行的要求，想要学习到他截然不同的两种剑意精髓，这个两个时辰，就是最佳时分。
 
-Tùy Cảnh Rừng gật đầu: "Vương trang chủ, hôm nay vị đao khách Tiêu Thúc Dạ của Thanh Từ quốc đã bị giết."
+与纳兰夜行学剑，不比与白嬷嬷学拳，经常要负伤，其实纳兰夜行出剑极有分寸，陈平安也就是看着伤痕累累，皮开肉绽，都是小伤，可白嬷嬷却次次心疼，有次陈平安稍稍受伤重了些许，子时练剑过后，按照老规矩，与纳兰爷爷喝两盅，结果白嬷嬷对着纳兰夜行就是一通骂，骂了个狗血淋头，纳兰夜行只是伸手捂住酒杯，不敢还嘴。其实练剑一事，陈平安说过，宁姚也帮着说过，都希望白嬷嬷不用担心，可不知为何，可谓知书达理的老妪，唯独在这件事上，拧不过弯，不太讲理，苦的就只能是纳兰夜行了。
 
-Vương Độn thở dài khi nghe điều này, nhấp một ngụm rượu và nói: "Có lẽ ta cũng không còn là nhân vật lớn. Chỉ một lão gia hỏa nào đó từ Đế Triều mà ra, cũng có thể cao tay hơn ta."
+后来听说陈平安剑气十八停瓶颈松动，有了破关迹象，老妪这才忍着心疼，勉强算是放过没有功劳只有苦劳的纳兰夜行。
 
-Tùy Cảnh Rừng cảm thấy mình không còn gì để nói.
+关于阿良修改过的十八停，陈平安私底下询问过宁姚，为何只教了这么些人。
 
-Vương Độn cười ha hả, quay về phía Trần Bình An, người trẻ tuổi mặc áo thanh sam, nổi bật trong một số báo chí gần đây về sự tích của họ Trần, bắt nguồn từ một chuyến đi trên thuyền ở Xuân Lộ phố, sau đó đánh gục một kẻ vũ phu từ Thiết Đồng phủ. Nghe đồn rằng sau đó, Liễu Chất Thanh, một kiếm tiên từ Kim Ô cung, đã đến bên cạnh và cùng nhau uống trà, trở thành bằng hữu. Hôm nay, anh lại đang mang đầu lâu Tiêu Thúc Dạ vào Ngũ Lăng quốc.
+宁姚神色凝重，说阿良不是不想多教几人，而是不敢。
 
-Vương Độn hỏi: "Vị kiếm tiên kia, có phải vì ta đã nói ngươi không đủ lớn mà chém ta không?"
+陈平安当时坐在凉亭内，悚然惊醒，竟是破天荒直接吓出了一身冷汗。
 
-Trần Bình An cười đắng cay: "Tất nhiên là không."
+教得多了，整个蛮荒天下年轻一辈的妖族剑修，都可以齐齐拔高剑道一筹！
 
-Vương Độn nâng bát rượu, Trần Bình An cũng nâng theo, nhẹ nhàng chạm bát với nhau. Sau đó, Vương Độn hỏi: "Bao nhiêu tuổi rồi?"
+宁姚望向陈平安。
 
-Trần Bình An đáp: "Ước chừng ba trăm tuổi."
+陈平安说道：“我至今为止，只教了裴钱一人。”
 
-Vương Độn buông bát rượu, xoa ngực: "Điều này thật dễ chịu. Nếu không thì ta vẫn có cảm giác mình sống tới tuổi này như một con chó."
+宁姚点头道：“那就没事。”
 
-Tùy Cảnh Rừng mỉm cười.
+在那之后，陈平安就询问城池这边除了两本版刻书籍，还有没有一些流散市井的剑仙笔札，无论是本土或是外乡剑修著作，不管是写剑气长城的厮杀见闻，还是游历蛮荒天下的山水游记，都可以。宁姚说这类闲杂书籍，宁府自身收藏不多，藏书楼多是诸子百家圣贤书，不过城池北方的那座海市蜃楼，可以碰碰运气。
 
-Tuy nhiên, trong ấn tượng của mình về Vương Độn lão tiền bối, ông giống như một người bình thường, ngồi uống rượu mà không quá khác biệt với Sái Tảo sơn trang lão trang chủ, cảm giác thật dễ chịu.
+陈平安却犹豫起来。
 
-Vương Độn hạ giọng hỏi: "Có thật chỉ là đánh nhau tay đôi, đánh rơi kẻ Thiết Đồng phủ đó trên thuyền thôi sao?"
+那座集市，很古怪，其根脚，是名副其实的海市蜃楼，却长久凝聚不散为实质，琼楼玉宇，气派恢宏，宛如仙家府邸，将近四十余座各色建筑，能够容纳数千人之多。城池本身戒备森严，对于外乡人而言，出入不易，所以浩然天下与剑气长城有长久贸易的巨商大贾，都在那边做买卖，奇巧物件，古董珍玩，法宝重器，应有尽有，那座海市蜃楼每百年会虚化，在那边居住的修士，就需要撤出一次，人物皆出，等到海市蜃楼重新自行凝聚为实，再搬入其中。
 
-Trần Bình An cười đáp: "Có phần hơi thô lỗ, rất nguy hiểm."
+宁姚曾经就在那边遭遇一场刺杀。
 
-Vương Độn hỏi: "Vậy chúng ta luận bàn một chút? Chỉ cần có một chút là ngừng lại, yên tâm, ta chỉ muốn rượu một chút, gặp chính thức cao nhân bên ngoài, cũng cảm thấy ngứa tay."
+白嬷嬷也是在那边从十境武夫跌境为山巅境，纯粹武夫不是跌境常见的练气士，由此可见，当年那场偷袭，何等险峻且惨烈。
 
-Trần Bình An lắc đầu.
+陈平安没有答应宁姚一起去往那边，只是打算让人帮着搜集书籍，花钱而已，不然辛苦挣钱图什么。
 
-Vương Độn nói: "Uống của người ta hai bầu rượu, vậy mà không muốn một chút sao?"
+如果不说手段尽出的搏杀，只谈修行快慢。
 
-Thấy Trần Bình An không có dấu hiệu thay đổi ý định, Vương Độn nói: "Vậy coi như ta xin ngươi đấy?"
+陈平安哪怕不跟宁姚比较，只与叠嶂陈三秋他们几个作比较，还是会由衷自愧不如。有一次晏琢在演武场上，说要“代师传艺”，传授给小姑娘郭竹酒那套绝世拳法，陈平安蹲在一旁，不理睬一大一小的瞎胡闹，只是抬头瞥了眼陈三秋与董画符在凉亭内的炼气气象，以长生桥作为大小两座天地的桥梁，灵气流转之快，简直让人目不暇接，陈平安瞧着便有些揪心，总觉得自己每天在那边呼吸吐纳，都对不住斩龙崖这块风水宝地。
 
-Trần Bình An suy nghĩ một chút, gật đầu: "Cứ theo lời Vương lão tiền bối, đánh tay đôi, nếu có một chút thì ngừng lại."
+宁姚站在一旁，安慰道：“你长生桥尚未完全搭建，他们两个又是金丹修士，你才会觉得差距极大。等你凑足五件本命物，五行相依相辅，如今三件本命物，水字印，宝瓶洲五岳土壤，木胎神像，三物品秩够好，已经有了小天地大格局的雏形。要知道哪怕是在剑气长城，绝大多数地仙剑修，都没有这么复杂的丹室。”
 
-Vương Độn đứng lên, nhìn quanh, như thể chọn một cái bàn gần đó để bắt đầu, nhẹ nhàng dùng tay đè xuống, bốn chân bàn bỗng chốc hóa thành bột mịn, mặt bàn từ từ rơi xuống đất.
+陈平安笑道：“剑修，有一把足够好的本命剑，就行了，又不需要这么多本命物支撑。”
 
-Trần Bình An nói: "Nếu như cảm thấy hai người nhảy lên bàn luận bàn, sẽ bị người khác thấy cảm giác như châm chọc, vậy chúng ta có thể mang bàn này đi không?"
+宁姚说道：“我这不是与你说些宽慰言语吗？”
 
-Vương Độn hơi ngạc nhiên: "Ta thật sự muốn làm như vậy, không phải sợ vị kiếm tiên của ngươi cảm thấy xấu hổ sao?"
+陈平安笑道：“心领了。”
 
-Cả hai gần như đồng thời tiến đến cái bàn lớn.
+陈平安记起一事，“叠嶂每天忙着铺子生意，当真不会耽搁她修行？”
 
-Tùy Cảnh Rừng muốn đứng dậy rời quán rượu, nhưng Trần Bình An ra hiệu bảo nàng không cần đứng lên.
+宁姚摇头道：“不会，除了下五境跻身洞府境，以及跻身金丹，两次是在宁府，其余叠嶂破境，都靠自己，每经历过一场战场上磨砺，叠嶂就能破境极快，她是一个天生适合大规模厮杀的天才。上次她与董画符切磋，你其实没有看到全部，等真正上了战场，与叠嶂并肩作战，你就会明白，叠嶂为何会被陈三秋他们当作生死好友，除我之外，陈三秋每次大战落幕，都要询问晏胖子和董黑炭，叠嶂的后脑勺看清了没有，到底美不美。”
 
-Vương Độn dừng lại, ôm quyền nói: "Ngũ Lăng quốc, Sái Tảo sơn trang, Vương Độn, quyền pháp tiểu thành, mong được chỉ giáo."
+宁姚说道：“故而董、陈两家长辈，对于出身不太好的叠嶂，其实一直很刮目相看，尤其是陈家那边，还有意让一位年轻俊彦，嫁娶叠嶂，陈三秋的那位兄长都点头答应了，只是叠嶂自己没答应。董爷爷愿意为太徽剑宗剑仙黄童送行，选在叠嶂的铺子，与你无关，只与叠嶂救过董黑炭的性命，有关。叠嶂曾经说过一句话，‘我若必死，无需救我。’董爷爷特别欣赏。”
 
-Trần Bình An cũng ôm quyền đáp lễ, không nói gì thêm, chỉ đưa tay ra mở lòng bàn tay, "Mời."
+宁姚笑道：“这些事情，我没有跟叠嶂多说，她心思细腻，总会多想，我怕她分心，她对于那些战功彪炳的前辈剑仙，太过仰慕，过犹不及。先前在店铺那边，你应该也察觉到了，不管是左右，还是董爷爷，或是韩槐子郦采他们，叠嶂见到了，都会很紧张。”
 
-Về quê quán và tên tuổi, ta không muốn nói rõ.
+陈平安点点头，“确实发现了，你要是答应，回头我可以与她聊聊，关于此事，我比较有心得。”
 
-Nói mình là Trần Hảo Nhân thì không thích.
+宁姚盯住陈平安，问道：“这有什么不答应的，还是说，你觉得我很不近人情？”
 
-Xa xa, nhiều người xung quanh đang xôn xao, tại sao ông lão bán rượu lại biến thành Vương Độn lão tiền bối?
+陈平安伸出双手，捏住宁姚的脸颊，“怎么可能呢。”
 
-Chỉ khi lão nhân xé đi lớp mặt nạ, lộ ra dung mạo, sự k*ch th*ch của đám đông trở nên sôi sục, quả nhiên lão tiền bối Vương Độn, thần long kiến thủ bất kiến vĩ!
+一直眼观八面耳听四方的晏胖子一个不慎，给学了他拳脚武艺的小姑娘一腿砸在面门上，晏琢浑然不觉，给郭竹酒使眼色，小姑娘转头一瞧，倒抽冷气，师父恁大胆，果然是艺高人胆大！自己更是聪明绝顶运气好，此次拜师学艺，稳赚不亏！
 
-Vương Độn ra quyền như cầu vồng, mạnh mẽ, nhưng không gây sát thương.
+宁姚站着不动，任由那家伙双指捏住两边脸颊，“本事这么大，去芥子小天地，陪你练练手？”
 
-Người trong bộ thanh sam kia đã bị đè lên, chỉ một chút công lực cũng không được dùng.
+陈平安赶紧收手，不过一手负后，一手摊开手掌伸向演武场，微笑道：“请。”
 
-Khi hai người đứng đối diện, Vương Độn nói: "Như vậy, chúng ta có thể thoải mái hơn chút không?"
+宁姚一挑眉，掠入演武场靠近南边的那处芥子天地，飘然站定，轻轻拧转手腕。
 
-Trần Bình An gật đầu.
+陈平安跑了个没影。
 
-Trên đường phố xa xăm và nóc nhà, cành cây, các giang hồ vũ phu không khỏi cảm thấy phấn khích, cuộc chiến này thực sự hiếm gặp trong trăm năm.
+宁姚也没追他，只是祭出飞剑，在芥子天地中闲庭信步，连练剑都算不上，只是久未让自身飞剑见天地罢了。
 
-Vương Độn lão tiền bối không hổ danh là người thứ nhất của Ngũ Lăng quốc, gặp được một vị kiếm tiên, dám đối diện ra quyền mà không hề rơi vào thế hạ phong.
+修行一事，对于宁姚而言，实在不值一提。
 
-Tuy rằng vị kiếm tiên kia chưa tung ra một chiêu phi kiếm nào, nhưng chỉ với vậy thôi, có thể thấy rằng lão tiền bối Vương Độn đã đặt cả tính mạng và danh dự vào trận đấu này. Ông ta đánh bạc bằng cả cuộc đời, chưa từng thua trận, và đã mang lại một uy tín lớn cho tất cả những người trong giang hồ của Ngũ Lăng quốc! Lão tiền bối Vương Độn, thật sự là niềm tự hào của chúng ta ở Ngũ Lăng quốc!
+郭竹酒怔怔道：“审时度势，能伸能屈，吾师真乃大丈夫也。”
 
-Những người chỉ dám đứng xa xem cuộc chiến của các hảo hán trong giang hồ, lại chưa từng một lần chính thức trở thành võ học tông sư, khoảng cách với tửu quán cũng khá xa, tự nhiên còn không bằng Tùy Cảnh Rừng, người đã nhìn thấy mọi thứ rõ ràng.
+晏琢问道：“绿端，我教你拳法，你教我这马屁功夫，如何？”
 
-Chẳng hạn như nàng đã chứng kiến ý định của tiền bối muốn kết thúc trận đấu này, khi tỷ thí, một lần ra tay bỗng nhanh hơn, tiến lên một bước, cổ tay nhéo lại, đã đánh Vương Độn một quyền, một chưởng tiếp tục hướng tới trước, có khả năng sẽ vỗ vào mặt Vương Độn. Lẽ ra, chưởng đó sẽ đẩy Vương Độn bay ra khỏi cái bàn lớn trước mặt, nhưng không ngờ Vương Độn đã nhanh chóng liếc nhìn, lão tiền bối nhẹ nhàng gật đầu. Quyền của Vương Độn, vốn hơi chậm hơn một nhịp, bỗng chốc ngưng lại và đụng vào một chưởng của tiền bối gần như đồng thời. Cả hai người cùng lùi lại hai bước, tâm ý tương thông, đều dừng lại trước mặt bàn.
+小姑娘学那青衫剑客师父当初在大街一役，对敌之前，摆出一手握拳在前、一手负后的潇洒姿势，摇头道：“你心不诚，资质更差。”
 
-Tùy Cảnh Rừng thấy Vương Độn bắt đầu nháy mắt, và người thanh sam kia cũng bắt đầu làm vậy. Nàng không hiểu tại sao, cảm thấy như là đang mặc cả. Tuy nhiên, dù cò kè mặc cả, hai người vẫn ra đòn liên tục, càng lúc càng nhanh, lực lượng ngang nhau, không ai chiếm được ưu thế. Với người ngoài, đây quả thực là một trận chiến không phân biệt cao thấp giữa các tông sư.
+晏琢有点懵。
 
-Cuối cùng, hai người dường như đã thỏa thuận về "giá cả", một người đấm vào ngực đối phương, chân đạp vào mặt bàn để đứng lại, rồi mỗi người ôm quyền.
+宁姚招手道：“绿端，过来挨打。”
 
-Kết thúc trận đấu.
+郭竹酒嚷了一句好嘞，然后就开始跑路，好歹是位中五境剑修，御风逃遁不难，就是不如未来师父那般行云流水罢了。
 
-Vương Độn cười to nói: "Thật không ngờ một vị kiếm tiên lại có quyền pháp tốt như vậy."
+弟子不如师，无需羞愧。
 
-Đối phương cất cao giọng nói: "Ngươi Vương Độn quyền ý quá nặng, đánh bóng càng không tỳ vết. Lâu thì mười năm, ngắn thì năm năm, ta còn muốn đến Sái Tảo sơn trang cùng ngươi Vương Độn thảo luận về quyền pháp."
+只可惜被宁姚伸手一抓，以火候刚好的一阵细密剑气，裹挟郭竹酒，将其随随便便拽到自己身边。
 
-Tùy Cảnh Rừng vuốt trán, cúi đầu uống rượu, cảm thấy không thể nhìn thẳng được. Đối với hai vị này, nàng cảm thấy như giang hồ đang hòa quyện với rượu, không còn ranh giới rõ ràng.
+郭竹酒一个踉跄站定，轻喝一声，双手合掌，然后十指交缠掐诀，“天灵灵地灵灵，宁姐姐瞧不见，打了也不疼！”
 
-Nếu là Hồ Tân Phong hay Tiêu Thúc Dạ mà hành xử như vậy, nàng cũng không có gì để nói, nhưng mà sự vô liêm sỉ của Vương Độn lão tiền bối làm nàng không khỏi cảm thán, đời này chắc chắn không muốn dính dáng đến giang hồ diễn nghĩa tiểu thuyết.
+晏琢双手捂住脸，狠狠揉搓起来，自言自语道：“要我收绿端这种弟子，我宁肯拜她为师。”
 
-Vương Độn đi đến cửa tửu quán, cao cao ôm quyền, coi như mời mọi người, rồi phất tay: "Tất cả tản đi."
+郭竹酒若是以为自己这样就可以逃过一劫，那也太小觑宁姚了。
 
-Âm thanh vỗ tay và những lời khen ngợi vang lên liên tiếp, sau đó mọi người bắt đầu rời đi.
+小姑娘鼻青脸肿地离开宁府，蹦蹦跳跳，出门的时候，还问宁姐姐要不要吃糕点，并且拍胸脯保证，自己就是走路不长眼睛，摔跤摔的，结果莫名其妙又给宁姐姐抓住小脑袋，往大门上一顿敲门。
 
-Vương Độn đã nói như vậy, mọi người tự nhiên không tiện ở lại.
+有些晕乎乎的郭竹酒，独自一人离开那座学拳圣地，她可怜兮兮走在大街上，摸了摸脸，满手心的鼻血，给她随便抹在身上，小姑娘高高仰起脑袋，慢慢向前走，心想练拳真是挺不容易的，可这是好事哇，天底下哪有随便就能学会的绝世拳法？等自己学到了七八成功力，宁姐姐就算了，师娘为大，师父未必愿意偏袒自己，那就忍她一忍，可是董不得那个嫁不出去的老姑娘，以后走夜路，就得悠着点喽。
 
-Khi Vương Độn trở lại chỗ ngồi, thanh sam kiếm tiên đã nhặt lên một bên mặt bàn bị xé rách, sắp xếp lại trên bàn rượu.
+腰间悬挂一枚晃悠悠碧绿抄手砚的小姑娘，一直仰头看着万里无云的蔚蓝天空，轻轻点头，今儿是个好日子。
 
-Sau khi ngồi xuống, Vương Độn uống một ngụm rượu, cảm khái nói: "Ngươi đã có tu vi cao như vậy, sao lại chủ động tìm ta Vương Độn để học hỏi giang hồ kỹ năng? Có phải vì cô nàng Tùy Gia phía sau không? Hy vọng khi hai vị rời Ngũ Lăng quốc, về núi tu hành, có thể giúp đỡ trông nom một chút?"
+这天陈平安与宁姚一起散步去往叠嶂的酒铺。
 
-Trần Bình An lắc đầu nói: "Ta không có cầu xin, chỉ mong muốn ở đây lộ mặt, để âm thầm nhắc nhở những ai khác, nếu như muốn động thủ với người Tùy Gia, hãy cân nhắc đến hậu quả nếu bị ta trả thù."
+以往两人炼气，各有休歇时辰，不一定凑得到一起，往往是陈平安独自去往叠嶂酒铺那边。
 
-Vương Độn gật đầu, "Người tu đạo trên núi, ngươi lừa ta gạt, thực ra chỉ là ân oán giang hồ trải qua thời gian dài. Về căn bản, không có gì khác, chỉ là một trò chơi không có ý nghĩa. Ngươi là người trẻ tuổi thức thời, không giống ta khi trước. Vì vậy, mời ngươi uống rượu, ta không cảm thấy ghê tởm những thứ rượu này. Ta nói vậy, liệu có phải là lời lẽ quá lớn không?"
+今天宁姚明明是中断了修行，有意与陈平安同行。
 
-Trần Bình An cười nói: "Võ phu tu hành, nhất định phải chú ý từng bước đi trên mặt đất, không có đường tắt. Nếu lòng không cao, làm sao có thể leo l*n đ*nh núi?"
+陈平安也没多想。
 
-Dù Vương Độn bán rượu, nhưng dường như không thật sự đam mê đồ uống, phần lớn chỉ nhấp từng chút, chưa bao giờ uống bừa bãi. Ông thương cảm nói: "Tửu quán này không còn mở ra nữa. Rất nhiều người trong giang hồ không thể nghe thấy sự thật."
+路过那条生意远远不如自己铺子生意兴隆的大街酒肆，陈平安看着那些大大小小的楹联横批，与宁姚轻声说道：“字写得都不如我，意思更差远了，对吧？”
 
-Trần Bình An cười hỏi: "Vương trang chủ không thích nghe lời ngợi khen sao?"
+宁姚说道：“有家大酒楼，请了儒家圣人的一位记名弟子，是位书院君子，亲笔手书了楹联横批。”
 
-Vương Độn bĩu môi, "Thích chứ! Khi còn trẻ, ta rất thích nghe, giờ cũng vậy. Chỉ là thích nghe những lời có ích. Nếu không nghe chút ít lời thật lòng và khó nghe, ta sợ rằng đến một ngày, ta sẽ bay bổng lên trời, nhưng lại không có khả năng và không thể quay về."
+陈平安笑道：“这就是只学去一点皮毛的拙劣生意经了，不会成事的，我敢打赌，酒楼生意不变差，那边掌柜就要烧高香了，休想酒客领情。在这边大大小小的酒家七十余家，人人卖酒，浩然天下出产的仙家酒酿百余种，想喝什么酒水都不难，可归根结底，卖的是什么？”
 
-Trần Bình An nhìn về bầu trời.
+宁姚问道：“是什么？”
 
-Vương Độn cười hỏi: "Như đã nói trước đây, ngoài hơn mười bình rượu ngon, còn muốn Sái Tảo sơn trang có chút gì khác không?"
+陈平安笑着不说话，继续打量四周那些好似羞羞赧赧小娘子的楹联内容。
 
-Trần Bình An trả lời: "Hai con ngựa và một địa chỉ bến đò ở Lục Oanh quốc."
+宁姚说道：“不说拉倒。”
 
-Vương Độn ngạc nhiên: "Chỉ có vậy thôi sao?"
+陈平安赶紧说道：“当然是要那些买酒之人，饮我酒者，不是剑仙胜似剑仙，是了剑仙更胜剑仙。小铺子，粗陋酒桌板凳，偏偏无拘束，小小酒杯大天地。所以叠嶂说挣了钱，就要更换酒桌椅凳，学那大酒楼折腾得崭新鲜亮，这就万万不成。晏胖子提议他用私房钱入伙，拿出记在他名下一座生意不济的大绸缎铺子，也给我直接拒绝了，一来会坏了风水，白白折损了如今酒铺的独有风采，再者，咱们这座城池不算小了，数万人，算他半数的女子，会卖不出绫罗绸缎？所以我打算与晏胖子说道说道，别继续添钱入伙我们店铺，我们出钱入伙他的绸缎铺子。在这里，真正愿意掏钱的，除了喜欢饮酒的剑修，就是最喜欢为悦己者容的女子了。绸缎铺子的新楹联，我都打好腹稿了……”
 
-Trần Bình An đáp: "Rất nhiều rồi."
+宁姚缓缓道：“阿良说过，男子练剑，可以仅凭天赋，就成为剑仙，可想要成为他这样善解人意的好男人，不受过女子言语如飞剑戳心的情伤，不挨过女子远去不回头的情苦，不喝过千百斤的魂牵梦萦酒，万万别想。”
 
-Vương Độn chỉ tay về phía quầy rượu: "Càng bày ra nhiều rượu, mùi vị càng ngon, kiếm tiên tùy ý chọn."
+陈平安转头望向宁姚，眨了眨眼睛，“说的对啊，过去十年，心心念念人，隔在远远乡，仙人飞剑也难及，唯有练拳饮酒解忧。”
 
-Trần Bình An đứng dậy đi về phía quầy hàng, bắt đầu rót rượu vào hồ lô.
+下一刻，陈平安蓦然惊慌失措起来。
 
-Mở ra một vò lại một hũ.
+宁姚的脸色，有些没有任何掩饰的黯然。
 
-Năm hũ rượu cổ sau khi được mở ra, Vương Độn đã không ngồi yên, leaned vào quầy khuyên nhủ: "Trên đường giang hồ, uống quá nhiều rượu sẽ hỏng việc, biết đủ là tốt."
+那一双眼眸，欲语还休。她不善言辞，便从来不说。因为她从来不知如何说情话。
 
-Người thanh sam trẻ tuổi, lưng về phía Vương Độn, không ngừng rót rượu, "Không sao cả, càng chứa nhiều rượu thì càng có thể bớt phải lấy."
+以前那个练拳一百万才走到倒悬山的草鞋少年，也如他一般言辞笨拙，所以她不会觉得有什么，好像就该那样，你不言我不语，便知道了。
 
-Vương Độn do dự một chút, nhắc nhở: "Ta có thể đổi mặt và đổi chỗ bán rượu."
+陈平安伸出一根大拇指，轻轻抹过宁姚的眉毛，轻声道：“不要不开心，要愁眉舒展。”
 
-Người trẻ tuổi ngẩng đầu, cười nói: "Ta nhất định chúc Vương trang chủ khai trương phát đạt, tài nguyên dồi dào."
+宁姚说道：“我就是不开心。”
 
-Vương Độn thấy hắn vô tâm, chỉ có thể nói tiếp: "Phía dưới những bình rượu lâu năm quá mạnh, tên là "Sấu Mai Tửu". Thực chất là do ta ở Sái Tảo sơn trang bào chế. Những người giang hồ đến đây không biết tên rượu, dù có tìm thấy các bình rượu quý, cũng không dám uống quá hai chén. Thật sự là khó uống quá lâu nên người ta gọi là "hai chén sáng ngời" hoặc "ba chén đổ". Nếu ngươi không ngại, thì dùng rượu thông thường mà đoái đi, mùi vị rất tốt."
+陈平安一个弯腰，抱起宁姚开始奔跑。
 
-Người trẻ tuổi lắc đầu: "Không sao, uống rượu không giống uống trà, không cần chú ý đến dư vị lâu dài, chỉ cần uống say là được."
+宁姚不知所措。
 
-Vương Độn thật sự không thể kiềm chế, nói: "Hôm nay thôn trang đông đúc khách quý như mây, quan chức, bằng hữu giang hồ, và văn nhân đều dừng lại không nổi. Trong trang bên cạnh, có ba mươi hũ sấu mai tửu, có lẽ giờ đây không còn bao nhiêu. Ta đến đây tìm chốn thanh tĩnh, cũng chỉ muốn lưu lại mấy bình sấu mai tửu cho mình. Ngươi không thông cảm một chút hay sao?"
+陈平安抱着她，一路跑到了叠嶂酒铺那边，酒桌上和蹲在一旁的大大小小剑修几十人，一个个目瞪口呆。
 
-Người trẻ tuổi mở một vò sấu mai tửu, vẻ mặt ủ rũ nói: "Tiền bối sao không nói sớm? Mở vò ra rồi, hương vị cũng không giữ được. Chúng ta trước đây đã uống gần hết trên bàn rượu, nếu không thì có thể thưởng thức hương vị sấu mai tửu này. Bây giờ không cho vào bình của ta thật sự là một điều đáng tiếc. Thôi, nếu Vương trang chủ muốn giữ lại một vò để uống một mình, thì ta cũng chỉ cầu xin một chén rượu mà thôi. Ta sẽ để lại vò này cho Vương trang chủ."
+其中还有不少妙龄女子，多是慕名而来的大家闺女。见此场景，也没什么，反而一个个眼神熠熠生辉，更有胆大的女子，豪饮一口酒水，吹口哨那叫一个娴熟。
 
-Vương Độn vẫy tay, cười ha hả: "Không cần đâu, cứ rót rượu đi. Ta, Vương Độn, không phải là người như vậy. Rượu ngon phải chia sẻ với bạn bè, nuôi dưỡng kiếm thuật bằng rượu hồ lô, đó là chuyện tốt trong nhân gian."
+陈平安将宁姚放下，大手一挥，“还没结账的酒水，一律打九折！”
 
-Cuối cùng, vò sấu mai tửu không còn lại chút nào.
+然后陈平安又补充道：“二掌柜说话未必管用，以叠嶂大掌柜的意思作准。”
 
-Vương Độn quay lưng về phía quầy hàng, thở dài, "Khi nào thì rời khỏi đây? Không phải ta không muốn tiếp đãi khách, nhưng Sái Tảo sơn trang thì cũng chẳng còn gì thú vị, chỉ toàn là những cuộc giao tiếp nhàm chán."
+酒客们齐刷刷望向叠嶂，叠嶂笑着点头，“那就九折。”
 
-Sau đó, Vương Độn nói cho Trần Bình An biết địa chỉ kỹ càng của nơi bến đò tiên gia tại Lục Oanh quốc.
+顿时响起喝彩声。
 
-Trần Bình An lượn ra từ quầy hàng, mỉm cười nói: "Vậy làm phiền Vương trang chủ sắp xếp cho người ta hai con ngựa, chúng ta sẽ không ở lại thị trấn qua đêm, mà lập tức lên đường."
+他娘的能够从这个二掌柜这边省下点酒水钱，真是不容易。
 
-Vương Độn vung tay, gọi một đệ tử sơn trang đến, gọi từ góc đường xa. Đó là một trung niên kiếm khách với gương mặt rạng rỡ như ngọc. Vương Độn có kiến thức võ học phong phú, bất kể là quyền pháp hay kiếm pháp, đều nổi tiếng bậc nhất ở Ngũ Lăng quốc. Vì vậy, những đệ tử thân truyền cũng đều tinh thông võ nghệ. Người đến tửu quán này chính là một trong những đệ tử được Vương Độn truyền thụ kiếm thuật, và hiện tại đang đứng trong top ba bậc cao thủ giang hồ ở Ngũ Lăng quốc. Sau khi gặp Trần Bình An và nghe lời sư phụ dặn dò, Vương Tĩnh Sơn ôm quyền hành lễ với người thanh sam: "Sái Tảo sơn trang đệ tử Vương Tĩnh Sơn, bái kiến kiếm tiên. Nếu sau này kiếm tiên có thể ghé qua sơn trang, xin chỉ điểm cho vãn bối về kiếm thuật."
+陈平安拎了根小板凳，又要去街巷拐角处那边当说书先生了，望向宁姚，宁姚点点头。
 
-Trần Bình An cười gật đầu: "Tốt."
+叠嶂来到宁姚身边，轻声问道：“今儿怎么了？陈平安以前也不这样啊。我看他这架势，再过几天，就要去街上敲锣打鼓了。”
 
-Vương Độn cười nói: "Chỉ điểm kiếm thuật hay sao? Trên núi phi kiếm một lần là đủ khiến ngươi thua cuộc. Nói thẳng ra, nếu có cơ hội gặp kiếm tiên, thì chẳng cần lý do gì cả, cứ học hỏi là được."
+宁姚斜瞥了眼远处一桌叽叽喳喳的莺莺燕燕，笑了笑，没说话。
 
-Vương Tĩnh Sơn hiển nhiên quen biết tính khí của sư phụ, nên không thấy ngại ngùng. Anh ta mỉm cười cáo từ rời đi.
+叠嶂忍住笑，在宁姚这边，她偷偷提过一嘴，铺子这边如今经常会有女子来喝酒，醉翁之意不在酒，自然是奔着那个声名在外的二掌柜来的。有两个没羞没臊的，不但买了酒，还在酒铺墙壁的无事牌那边，刻了名字，写了话语在背后，叠嶂如果不是铺子掌柜，都要忍不住将无事牌摘下，宁姚先前那次，去翻开了那两块无事牌，看过一眼，便又默默翻回去。
 
-Rất nhanh, Vương Tĩnh Sơn từ sơn trang mang đến hai con ngựa tốt. Ngoài ra còn có hai kỵ sĩ trẻ tuổi, là sư đệ và sư muội của anh ta.
+陈平安坐在小板凳上，很快就围了一大帮的孩子。
 
-Ba người cùng năm ngựa bước ra khỏi thị trấn không xa Sái Tảo sơn trang.
+依旧是说了个上次没说完的山水神怪故事，断在关键处，笑眯眯撂了一句且听下回分解。
 
-Người trong sơn trang thường không dám mở miệng đi cùng Vương Tĩnh Sơn vào quán rượu làm phiền sư phụ. Nhìn thấy kiếm tiên, quả thực không thể nào rời mắt, còn Vương Tĩnh Sơn lại không thể không kiên quyết đưa họ đi cùng.
+身边全是抱怨声。
 
-Vương Độn cùng hai người khác không có ở quán rượu, mà ba người đứng cạnh cửa khách sạn.
+那个比郭竹酒还要更早想要跟陈平安学拳的屁大孩子，就蹲在陈平安脚边，从陶罐里摸出一颗铜钱，“陈平安，你接着说，有赏钱。不够的话，我可以加钱。”
 
-Không có lời khách sáo nào, Trần Bình An và Tùy Cảnh Rừng nhanh chóng lên ngựa và giục ngựa chạy đi xa.
+陈平安伸手推开孩子的脑袋，“一边凉快去。”
 
-Hai vị thiếu niên đeo kiếm, tay nắm tay, phấn khởi nói: "Không hổ là kiếm tiên trong truyền thuyết!"
+然后陈平安从怀中取出一张拓碑而来的纸张，轻轻抖开，“这上边，有没有不认识的字？有没有想学的？”
 
-Vương Độn cười hỏi: "Ngươi sao chỉ nhìn ra được như vậy?"
+有个少年闷闷道：“不认识的字，多了去，学这些有什么用，贼没劲。不想听这些，你继续说那个故事，不然我就走了。”
 
-Thiếu niên không sợ hãi người sư phụ Vương Độn, hai ngón tay xoắn xuýt chỉ vào mắt mình, "Đều nhìn ra được cả!"
+陈平安环顾四周，差不多皆是如此，对于识文断字，陋巷长大的孩子，确实并不太感兴趣，新鲜劲儿一过去，很难长久。
 
-Hành động này chắc chắn là học từ sư phụ.
+识字一事，在剑气长城，不是没有用，对于那些可以成为剑修的幸运儿，当然有用。
 
-Thiếu nữ cầm đao nói: "Ta không nhìn ra điều gì cả."
+可是在这边的大街小巷贫寒人家，也就是个解闷的事情。如果不是为了想要知道一本本小人书上，那些画像人物，到底说了些什么，其实所有人都觉得跟那些歪歪斜斜的石碑文字，从小打到再到老到死，双方一直你不认识我，我不认识你，没什么关系。
 
-Thiếu niên cười nhạo: "Ngươi học đao, không giống ta, tự nhiên không cảm nhận được kiếm ý vô tận từ kiếm tiên. Nói ra sợ làm ngươi hoảng. Ta chỉ nhìn một vài lần đã cảm nhận được điều đó, lần sau nếu cùng ngươi luận bàn, chỉ cần mượn một chút kiếm ý của kiếm tiên, thì ngươi không thể nào thắng được!"
+陈平安笑道：“不急。我今天只与你们解一字，说完之后，便继续说故事。”
 
-Vương Độn tát vào đầu thiếu niên, "Ngốc nghếch, lúc nãy kiếm tiên xuất hiện, sao ngươi không nói những điều này?"
+陈平安拿起膝盖上的竹枝，在泥地上写出一个字，稳。
 
-Thiếu niên nghiêm túc nói: "Thế khí của kiếm tiên quả thật quá mạnh, ta bị sức mạnh này áp chế, không mở miệng được."
+陈平安笑问道：“谁认识？”
 
-Vương Độn lại tát thêm một cái, khiến thiếu niên choáng váng, "Cút sang một bên."
+有人说出。
 
-Thiếu niên tự mãn rời đi, quay lại cười nói: "Trên đường đi, nghe nói Tĩnh Sơn sư huynh đã tiếp xúc với kiếm tiên bằng phi kiếm. Ta sẽ đi hỏi, nếu không cẩn thận mà lại lĩnh hội được một chút chân ý phi kiếm, haha, thì đừng nói đến sư tỷ mà ngay cả Tĩnh Sơn sư huynh cũng không phải là đối thủ của ta. Đối với ta mà nói, đó là điều hạnh phúc, nhưng với Tĩnh Sơn sư huynh thì thật là đáng buồn."
+然后陈平安扬起手中那根青翠欲滴、隐约有灵气萦绕的竹枝，说道：“今天谁能帮我解字，我就送给他这根竹枝。当然，必须解得好，比如最少要告诉我，为何这个稳字，明明是不快的意思，偏偏带个着急的急字，难道不是相互矛盾吗？莫不是当初圣人造字，打瞌睡了，才迷迷糊糊，为咱们瞎编出这么个字？”
 
-Nói xong, thiếu niên đeo kiếm nhanh chóng rời đi.
+一大帮孩子，大眼瞪小眼，干瞪眼。
 
-Vương Tĩnh Sơn nhịn cười, "Sư phụ, tiểu sư đệ này lại giống ai chứ?"
+能够认出它是稳字，就已经很了不起了，谁还晓得这个嘛。
 
-Vương Độn bông đùa: "Hẳn là giống với Đại sư tỷ của các ngươi."
+一个鬼鬼祟祟藏在众人当中的小姑娘，轻声道：“未来师父，我晓得意思。”
 
-Vương Độn có một đệ tử lớn tên Phó Lâu Thai, chuyên về đao, cũng là một trong những bậc thầy hàng đầu của Ngũ Lăng quốc. Hơn nữa, Phó Lâu Thai cũng rất xuất sắc trong kiếm thuật. Chỉ có điều, trước đây không lâu cô đã kết hôn và chọn lựa cuộc sống bình yên, từ bỏ giang hồ. Người mà nàng đã gả không phải là một bậc anh hùng trong giang hồ, cũng không phải là một người quyền quý, chỉ là một người bình thường giàu có, hơn nữa còn kém nàng bảy, tám tuổi. Điều kỳ lạ là trong toàn bộ Sái Tảo sơn trang, từ Vương Độn đến tất cả các sư đệ sư muội của Phó Lâu Thai, không ai cảm thấy điều gì không ổn, và cũng không ai bận tâm đến lời ra tiếng vào trên giang hồ. Trước khi Vương Độn về sơn trang, thực tế chính là Phó Lâu Thai truyền thụ võ nghệ cho các đệ tử. Dù Vương Tĩnh Sơn có tuổi tác lớn hơn Phó Lâu Thai một chút, nhưng vẫn rất kính trọng người sư tỷ này.
+陈平安摇头笑道：“不行，你从小读书，你来解字，对其他人不公平。”
 
-Thiếu nữ có chút bênh vực kẻ yếu, oán giận nói: "Sư phụ, không thể nào vì Đại sư tỷ không có ở đây mà người lại tá ma giết lừa như vậy, điều này thật sự quá thiếu giang hồ đạo nghĩa."
+郭竹酒有些眼馋师父手里的那根竹枝，这要是被她得了，回了自家大街那边，那还不威风死她？小姑娘有些懊恼，“早知道就不读书了。”
 
-Vương Độn quay mặt đi, mang theo hai vị đệ tử trở về tửu quán bên kia.
+在众人发现郭竹酒后，有意无意，挪了脚步，疏远了她。不单单是畏惧和羡慕，还有自卑，以及与自卑往往相邻而居的自尊。
 
-Sau khi đóng cửa tửu quán, tất nhiên là phải chuyển ra nơi khác.
+孤零零蹲在原地的小姑娘，也毫无感觉，她腰间悬挂的那枚抄手小砚台，触碰泥地也无所谓。
 
-Vương Độn ngồi ở bàn rượu bên cạnh, Vương Tĩnh Sơn nhân dịp này báo cáo với lão nhân về tình hình gần đây của Sái Tảo sơn trang, bao gồm tài chính, nhân sự, cùng những mối quan hệ, hoàng đế đã ban tặng tấm biển treo thích hợp, chọn lựa ngày hoàng đạo nào đó để đại hiệp môn phái trình danh thiếp cùng lễ vật. Rồi còn phải xem có ai ghé thăm, những ai từng có chuyện gì buồn bực với Vương Tĩnh Sơn trong sơn trang, hoặc có ai của môn phái nào đó tổ chức thọ yến, cần ai đó đứng ra tiếp đãi, cũng như việc thị lang Hình bộ gửi thư đến sơn trang, yêu cầu hỗ trợ giải quyết một vụ án mạng khó hiểu ở kinh thành...
+一个眉清目秀却衣衫缝补的贫苦少年，鼓起勇气，微微涨红了脸，指着陈平安身前地上的那个字，言语颤抖，轻声道：“禾急为稳，禾苗其实长得快，却长得缓慢。我家灵犀巷，有块小石碑，上边有‘稻秕稃相聚，富埒帝王侯’的说法，我与叠嶂姐姐问过，她知道意思，只是叠嶂姐姐说她其实也没见过什么稻秕稃。我觉得这个稳字，有那以禾为本、急为表的意思，就像你和叠嶂姐姐新开的酒铺子，挣钱快，但是花钱慢，就有了家底，叠嶂姐姐就可以买更大的宅子。”
 
-Vương Độn rót rượu từ bình vào bát, từng miếng từng miếng uống. Vương Tĩnh Sơn đã trình bày xong tình hình, lão nhân chủ yếu chỉ gật đầu, xác nhận rằng mọi việc đều ổn thỏa. Nếu Vương Độn cảm thấy có gì chưa ổn, ông sẽ nói rõ vài điều cần chú ý. Vương Tĩnh Sơn ghi nhớ từng điểm quan trọng mà Vương Độn nhắc đến.
+陈平安对这个少年早就看在眼里，是听故事、说文解字最认真最上心的一个。
 
-Bội đao thiếu nữ đứng bên nghe được bèn ngáp, không dám đòi uống rượu, chỉ biết gục xuống bàn, nhìn qua khách sạn bên kia đường. Cô thầm nghĩ về người nữ tử đội mũ có vải che mặt kia, không biết khuôn mặt của nàng ấy thực sự ra sao, liệu có phải là một đại mỹ nhân? Nếu tháo xuống mũ che mặt, không biết có khiến người ta cảm thấy kinh diễm không? Cô gái vẫn cảm thấy chút thất vọng, vị kia vốn dĩ nghĩ rằng sẽ không có cơ hội gặp một kiếm tiên, ngoài vẻ trẻ trung gây bất ngờ ra, dường như không giống với hình tượng kiếm tiên mà cô trong mong.
+少年也是当初翻修街面的匠人学徒之一。
 
-Vương Tĩnh Sơn trình bày gần nửa canh giờ, mới hoàn thành báo cáo về công việc đông đúc ở sơn trang.
+但是陈平安却发现少年体魄孱弱，不但已经失去了练拳的最佳时机，而且确实先天不适合习武，这还与赵树下不太一样。不是说不可以学拳，但是很难有所成就，最少三境之苦，就熬不过。
 
-Vương Tĩnh Sơn không uống rượu, rất cố chấp với kiếm thuật, không gần gũi nữ sắc, và quanh năm chỉ ăn chay. Tuy nhiên, từ khi Đại sư tỷ Phó Lâu Thai rời bỏ giang hồ, mọi công việc ở sơn trang chủ yếu do hắn cùng một lão quản gia phụ trách. Lão không còn đủ sức khỏe để đảm nhiệm công việc như trước. Bởi vậy, Vương Tĩnh Sơn thường phải đứng ra chuẩn bị quan hệ với những người có danh tiếng trong giang hồ, nhất là những người sẽ tới Sái Tảo sơn trang. Nếu chính hắn ra mặt, tự nhiên sẽ có thể tạo dựng thể diện, nếu Vương Độn – người có danh tiếng lừng lẫy mà lại để cho những đệ tử kém cỏi đảm nhận vai trò tiếp đãi, thì đó thực sự sẽ là điều ngượng ngùng.
+陈平安还不死心，与宁姚问过之后，宁姚远远看了眼少年，也摇头，说少年没有练剑的资质，第一步都跨不过去，此事不成，万事皆休，强求不来。陈平安这才作罢。
 
-Vương Độn đặt bát xuống, nói: "Tĩnh Sơn, ngươi có oán trách Phó sư tỷ không? Nếu nàng còn ở đây, những việc lộn xộn như vậy chắc chắn không cần ngươi gánh vác, có lẽ ngươi đã có thể sớm đi thách đấu kiếm pháp."
+兴许不是少年真正多爱识字，只是从小孤苦，家无余物，无所事事，总要做点什么，若是不花钱，就能让自己变得稍稍与同龄人不一样些，寒酸少年就会格外用心。
 
-Vương Tĩnh Sơn cười đáp: "Tôi hoàn toàn không oán trách. Chỉ có điều, cũng không khỏi cảm thấy tiếc nuối khi Phó sư tỷ lại chọn một nam tử bình thường như vậy. Tôi cảm thấy sư tỷ hoàn toàn có thể tìm được người tốt hơn."
+陈平安笑着点头，“张嘉贞，你解稳字，对了大半，所以竹枝送你了。”
 
-Vương Độn cười nói: "Chuyện tình nam nữ, nếu có thể lý giải rõ ràng, có lẽ đã không nhiều như vậy cỏ dại trong tiểu thuyết điển hình."
+陈平安递过去竹枝，没想到陈平安竟然知道自己姓名的少年，却彻底涨红了脸，慌慌张张，使劲摇头道：“我不要这个。”
 
-Chủ đề này, Vương Tĩnh Sơn không tiện bình luận thêm.
+陈平安也就收回了竹枝，笑问道：“怎么，想学拳？”
 
-Trên thực tế, mặc dù hắn không quá thích thú với người nam tử kia khi thỉnh thoảng đi cùng Phó sư tỷ tại sơn trang, nhưng Vương Tĩnh Sơn vẫn luôn giữ phép tắc, không có chút gì khiếm nhã. Hắn còn cố gắng kiềm chế những đệ tử dưới trướng, lo lắng họ có thể để lộ tâm tư gì không hay trong bối cảnh như vậy, vì cuối cùng, thành ra thật khó cho Phó sư tỷ.
+张嘉贞还是摇头，“会耽误长工。”
 
-Vương Độn chậm rãi nói: "Chậm trễ việc luyện kiếm của ngươi, sư phụ trong lòng có chút băn khoăn. Nhưng mà những lời này không lọt tai đâu. Xem ra ngươi cũng có thể xoay xở, cho nên sư phụ thật sự rất vui mừng. Ông cảm thấy, việc thu nhận ngươi làm đệ tử, truyền thụ kiếm thuật cho ngươi, thực sự là một điều rất thoải mái. Nhưng dù sao cho tới giờ, sư phụ cũng muốn tiết lộ đôi điều với ngươi."
+陈平安笑道：“有真正的一技之长，才是最紧要的立身之本。不然很难过上好日子，到时候怨天尤人，就会处处有理，觉得人好都还是个错，就要糟心了。”
 
-Vương Tĩnh Sơn ngồi thẳng dậy: "Sư phụ xin nói, đệ tử đang nghe."
+少年似懂非懂，哪怕在附近街巷的同龄人当中，数他识文断字最多，可是真正学问，岂会知道？可陈平安这些言语，到底不是圣贤道理，就是粗浅的家长里短，张嘉贞到底还是可以听出一些，比如陈平安会认可他打长工挣钱，养活自己，这让少年心安许多。
 
-Vương Độn cười nhẹ, nói: "Tĩnh Sơn, nếu một ngày nào đó ngươi cảm thấy mệt mỏi, thật sự chán ghét những công việc thường nhật của sơn trang, chỉ muốn một mình, một kiếm ra giang hồ, thì đừng cảm thấy áy náy, đừng có chút nào ngần ngại mà cứ đến tìm sư phụ, mang theo một bình rượu ngon, để sư phụ rót cho ngươi, tiễn chân là được. Dù sao ngươi cũng có thể nghỉ ngơi, trở lại nơi ngươi thuộc về, rồi hãy lại dấn thân vào giang hồ theo cách của ngươi."
+能够被人认可，哪怕很小。对于张嘉贞这种少年来说，可能就不是什么小事了。
 
-Vương Tĩnh Sơn gật đầu.
+那个捧着陶罐的小屁孩，嚷嚷道：“我可不要当砖瓦匠！没出息，讨到了媳妇，也不会好看！”
 
-Bên cạnh, bội đao thiếu nữ có chút chạnh lòng, mắt ươm ướt.
+陈平安伸手按住身边孩子的脑袋，轻轻晃动起来，“就你志向高远，行了吧？你回家的时候，问问你爹，你娘亲长得好不好看？你要是敢问，有这英雄气魄，我单独给你说个神怪故事，这笔买卖，做不做？”
 
-Cô nghĩ đến việc Đại sư tỷ không có ở đây, nếu sư huynh Vương Tĩnh Sơn cũng đi, đó sẽ là một điều vô cùng đáng buồn.
+“我皮痒不是？故事你常说，又跑不掉。但是我娘亲一发火，我爹只会让我顶上去挨揍。”
 
-Nhưng điều làm thiếu nữ cảm thấy thương cảm nhất chính là, hình như sư phụ đã già rồi.
+那孩子举起陶罐，气呼呼道：“陈平安，到底要不要教我拳法？！有钱不挣，你是傻子吗？”
 
-Vương Tĩnh Sơn đột nhiên lên tiếng: "Sư phụ, vậy giờ ta có thể đi giang hồ không?"
+陈平安笑道：“今天说完了后半段故事，我教你们一套粗浅拳法，人人可学，不过话说在前边，这拳法，很没意思，学了，也肯定没出息，至多就是冬天下雪，稍稍觉得不冷些。”
 
-Vương Độn sững sờ, sau đó cười ha hả: "Đừng để ý đừng để ý, hôm nay sư phụ uống nhiều rồi. Những gì muốn nói chỉ là lời say, đừng coi đó là thật nhé, dẫu cho có thật cũng đã muộn, hôm nay thôn trang vẫn cần ngươi gánh vác."
+孩子哦了一声，觉得也行，不学白不学，于是抱紧陶罐。
 
-Thiếu nữ liếc nhìn, rồi quay đi, gục xuống mặt bàn.
+陈平安对那孩子笑呵呵道：“钱罐子还不拿来？”
 
-Người trước mặt không hề mang chút phong thái của một người thầy, thật khiến cô cảm thấy phiền muộn.
+孩子问道：“骗孩子钱，陈平安你好意思？你这样的高手，真够丢人的，我也就是不跟你学拳，不然以后成了高手，绝不像你这样。”
 
-Nhưng Đại sư tỷ Phó Lâu Thai và sư huynh Vương Tĩnh Sơn, dẫu sao cũng là người đầu tiên của Ngũ Lăng quốc trong giang hồ, cùng với sư phụ Vương Độn lười biếng tại Sái Tảo sơn trang, hai người quả thật khác biệt.
+小板凳四周，笑声四起。
 
-Cô cùng với tiểu sư đệ đều tin rằng, chuyện này không thể sai được.
+哪怕是张嘉贞这些岁数较大的少年，也羡慕那个孩子的胆大包天，敢这么跟陈平安说话。
 
-Bởi vì Phó Lâu Thai cùng Vương Tĩnh Sơn đều đồng hành cùng sư phụ trong các chuyến hành tẩu trên giang hồ.
+陈平安继续说完那个既有鬼怪作祟、也有修道之人降妖除魔的山水故事，然后站起身，将竹枝放在小板凳上，孩子们也纷纷让出空地，看着那个青衫男子，缓缓六步走桩。
 
-Trong đời này, sư phụ đã nhiều lần gặp phải xung đột với những người tu đạo khác trên núi, và cũng đã trải qua không ít lần suýt chút nữa phải đổi mạng.
+陈平安站定，笑道：“学会了吗？”
 
-Nguyên nhân sư phụ ra tay, lời nói của Đại sư tỷ Phó Lâu Thai cùng sư huynh Vương Tĩnh Sơn đều không sai, chỉ là sư phụ có phần thích can thiệp vào chuyện của người khác.
+郭竹酒目不转睛，绝顶拳法，宗师风范！
 
-Tuy nhiên, không biết tại sao, khi nhắc đến những điều này, Phó Lâu Thai và Vương Tĩnh Sơn không hề oán trách sư phụ. Trái lại, trong mắt họ, ánh lên một niềm sáng rực rỡ.
+那个捧着钱罐子的孩子愣愣道：“完啦？”
 
-Thiếu niên đeo kiếm giống như gió lao vào tửu quán, ngồi xuống ghế dài bên cạnh sư phụ Vương Độn. Hành động này thể hiện sự tôn sư trọng đạo mà Vương Độn đã truyền dạy cho các đệ tử, và thiếu niên này đã thực hiện điều đó mà không hề e ngại.
+陈平安点头道：“不然？”
 
-Vương Độn cười hỏi: "Thế nào, có thu hoạch gì không?"
+孩子轻轻放下陶罐，站起身，就是一通张牙舞爪的出招，气喘吁吁收拳后，孩子怒道：“这才是你先前打赢那么多小剑仙的拳法，陈平安！你糊弄谁呢？一步步走路，还慢死个人，我都替你着急！”
 
-Thiếu niên thở dài nói: "Người tên Lô Đại Dũng, luyện tập võ thuật phô trương quá mức, khiến ta mỗi lần gặp hắn chỉ biết cẩn thận tránh chiêu nước bọt ám khí của hắn. Hắn lặp đi lặp lại chỉ vài câu, mà ta thì không phải thần tiên để có thể dễ dàng sử dụng phi kiếm. Nếu may mắn hơn Vương sư huynh thì ta đã là đệ tử của sư phụ đứng đầu rồi."
+陈平安指了指地上那个字，笑道：“忘了？”
 
-Vương Tĩnh Sơn mỉm cười nói: "Vậy ta về nhà cám ơn Hồ đại hiệp một tiếng nhé?"
+陈平安再走了一遍六步走桩，依旧缓慢，悠悠出拳，边走边说：“一切拳法-功夫，都从稳中求来。有朝一日，拳法大成，这一拳再递出……”
 
-Thiếu niên vẫy tay, "Không cần thiết, dù sao thì kiếm thuật của ta cũng vượt trội hơn sư huynh, không phải hôm nay thì cũng là mai."
+走桩最后一拳，陈平安停步，倾斜向上，拳朝天幕。
 
-Vương Tĩnh Sơn ngạc nhiên: "A?"
+孩子们一个个瞪大眼睛，望向天空。
 
-Thiếu niên sửa lời: "Không phải năm nay thì cũng là sang năm!"
+陈平安已经悄悄收了拳，拎起竹枝和板凳，准备打道回府了。
 
-Vương Tĩnh Sơn không nói thêm gì nữa. Dù rằng những câu nói của tiểu sư đệ có phần không tuân theo quy củ, nhưng trong việc luyện kiếm thì thiếu niên lại có những quy tắc rất nghiêm ngặt.
+那孩子呆呆问道：“这一拳打出去，也没个雷声？”
 
-Vương Độn liếc nhìn ba vị đệ tử với tính cách khác nhau nhưng đều rất tốt, cảm thấy hôm nay có thể uống nhiều hơn một chút, nên đứng dậy đi về phía quầy rượu. Tuy nhiên, ông đã bất ngờ khi thấy có hơn ba loại rượu lạ.
+其余人也都纷纷点头，觉得半点不过瘾。
 
-Khi mở một bình rượu, hương thơm mát lạnh xô vào mặt, khiến cả ba đệ tử đều phải chú ý.
+陈平安笑道：“我又没真正出拳。”
 
-Vương Độn cười ha hả, ngồi xuống, mời thiếu nữ cũng cùng một chỗ với các chén rượu. Ông yêu cầu Vương Tĩnh Sơn cùng nhau nâng ly, nói rằng họ nên cùng thưởng thức rượu núi tiên, và sau đó ông đổ đầy các chén rượu khác nhau cho họ.
+气氛便有些尴尬了。
 
-Thiếu niên uống một ngụm, kinh ngạc nói: "Mẹ ơi, rượu này ngon quá, so với rượu sấu ở thôn mình còn hơn nhiều! Không hổ là rượu tiên, thật khó lường!"
+郭竹酒气沉丹田，大声喊道：“轰隆隆！”
 
-Vương Tĩnh Sơn cũng nếm thử, cảm thấy đúng là không giống người thường, nhưng vẫn không có ý định uống nhiều.
+陈平安伸手捂额，是有些丢人现眼，不过不能伤了小姑娘的心，便昧着良心挤出笑脸，朝那小姑娘伸出大拇指。
 
-Thiếu nữ sau khi thử một miếng thì lại không thấy dễ chịu, cũng không thể nuốt được vì cô đã quen với những loại rượu tầm thường.
+其余大小孩子们，也都面面相觑。
 
-Lão nhân mỉm cười hỏi thiếu niên: "Ngươi học kiếm, nhưng sư phụ không phải kiếm tiên, có thấy tiếc nuối không?"
+散了散了，没劲，还是等下一回的故事吧。
 
-Thiếu niên nhấp một hớp rượu tiên, bình thản nói: "Đệ tử đây không phải kiếm tiên đâu."
+陈平安喊了张嘉贞，少年一头雾水，依旧来到陈平安身边，惴惴不安。
 
-Lão nhân gật đầu, vốn đã chuẩn bị sẵn sàng để trừng phạt thiếu niên, nhưng lại bất ngờ đổi thành vuốt đầu cậu, với vẻ mặt hiền hòa: "Thôi thì coi như là một đứa có lương tâm."
+对于少年而言，这个名叫陈平安的男人，是一位……天上人。
 
-Thiếu niên cố gắng gật đầu, và lợi dụng lúc sư phụ mải uống rượu, cậu quay sang thiếu nữ ra hiệu, có lẽ là đang hỏi rằng mình có thông minh hay không, có thể tránh khỏi sự phạt, ăn ít đòn hơn.
+陈平安缓缓而行，手腕拧转，偷偷取出一枚竹叶，塞给张嘉贞，轻声道：“送你的，平常可以佩戴在身，与那拳桩一样，都无用处，不是我故意考校你什么，事实就是如此，但是只要你愿意学拳，每天多走几遍，与这小小竹叶，帮你略微抵御风寒，马上就要下雪了，酷寒时节，当长工当得轻松些，还是可以的。”
 
-Thiếu nữ bắt đầu kể với sư phụ.
+张嘉贞攥紧竹叶，沉默片刻，“我是不是真的不适合习武和练剑？”
 
-Vương Tĩnh Sơn bắt đầu thêm dầu vào lửa.
+陈平安点头道：“是的。”
 
-Thiếu niên lập tức giả bộ ngờ nghệch.
+少年眼眶泛红，低头不言语。
 
-Vương Độn không nói gì, chỉ lặng lẽ đổ rượu từ chén ba người vào bát trắng của mình, ngửa cổ uống một hơi cạn sạch.
+陈平安望向前方，“小小年纪，就能够对自己负责，是一件很了不起的事情。张嘉贞，你不要看轻自己。”
 
-Rời khỏi vùng biển Đông Bắc Câu Lô Châu, từ Ngũ Lăng quốc đi thẳng về phía bắc, còn cần phải đi qua Kinh Nam và Bắc Yến.
+少年抬起头。
 
-Đây không phải là đại quốc, nhưng cũng không phải là quốc gia nhỏ bé.
+陈平安笑道：“嘉贞这个名字，是你自己看了那么多碑文，自己撷取两字，取的名字？”
 
-Kinh Nam có nhiều hồ lớn, Bắc Yến lại có núi non trùng điệp.
+少年点点头，“爹娘走得早，爷爷不识字，前些年，就一直只有小名。”
 
-Tuy nhiên, quan hệ giữa Kinh Nam và Ngũ Lăng quốc không mấy tốt đẹp, trên biên giới thường xảy ra xung đột. Nhưng trong hơn trăm năm qua, chiến tranh lớn giữa hai bên diễn ra không nhiều.
+陈平安转头说道：“嘉为美好，贞为坚定，是一个很好的名字。剑气长城的日子，过得不太好，这是你完全没办法的事情，那就只能认命，但是怎么过日子，是你自己可以决定的。以后会不会变得更好，不好说，可能会更难熬，可能你以后手艺娴熟了，会多挣些钱，成了街坊邻居都敬重的匠人。”
 
-Quân đội biên phòng của Ngũ Lăng quốc thường gác ở những cửa ải hiểm yếu, còn Kinh Nam thì lại có thủy quân mạnh mẽ. Cả hai bên đều gặp khó khăn trong việc đương đầu với nội chiến. Nếu có ai muốn giữ biên giới an toàn, thì điều này có thể dẫn đến tình hình hòa bình, buôn bán phát triển giữa hai quốc gia. Nhưng nếu như có ai tích trữ quân lính, cầu mong vinh quang cho triều đình thì tình hình sẽ rất tồi tệ, khi đó sẽ xảy ra những cuộc chiến nhỏ này.
+说到这里，陈平安转头笑道：“但是最少，我以后与其他人说山水故事的时候，可能会跟人提起，剑气长城灵犀巷，有一个名叫张嘉贞的匠人，手艺之外，兴许别无长处了，但是打小就喜欢看碑文，识文断字，不输读书人。”
 
-Dẫu sao, chưa bao giờ có đại chiến tiêu tốn hết sức lực quốc gia. Quân đội luôn ở trong tình trạng thiếu thốn, và hai nước qua các triều đại đã có những lúc có sự ăn ý. Họ hết sức cố gắng để không đồng thời có chiến tranh, mà chỉ có điều Kinh Nam vào hôm nay có thế lực ngoại bang quá mạnh.
+在张嘉贞走后。
 
-Hơn mười năm trước, một vị thanh kiện quân quý đã chủ động yêu cầu tiến về phương Nam, lập tức sẵn sàng ra trận, tạo ra kỵ quân, nhiều lần gây rối. Ngũ Lăng quốc khó lòng chỉ ra một nhân tài giỏi giang về binh pháp, trước đây không lâu đã đảm nhận phòng tuyến phía Bắc. Do đó, trong vài năm gần đây thường xuyên xảy ra các cuộc chiến nhỏ, nếu không nhờ Vương Độn đúng lúc có mặt tại biên giới, ngăn chặn quân Kinh Nam tấn công, có thể rằng Ngũ Lăng quốc sẽ phải mất đi một vài thành trì quan trọng, dẫu sau thì họ cũng đã lấy lại được, nhưng vào những thời điểm đó sẽ có nhiều binh lính và tướng quân thương vong trên chiến trường.
+从头到尾，郭竹酒都没说话，就是抬起头，看着一年半后就是自己师父的男人。
 
-Trần Bình An cùng Tùy Cảnh Rừng dẫn theo hai kỵ sĩ, tại một địa điểm không có trọng binh gác rào thuộc Ngũ Lăng quốc, trình quan điệp, họ đi qua vùng biên giới. Sau đó, không theo con đường quan đạo của Kinh Nam quốc mà vẫn tiếp tục theo lộ tuyến đã được Trần Bình An quy hoạch, với ý định tìm kiếm một ít đường mòn hẻo lánh qua núi, qua sông, khám phá những điều bí ẩn.
+刹那之间，郭竹酒瞪大眼睛，充满了期待。
 
-Không lâu sau khi nhập cảnh, họ đã chứng kiến một trận giao tranh giữa hai nhóm trinh sát tại một khu vực yên tĩnh.
+只见陈平安掐指一算，然后说道：“收徒一事，还是需要一年半。”
 
-Đó là hai tốp trinh sát, với tổng cộng hơn mười kỵ sĩ.
+郭竹酒重重叹了口气。
 
-Nhóm kỵ sĩ từ phía nam là của Ngũ Lăng quốc, còn nhóm phía bắc là của Kinh Nam quốc.
+陈平安继续向前走去，熙熙攘攘的酒铺，钱财如流水，尽收我囊中，远远瞧着就很喜庆，心情不错的陈平安便随口问道：“你有没有听过一个说法，说是天下百凶，才可以养出一个文章传千古的诗词人。”
 
-Tùy Cảnh Rừng nghi ngờ nói: "Trước giờ, Kinh Nam quốc luôn chủ động xuôi nam, tấn công vào cửa quan, sao giờ chúng ta lại thấy trinh sát của họ tiến vào khu vực của đối phương nhỉ?"
+郭竹酒摇头道：“未来师父学问大，未来弟子学问小，不曾听说过。”
 
-Trần Bình An đáp: "Điều này cho thấy vị tướng trẻ danh chấn triều đình và dân gian của Ngũ Lăng quốc không phải là một nhân vật đơn giản. Chỉ trong chưa đầy mười năm, y đã thăng tiến lên vị trí đại tướng tam phẩm của một quốc gia vùng biên giới, chắc chắn có điều gì đặc biệt."
+陈平安就奇了怪了，自家落魄山的风水，已经蔓延到剑气长城这边了吗？没道理啊，罪魁祸首的开山大弟子，朱敛这些人，离着这边很远啊。
 
-Hai kỵ sĩ nhanh chóng rời khỏi con đường kính đạo, dừng lại giữa rừng rậm, buộc ngựa lại. Trần Bình An và Tùy Cảnh Rừng đứng trên các ngọn cây, quan sát chiến trường.
+郭竹酒好奇问道：“后边还有话吧？”
 
-Kinh Nam quốc từ lâu đã nổi tiếng với lực lượng thủy quân mạnh mẽ, gần sát với Đại Triện vương triều và Đại Quan vương triều phía nam, nhưng có vẻ như họ chưa bao giờ có kỵ quân chính quy tham gia chiến trường. Trong hơn mười năm qua, chính vị tướng ngoại thích liên kết với Hậu Lương quốc phía tây mới bắt đầu xây dựng một đội kỵ quân khoảng bốn nghìn người. Tuy nhiên, trong một lần xuất quân, họ đã gặp phải Vương Độn, một bậc thầy võ học của Ngũ Lăng quốc, và đã thất bại thê thảm khi đối mặt.
+陈平安点点头，“脍炙人口的千古文章，不算什么，你们所有人，祖祖辈辈，在此万年，足可羞杀世间所有诗篇。”
 
-Ngược lại, kỵ quân của Ngũ Lăng quốc, mặc dù không xuất sắc trong bản đồ quân sự, thậm chí có thể nói là yếu kém, nhưng khi đối mặt với lực lượng thủy quân của Kinh Nam quốc, họ lại nắm giữ ưu thế.
+郭竹酒问道：“师父，需不需要我帮你将这番话，大街小巷嚷嚷个遍？弟子一边走桩练拳一边喊，不累人的。”
 
-Vì vậy, Tùy Cảnh Rừng, là người Ngũ Lăng quốc, cảm thấy rằng sau khi hai tốp trinh sát gặp nhau, kết quả chắc chắn sẽ nghiêng về phía mình.
+陈平安无奈道：“别。”
 
-Tuy nhiên, tình hình chiến trường lại nghiêng về một bên. Khi hai nhóm trinh sát gặp nhau, không có bất kỳ vòng tránh nào, họ đều lao vào chiến đấu mà không do dự.
+郭竹酒偷着乐。方才这句话，可藏着话呢，自称弟子，喊了师父，今儿赚大发了。
 
-Không có tiếng hô lớn, cả hai bên trinh sát đều lặng lẽ thúc ngựa lao về phía trước.
+到了酒铺那边。
 
-Trong vài vòng cung tên b*n r*, đã có thương vong. Số lượng kỵ sĩ Kinh Nam quốc ít hơn hẳn, nhưng họ đã bắn chết hoặc bị thương năm kỵ sĩ Ngũ Lăng quốc, trong khi kỵ sĩ tinh nhuệ của Kinh Nam chỉ chịu một tổn thất nhẹ.
+宁姚看着准备脚底抹油的郭竹酒，小姑娘屁颠屁颠跑到宁姚身前，笑道：“宁姐姐，咋个今儿特别好看。”
 
-Sau khi rút đao đối đầu.
+宁姚看了眼陈平安。
 
-Cả hai bên lại tiếp tục chém giết.
+陈平安苦笑道：“我可不教这些。”
 
-Ngược lại, trinh sát nhập cảnh từ Ngũ Lăng quốc lại chịu nhiều thiệt hại hơn.
+郭竹酒见宁姐姐难得不揍自己，见好就收，回家喽。
 
-Sau khi phân công chiến trường, hai vị trinh sát Ngũ Lăng quốc bị thương đã tìm cách thoát ra nhưng bị vài kỵ sĩ Kinh Nam truy đuổi và bắn trúng vào đầu và cổ.
+小时候，会觉得有好多大事真忧愁。
 
-Tại một vị khác, một trinh sát Kinh Nam rơi xuống đất trong tình cảnh thê thảm, bị nhiều mũi tên đâm vào mặt và ngực, lại còn bị một kẻ cỡi ngựa tiến đến chém vào cổ, máu tươi vãi đầy mặt đất.
+长大后，就会忘了那些忧愁是什么。
 
-Trên chiến trường phía nam, chỉ còn một kỵ sĩ Ngũ Lăng tiếp tục cưỡi ngựa chạy trốn.
+宁姚与陈平安一起返回宁府。
 
-Thực tế, cả hai nhóm trinh sát không chỉ có một người một ngựa, nhưng do không gian hẹp và sự ác liệt của trận chiến, nhiều người đã tìm cách len lỏi qua hàng ngũ của kẻ thù, bị bắn hoặc chém hạ gục.
+宁姚问道：“真打算收徒？”
 
-Vì vậy, người Ngũ Lăng quốc cuối cùng một mình cưỡi ngựa, đổi ngựa với một đồng đội để chạy trốn.
+陈平安点头道：“暂时是不记名的那种。郭家待人厚道，我难得能为宁府做点什么。”
 
-Còn lại các trinh sát Ngũ Lăng gấp rút quay đầu ngựa lại, quyết tâm cản trở quân địch để bảo toàn sinh mạng cho nhau.
+不知何时在铺子那边喝酒的魏晋，好像记起一件事，转头望向陈平安的背影，以心声笑言：“先前几次光顾着喝酒，忘了告诉你，左前辈许久之前，便让我捎话问你，何时练剑。”
 
-Tuy nhiên, một trinh sát đã mất ngựa cũng hít sâu một hơi, cầm dao đứng vững.
+陈平安转头对叠嶂喊道：“大掌柜，以后魏大剑仙在此饮酒，一律打十一折！”
 
-Chiến trường hiện tại trái ngược hoàn toàn, không ai dám chỉ huy hoặc quay lại. Họ cùng nhau phản công, nhưng chỉ có nhóm trinh sát Ngũ Lăng là có thể thực hiện điều đó.
+魏晋取出一枚谷雨钱，放在桌上，“好说。”
 
-Sau khoảng thời gian, nơi đây đã đầy rẫy xác chết.
+宁姚问道：“怎么了？”
 
-Trinh sát Kinh Nam có ba kỵ sĩ và sáu ngựa lặng lẽ đuổi theo.
+陈平安苦笑道：“我得马上去剑气长城一趟，让白嬷嬷准备好药缸子，若是太晚不见我，你就去背我回来。”
 
-Dưới lệnh của một tướng trẻ tuổi, nhóm này đã quay ngựa xuống, hoặc sử dụng nỏ để bắn vào trán một kẻ thù đang bị thương. Một mũi tên đâm phịch vào đầu kẻ thù.
+————
 
-Cũng có hai trinh sát Kinh Nam đứng bên cạnh một kẻ thù bị thương nặng, bắt đầu so tài bắn cung. Kẻ thua, vì tức giận, đã rút kiếm lao về phía trước, chém vào đầu của kẻ thù.
+剑气长城那边。
 
-Người tướng trẻ tuổi không có biểu cảm gì, một chân đạp lên một xác trinh sát Ngũ Lăng, từ từ lau sạch vết máu trên thanh kiếm.
+左右面朝南方，盘腿而坐，闭目养神。
 
-Một xác Ngũ Lăng bị thương nằm trên đất, đột nhiên cử động cánh tay, nhằm về phía một kẻ đối đầu gần đó, kẻ này cố tránh nhưng không kịp, chỉ biết đưa tay bảo vệ mặt.
+许多事情，左右不理解，有些就算能理解，但是不愿接受。
 
-Người trẻ tuổi hình như đã đoán trước điều này, không quay đầu, thản nhiên ném thanh kiếm ra, lưỡi kiếm vừa khéo chém đứt cánh tay cầm nỏ của đối thủ. Kẻ Kinh Nam lúc ấy tức giận, trừng mắt muốn trả thù nhưng vẫn nghe lời người trẻ tuổi, không đuổi theo mà chỉ lạnh lùng gật đầu, rồi nhắm thẳng vào cổ của đối thủ mà đâm.
+于是最终孑然一身，选择远离人间是非，向大海御剑而去。
 
-Dù trong lòng chất chứa căm phẫn nhưng vẫn quyết định kết thúc nhanh chóng.
+这并不是一件如何剑仙风流的事情，事实上半点都不惬意。
 
-Không lâu sau, tam kỵ trinh sát đã phản hồi. Trong tay họ có thêm một viên kỵ binh của Ngũ Lăng Quốc, thi thể không đầu được đặt ở phía sau lưng ngựa.
+不过当下，左右不理解的，多出了一件事。
 
-Một võ sĩ trẻ tuổi đưa tay nhận lấy thanh chiến đao từ một cấp dưới trinh sát, nhẹ nhàng cho lại vào vỏ, rồi bước đến bên thi thể không đầu, tìm kiếm một tệp thông tin quân tình và tình báo mà đối phương đã thu thập.
-
-Võ sĩ trẻ tuổi dựa lưng vào chiến mã, cẩn thận đọc qua những thông tin đó. Nghĩ đến một điều, hắn ngẩng đầu và ra lệnh: "Thi thể của huynh đệ ta, hãy cất giữ cẩn thận. Địch nhân đã cắt đầu, chúng ta hãy thu dọn thi thể và đào hố chôn."
-
-Một trinh sát to khỏe thở dài nói: "Cố tiêu trưởng, công việc này thật bẩn thỉu, có thể để quân gần đó làm giúp."
-
-Võ sĩ trẻ tuổi mỉm cười, "Ta sẽ không để các ngươi làm không đâu. Hai cái đầu này, chính các ngươi hãy bàn bạc xem nên giao cho ai."
-
-Tiếng hoan hô vang lên ở bốn phía.
-
-Cuối cùng, những trinh sát dũng mãnh của Kinh Nam Quốc gào thét ra đi.
-
-Trong rừng, Tùy Cảnh Rừng sắc mặt tái nhợt, từ đầu đến cuối, nàng không nói một lời nào.
-
-Trần Bình An hỏi: "Tại sao ngươi không mở miệng để ta xuất thủ cứu người?"
-
-Tùy Cảnh Rừng chỉ lắc đầu.
-
-Hai người dẫn ngựa đi ra khỏi rừng rậm, Trần Bình An leo lên ngựa, quay đầu nhìn về con đường phía sau, thấy võ sĩ trẻ tuổi xuất hiện ở xa, ngừng ngựa và không tiến thêm. Sau một hồi, người đó nở một nụ cười nhẹ nhàng, gật đầu về phía người mặc thanh sam rồi quay đầu ngựa, trầm mặc rời đi.
-
-Tùy Cảnh Rừng hỏi: "Có phải là người giang hồ ẩn thân trong quân không?"
-
-Trần Bình An nhẹ nhàng thúc ngựa, một người một ngựa từ từ tiến về phía trước, lắc đầu nói: "Mới khó khăn lắm mới đạt tới tam cảnh, hẳn là hắn đã trải qua trận chiến trên sa trường để tích lũy được cảnh giới, rất xuất sắc."
-
-Tùy Cảnh Rừng có chút nghi hoặc.
-
-Bởi vì đối với một kẻ tùy tiện giết chóc như Tiêu Thúc Dạ, một người chỉ là vũ phu tam cảnh biên quân thì làm sao có thể được gọi là "rất xuất sắc"?
-
-Trần Bình An nói: "Dưới đời này, hầu hết những người đứng trên đỉnh cao đều từng bước một đi đến vị trí đó."
-
-Hai kỵ sánh vai bên nhau, vì không vội vàng chạy đi nên móng ngựa hạ thấp, không gấp gáp. Tùy Cảnh Rừng hiếu kỳ hỏi: "Còn người kia thì sao?"
-
-Trần Bình An cười đáp: "Mệnh tốt."
-
-Tùy Cảnh Rừng không phản bác được.
-
-Trần Bình An nói: "Có nhiều thứ, khi ngươi sinh ra không có, có thể ở đời này cũng sẽ không có. Đó là điều không thể tránh khỏi, phải chấp nhận số phận."
-
-Một lát sau, Trần Bình An mỉm cười nói: "Nhưng không sao cả, vẫn còn rất nhiều thứ, dựa vào chính mình cũng có thể giành được. Nếu như chúng ta luôn chăm chăm vào những thứ đã định sẵn không thể có, thì thực sự chỉ còn hai bàn tay trắng."
-
-Tùy Cảnh Rừng cảm thấy có lý.
-
-Tuy nhiên, khi nghĩ đến hoàn cảnh sống của mình, nàng cũng có chút chột dạ.
-
-Trần Bình An mỉm cười nói: "Những gì được sinh ra đã có, không phải là điều tốt hơn sao? Cần gì phải xấu hổ?"
-
-Tùy Cảnh Rừng dường như cảm thấy đã thu được lợi ích, trầm ngâm một lát, quay đầu cười nói: "Tiền bối, ngươi có thể cho ta vài lời tâm huyết được không?"
-
-Trần Bình An trả lời: "Ngậm miệng."
-
-Khi mũ có vải che mặt được hạ xuống, Tùy Cảnh Rừng ánh mắt u oán, nhếch môi.
-
-Hai kỵ tiếp tục bắc du.
-
-Nhìn thấy những cuộc chém giết thê thảm trên đường, họ cũng đã trải qua những khoảnh khắc như vậy, liên tục đi theo những hình ảnh đẹp đẽ bay giữa những cánh đồng hoa cải vàng.
-
-Còn có một nhóm trẻ em vui vẻ đuổi theo hai kỵ binh, tạo ra tiếng động lớn.
-
-Tại một ngọn núi lớn, họ tình cờ gặp một người tu đạo, người này đang cưỡi trên gió, lơ lửng bên một gốc cổ thụ, mở ra giấy Tuyên và từ từ vẽ tranh. Khi thấy họ, người đó chỉ mỉm cười gật đầu, sau đó tiếp tục phối hợp với việc vẽ tranh các cây tùng, cuối cùng lặng lẽ rời đi trong màn đêm.
-
-Tùy Cảnh Rừng nhìn về phía xa, nơi người tu sĩ đã đi xa.
-
-Trần Bình An ngay lập tức bắt đầu tẩu thung.
-
-Tùy Cảnh Rừng thu hồi ánh mắt, cẩn thận hỏi: "Tiền bối, nếu ta tu thành tiên pháp, khi gặp những trận chém giết như này, có nên nghĩ đến việc cứu người không?"
-
-Trần Bình An đáp: "Đương nhiên có thể. Nhưng ngươi hãy nghĩ kỹ, liệu có thể chấp nhận những hậu quả mà ngươi không thể tưởng tượng nổi, chẳng hạn như kẻ trinh sát ngươi cứu đó, nếu trốn về Ngũ Lăng Quốc, liệu hắn có thể thành công giao những thông tin quân tình cho đại tướng? Nếu điều đó không hiệu quả, có thể sẽ dẫn đến việc gây hấn trên biên giới, khiến hàng trăm, hàng nghìn người chết, hoặc thậm chí kéo theo chiến tranh giữa hai nước, gây ra cảnh khốn khổ cho dân chúng."
-
-Tùy Cảnh Rừng im lặng không nói.
-
-Trần Bình An tiếp tục tẩu thung, chậm rãi nói: "Vì vậy, nói rằng người tu đạo không vướng bận hồng trần, rời xa nhân gian, không hoàn toàn là lạnh lùng vô tình. Ngươi tạm thời không hiểu rõ những điều này cũng không sao, ta cũng phải trải qua thời gian dài tu hành mới hiểu được, từ từ thay đổi cách nghĩ để đối mặt với nhân gian. Ngươi còn nhớ lần trước chúng ta chơi cờ trên núi không? Ngươi đã quên ai là người nên được cứu? Ai cần được giúp đỡ? Có phải là vị hoàng đế Lâm Thù ngu trung của tiền triều? Hay là người học giả đã mưu tính cho bản thân một lối thoát? Hay là những người trẻ tuổi bất hạnh đã hi sinh tại Tranh Vanh môn? Ngươi có nghĩ rằng người nên được cứu cuối cùng lại khiến Lâm Thù ra sao, người học giả làm sao thực hiện được đại nghiệp phục quốc? Rồi xa hơn nữa, giữa Kim Phi Quốc và triều đình trước, ai mới thực sự có công với quốc gia và dân chúng? Ngươi có muốn tìm hiểu không? Những kẻ đã biết rõ chân tướng, vẫn muốn vì hoàng tử tiền triều mà hi vọng chịu chết. Vậy, họ sẽ làm gì đây? Ngươi trở thành người tốt, sẵn sàng ra tay, có thực sự thoải mái không?"
-
-Tùy Cảnh Rừng nhẹ nhàng gật đầu, ngồi xếp bằng bên sườn dốc, gió mát thổi vào mặt, nàng hạ mũ vải, tóc đen bay trong gió.
-
-Trần Bình An đến gần bên cạnh nàng, nhưng không ngồi xuống, "Làm người tốt không phải do ta cảm thấy, làm việc tốt cũng không phải do ta cho rằng. Chính vì vậy, làm người tu đạo không có gì xấu, có thể thấy nhiều điều xa xôi hơn."
-
-Trần Bình An lấy ra cây gậy leo núi lâu ngày không sử dụng, hai tay chống trượng, nhẹ nhàng lắc lắc, "Tuy nhiên, người tu đạo trải qua nhiều điều, sẽ biết rằng có một số phiền phức, bởi vì tìm kiếm tuyệt đối tự do cường giả sẽ ngày càng nhiều. Mặc dù những người này chỉ ra tay một hai lần, nhưng với nhân gian mà nói, đó đã là long trời lở đất. Tùy Cảnh Rừng, ta hỏi ngươi, một chiếc ghế đặt lâu, có thể lay động không?"
-
-Tùy Cảnh Rừng suy nghĩ một chút, "Chắc chắn sẽ lay động?"
-
-Trần Bình An quay lại nhìn, "Trong đời này sẽ không có ai làm cho cái ghế đó lay động sao?"
-
-Tùy Cảnh Rừng im lặng, mắt nhìn thẳng, sắc mặt có chút ngây thơ.
-
-Trần Bình An bất đắc dĩ nói: "Chẳng lẽ ngươi chưa từng thấy qua?"
-
-Tùy Cảnh Rừng hơi xấu hổ.
-
-Tùy thị vốn là người phú quý nhất Ngũ Lăng Quốc.
-
-Trần Bình An vuốt cằm, cười nói: "Vậy ta nên nói như thế nào đây?"
-
-Và thế là hắn thu gậy leo núi, tiếp tục tẩu thung.
-
-Tùy Cảnh Rừng cảm thấy hơi thất vọng, nhưng cũng không khỏi vui vẻ.
-
-Chính nàng cũng không nghĩ thông suốt, điều đó liên quan gì đến nàng.
-
-Dù sao khoảng cách đến bến đò của Lục Oanh Quốc vẫn còn xa, họ vẫn đi rất chậm.
-
-Nàng đột nhiên quay đầu cười hỏi: "Tiền bối, ta muốn uống rượu!"
-
-Người nọ nói: "Tiền phải tự mua, có thể thương lượng, không thì không bàn nữa."
-
-Nàng cười nói: "Dù đắt bao nhiêu cũng mua!"
-
-Kết quả, người ấy lắc đầu nói: "Trông giống như nợ tiền ký sổ, không bàn nữa."
-
-Tùy Cảnh Rừng thở dài một tiếng, liền như vậy ngả lưng ra đất, bầu trời giữa đêm lốm đốm như bức tranh đẹp nhất với hàng trăm bảo tài, treo lơ lửng trên những ngôi nhà đèn đuốc.
+先生不在身边，连个小师弟，胆子都敢如此大。
