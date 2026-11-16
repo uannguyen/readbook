@@ -1,205 +1,281 @@
 # Chương 643: Lão tú tài ngồi ở giữa
 
-Nhìn ra ngoài cửa hàng, có chút kỳ quái, người đọc sách bên Kiếm Khí Trường Thành thực sự không nhiều lắm, nơi này không có học thục, cũng không có tiên sinh dạy học, như nàng xuất thân núi non trùng điệp, những đứa nhỏ ngõ hẹp biết chữ nghĩa, đều dựa vào những tấm bia đá to nhỏ, nghiêng lệch lệch, mỗi ngày đều đứng sừng sững ở những góc nhỏ của phố lớn ngõ nhỏ, mỗi ngày chỉ nhận vài chữ, nếu thật sự muốn học tập chăm chỉ, cũng có thể đọc sách, về phần học vấn nhiều hơn, cũng sẽ không có.
+Điệp Chướng nhìn ra ngoài cửa hàng, thấy hơi lạ. Người đọc sách ở Kiếm Khí Trường Thành thật sự không nhiều, nơi này không có học thục, cũng không có tiên sinh dạy học. Như nàng và những đứa trẻ trong ngõ hẹp, biết được mấy chữ đều nhờ các tấm bia đá lớn nhỏ nghiêng lệch dựng ở góc phố góc ngõ, mỗi ngày chỉ nhận vài chữ. Nếu thật sự muốn học chăm chỉ thì cũng đọc được sách, còn học vấn nhiều hơn thì không có.
 
-Trữ Diêu tuy rằng chưa từng gặp Văn Thánh, nhưng mà lờ mờ đoán ra thân phận của lão tiên sinh, lập tức cảm xúc không sâu, cảm giác duy nhất, chính là thời điểm cùng mình du lịch Hạo Nhiên Thiên Hạ, một ít bức họa Văn Thánh chưa triệt để cấm tuyệt thư tịch, nhìn thật sự là không giống, thư tịch này cơ bản giống nhau, vô luận là nửa người, hay là lập tượng, đều đem Văn Thánh vẽ đến khí vũ hiên ngang, hiện tại xem ra, thật ra chính là một lão đầu gầy gò.
+Ninh Diêu tuy chưa từng gặp Văn Thánh, nhưng lờ mờ đoán ra thân phận của lão tiên sinh, cảm xúc vì thế không sâu. Cảm giác duy nhất là hồi du lịch Hạo Nhiên Thiên Hạ, nàng từng thấy tranh vẽ Văn Thánh trong vài cuốn sách chưa bị cấm hẳn, nhìn thật chẳng giống. Mấy bức tranh ấy bức nào cũng na ná nhau, dù vẽ nửa người hay lập tượng đều vẽ Văn Thánh khí vũ hiên ngang, bây giờ xem ra hóa ra chỉ là một lão đầu gầy gò.
 
-Núi non trùng điệp có chút nghi hoặc, Trữ Diêu nói: "Chúng ta nói chuyện của chúng ta, không quan tâm đến bọn họ."
+Điệp Chướng còn đang nghi hoặc thì Ninh Diêu nói:
 
-Bên ngoài, là một cuộc gặp lại không hẹn mà tới.
+“Chúng ta nói chuyện của chúng ta, đừng quan tâm bọn họ.”
 
-Trần Bình An trừ tươi cười, cũng không nói gì thêm.
+Bên ngoài là một cuộc trùng phùng không hẹn mà đến.
 
-Lão tú tài quay đầu nhìn về phía hai tiểu cô nương trong cửa hàng, nhẹ giọng hỏi: "Người nào?"
+Trần Bình An ngoài mỉm cười ra thì cũng chẳng nói thêm gì.
 
-Trần Bình An nhỏ giọng nói: "Người đẹp mắt chút kia."
+Lão tú tài quay đầu nhìn hai tiểu cô nương trong cửa hàng, khẽ hỏi:
 
-Lão tú tài vui mừng không chịu được, nắm tay ở trước ngực, vươn ngón tay cái.
+“Người nào?”
 
-Trần Bình An bảo lão tiên sinh chờ một chút, vào trong nói với Giản Phàm một tiếng, khuân ghế ra ngoài, nghe Điệp Chướng nói trong cửa hàng không có đồ ăn nào ngon, liền hỏi Trữ Diêu có thể đi mua giúp chút không, Trữ Diêu gật đầu, rất nhanh liền đi quán rượu phụ cận trực tiếp xách hộp thức ăn tới, trừ mấy món nhắm rượu, chén nào cũng có, Trần Bình An cùng lão tiên sinh đã ngồi trên ghế nhỏ, coi cái ghế dựa kia như bàn rượu, có vẻ có chút buồn cười. Trần Bình An đứng dậy, muốn nhận hộp đựng thức ăn, tự mình mở ra, kết quả dọn đĩa cho Trữ Diêu, nàng dọn chén ăn, để chén rượu ngon ở một bên, sau đó nói với lão tú tài, mời Văn Thánh lão tiên sinh chậm rãi uống rượu. Lão tú tài đã sớm đứng dậy, cùng Trần Bình An đứng, lúc này càng cười toe toét miệng, cái gọi là vui nở hoa, nhưng không hơn gì.
+Trần Bình An nhỏ giọng đáp:
 
-Trữ Diêu gọi núi non rời khỏi cửa hàng, cùng nhau tản bộ.
+“Cô nương đẹp hơn một chút kia ạ.”
 
-Lão tú tài oạch một tiếng, hung hăng nhấp ngụm rượu, như bị rùng mình, hít sâu một hơi, "Mệt chết mệt sống, cuối cùng làm về thần tiên."
+Lão tú tài mừng không nén nổi, nắm tay trước ngực, giơ ngón cái lên.
 
-Trần Bình An chậm rãi uống rượu, cười nhìn phía vị lão tiên sinh tựa như không có gì thay đổi này.
+Trần Bình An bảo lão tiên sinh chờ một lát, vào trong nói với Giản Phàm một tiếng rồi khiêng ghế ra ngoài. Nghe Điệp Chướng nói trong cửa hàng không có món gì ngon, hắn bèn hỏi Ninh Diêu có thể đi mua giúp một ít không. Ninh Diêu gật đầu, chẳng bao lâu đã xách hộp thức ăn từ quán rượu gần đó về, ngoài mấy món nhắm rượu ra thì bát chén gì cũng có đủ. Trần Bình An và lão tiên sinh đã ngồi trên ghế nhỏ, coi chiếc ghế dựa kia như bàn rượu, trông hơi buồn cười. Hắn đứng dậy muốn nhận hộp thức ăn, tự tay mở ra, nhưng Ninh Diêu đã bày đĩa dọn bát xong, để chén rượu ngon sang một bên, rồi nói với lão tú tài rằng mời Văn Thánh lão tiên sinh thong thả uống rượu. Lão tú tài đã đứng dậy từ sớm, đứng cùng Trần Bình An, lúc này càng cười toe toét, cái gọi là mừng nở hoa cũng chỉ đến thế.
 
-Lão tú tài gắp lên một đũa đồ ăn dùng rượu, thấy Trần Bình An không có động tĩnh, nhấc đũa lên, mơ hồ không rõ nói: "Động đũa động đũa, chỉ học được uống rượu thì không được, không ăn đồ nhắm rượu thì uống rượu, buồn chán. Ta năm đó lúc ấy là nghèo, chỉ có thể dựa vào sách thánh hiền làm đồ ăn nhắm rượu, Thôi Sàm tiểu vương bát đản kia, ngay từ đầu đã cứng đầu, nghĩ lầm vừa uống rượu vừa đọc sách, thật sự là chuyện văn nhã gì đó, về sau đã học theo, nào biết được nếu là trong túi ta có tiền, sớm đã bày đầy đĩa thức ăn trên bàn rượu, đi con mẹ nó sách thánh hiền."
+Ninh Diêu gọi Điệp Chướng rời khỏi cửa hàng, hai người cùng đi tản bộ.
 
-Mắng người hung dữ nhất của mình, mới có thể mắng ra lời nói có lý nhất.
+Lão tú tài “ực” một tiếng, nốc một ngụm rượu thật mạnh, như bị rùng mình, hít sâu một hơi:
 
-Trần Bình An gắp một đũa đồ ăn, nhai kỹ nuốt chậm, nhấp một ngụm rượu, mười phần thành thạo.
+“Mệt sống mệt chết, rốt cuộc cũng làm được thần tiên.”
 
-Không phải không lời nào để nói, mà căn bản không biết mở miệng như thế nào, không biết có thể nói cái gì, không thể nói cái gì.
+Trần Bình An thong thả uống rượu, cười nhìn vị lão tiên sinh tựa như chẳng đổi thay gì này.
 
-Lão tú tài hạ đũa như bay, uống rượu không ngừng, cũng may Trữ Diêu mua đủ nhiều.
+Lão tú tài gắp một đũa đồ nhắm, thấy Trần Bình An không động tĩnh, bèn giơ đũa lên, vừa nhai vừa nói lúng búng:
 
-Lão tiên sinh chén rượu đã hết, Trần Bình An liền xoay người đưa tay giúp rót rượu.
+“Ăn đi ăn đi. Chỉ học uống rượu thì không được, uống rượu mà không có đồ nhắm thì chán lắm. Năm đó ta nghèo, chỉ có thể lấy sách thánh hiền làm đồ nhắm. Cái thằng tiểu vương bát đản Thôi Sàm kia ngay từ đầu đã cứng đầu, tưởng lầm vừa uống rượu vừa đọc sách là chuyện văn nhã gì đó, sau này cũng học theo. Nào biết nếu trong túi ta có tiền thì đã bày đầy đĩa thức ăn trên bàn rượu từ lâu rồi, đi con mẹ nó sách thánh hiền.”
 
-Ăn xong đồ ăn, uống rượu, Trần Bình An mang bát rượu đĩa thức ăn thả lại vào hộp thức ăn, lão tú tài dùng tay áo lau nước canh đọng rượu trên ghế.
+Mắng chính mình dữ nhất thì mới mắng ra được lời có lý nhất. [?]
 
-Kết quả trong nháy mắt, bay xuống cửa hàng.
+Trần Bình An gắp một đũa thức ăn, nhai kỹ nuốt chậm, nhấp một ngụm rượu, rất thành thạo.
 
-Lão tú tài hỏi: "Sao lại tới đây?"
+Không phải không có gì để nói, mà là căn bản không biết mở miệng thế nào, không biết nói được gì, không nói được gì.
 
-Tả Hữu đáp: "Học sinh muốn nhìn tiên sinh thêm vài lần."
+Lão tú tài đũa hạ như bay, rượu uống không ngừng, may mà Ninh Diêu mua đủ nhiều.
 
-Lão tú tài chỉ chỉ ghế dựa trống, tức giận cười nói: "Kiếm thuật của ngươi cao nhất, vậy ngươi ngồi ở đây?"
+Chén rượu của lão tiên sinh vừa cạn, Trần Bình An liền nghiêng người đưa tay rót giúp.
 
-Tả Hữu liếc Trần Bình An, Trần Bình An đành phải nhường lại cái ghế đẩu của mình, vòng qua ghế dựa, đi đến bên cạnh lão tú tài.
+Ăn xong uống xong, Trần Bình An thu bát chén đĩa cho vào hộp thức ăn, lão tú tài dùng tay áo lau nước canh và rượu đọng trên ghế.
 
-Lão tú tài cũng chỉ có thể ngồi ở trên ghế, Trần Bình An lúc này mới ngồi xuống.
+Chỉ trong thoáng chốc, có người từ trên cao bay xuống trước cửa hàng.
 
-Lão tú tài hỏi: "Hai người các ngươi nhận sư huynh đệ chưa?"
+Lão tú tài hỏi:
 
-Tả Hữu nói: "Không cảm thấy thế."
+“Sao lại tới đây?”
 
-Trần Bình An nói: "Đồng lý."
+Tả Hữu đáp:
 
-Lão tú tài ngồi ở trên ghế, đương nhiên là thiên vị đệ tử quan môn của mình, cho nên một chưởng liền vỗ lên trên hai bên đầu một đoạn thấp, "Làm sư huynh như thế nào, chẳng qua là sớm bái sư cầu học mà thôi, ngươi mù mù thì ghê gớm cái gì, cái này cũng đã đánh quang côn bao nhiêu năm rồi? Cái khác không nói, chỉ nói trên việc lớn này, văn thánh nhất mạch chúng ta, hôm nay đều dựa vào tiểu sư đệ ngươi giữ thể diện! Mang theo kiếm, chạy đi chạy lại phía tây, là có thể giúp ngươi ấm chăn mền a, vẫn có thể giúp ngươi bưng trà dâng nước."
+“Học sinh muốn nhìn tiên sinh thêm vài lần.”
 
-Trần Bình An nói: "Tả tiền bối lúc trước ở trên đầu tường, tính dạy vãn bối kiếm thuật, Tả tiền bối lo lắng vãn bối cảnh giới quá thấp, cho nên tương đối khó xử."
+Lão tú tài chỉ chiếc ghế dựa còn trống, tức giận cười nói:
 
-Không chút lo lắng, lại trúng một cái tát, hai bên mặt đen lại, nghĩ đợi tiên sinh rời khỏi Kiếm Khí Trường Thành, trái phải ta sẽ không làm khó nữa.
+“Kiếm thuật ngươi cao nhất, vậy ngươi ngồi ở đây?”
 
-Trần Bình An lại nói: "Chẳng qua Tả tiền bối ở lúc vừa nhìn thấy Diêu lão tiên sinh, vẫn là chống lưng cho vãn bối."
+Tả Hữu liếc Trần Bình An, Trần Bình An đành nhường chiếc ghế đẩu của mình, vòng qua ghế dựa, đi đến bên cạnh lão tú tài.
 
-Lão tú tài ồ một tiếng, quay đầu, nhẹ nhàng bâng quơ nói: "Một cái tát vừa rồi, là tiên sinh đánh sai rồi, Tả Hữu à, ngươi cũng không giải thích đâu, đánh nhỏ thì như vậy thôi, về sau sửa đi. Đánh sai ngươi, sẽ không ghi hận tiên sinh chứ? Nếu trong lòng ủy khuất, nhớ rõ phải nói ra, biết sai có thể sửa, sửa là không tiếc, làm điều tốt là rất tốt, năm đó ta chỉ bằng những lời này, cứng rắn kéo ra một sọt đạo lý cao thâm, các Phật tử đạo tử nghe mà sửng sốt, đúng không?"
+Lão tú tài cũng chỉ có thể ngồi lên ghế dựa, lúc này Trần Bình An mới ngồi xuống. [?]
 
-Tiên sinh tự nhiên đều đúng. Cho nên trái phải buồn bực không lên tiếng, nhưng quyết định dạy tiểu tử kia hai trận kiếm thuật, một trận là khẳng định không đủ.
+Lão tú tài hỏi:
 
-Trần Bình An đột nhiên nói: "Phó sơn chủ thư viện Sơn Nhai, vẫn luôn rất nhớ mong... tiên sinh."
+“Hai đứa các ngươi nhận sư huynh đệ với nhau chưa?”
 
-Đây là lần đầu tiên Trần Bình An xưng hô Văn Thánh lão tiên sinh, là tiên sinh vô cùng đơn giản.
+Tả Hữu nói:
 
-Lão tú tài nấc rượu, vểnh tai, ra vẻ nghi hoặc nói: "Ai, cái gì? Lặp lại lần nữa."
+“Không thấy có gì cần nhận.”
 
-Tả Hữu liếc mắt.
+Trần Bình An nói:
 
-Trần Bình An cười nói: "Mao sư huynh rất nhớ tiên sinh."
+“Cùng ý.”
 
-Lão tú tài xoay người, ghé vào trên tay cầm ghế dựa, nhìn phía Trần Bình An, cười ha ha nói: "Tiểu Đông à, nguyện ý dùng biện pháp ngốc nhất đi dạy học dục người, kiên nhẫn vô cùng, giống ta nhất. Chính là giống tả hữu tương tự, cứng đầu liền cứng đầu, chuyển không qua được, năm đó ta chỉ thiếu mỗi buộc Mao Tiểu Đông, nhét vào trong bao tải, ném thêm vào Lễ Ký học cung, ta cũng bỏ đi cái mặt già không cần, lén lút tạo chút quan hệ tốt cho hắn, nhưng không đi, ta làm tiên sinh, cũng không có biện pháp."
+Lão tú tài ngồi trên ghế, dĩ nhiên thiên vị đệ tử quan môn của mình, bèn một chưởng vỗ lên đầu Tả Hữu:
 
-Tả Hữu đột nhiên hỏi: "Vì sao năm đó không muốn thừa nhận tiên sinh là tiên sinh, hôm nay cảnh giới cao, ngược lại nhận tiên sinh?"
+“Làm sư huynh thì có gì ghê gớm, chẳng qua là bái sư cầu học sớm hơn một chút! Ngươi lớn tuổi hơn thì giỏi lắm sao, ngần ấy năm rồi vẫn là kẻ độc thân? Chuyện khác không nói, chỉ riêng việc lớn này, nhất mạch Văn Thánh chúng ta hôm nay đều trông vào tiểu sư đệ ngươi giữ thể diện! Làm sư huynh thì xách kiếm chạy đi chạy lại phía tây giúp nó, còn có thể ấm chăn nệm, bưng trà dâng nước cho nó nữa.”
 
-Trần Bình An đáp: "Năm đó ta cũng chưa từng đọc sách, dựa vào cái gì nhận tiên sinh, chỉ bằng tiên sinh là Văn Thánh sao? Đó có phải là Chí Thánh tiên sư, Lễ Thánh Á Thánh xuất hiện ở trước người ta, bọn họ nguyện ý nhận, ta nhận? Tiên sinh nguyện ý thu đệ tử, trước khi đệ tử nhập môn, cũng phải chọn tiên sinh một lần! Đọc sách bách gia tam giáo, tựa như kẻ kia so với ba nhà, cuối cùng nhận định tiên sinh quả chân học vấn tốt nhất, ta mới nhận, cho dù tiên sinh đổi ý không nhận, bản thân ta cũng sẽ siêng năng bái sư cầu học, như thế mới tính là thành ý chính tâm."
+Trần Bình An nói:
 
-Tả Hữu sửng sốt nửa ngày.
+“Tả tiền bối lúc trước ở trên đầu tường định dạy vãn bối kiếm thuật, nhưng lo vãn bối cảnh giới quá thấp nên khá khó xử.”
 
-Đã từng gặp người không biết xấu hổ, chưa thấy qua người không biết xấu hổ như vậy. Trần Bình An, trong nhà tiểu tử ngươi là mở cửa hàng đạo lý à?
+Không chút phòng bị, Tả Hữu lại ăn thêm một cái tát, mặt tối sầm, bụng nghĩ chờ tiên sinh rời Kiếm Khí Trường Thành rồi thì Tả Hữu ta sẽ không khách khí nữa.
+
+Trần Bình An lại nói:
+
+“Có điều lúc vừa gặp Diêu lão tiên sinh, Tả tiền bối vẫn là người chống lưng cho vãn bối.”
+
+Lão tú tài “ồ” một tiếng, quay đầu, nhẹ nhàng bâng quơ nói:
+
+“Cái tát vừa rồi là tiên sinh đánh nhầm. Tả Hữu à, ngươi cũng chẳng chịu giải thích. Cái tật này của ngươi từ nhỏ đã thế, sau này sửa đi. Tiên sinh đánh oan ngươi, ngươi sẽ không oán tiên sinh chứ? Trong lòng có ủy khuất thì nhớ nói ra. Người ai chẳng có lỗi, có lỗi mà biết sửa thì không gì tốt bằng. Năm đó ta chỉ dựa vào mấy câu này mà cứng rắn kéo ra cả một sọt đạo lý cao thâm, mấy vị Phật tử đạo tử nghe mà ngẩn người, đúng không?”
+
+Tiên sinh dĩ nhiên lúc nào cũng đúng. Cho nên Tả Hữu buồn bực không lên tiếng, nhưng đã quyết định dạy tiểu tử kia hai trận kiếm thuật, một trận chắc chắn là không đủ.
+
+Trần Bình An chợt nói:
+
+“Phó sơn chủ thư viện Sơn Nhai vẫn luôn rất nhớ... tiên sinh.”
+
+Đây là lần đầu tiên Trần Bình An gọi Văn Thánh lão tiên sinh là “tiên sinh”, gọi hết sức giản đơn.
+
+Lão tú tài nấc một tiếng, vểnh tai lên, ra vẻ nghi hoặc:
+
+“Ai, gì cơ? Nói lại lần nữa.”
+
+Tả Hữu trợn mắt.
+
+Trần Bình An cười nói:
+
+“Mao sư huynh rất nhớ tiên sinh.”
+
+Lão tú tài xoay người, gục lên tay vịn ghế dựa nhìn Trần Bình An, cười ha ha:
+
+“Tiểu Đông ấy à, chịu dùng cách ngốc nhất để dạy học dục người, kiên nhẫn vô cùng, giống ta nhất. Chỉ là cũng giống Tả Hữu, đã cứng đầu thì không xoay chuyển được. Năm đó ta chỉ thiếu điều trói Mao Tiểu Đông lại, nhét vào bao tải rồi ném vào Lễ Ký học cung. Ta cũng bỏ cái mặt già này, lén lút gây chút quan hệ tốt cho hắn, nhưng hắn không chịu đi, ta làm tiên sinh cũng hết cách.”
+
+Tả Hữu đột nhiên hỏi:
+
+“Vì sao năm đó ngươi không chịu nhận tiên sinh làm tiên sinh, hôm nay cảnh giới cao rồi lại nhận?”
+
+Trần Bình An đáp:
+
+“Năm đó ta chưa từng đọc sách, dựa vào gì mà nhận tiên sinh? Chỉ vì tiên sinh là Văn Thánh sao? Dù Chí Thánh tiên sư, Lễ Thánh, Á Thánh đứng trước mặt ta, họ muốn nhận thì ta phải nhận ư? Tiên sinh muốn thu đệ tử, thì trước khi đệ tử nhập môn, cũng phải để đệ tử chọn tiên sinh một lần! Ta đọc sách bách gia tam giáo, so sánh từng nhà, cuối cùng nhận định học vấn của tiên sinh quả thật là tốt nhất, lúc đó ta mới nhận. Cho dù tiên sinh đổi ý không nhận, bản thân ta cũng sẽ chăm chỉ bái sư cầu học, như vậy mới gọi là thành ý chính tâm.”
+
+Tả Hữu sững người nửa ngày.
+
+Từng gặp người không biết xấu hổ, nhưng chưa từng thấy ai không biết xấu hổ đến thế. Trần Bình An, nhà ngươi mở tiệm đạo lý đấy à?
 
 Ba trận!
 
-Lão tú tài đạp Tả Hữu một cước, "Cứ đứng đó làm gì, lấy rượu tới đi."
+Lão tú tài đạp Tả Hữu một cước:
 
-Tả Hữu bất đắc dĩ nói: "Tiên sinh, ta lại không thích uống rượu, huống chi trên người Trần Bình An còn nhiều."
+“Cứ đứng đó làm gì, đi lấy rượu tới đây.”
 
-"Tả Hữu, ngươi là lưu manh, nợ tiền cái gì, đều không cần sợ."
+Tả Hữu bất đắc dĩ nói:
 
-Lão tú tài dùng khẩu khí nặng ý sâu lấy lý phục người, hướng dẫn từng bước nói: "Tiểu sư đệ ngươi không giống, lại có đỉnh núi nhà mình, lập tức lại muốn cưới vợ, thế này phải chi bao nhiêu? Năm đó là ngươi giúp tiên sinh quản tiền, sẽ không rõ ràng khổ cực nuôi sống gia đình? Lấy ra một chút phong phạm khí độ của sư huynh, đừng để người ta xem nhẹ nhất mạch này của chúng ta. Không lấy rượu hiếu kính tiên sinh, cũng được, đi, đi đầu tường bên kia gào lên một tiếng, chỉ nói bản thân là sư huynh của Trần Bình An, miễn cho tiên sinh không ở bên cạnh, tiểu sư đệ của ngươi bị người ta bắt nạt."
+“Tiên sinh, ta không thích uống rượu, huống chi trên người Trần Bình An còn nhiều.”
+
+“Tả Hữu, ngươi là kẻ vô lại, nợ tiền gì cũng chẳng cần sợ. [?]”
+
+Lão tú tài dùng giọng nặng nề thấm thía, lấy lý phục người, dẫn dắt từng bước:
+
+“Tiểu sư đệ ngươi không giống ngươi, nó có đỉnh núi nhà mình, sắp tới lại muốn cưới vợ, chỗ cần chi biết bao nhiêu? Năm đó chính ngươi giúp tiên sinh quản tiền, chẳng lẽ không rõ nuôi cả nhà khổ thế nào? Lấy chút phong phạm khí độ của sư huynh ra, đừng để người ta coi thường nhất mạch chúng ta. Không lấy rượu hiếu kính tiên sinh cũng được, vậy đi, ra đầu tường bên kia gào lên một tiếng, nói mình là sư huynh của Trần Bình An, khỏi lo tiên sinh không ở bên cạnh, tiểu sư đệ của ngươi bị người ta bắt nạt.”
 
 Tả Hữu giả câm vờ điếc.
 
-Trong kiếp sống cầu học trước kia, đây chính là sự kháng nghị lớn nhất của Tả Hữu đối với tiên sinh nhà mình.
+Trong những năm cầu học trước kia, đây chính là cách phản kháng lớn nhất của Tả Hữu đối với tiên sinh nhà mình.
 
-Trần Bình An lấy ra hai bầu rượu từ trong vật gang tấc, đều đưa cho lão tú tài.
+Trần Bình An lấy từ vật chỉ xích ra hai bầu rượu, đưa cả cho lão tú tài.
 
-Đều là rượu nếp rượu ủ ở quê quán Long Tuyền, toàn bộ rượu tiên gia, đều đưa cho hán tử ôm kiếm canh cửa Đảo Huyền sơn.
+Đều là rượu nếp ủ ở quê nhà Long Tuyền. Còn rượu của tiên gia thì hắn đã đưa hết cho gã hán tử ôm kiếm giữ cửa ở Đảo Huyền sơn.
 
-Lão tú tài đưa cho tả hữu một bình.
+Lão tú tài đưa cho Tả Hữu một bình.
 
-Tả Hữu cũng không cự tuyệt.
+Tả Hữu cũng không từ chối.
 
-Trần Bình An tự mình lấy ra một bình.
+Trần Bình An tự lấy một bình cho mình.
 
-Lão tú tài cười tủm tỉm hỏi: "Tả Hữu, tư vị như thế nào?"
+Lão tú tài cười tủm tỉm hỏi:
 
-Tả Hữu chỉ đành nói một câu tận lực bớt chút lương tâm, "Vẫn được."
+“Tả Hữu, mùi vị thế nào?”
 
-Lão tú tài lắc đầu, chậc chậc nói: "Đây là lời người không hiểu uống rượu, mới có thể nói ra."
+Tả Hữu đành nói một câu đã cố bớt chút lương tâm:
 
-Lão tú tài quay đầu nhìn về phía Trần Bình An.
+“Cũng được.”
 
-Quả nhiên không làm cho lão tú tài thất vọng.
+Lão tú tài lắc đầu, chậc chậc:
 
-Trần Bình An cười nói: "Uống rượu không, tư vị tốt nhất."
+“Đây là lời của người không hiểu uống rượu mới nói ra được.”
+
+Lão tú tài quay sang nhìn Trần Bình An.
+
+Quả nhiên không làm lão tú tài thất vọng.
+
+Trần Bình An cười nói:
+
+“Có rượu để uống, tư vị tốt nhất. [?]”
 
 Lão tú tài cười ha ha.
 
 Cười nửa ngày, phát hiện Trần Bình An đang nhìn mình.
 
-Lão tú tài liền ho khan vài tiếng, "Yên tâm, về sau để đại sư huynh của ngươi mời uống rượu, ở Kiếm Khí Trường Thành bên này, chỉ cần là uống rượu, mặc kệ là mình, hay là hô bằng gọi hữu, đều ghi sổ ở trên đầu cái tên Tả Hữu này. Tả Hữu a..."
+Lão tú tài bèn ho khan vài tiếng:
 
-Tả Hữu thở dài, "Đã biết."
+“Yên tâm, sau này để đại sư huynh ngươi mời rượu. Ở Kiếm Khí Trường Thành bên này, chỉ cần là uống rượu, dù một mình hay rủ bằng hữu, đều ghi sổ lên đầu cái tên Tả Hữu này. Tả Hữu à...”
 
-Lão tú tài lại hô "Tả Hữu" một tiếng.
+Tả Hữu thở dài:
 
-Tả Hữu đã nói: "Không ủy khuất."
+“Biết rồi.”
 
-Lão tú tài lúc này mới hài lòng.
+Lão tú tài lại gọi “Tả Hữu” một tiếng.
 
-Trần Bình An uống rượu, luôn cảm thấy càng là như thế, những ngày kế tiếp của mình, càng phải gian nan.
+Tả Hữu bèn nói:
 
-Không ngờ lão tú tài đã khéo hiểu lòng người nói: "Sư huynh ngươi Tả Hữu, kiếm thuật vẫn là có thể lấy ra được, nhưng nếu ngươi không thích học, thì không cần học, muốn học, cảm thấy dạy như thế nào, nói một tiếng với sư huynh là được, sư huynh sẽ không quá phận."
+“Không thấy ủy khuất.”
 
-Tả Hữu nói: "Có thể học được rồi."
+Lúc này lão tú tài mới hài lòng.
 
-Trần Bình An lập tức nói: "Không vội."
+Trần Bình An uống rượu, luôn cảm thấy càng như vậy thì những ngày sắp tới của mình càng gian nan.
 
-Tả Hữu thân thể nghiêng về phía trước, nhìn chằm chằm Trần Bình An.
+Không ngờ lão tú tài đã khéo hiểu lòng người, nói:
 
-Trần Bình An nhìn về phía lão tú tài.
+“Sư huynh ngươi là Tả Hữu, kiếm thuật cũng đáng lấy ra dùng. Nhưng nếu ngươi không thích học thì không cần học, muốn học, thấy nên dạy thế nào thì nói với sư huynh một tiếng là được, sư huynh sẽ không quá đáng.”
 
-Lão tú tài ngầm hiểu, liền lập tức đưa tay đè lại hai bên đầu, đẩy về phía sau, giáo huấn: "Nhường đường cho tiểu sư đệ chút."
+Tả Hữu nói:
+
+“Có thể học được rồi.”
+
+Trần Bình An lập tức nói:
+
+“Không vội.”
+
+Tả Hữu nghiêng người về phía trước, nhìn chằm chằm Trần Bình An.
+
+Trần Bình An nhìn sang lão tú tài.
+
+Lão tú tài ngầm hiểu, lập tức đưa tay đè đầu Tả Hữu, đẩy ra phía sau, giáo huấn:
+
+“Nhường đường cho tiểu sư đệ chút.”
 
 Tả Hữu bắt đầu uống rượu ừng ực.
 
-Rất kỳ quái, Văn Thánh đối đãi với mấy vị đệ tử đích truyền trong môn, giống như không khách khí nhất với Tả Hữu, nhưng mà vị đệ tử này, lại thủy chung là người ở chung không rời, làm bạn với tiên sinh.
+Rất kỳ lạ, trong mấy vị đệ tử đích truyền, Văn Thánh tựa như không khách khí nhất với Tả Hữu, nhưng người đệ tử này lại luôn là người ở bên cạnh tiên sinh không rời.
 
-Ngay cả đệ tử ký danh như Mao Tiểu Đông cũng không thể hiểu được điều này.
+Ngay cả đệ tử ký danh như Mao Tiểu Đông cũng không hiểu được chuyện này.
 
-Chỉ có điều tính tình của Tả Hữu sư huynh quá quái gở, Mao Tiểu Đông, Mã Chiêm bọn họ, thật ra cũng không dám chủ động nói chuyện với Tả Hữu.
+Chỉ có điều tính tình Tả Hữu sư huynh quá quái gở, Mao Tiểu Đông, Mã Chiêm bọn họ thật ra cũng không dám chủ động nói chuyện với Tả Hữu.
 
-Thôi Sàm lúc ấy chưa khi sư diệt tổ, là đồ đệ đầu tiên của Văn Thánh sặc sỡ loá mắt, khiến toàn bộ học cung thư viện, quân tử hiền nhân Trung Thổ Thần Châu đều phải ảm đạm thất sắc, học vấn cao, tu vi cao, kỳ thuật lại càng cao đến tuyệt đỉnh, cũng sẽ thường xuyên bị Tả Hữu mắng đến không cãi lại, về phần Thôi Sàm lúc ấy là không muốn, hay là không dám, Mao Tiểu Đông bọn họ nhất định đã không có cơ hội đi biết đáp án.
+Thôi Sàm hồi chưa khi sư diệt tổ là đại đệ tử của Văn Thánh, rực rỡ chói mắt, khiến toàn bộ học cung thư viện, quân tử hiền nhân Trung Thổ Thần Châu đều ảm đạm thất sắc. Học vấn cao, tu vi cao, kỳ thuật lại càng cao đến tuyệt đỉnh, vậy mà cũng thường bị Tả Hữu mắng đến không cãi lại được. Còn khi ấy Thôi Sàm là không muốn hay không dám, bọn Mao Tiểu Đông chắc chắn không còn cơ hội biết đáp án.
 
-Về phần học vấn của Tả Hữu như thế nào, dòng chính của Văn Thánh nhất mạch, cũng đủ để nói rõ tất cả.
+Còn học vấn của Tả Hữu thế nào, nhìn dòng chính nhất mạch Văn Thánh cũng đủ nói rõ tất cả.
 
-Chỉ tiếc kiếm thuật của hắn đã bị che giấu đi.
+Chỉ tiếc kiếm thuật của hắn đã che khuất hết thảy.
 
-Cho nên mỗi lần thế nhân đề cập đến kiếm tiên đại khí vãn thành, chỉ nói kiếm thuật rất cao, cực cao hay là nhân gian tối cao.
+Cho nên mỗi lần thế nhân nhắc đến vị kiếm tiên đại khí vãn thành này, chỉ nói kiếm thuật rất cao, cực cao, hoặc cao nhất nhân gian.
 
-Thậm chí không ít người sẽ quên thân phận đệ tử Văn Thánh của hắn.
+Thậm chí không ít người quên mất hắn là đệ tử của Văn Thánh.
 
-Một người lực áp tất cả tiên thiên kiếm phôi trên thế gian, đây chính là tả hữu.
+Một người lực áp tất cả kiếm phôi bẩm sinh trên đời, đó chính là Tả Hữu.
 
-Nhưng hôm nay ngồi ở trên cái khoảng trên ghế nhỏ trước cửa cửa cửa cửa hàng, ở trong mắt lão tú tài, cho tới bây giờ cũng chỉ là thiếu niên cao lớn ánh mắt trong suốt năm đó, sau khi tới cửa, nói hắn không có tiền, nhưng muốn xem sách thánh hiền, học chút đạo lý, nợ tiền, nhận tiền tiên sinh, về sau sẽ trả, nhưng nếu là đọc sách, thi đỗ trạng nguyên cái gì, giúp đỡ tiên sinh chiêu mộ càng nhiều đệ tử, vậy hắn sẽ không trả tiền.
+Nhưng hôm nay ngồi trên chiếc ghế nhỏ trước cửa hàng, trong mắt lão tú tài, hắn xưa nay vẫn chỉ là thiếu niên cao lớn có đôi mắt trong suốt năm ấy. Sau khi tìm đến cửa, thiếu niên nói mình không có tiền, nhưng muốn đọc sách thánh hiền, học chút đạo lý. Tiền học của tiên sinh cứ ghi nợ, sau này sẽ trả. Nhưng nếu đọc sách xong mà thi đỗ trạng nguyên gì đó, giúp tiên sinh thu thêm nhiều đệ tử, thì hắn sẽ không trả tiền.
 
-Thiếu niên lúc ấy nói lời này, rất chân thành.
+Thiếu niên khi ấy nói lời này rất chân thành.
 
-Lúc ấy tú tài nghèo tuổi còn không tính là quá lớn, còn chưa trở thành lão tú tài, càng chưa trở thành Văn Thánh, chỉ là vừa mới xuất bản sách vở, trong tay có chút dư dả, không đến mức trong túi ngượng ngùng đến không có nổi rượu, liền đáp ứng, nghĩ đến bên cạnh Thôi Sàm không có sư đệ, không ra gì, huống chi tú tài nghèo lúc ấy cảm thấy nguyện vọng lớn nhất đời này của mình, chính là đào lý khắp thiên hạ, có đại đệ tử, lại đến nhị đệ tử..., Là chuyện tốt, không tích nửa bước không thể đạt ngàn dặm, rốt cuộc là câu tốt tự mình cân nhắc ra, lúc ấy, nam nhân chỉ có công danh tú tài, là thật sự không nghĩ quá nhiều, cũng không nghĩ quá xa, thậm chí sẽ cảm thấy cái gì đào lý khắp thiên hạ, chỉ là niệm tưởng xa không thể chạm, tựa như lúc ở ngõ hẹp, uống một cân rưỡi rượu đục mua về trong nhà, nghĩ trong những tửu lâu lớn kia từng bình rượu ngon bán đi.
+Khi ấy tú tài nghèo tuổi chưa tính là quá lớn, chưa thành lão tú tài, càng chưa thành Văn Thánh, chỉ vừa mới xuất bản sách vở, trong tay có chút dư dả, chưa đến mức ngượng ngùng vì trong túi không có tiền mua rượu, bèn đồng ý. Nghĩ bên cạnh Thôi Sàm không có sư đệ cũng chẳng ra gì. Hơn nữa khi ấy tú tài nghèo cảm thấy nguyện vọng lớn nhất đời mình là đào lý khắp thiên hạ, có đại đệ tử rồi lại có nhị đệ tử... là chuyện tốt, không tích từng bước nhỏ thì không đi được ngàn dặm, rốt cuộc cũng là câu hay do chính mình cân nhắc ra. Lúc ấy người đàn ông chỉ có công danh tú tài kia thật sự không nghĩ nhiều, cũng không nghĩ xa, thậm chí còn cảm thấy cái gọi là đào lý khắp thiên hạ chỉ là ý nghĩ xa vời không chạm tới được, tựa như hồi ở ngõ hẹp, mua một cân rưỡi rượu đục mang về nhà, lại nghĩ đến những bình rượu ngon bán trong các tửu lâu lớn kia.
 
-Trải qua rất nhiều năm còn có thể nhớ mang máng có tiểu nữ nhi của chưởng quỹ tửu lâu, hình như cực kỳ xinh đẹp.
+Trải qua bao nhiêu năm, ông vẫn còn nhớ mang máng cô con gái nhỏ của chưởng quỹ tửu lâu hình như cực kỳ xinh đẹp.
 
-Xa xa nhìn thấy, như uống rượu nguyên chất, không thể nhìn nhiều, sẽ say lòng người.
+Từ xa nhìn thấy, như uống rượu nguyên chất, không thể nhìn nhiều, sẽ say lòng người.
 
-Cho nên đời sau có bộ sách nào đó của lão nhân dạy dỗ nho gia đại thánh nhân, mang lão nhân viết ra vẻ đạo mạo, quá mức bảo thủ, mang bản ý sửa rất nhiều, khiến lão tú tài tức giận không chịu nổi, nam nữ đ*ng t*nh, thiên kinh địa nghĩa, người không phải cỏ cây ai có thể vô tình, huống chi cỏ cây còn có thể hóa thành tinh mị, người không phải thánh hiền ai có thể không có lỗi lầm, huống chi thánh hiền cũng sẽ có lỗi, càng không nên yêu cầu xa vời phàm tục phu tử khắp nơi làm thánh hiền, học vấn như vậy nếu thành duy nhất, không phải mang người đọc sách kéo gần thánh hiền, mà là dần dần đẩy xa. Lão tú tài vì thế chạy tới văn miếu giảng đạo lý cho tốt, đối phương cũng cứng rắn, dù sao chính là ngươi nói ta nghe, nhưng không cãi nhau với lão tú tài, tuyệt đối không mở miệng nói nửa chữ.
+Cho nên đời sau có một bộ sách của vị đại thánh nhân Nho gia nào đó, viết lão thành ra vẻ đạo mạo, quá mức bảo thủ, sửa đi rất nhiều ý gốc của lão, khiến lão tú tài tức không chịu nổi. Nam nữ động tình, là thiên kinh địa nghĩa. Người không phải cỏ cây, ai có thể vô tình, huống chi cỏ cây còn có thể hóa thành tinh mị. Người không phải thánh hiền, ai có thể không có lỗi lầm, huống chi thánh hiền cũng có lỗi, càng không nên đòi hỏi viển vông mọi phàm phu tục tử đều phải làm thánh hiền. Học vấn như vậy nếu thành duy nhất thì không phải kéo người đọc sách lại gần thánh hiền, mà là dần dần đẩy xa. Lão tú tài vì thế chạy đến văn miếu giảng đạo lý cho phải, đối phương cũng cứng rắn, dù sao ngươi nói thì ta nghe, nhưng không cãi nhau với lão tú tài, tuyệt đối không mở miệng nửa chữ.
 
-Nhưng vừa vặn là một vị thánh nhân bất cận nhân tình như vậy, lại lấy tiêu hao tu vi bản thân hầu như không còn, trả giá, cứng rắn vì Hạo Nhiên Thiên Hạ chống đỡ cửa vào đạo quan ải kia, thẳng đến lão tú tài cùng vị người đọc sách cầm tiên kiếm kia dắt tay nhau xuất hiện ở trước mắt hắn, đối phương rốt cuộc buông xuống trọng trách, lặng yên ngã xuống, đối với lão tú mới có thể cười cười, bỗng nhiên chết lâu dài, hoàn toàn hồn phi phách tán, không còn có thể nói kiếp sau nữa.
+Nhưng chính một vị thánh nhân bất cận nhân tình như vậy lại tiêu hao tu vi bản thân gần như cạn kiệt, trả giá rất lớn, cứng rắn vì Hạo Nhiên Thiên Hạ chống đỡ cửa ải đạo quan kia. [?] Cho đến khi lão tú tài cùng vị người đọc sách cầm tiên kiếm kia sánh vai xuất hiện trước mắt, đối phương mới buông xuống trọng trách, lặng lẽ ngã xuống, chỉ kịp cười với lão tú tài một cái rồi chết hẳn, hoàn toàn hồn phi phách tán, không còn có thể nói đến kiếp sau nữa.
 
-Nhân sinh bỗng nhiên mà thôi.
+Nhân sinh bỗng chốc mà thôi.
 
-Nhìn nhau cười, tâm ý đảo lộn.
+Nhìn nhau cười, tâm ý tương thông. [?]
 
-Lão tú tài uống xong một bầu rượu, chưa sốt ruột đứng dậy rời khỏi ghế dựa, hai tay ôm bầu rượu, phơi nắng trời thiên hạ khác.
+Lão tú tài uống xong một bầu rượu, chưa vội đứng dậy rời khỏi ghế dựa, hai tay ôm bầu rượu, phơi nắng dưới bầu trời của một tòa thiên hạ khác.
 
-Tả Hữu nhẹ giọng nói: "Tiên sinh, có thể rời đi, bằng không đại yêu Phi Thăng cảnh của tòa thiên hạ này, có thể sẽ đồng thời ra tay ngăn cản tiên sinh rời đi."
+Tả Hữu khẽ nói:
+
+“Tiên sinh, có thể rời đi rồi. Nếu không, các đại yêu Phi Thăng cảnh của tòa thiên hạ này có thể sẽ cùng ra tay ngăn cản tiên sinh rời đi.”
 
 Trần Bình An vừa muốn đứng dậy nói chuyện.
 
-Lão tú tài nâng tay lên, nhẹ nhàng đè xuống, "Không cần nói cái gì, tiên sinh đều biết. Tiên sinh rất nhiều lời, tạm thời không nhiều lời với ngươi."
+Lão tú tài nâng tay lên, nhẹ nhàng đè xuống:
 
-Lão tú tài tựa lưng ghế dựa, thái độ thanh thản, lẩm bẩm: "Lại ngồi thêm một lát. Tiên sinh đã rất nhiều năm, bên người không có hai vị học sinh đồng thời ngồi."
+“Không cần nói gì, tiên sinh đều biết. Tiên sinh có rất nhiều lời, tạm thời không nói nhiều với ngươi.”
+
+Lão tú tài tựa lưng vào ghế dựa, thái độ thanh thản, lẩm bẩm:
+
+“Ngồi thêm một lát nữa. Đã rất nhiều năm rồi, bên cạnh tiên sinh không có hai học sinh cùng ngồi một lúc.”
 
 Một trái một phải hai học sinh, tiên sinh ngồi ở giữa.
 
-Bên cạnh tiên sinh, cuối cùng không chỉ có hai bên.
+Bên cạnh tiên sinh, cuối cùng không chỉ có mình Tả Hữu nữa.

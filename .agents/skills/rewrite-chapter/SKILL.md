@@ -15,25 +15,48 @@ Dự án đã thử bộ quy tắc thay từ tự động (`scripts/style-lint.m
 
 ## Quy trình
 
-Mỗi lượt làm tối đa 3 chương, trừ khi người dùng yêu cầu khác, vì mỗi chương tốn khoảng 40 nghìn token và người dùng cần đọc thử giữa các đợt để chỉnh hướng.
+Mỗi lượt làm tối đa 3 chương, trừ khi người dùng yêu cầu khác, vì người dùng cần đọc thử giữa các đợt để chỉnh hướng.
 
-**1. Giữ bản thô, một lần cho mỗi chương**
+### Vì sao mỗi chương một subagent
+
+Mỗi lượt gọi model gửi lại toàn bộ ngữ cảnh. Làm nhiều chương trong cùng một ngữ cảnh khiến bản thô và bản viết của chương trước nằm lại, ngữ cảnh phình từ khoảng 70 nghìn lên hơn 300 nghìn token, và mọi lượt gọi sau đều phải trả cho phần đó. Vì vậy phiên chính chỉ điều phối, còn từng chương được viết trong một subagent riêng rồi bỏ đi.
+
+### Phiên chính: điều phối
+
+**1. Giữ bản thô**
 
 ```bash
-node .Codex/skills/rewrite-chapter/scripts/prep-chapter.mjs <slug> <từ> <đến>
+node .agents/skills/rewrite-chapter/scripts/prep-chapter.mjs <slug> <từ> <đến>
 ```
 
-Script chép bản dịch máy vào `raw/<slug>/`, lấy từ git nếu file đã bị sửa. Luôn viết lại từ bản thô: dựa vào bản đã biên tập trước đó sẽ giữ nguyên lỗi cũ, và nguồn của nhiều chương chưa có trong git nên đây là bản duy nhất.
+Script ghi bản dịch máy tiếng Việt gốc vào `raw/<slug>-vi/chuong-<n>.md`, lấy từ lần commit đầu tiên của file chương (bản cào gốc). Luôn viết lại từ bản này: dựa vào bản đã biên tập trước đó sẽ giữ nguyên lỗi cũ. **Không dùng `raw/<slug>/`**: thư mục đó chứa bản Trung đánh số theo bản Trung (chương Việt 643 ứng với chương Trung 581), không phải bản nguồn của skill này.
 
-**2. Học giọng văn**
+**2. Giao mỗi chương cho một subagent**
 
-Đọc khoảng 60-80 dòng đầu của các chương mẫu trong hồ sơ, chỉ cần một lần mỗi phiên. Chú ý cách câu nối nhau, cách dẫn lời thoại, cách gọi nhân vật. Trong cùng một bộ truyện có thể có nhiều dịch giả chất lượng khác nhau, nên chỉ lấy mẫu từ các chương hồ sơ đã chọn, không lấy trung bình cả dải.
+Mỗi chương một subagent, có thể chạy song song. Phiên chính không tự đọc bản thô hay chương mẫu.
 
-**3. Đọc bản thô và ngữ cảnh**
+- Claude Code: gọi Agent (`general-purpose`), gửi nhiều lệnh trong cùng một tin nhắn.
+- Codex: spawn subagent cho từng chương nếu có. Nếu không có, làm tuần tự theo mục "Subagent: viết một chương" và khuyên người dùng mở phiên mới sau mỗi đợt.
 
-Đọc toàn bộ `raw/<slug>/chuong-<n>.md`. Đọc thêm khoảng 30 dòng cuối của chương trước để nối mạch. Với nhân vật có xưng hô lẫn lộn, grep tên đó ở các chương khác trước khi kết luận giới tính.
+Prompt mẫu:
 
-**4. Viết lại**
+> Viết lại chương <n> của bộ `<slug>`. Đọc `.agents/skills/rewrite-chapter/SKILL.md` mục "Subagent: viết một chương" và `.agents/skills/rewrite-chapter/references/<slug>.md`, rồi làm đúng theo đó. Góp ý thêm của người dùng: <nếu có>. Trả về báo cáo dưới 10 dòng, không dán nội dung chương.
+
+**3. Hoàn tất**
+
+Nếu có chương đổi tiêu đề thì chạy `node scripts/build-index.mjs <slug>`, vì mục lục đọc từ `index.json`.
+
+Gộp báo cáo của các subagent: chương đã xong, số `[?]`, những suy luận đáng kiểm tra (giới tính, tên riêng), và phần chưa làm. Đừng dán nội dung chương vào chat, người dùng đọc trong app. Nhắc họ rằng app giữ bản cũ ở lần mở đầu (phải mở lại hoặc tải lại) và bản deploy chỉ đổi sau khi commit, vì lỗi "vẫn thấy sai" từng xuất phát từ việc đọc bản cũ.
+
+### Subagent: viết một chương
+
+Chỉ đọc một nguồn là bản thô tiếng Việt. Không đọc bản Trung, không đọc bản hiện tại trong `web/chapters/` (trừ đoạn cuối chương trước để nối mạch).
+
+**1. Học giọng văn.** Đọc khoảng 60 dòng đầu của các chương mẫu trong hồ sơ. Chú ý cách câu nối nhau, cách dẫn lời thoại, cách gọi nhân vật. Chỉ lấy mẫu từ các chương hồ sơ đã chọn, vì cùng một bộ có nhiều dịch giả chất lượng khác nhau.
+
+**2. Đọc bản thô và ngữ cảnh.** Đọc toàn bộ `raw/<slug>-vi/chuong-<n>.md` trong **một** lần đọc (Claude: Read với `limit: 2000`; Codex: `cat`), đừng chia khúc, vì mỗi khúc là thêm một lượt gọi. Đọc thêm khoảng 30 dòng cuối của `web/chapters/<slug>/chuong-<n-1>.md`. Với nhân vật có xưng hô lẫn lộn, grep tên đó ở các chương khác (in số lần đếm, đừng in cả đoạn) trước khi kết luận giới tính.
+
+**3. Viết lại**
 
 - Giữ đủ mọi ý và tình tiết, không thêm chi tiết mới. Được tách, gộp hoặc đảo câu để đọc thuận.
 - Khi một câu vô lý, hãy đoán cụm tiếng Trung gốc đã bị dịch sai rồi dựng lại nghĩa. Thành ngữ bị dịch từng chữ là lỗi phổ biến nhất ("sửa mái nhà dột" từ 捡漏 thực ra là "nhặt của hời").
@@ -43,21 +66,17 @@ Script chép bản dịch máy vào `raw/<slug>/`, lấy từ git nếu file đ�
 - Chỗ không chắc nghĩa thì đánh dấu `[?]` ngay sau cụm đó, đừng tự chế tình tiết. Thà có `[?]` còn hơn đọc trôi mà sai.
 - Giữ dòng tiêu đề `# Chương N: ...`, trừ khi tiêu đề rõ ràng sai.
 
-Trước khi ghi đè phải Read file đích (`limit: 1` là đủ), nếu không lệnh Write sẽ bị từ chối và phải gõ lại cả chương. Ghi trực tiếp vào `web/chapters/<slug>/chuong-<n>.md`.
+Viết cả chương trong một lần ghi duy nhất vào `web/chapters/<slug>/chuong-<n>.md`, đừng viết từng phần. Claude: dùng Write, trước đó Read file đích với `limit: 1`, nếu không Write bị từ chối và phải gõ lại cả chương. Codex: ghi đè bằng heredoc `cat > file <<'EOF'`, hoặc apply_patch xóa file rồi thêm lại.
 
-**5. Kiểm tra bằng script**
+**4. Kiểm tra bằng script**
 
 ```bash
-node .Codex/skills/rewrite-chapter/scripts/check-chapter.mjs <slug> <n>
+node .agents/skills/rewrite-chapter/scripts/check-chapter.mjs <slug> <n>
 ```
 
-Script so với bản thô và báo tỷ lệ độ dài, tên riêng có thể bị mất, từ xưng hô đáng ngờ và chữ bị che. Đây là cảnh báo để xem lại, không phải lỗi chắc chắn: tên đổi thứ tự (Kinh Trập phủ thành phủ Kinh Trập) sẽ bị báo nhầm. Tỷ lệ dưới 0,75 thường là đã làm mất ý, hãy đối chiếu lại.
+Script so với bản thô và báo tỷ lệ độ dài, tên riêng có thể bị mất, từ xưng hô đáng ngờ và chữ bị che. Đây là cảnh báo để xem lại, không phải lỗi chắc chắn: tên đổi thứ tự (Kinh Trập phủ thành phủ Kinh Trập) sẽ bị báo nhầm. Tỷ lệ dưới 0,75 thường là đã làm mất ý, hãy đối chiếu lại. Sửa bằng chỉnh sửa nhỏ tại chỗ (Edit hoặc apply_patch), không ghi lại cả chương.
 
-**6. Hoàn tất**
-
-Nếu đổi tiêu đề chương thì chạy `node scripts/build-index.mjs <slug>`, vì mục lục đọc từ `index.json`.
-
-Báo cáo ngắn: chương đã xong, số `[?]`, những suy luận đáng kiểm tra (giới tính, tên riêng), và phần chưa làm. Đừng dán nội dung chương vào chat, người dùng đọc trong app. Nhắc họ rằng app giữ bản cũ ở lần mở đầu (phải mở lại hoặc tải lại) và bản deploy chỉ đổi sau khi commit, vì lỗi "vẫn thấy sai" từng xuất phát từ việc đọc bản cũ.
+**5. Báo cáo** dưới 10 dòng: tiêu đề có đổi không, số `[?]`, suy luận đáng kiểm tra, cảnh báo của script còn lại.
 
 ## Khi người dùng sửa lỗi
 

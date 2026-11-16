@@ -1,295 +1,395 @@
 # Chương 645: Chỉ có người uống lưu lại kỳ danh
 
-Ở ngoài, vừa rảnh rỗi, Trần Bình An vẫn là tận lực mỗi ngày đều đi quán rượu bên kia nhìn xem, mỗi lần đều phải ở lại vài canh giờ, cũng không giúp đỡ bán rượu, chỉ là đi cùng một đám hài tử, thiếu niên thiếu nữ lăn lộn cùng một chỗ, tiếp tục làm tiên sinh kể chuyện của hắn, nhiều nhất chính là làm tiên sinh dạy chữ cùng phu tử đọc sách, không đề cập đến bất cứ học vấn nào truyền thụ.
+Ngoài ra, hễ rảnh rỗi là Trần Bình An vẫn cố mỗi ngày đến quán rượu bên kia xem một chuyến, mỗi lần đều ở lại vài canh giờ, không giúp bán rượu, chỉ ở cùng đám trẻ con, thiếu niên thiếu nữ lăn lộn một chỗ, tiếp tục làm thuyết thư tiên sinh của hắn. Nhiều nhất cũng chỉ là làm tiên sinh dạy chữ, làm phu tử đọc sách, không truyền thụ học vấn gì.
 
-Tuy nói Trần Bình An đã làm chưởng quỹ vung tay, nhưng Đại chưởng quỹ cũng không oán hận, bởi vì thủ đoạn sinh tài chân chính của cửa hàng đều là do Trần nhị chưởng quầy đề cương cản lĩnh, hiện giờ nên để hắn lười biếng, nói cho cùng thì cũng chỉ là bỏ ra chút vốn, bỏ chút sức lực mà thôi. Huống chi sau khi quán rượu thuận lợi khai trương thuận lợi, đại cát vẫn còn nhiều thủ đoạn, ví dụ như sau khi treo câu đối kia, lại có thêm một đôi hoành phi mới tinh.
+Tuy Trần Bình An làm chưởng quầy vung tay, nhưng đại chưởng quầy cũng không oán hận, bởi vì thủ đoạn sinh tài thật sự của quán đều do vị nhị chưởng quầy họ Trần nghĩ ra và đứng đầu chủ trì, bây giờ để hắn lười biếng một chút cũng được. Nói cho cùng nàng chỉ bỏ chút vốn, bỏ chút sức mà thôi. Huống chi quán rượu khai trương đại cát rồi, hắn vẫn còn nhiều chiêu, ví dụ sau đôi câu đối kia lại thêm một tấm hoành phi mới tinh:
 
-"Người uống rượu của ta có thể phá cảnh".
+“Người uống rượu của ta có thể phá cảnh.”
 
-Các chưởng quầy tửu lâu tửu quán trên đường cái cũng sắp sụp đổ, cướp đi không ít việc làm ăn không nói, mấu chốt là nhà mình rõ ràng đã thua khí thế, điều này làm nơi bán rượu của Kiếm Khí Trường Thành hầu như khắp nơi bắt đầu treo câu đối cùng treo ngang dọc.
+Các chưởng quầy tửu lâu tửu quán trên đường cái tức đến sắp sụp đổ. Bị cướp đi không ít việc làm ăn đã đành, mấu chốt là nhà mình rõ ràng đã thua về khí thế. Điều này khiến những nơi bán rượu ở Kiếm Khí Trường Thành hầu như khắp nơi đều bắt đầu treo câu đối và hoành phi.
 
-Chỉ là nhìn lại, rất nhiều tửu quỷ kiếm tu, cuối cùng luôn cảm thấy nơi này vẫn là có ý vị tốt nhất, hoặc là nói không biết xấu hổ nhất.
+Chỉ là nhìn lại, rất nhiều kiếm tu tửu quỷ rốt cuộc vẫn thấy chỗ này có ý vị nhất, hoặc nói là không biết xấu hổ nhất.
 
-Sau khi tất cả các quán rượu đều bắt đầu vẽ gáo nước, cửa hàng này lại bắt đầu có thủ đoạn mới.
+Sau khi tất cả quán rượu đều bắt chước theo y mẫu, quán này lại có thủ đoạn mới.
 
-Trong cửa hàng treo đầy những tấm bảng gỗ nhỏ bình an vô sự, đều là kiếm tu dùng kiếm khí khắc tên, toàn bộ mặc bảo để lại trên tường, nói là điềm lành.
+Trong quán treo đầy những tấm thẻ gỗ nhỏ “vô sự bài”, đều do kiếm tu dùng kiếm khí khắc tên, mặc bảo để lại trên tường, nói là điềm lành.
 
-Không dựa theo cảnh giới cao thấp, không phân chia cao thấp, ai viết trước thì treo mộc bài của ai, mặt trước viết tên khách nhân quán rượu, nếu là nguyện ý, mặt sau mộc bài còn có thể viết, thích viết cái gì thì viết cái đó, văn tự viết nhiều viết ít, quán rượu cũng mặc kệ.
+Không dựa vào cảnh giới cao thấp, không phân sang hèn, ai khắc trước thì treo thẻ của người ấy. Mặt trước viết tên khách uống rượu; nếu nguyện ý, mặt sau thẻ còn có thể viết thêm, thích viết gì thì viết, chữ nhiều chữ ít quán rượu cũng mặc kệ.
 
-Hôm nay khách uống rượu đã treo trên tường quán rượu vô sự, chỉ là kiếm tiên thượng ngũ cảnh đã có bốn vị, có Bảo Bình châu Phong Tuyết miếu Ngụy Tấn, kiếm khí trường thành bản thổ kiếm tiên cao khôi, Nam Bà Sa châu kiếm tiên Nguyên Thanh Thục, còn có một lần ở đêm khuya một mình đến uống rượu kiếm tu Đào Văn của bắc Câu Lô châu Ngọc Phác cảnh. Đều viết chữ ở mặt sau của Vô Sự bài, không phải chính bọn họ muốn viết, vốn bốn vị kiếm tiên đều chỉ là viết tên, sau lại là Trần Bình An tìm cơ hội bắt được bọn họ, nếu bọn họ không muốn bổ sung, không viết luôn luôn có biện pháp để cho bọn họ viết, xem mà nghiêng nghiêng nghiêng nghiêng nghiêng nghiêng thành mở rộng tầm mắt, thì ra sinh ý có thể làm như thế.
+Hôm nay trên tường quán đã treo vô sự bài của khách uống rượu, riêng kiếm tiên thượng ngũ cảnh đã có bốn vị: Ngụy Tấn của Phong Tuyết miếu ở Bảo Bình châu; kiếm tiên bản địa Kiếm Khí Trường Thành là Cao Khôi; kiếm tiên Nguyên Thanh Thục của Nam Bà Sa châu; còn có kiếm tu Đào Văn, Ngọc Phác cảnh của Bắc Câu Lô châu, từng có một lần đêm khuya một mình đến uống rượu. Họ đều có chữ ở mặt sau thẻ, nhưng không phải tự mình muốn viết. Ban đầu cả bốn vị kiếm tiên chỉ viết tên, về sau Trần Bình An tìm cơ hội giữ họ lại, họ không muốn viết thêm thì hắn cũng luôn có cách khiến họ viết. Cả tòa thành xem mà mở rộng tầm mắt, thì ra làm ăn có thể làm như thế.
 
-Vì thế Ngụy Tấn khắc xuống "Bị tình vây khốn, kiếm không xuất".
+Vì vậy Ngụy Tấn khắc xuống: “Bị tình vây khốn, kiếm không xuất.”
 
-Độc nhãn đại triện, nhìn hán tử cao khôi rất thô kệch, viết "Hoa nguyệt viên nhân trường thọ".
+Cao Khôi mù một mắt, viết chữ đại triện, nhìn gã đàn ông thô kệch như vậy mà lại viết: “Hoa đẹp trăng tròn người trường thọ.”
 
-Nguyên Thanh Thục phong lưu tiêu sái viết "Nơi này thiên hạ nên biết Nguyên Thanh Thục ta là kiếm tiên".
+Nguyên Thanh Thục phong lưu tiêu sái, viết: “Thiên hạ nên biết ở nơi này, Nguyên Thanh Thục ta là kiếm tiên.”
 
-Kiếm tiên Đào Văn là giỏi nhất, nghe nói có thể uống chùa một vò Trúc Hải Động Thiên tửu, không nói hai lời, liền viết câu "Nơi đây rượu giá rẻ đồ đẹp, thật tốt, nếu có thể nợ tiền càng tốt."
+Kiếm tiên Đào Văn là tinh ranh nhất. Nghe nói có thể uống chùa một vò Trúc Hải Động Thiên Tửu, hắn không nói hai lời, viết ngay: “Nơi này rượu rẻ đồ ngon, thật tốt, nếu cho ghi nợ nữa thì càng tốt.”
 
-Trong số những thiên tài kiếm tu thế hệ trẻ tuổi nhất, có hơn mười người gồm Bàng Nguyên Tề, Yến Trác, Trần Tam Thu, Đổng Họa Phù, đương nhiên còn có tiểu cô nương Quách Trúc Tửu kia, ngoài đại danh Quách Trúc Tửu và tiểu danh "Lục Đoan", ở sau lưng vụng trộm viết "Sư phụ bán rượu, đồ đệ mua rượu, tình nghĩa thầy trò, cảm động lòng người, thiên trường địa cửu".
+Trong lớp kiếm tu thiên tài trẻ tuổi nhất, có hơn mười người gồm Bàng Nguyên Tế, Yến Trác, Trần Tam Thu, Đổng Họa Phù. Đương nhiên còn có tiểu cô nương Quách Trúc Tửu kia, ngoài đại danh Quách Trúc Tửu và tiểu danh “Lục Đoan” [?], ở mặt sau nàng còn vụng trộm viết: “Sư phụ bán rượu, đồ đệ mua rượu, tình nghĩa thầy trò, cảm động lòng người, thiên trường địa cửu.”
 
-Còn có không ít Địa Tiên kiếm tu tạm thời không thể bỏ qua thể diện, nhưng phần lớn chỉ lưu danh chứ không viết cái khác. Huống chi Trần Bình An cũng không quan tâm đến việc làm ăn buôn bán, bản thân đi núi non trùng điệp thật sự không biết mở miệng như thế nào, về sau Trần Bình An cảm thấy như vậy không được, liền đưa cho mấy tờ giấy điệp, nói là thấy kiếm tu Nguyên Anh thuận mắt, nhất là những thứ này thật ra nguyện ý lưu lại mặc bảo, chỉ là không biết nên viết những gì, có thể đưa qua một tờ trong đó.
+Còn có không ít kiếm tu Địa tiên tạm thời chưa bỏ được thể diện, phần lớn chỉ lưu tên chứ không viết gì khác. Huống chi Trần Bình An vốn cũng không bận tâm chuyện buôn bán, còn Điệp Chướng thật sự không biết mở miệng thế nào. Về sau Trần Bình An thấy như vậy không ổn, bèn đưa mấy tờ giấy cho nàng, bảo rằng gặp kiếm tu Nguyên Anh nào thuận mắt, nhất là những người thật ra nguyện ý để lại mặc bảo mà không biết nên viết gì, thì đưa cho họ một tờ trong số đó.
 
-Vì vậy một vị lão kiếm tu Nguyên Anh tính cách thô lệ, không hiểu văn mực, sau khi nhìn thấy một tờ giấy trong đó, vốn còn đang cùng chưởng quầy sửa núi, bày ra tư thế, chưa từng nghĩ lập tức thay đổi sắc mặt, vụng trộm thu hồi tờ giấy kia, để cho chồng chướng cấp tốc lấy ra mộc bài vô sự, lấy tư thái nghiêm túc đối địch đại yêu, rập khuôn tờ giấy viết xuống câu thơ kia, lúc đi, còn mua thêm một bình rượu Thanh Thần Sơn đắt nhất, cố ý đè ép kiếm khí, vừa nhẹ nhàng chè chén, vừa lảo đảo mà đi, hát vang mà đi, lật qua lật lại, chính là bài thơ "Mới suy nghĩ tuôn ra, tự tay viết".
+Vì vậy có một vị lão kiếm tu Nguyên Anh, tính tình thô lệ, không hiểu văn mực. Sau khi nhìn thấy một tờ giấy trong đó, ban đầu ông ta còn ra vẻ ta đây với Điệp Chướng, ai ngờ lập tức đổi sắc mặt, lén cất tờ giấy đi, bảo Điệp Chướng mau lấy thẻ vô sự ra, rồi với dáng vẻ nghiêm túc như đối địch đại yêu, chép theo tờ giấy mà viết xuống câu thơ ấy. Lúc đi, ông ta còn mua thêm một bình rượu Thanh Thần Sơn đắt nhất, cố đè kiếm khí, vừa khẽ nhấp từng ngụm vừa lảo đảo bước đi, hát vang mà đi, lật qua lật lại chỉ ngâm đúng bài thơ vừa “nghĩ ra là tự tay đề” ấy:
 
-"Năm xưa phong lưu không đủ, bách chiến vãng vãng xuân thu. Uống say gối kiếm, Tằng Mộng Thanh thần lai rót rượu."
+“Năm xưa phong lưu chưa đủ, trăm trận qua bao xuân thu. Say rượu gối kiếm ngủ, từng mơ sớm mai có người rót rượu.” [?]
 
-Một đêm qua đi, trong con bạc của tửu quỷ Kiếm Khí Trường Thành, vị kiếm tu Nguyên Anh không hiểu sao lại biết làm thơ này, danh tiếng vang xa.
+Một đêm trôi qua, trong giới tửu quỷ của Kiếm Khí Trường Thành, vị kiếm tu Nguyên Anh không hiểu sao lại biết làm thơ ấy danh tiếng vang xa.
 
-Nhưng nghe nói cuối cùng trúng một phi kiếm Kiếm Tiên không biết từ đâu tới, nằm trên giường bệnh mấy ngày.
+Nhưng nghe nói cuối cùng ông ta ăn một phi kiếm của một vị kiếm tiên không biết từ đâu tới, nằm trên giường bệnh mấy ngày.
 
-Còn có một kiếm tu Nguyên Anh Bắc Câu Lô Châu coi như trẻ tuổi, cũng tự xưng dưới ánh trăng uống rượu, ngẫu nhiên có thu hoạch, ở trên Vô Sự bài viết xuống một câu "Một nửa kiếm tiên nhân gian là bạn của ta, thiên hạ nương tử nào không thẹn thùng, ta lấy rượu nguyên chất rửa kiếm của ta, ai không nói ta phong lưu".
+Còn có một kiếm tu Nguyên Anh Bắc Câu Lô Châu coi như còn trẻ, cũng tự xưng dưới ánh trăng uống rượu, ngẫu nhiên có thu hoạch, viết trên vô sự bài một câu: “Một nửa kiếm tiên nhân gian là bạn của ta, nương tử thiên hạ ai chẳng e thẹn, ta lấy rượu nguyên chất rửa kiếm của ta, ai dám nói ta không phong lưu.”
 
-Trúc Hải Động Thiên của quán rượu rượu chia làm ba loại rượu, một đồng Tuyết Hoa tiền một vò, tư vị nhạt nhất.
+Rượu Trúc Hải Động Thiên của quán chia làm ba loại. Loại một đồng tiền tuyết hoa một vò có vị nhạt nhất.
 
-Tốt hơn một chút, một bầu rượu năm đồng Tuyết Hoa tiền, nhưng quán rượu tuyên bố với bên ngoài, trong mỗi một trăm bầu rượu cửa hàng, sẽ có một lá trúc giá trị liên thành cất giấu, Kiếm Tiên Ngụy Tấn cùng tiểu cô nương Quách Trúc Tửu, đều có thể chứng minh lời này không giả.
+Tốt hơn một chút là loại năm đồng tiền tuyết hoa một bầu, nhưng quán tuyên bố ra ngoài rằng trong mỗi một trăm bầu rượu sẽ có một chiếc lá trúc giá trị liên thành được cất giấu. Kiếm tiên Ngụy Tấn và tiểu cô nương Quách Trúc Tửu đều có thể chứng minh lời này không giả.
 
-Rượu Thanh Thần sơn hạng đầu, tiêu phí mười đồng tiền Tuyết Hoa còn chưa chắc có thể uống được, bởi vì quán rượu mỗi ngày chỉ bán một bình, sau khi bán, ai cũng không uống được, khách quan chỉ có thể ngày mai lại đến.
+Còn rượu Thanh Thần Sơn hạng đầu thì tiêu mười đồng tiền tuyết hoa cũng chưa chắc uống được, bởi vì quán mỗi ngày chỉ bán một bình, bán xong thì ai cũng không uống được nữa, khách chỉ có thể ngày mai lại đến.
 
-Trong lúc nhất thời quán rượu kín người hết chỗ, chẳng qua sau khi náo nhiệt qua đi, không còn đông đảo kiếm tu cùng nhau ngồi chồm hổm trên mặt đất uống rượu, tranh nhau mua rượu, nhưng sáu cái bàn vẫn đủ người ngồi.
+Nhất thời quán rượu kín người hết chỗ. Có điều sau cơn náo nhiệt, không còn đông đảo kiếm tu cùng ngồi xổm dưới đất uống rượu, tranh nhau mua rượu nữa, nhưng sáu cái bàn vẫn đủ người ngồi.
 
-Tuy núi non trùng điệp đã rất hài lòng với thu nhập của cửa hàng, nhưng khó tránh khỏi có chút mất mát nho nhỏ, quả nhiên như Trần Bình An sở liệu, sau khi cửa hàng danh khí lớn, mua rượu liền trở thành việc cực kỳ khó khăn, rất nhiều tửu lâu tửu quán thà rằng vi phạm hợp đồng bồi thường cho núi non, cũng không muốn bán ra rượu sữa nguyên chất, rõ ràng là muốn cửa hàng bị cắt đứt ngọn nguồn, một khi mấy lần khách uống rượu mua rượu không có rượu bán, việc làm ăn sẽ phải một đường xuống dốc, tiếng động lớn rầm rĩ như hoa phù thoáng hiện, làm ăn khó có thể kéo dài.
+Tuy Điệp Chướng đã rất hài lòng với thu nhập của quán, nhưng khó tránh khỏi có chút mất mát nho nhỏ. Quả đúng như Trần Bình An dự liệu, sau khi quán nổi danh, mua rượu trở thành việc cực kỳ khó khăn. Rất nhiều tửu lâu tửu quán thà vi phạm hợp đồng, bồi thường cho Điệp Chướng, cũng không muốn bán ra rượu nguyên, rõ ràng là muốn cắt đứt nguồn hàng của quán. Một khi mấy lần khách đến uống mà không có rượu bán thì việc làm ăn sẽ một đường xuống dốc, tiếng tăm ồn ào rầm rĩ cũng như hoa phù dung nở rồi tàn, làm ăn khó mà kéo dài.
 
-Núi non trùng điệp đều nhìn thấy nỗi lo gần xa, nhị trưởng quầy vung tay kia đương nhiên chỉ có thể càng thêm rõ ràng, nhưng Trần Bình An lại không nói gì, đến quán rượu bên này, hoặc là tán gẫu vài câu với khách quen, uống rượu, hoặc là ở chỗ góc đường bên kia làm tiên sinh kể chuyện, cùng bọn nhỏ lăn lộn cùng một chỗ, Trần Bình An không muốn gây phiền toái cho núi non, cũng chỉ có thể tự mình suy nghĩ phương pháp phá cục.
+Điệp Chướng đã nhìn ra nỗi lo gần xa, vị nhị chưởng quầy vung tay kia đương nhiên chỉ có thể rõ hơn. Nhưng Trần Bình An chẳng nói gì. Đến quán bên này, hắn hoặc tán gẫu vài câu với khách quen, uống rượu, hoặc ở góc đường bên kia làm thuyết thư tiên sinh, lăn lộn cùng bọn trẻ. Trần Bình An không muốn gây phiền toái cho Điệp Chướng, nên cũng chỉ có thể tự mình nghĩ cách phá cục.
 
-Đêm nay, Trần Bình An cùng Trữ Diêu đến cửa hàng sắp đóng cửa, đã không còn khách nhân uống rượu.
+Đêm nay, Trần Bình An cùng Ninh Diêu đến khi quán sắp đóng cửa, đã không còn khách uống rượu.
 
-Chướng trùng trục lấy sổ sách tới, Trần Bình An ngồi ở một bên, lấy ra một đồng Tuyết Hoa tiền, muốn một bình rượu rẻ nhất, chưởng quầy uống rượu, cũng phải bỏ tiền, đây là quy củ.
+Điệp Chướng mang sổ sách tới. Trần Bình An ngồi một bên, lấy ra một đồng tiền tuyết hoa, gọi một bình rượu rẻ nhất. Chưởng quầy uống rượu cũng phải bỏ tiền, đây là quy củ.
 
-Trần Bình An vừa uống rượu, một quyển cẩn thận đối chiếu.
+Trần Bình An vừa uống rượu vừa cẩn thận đối chiếu từng quyển sổ.
 
-Mấy người Yến Trác cũng sớm hẹn sẵn, hôm nay cùng nhau uống rượu, bởi vì Trần Bình An hiếm khi nguyện ý mời khách.
+Đám Yến Trác cũng đã hẹn từ trước, hôm nay cùng nhau uống rượu, bởi vì Trần Bình An hiếm khi chịu mời khách.
 
-Trần Bình An cùng Trữ Diêu ngồi trên một chiếc ghế dài.
+Trần Bình An và Ninh Diêu ngồi chung một chiếc ghế dài.
 
-Yến Trác một mình độc bá một tấm, Đổng Họa Phù ngồi cùng Trần Tam Thu.
+Yến Trác một mình chiếm một chiếc, Đổng Họa Phù ngồi cùng Trần Tam Thu.
 
-Yến Trác nhìn Trần Bình An ngồi ở bên kia cẩn thận lật xem sổ sách, lại nhìn núi non trùng điệp ngồi bên cạnh, nhịn không được hỏi: "Điệp Chướng, sẽ không cảm thấy Trần Bình An không tin được ngươi?"
+Yến Trác nhìn Trần Bình An ngồi bên kia cẩn thận lật xem sổ sách, lại nhìn Điệp Chướng ngồi bên cạnh, không nhịn được hỏi:
 
-Trần Bình An hiểu ý cười, cũng không ngẩng đầu nói, chỉ là giơ bát rượu lên, nhấp một ngụm rượu, coi như là thừa nhận mình không phải người chính đạo, cho nên nguyện ý tự phạt một ngụm.
+“Điệp Chướng, ngươi không thấy Trần Bình An không tin ngươi sao?”
 
-Vùng núi trùng điệp tức giận nói: "Mấy chuyện linh tinh gì thế, buôn bán gì mà chẳng phải phải quy củ như vậy sao, vốn dĩ là bằng hữu mới giao dịch, chẳng lẽ phải tính toán sổ sách rõ ràng, không phải là bằng hữu sao? Ai mà không có sơ suất, đến lúc đó tính là ai sai? Có sai cũng không sao, là tốt rồi? Cứ như vậy ngươi không sai ta là người mơ mơ hồ hồ, làm ăn thất bại, khó mà vượt qua được tiền bạc."
+Trần Bình An hiểu ý cười, cũng không ngẩng đầu nói gì, chỉ giơ bát rượu lên nhấp một ngụm, coi như thừa nhận mình không phải kẻ đàng hoàng, cho nên nguyện ý tự phạt một ngụm. [?]
 
-Yến Trác ấm ức nói: "Điệp Chướng, đệ cũng quá thiên vị rồi, dựa vào cái gì mà kết giao bằng hữu với Trần Bình An, chuyện ta bị đánh năm đó, không phải đánh không?"
+Điệp Chướng tức giận nói:
 
-Núi non cười nói: "Ta không phải đã nói xin lỗi ngươi rồi sao?"
+“Mấy chuyện linh tinh gì thế. Buôn bán thì chẳng phải đều phải có quy củ như vậy sao? Vốn là bằng hữu mới giao dịch, chẳng lẽ tính sổ rõ ràng thì không còn là bằng hữu nữa à? Ai mà không có sơ suất, đến lúc đó tính là ai sai? Có sai cũng không sao, thế là tốt rồi sao? Nếu cứ mơ hồ như thế, buôn bán sẽ thất bại, tình bằng hữu cũng khó vượt qua được cửa tiền bạc.” [?]
 
-Yến Trác có chút u oán, "Năm đó nghe ngươi nói có lỗi, còn rất cao hứng đấy, lúc này luôn cảm thấy ngươi thành ý không đủ."
+Yến Trác ấm ức nói:
 
-Trần Bình An lật qua một tờ sổ sách, trêu ghẹo nói: "Bằng hữu mới có bằng hữu, luôn lo lắng như vậy."
+“Điệp Chướng, ngươi thiên vị quá đấy. Dựa vào đâu mà kết giao bằng hữu với Trần Bình An, còn chuyện ta bị đánh năm đó chẳng lẽ là bị đánh không?”
 
-Yến Trác khoát tay, "Căn bản không phải là như vậy."
+Điệp Chướng cười nói:
 
-Trần Bình An đưa bát rượu qua, cụng một cái với Yến Trác, cười nói: "Ta không phải thấy Yến gia đại thiếu gia ngươi cao lớn vạm vỡ, khắp nơi đều chứa tiền, kết quả nhiều lần keo kiệt bủn xỉn mua rượu rẻ nhất, hào khí cũng không bằng một tiểu cô nương lục đoan, chỉ thuận miệng nhắc tới ngươi."
+“Ta chẳng phải đã xin lỗi ngươi rồi sao?”
 
-Hình như núi non trùng điệp hơi do dự, cuối cùng hắn cố lấy dũng khí nói: "Yến Trác, Tam Thu, có thể thương lượng với các ngươi một chút được không?"
+Yến Trác hơi u oán:
 
-Yến Trác có chút nghi hoặc, Trần Tam Thu tựa hồ đã đoán được, cười gật đầu: "Có thể thương lượng."
+“Năm đó nghe ngươi nói có lỗi, ta còn rất vui. Giờ lại cứ thấy ngươi thành ý không đủ.”
 
-Yến Trác ánh mắt sáng lên, "Kéo hai chúng ta nhập bọn? Ta nói mà, những vạc rượu trong nhà ngươi, ta liếc qua, lại cân nhắc ngày này khách nhân lui tới, liền hiểu được lúc này bán không còn lại mấy vò, hôm nay tửu lâu lớn nhỏ ai nấy đỏ mắt, cho nên nguồn rượu nguyên thành vấn đề khó khăn lớn, đúng không? Loại chuyện này dễ nói, đơn giản nha, cũng không cần tìm ba thu, mười ngón tay của hắn không dính nước mùa xuân, chủ nhân nằm hưởng phúc, hoàn toàn không hiểu những thứ này, ta không giống vậy, trong nhà làm ăn nhiều ta đều có giúp đỡ, giúp ngươi kéo chút rượu nguyên tương thành phẩm thấp có gì khó, yên tâm, cứ theo ngươi nói, hai ta đi theo quy củ, ta cũng không lỗ quá nhiều, tranh thủ kiếm một khoản nhỏ, giúp ngươi kiếm thêm chút."
+Trần Bình An lật qua một trang sổ, trêu:
 
-Vẻ mặt núi non vô cùng phức tạp.
+“Có bằng hữu mới thì cứ lo lắng như thế đấy.”
 
-Trần Bình An có chút bất đắc dĩ, khép sổ sách lại, cười nói: "Chưởng quầy núi chập mạch kiếm tiền, có hai loại vui vẻ, một loại là mỗi ngày đóng cửa từng cửa hàng, tính toán tính toán thu hoạch, một loại là thích cái loại cảm giác kiếm tiền không dễ lại có thể kiếm tiền này nọ, Yến bàn tử, ngươi nói thử xem, có phải là lý này không? Ngươi vác theo một bao bạc chuyển tới cửa hàng, đoán chừng Điệp Chướng cũng không muốn tính toán, Yến bàn tử ngươi trực tiếp báo mấy cái là xong việc."
+Yến Trác khoát tay:
 
-Yến Trác bừng tỉnh đại ngộ: "Nói sớm nhé, núi non trùng điệp sớm gọn gàng dứt khoát như vậy, chẳng phải ta hiểu rõ sao?"
+“Hoàn toàn không phải như vậy.”
 
-Điệp Chướng cả giận nói: "Trách ta?"
+Trần Bình An đưa bát rượu qua, cụng một cái với Yến Trác, cười nói:
 
-Yến Trác uống rượu, cầu xin tha thứ nói: "Trách ta trách ta."
+“Ta thấy Yến gia đại thiếu gia ngươi cao lớn vạm vỡ, khắp người đều chứa tiền, vậy mà mấy lần keo kiệt bủn xỉn chỉ mua rượu rẻ nhất, hào khí còn không bằng một tiểu cô nương Lục Đoan [?], nên mới thuận miệng nhắc đến ngươi.”
 
-Trần Bình An bắt đầu nói sang chuyện khác, nói một chút nguyên do ổn thỏa và chú ý cho việc liên quan đến núi.
+Hình như Điệp Chướng hơi do dự, cuối cùng cố lấy dũng khí nói:
 
-Kỳ thật Yến Trác không phải là không hiểu đạo lý này, hẳn là đã sớm suy nghĩ rõ ràng, chỉ là có chút ngăn cách giữa hảo bằng hữu, nhìn như lớn có thể nhỏ, có thể không có cũng được, một ít lời nói vô tâm tổn thương người khác, không quá nguyện ý giải thích, sẽ cảm thấy quá mức cố ý, cũng có thể là cảm thấy mất mặt, một khi kéo, vận khí tốt, không quan trọng, kéo dài cả đời mà thôi, việc nhỏ cuối cùng là việc nhỏ, có làm được càng tốt hơn đền bù đại sự, liền không coi vào đâu, vận khí không tốt, bằng hữu không còn là bằng hữu, nói hay không nói, cũng lại càng thêm không sao cả.
+“Yến Trác, Tam Thu, có thể bàn với các ngươi một chuyện được không?”
 
-Mỗi người, toàn bộ bạn cùng lứa tuổi đang ngồi, tính cả Trữ Diêu ở bên trong, đều có tâm quan của mình, không chỉ riêng là người bạn duy nhất xuất thân từ ngõ hẹp trùng điệp trong tất cả các bằng hữu lúc trước.
+Yến Trác có chút nghi hoặc, Trần Tam Thu thì dường như đã đoán ra, cười gật đầu:
 
-Trần Bình An chẳng qua là mượn cơ hội, ngôn ngữ uyển chuyển, lấy thân phận người khác, giúp đỡ hai người khám phá cũng nói toạc ra. Sớm, không được, trong ngoài không phải người. Nếu là muộn một chút, ví dụ như hai người Yến Trác và Cân Cương, mỗi người đều cảm thấy mình là bằng hữu tốt nhất với Trần Bình An, thì lại trở nên không thỏa đáng. Những suy nghĩ này, không thể nói, nói thì rượu ít đi một chữ, chỉ còn lại có nước nhạt nhẽo, cho nên chỉ có thể để Trần Bình An tự mình suy nghĩ, thậm chí sẽ làm cho Trần Bình An cảm thấy quá mức tính kế nhân tâm, trước kia Trần Bình An sẽ chột dạ, tràn ngập tự phủ định, hôm nay lại không.
+“Có thể bàn.”
 
-Mỗi một phần thiện ý, đều cần lấy thiện ý lớn hơn nữa đi che chở. Người tốt có phúc báo những lời này, Trần Bình An là tin, hơn nữa là loại thành tâm thành ý tin tưởng, nhưng mà không thể chỉ hy vọng xa vời lão thiên gia hồi báo, cuộc đời trên đời, khắp nơi giao tiếp với người ta, thật ra mỗi người đều là ông trời, không cần một mặt hướng ra ngoài cầu, chỉ biết hướng chỗ cao cầu.
+Mắt Yến Trác sáng lên:
 
-Ta suy nghĩ nặng nề đối đãi chuyện nhân gian như thế nào, hình như không đủ lấy thành đối đãi người, nhưng nếu là theo khuôn phép cũ, cuối cùng làm những việc đó, không hại người khác, thậm chí lớn hoặc nhỏ, quả thật ích lợi thế đạo, vậy thì không nên vì vậy mà bó tay bó chân, sau khi làm xong, lại đến để tay lên ngực tự hỏi, chậm rãi ở trên hai chữ lương tri, chính là tu tâm. Đây là cái gọi là tiên sinh Văn Thánh nhà mình không ngại ngẫm nghĩ nhiều một chút, cho dù sau đó phát hiện chẳng qua là vòng đi vòng lại, đi một vòng quanh nơi cũ, cũng là công phu hạng nhất, ta không đòi hỏi chút nào với thiên địa, giữa thiên địa lại có thể không công có thêm một người cầu thiện, vừa có thể tự toàn, cũng có thể ích cho người, chẳng phải tốt đẹp? Chẳng lẽ không phải thiện tai?
+“Kéo hai đứa ta nhập bọn à? Ta đã bảo mà. Mấy vại rượu trong nhà ngươi ta liếc qua, lại tính khách ra vào mấy ngày nay, liền biết lúc này bán chẳng còn lại mấy vò. Hôm nay các tửu lâu lớn nhỏ ai nấy đỏ mắt, nên nguồn rượu nguyên thành vấn đề lớn, đúng không? Chuyện này dễ nói, đơn giản thôi, cũng không cần tìm Tam Thu đâu, mười ngón tay hắn không dính nước mùa xuân, chủ nhân nằm hưởng phúc, hoàn toàn không hiểu mấy thứ này. Ta thì khác, trong nhà việc làm ăn nhiều, ta đều có phụ giúp. Giúp ngươi kéo ít rượu nguyên loại rẻ về thì có gì khó. Yên tâm, cứ theo như ngươi nói, hai ta theo đúng quy củ, ta cũng không lỗ nhiều, còn tranh thủ kiếm một khoản nhỏ, giúp ngươi kiếm thêm chút.”
 
-Thiên địa một, vạn cổ bất biến, chỉ có nhân tâm mới có thể tăng giảm.
+Vẻ mặt Điệp Chướng vô cùng phức tạp.
 
-Tam giáo học vấn, Chư Tử bách gia, xét đến cùng, đều là ở việc này trên dưới công phu.
+Trần Bình An có chút bất đắc dĩ, khép sổ sách lại, cười nói:
 
-Sau khi nói chuyện xong, cũng chỉ là bạn bè cùng nhau uống rượu.
+“Điệp Chướng chưởng quầy kiếm tiền có hai niềm vui: một là mỗi ngày đóng cửa quán, tính toán thu hoạch; hai là thích cảm giác kiếm tiền không dễ mà vẫn kiếm được. Yến bàn tử, ngươi nói xem có phải lý này không? Ngươi vác một bao bạc dọn đến quán, đoán chừng Điệp Chướng cũng chẳng muốn tính toán, Yến bàn tử ngươi cứ báo vài con số là xong việc.” [?]
 
-Trần Tam Thu nói tin tức ngầm, gần đây còn sẽ có một vị kiếm tiên Bắc Câu Lô Châu, sắp đi Kiếm Khí Trường Thành, giống như lúc này đã đến Đảo Huyền sơn, chẳng qua bên này cũng có kiếm tiên muốn về quê.
+Yến Trác bừng tỉnh đại ngộ:
 
-Bắc Câu Lô Châu kiếm tu, thường thường như thế, bình thường đều là sau một hồi đại chiến, liền trở về.
+“Nói sớm đi chứ. Điệp Chướng sớm gọn gàng dứt khoát như vậy, chẳng phải ta hiểu rõ rồi sao?”
 
-Chỉ là trong vòng mười năm liên tiếp hai trận đại chiến, làm cho người ta trở tay không kịp, tuyệt đại đa số kiếm tu Bắc Câu Lô Châu đều chủ động dừng lại ở đây, đánh một trận lại nói sau.
+Điệp Chướng cả giận nói:
 
-Nhưng vẫn sẽ có một số kiếm tiên cùng kiếm tu Địa tiên, không thể không rời khỏi Kiếm Khí Trường Thành, dù sao còn có tông môn cần băn khoăn, đối với điều này Kiếm Khí Trường Thành chưa từng có lời nói nhảm nào, chẳng những sẽ không có lời oán hận, mỗi khi một vị kiếm tiên nơi khác chuẩn bị rời đi, đều sẽ có một quy củ bất thành văn, mấy vị kiếm tiên bản thổ quen biết với nó, đều phải mời người này uống một bữa rượu, tiễn đưa cho nó, xem như đáp lễ của Kiếm Khí Trường Thành.
+“Trách ta à?”
 
-Trần Bình An cùng Trữ Diêu hầu như đồng thời quay đầu nhìn phía đường cái.
+Yến Trác uống rượu, xin tha:
+
+“Trách ta trách ta.”
+
+Trần Bình An bắt đầu nói sang chuyện khác, bàn đôi điều ổn thỏa và cần chú ý cho việc có liên quan đến Điệp Chướng.
+
+Thật ra Yến Trác không phải không hiểu đạo lý này, hẳn đã sớm nghĩ rõ ràng. Chỉ là giữa bằng hữu tốt có chút ngăn cách, nhìn như lớn mà có thể nhỏ, có hay không cũng được. Một số lời vô tâm làm tổn thương người khác, mình không nguyện giải thích vì sẽ thấy quá cố ý, cũng có thể là thấy mất mặt. Một khi kéo dài, vận khí tốt thì không sao, cùng lắm kéo dài cả đời; việc nhỏ rốt cuộc là việc nhỏ, về sau làm được việc lớn bù đắp thì chẳng coi vào đâu. Nếu vận khí không tốt, bằng hữu không còn là bằng hữu, thì nói hay không nói cũng không còn quan trọng nữa.
+
+Mỗi người ngồi đây, toàn bộ những người bạn cùng lứa, kể cả Ninh Diêu, đều có cửa ải trong lòng mình, không chỉ riêng Điệp Chướng, người bạn duy nhất xuất thân từ ngõ hẹp trong số các bằng hữu trước kia của hắn.
+
+Trần Bình An chẳng qua là mượn cơ hội, nói lời uyển chuyển, đứng ở thân phận người ngoài, giúp hai người nhìn thấu và nói toạc ra. Quá sớm thì không được, trong ngoài đều không phải người. [?] Nếu muộn hơn một chút, ví dụ hai người Yến Trác và Điệp Chướng đều thấy mình là bằng hữu tốt nhất với Trần Bình An, thì lại trở nên không thỏa đáng. Những suy nghĩ này không thể nói ra; nói ra thì rượu bớt đi một chữ, chỉ còn lại nước nhạt. Cho nên chỉ có thể để Trần Bình An tự nghĩ, thậm chí khiến Trần Bình An thấy mình tính kế lòng người quá mức. Trước kia hắn sẽ chột dạ, tràn ngập tự phủ định, hôm nay thì không.
+
+Mỗi một phần thiện ý đều cần lấy thiện ý lớn hơn nữa để che chở. Câu “người tốt có phúc báo”, Trần Bình An tin, hơn nữa là thật lòng thật dạ tin. Nhưng không thể chỉ hy vọng xa vời vào việc ông trời hồi báo. Cuộc đời ở thế gian, khắp nơi giao tiếp với người ta, thật ra mỗi người đều là ông trời. Không cần chỉ một mực hướng ra ngoài mà cầu, chỉ biết nhìn lên chỗ cao mà cầu.
+
+Ta nghĩ nặng nề về việc đối đãi chuyện đời thế nào, hình như chưa đủ thành ý với người. Nhưng nếu theo khuôn phép cũ mà làm những việc ấy rốt cuộc không hại người khác, thậm chí lớn hay nhỏ đều thật sự ích lợi cho thế đạo, thì không nên vì vậy mà bó tay bó chân. Làm xong rồi, lại đặt tay lên ngực tự hỏi, chậm rãi hạ công phu ở hai chữ lương tri, đó chính là tu tâm. Đó chính là điều tiên sinh Văn Thánh nhà ta bảo không ngại nghĩ nhiều một chút. [?] Dù sau đó phát hiện chỉ là vòng đi vòng lại, đi một vòng quanh chốn cũ, thì cũng là công phu hạng nhất. Ta không đòi hỏi gì ở thiên địa, giữa thiên địa lại không công có thêm một người cầu thiện, vừa giữ được mình trọn vẹn, vừa có thể ích cho người, chẳng phải tốt đẹp sao? Chẳng phải thiện tai sao?
+
+Thiên địa chỉ có một, vạn cổ không đổi, chỉ có nhân tâm mới có thể tăng giảm.
+
+Học vấn tam giáo, Chư Tử bách gia, xét cho cùng đều là hạ công phu trên việc này.
+
+Nói chuyện xong, cũng chỉ là bạn bè cùng nhau uống rượu.
+
+Trần Tam Thu nói một tin ngầm: gần đây còn có một vị kiếm tiên Bắc Câu Lô Châu sắp đến Kiếm Khí Trường Thành, hình như lúc này đã tới Đảo Huyền sơn. Có điều bên này cũng có kiếm tiên muốn về quê.
+
+Kiếm tu Bắc Câu Lô Châu thường như vậy, bình thường sau một trận đại chiến là trở về.
+
+Chỉ là trong vòng mười năm liên tiếp hai trận đại chiến khiến người ta trở tay không kịp, tuyệt đại đa số kiếm tu Bắc Câu Lô Châu đều chủ động ở lại đây, đánh xong một trận rồi nói sau.
+
+Nhưng vẫn có một số kiếm tiên và kiếm tu Địa tiên không thể không rời Kiếm Khí Trường Thành, dù sao còn có tông môn cần lo. Đối với việc này, Kiếm Khí Trường Thành chưa từng có lời nói nhảm nào, chẳng những không oán trách, mà mỗi khi một vị kiếm tiên ngoại châu chuẩn bị rời đi còn có một quy củ bất thành văn: mấy vị kiếm tiên bản địa quen biết người ấy đều phải mời người đó một bữa rượu tiễn đưa, coi như đáp lễ của Kiếm Khí Trường Thành.
+
+Trần Bình An và Ninh Diêu gần như đồng thời quay đầu nhìn về phía đường cái.
 
 Bên kia có sáu người đi tới.
 
-Đều là Kiếm Tiên!
+Đều là kiếm tiên!
 
-Trong đó có một vị nữ tử kiếm tiên, Trần Bình An chẳng những quen biết, còn rất quen thuộc, chính là Bắc Câu Lô Châu Phù Bình Kiếm Hồ tông chủ Lục Thải.
+Trong đó có một nữ kiếm tiên mà Trần Bình An không chỉ quen biết, còn rất quen thuộc, chính là tông chủ Phù Bình Kiếm Hồ của Bắc Câu Lô Châu, Ly Thải.
 
-Nàng từng nói, sau khi hỏi kiếm Thái Huy Kiếm Tông mới tấn kiếm tiên Lưu Cảnh Long, sẽ đến Kiếm Khí Trường Thành xuất kiếm, hoàn thành ước định với bạn tốt Lý Giác của Thái Hà Phong, còn muốn vì người sau đã phá quan thất bại, binh giải ly thế, giết thêm một con đại yêu.
+Nàng từng nói, sau khi hỏi kiếm Lưu Cảnh Long, vị kiếm tiên mới lên của Thái Huy Kiếm Tông, sẽ đến Kiếm Khí Trường Thành xuất kiếm, hoàn thành ước định với bạn tốt Lý Giác ở Thái Hà Phong, còn muốn thay người ấy, người đã phá cảnh thất bại, binh giải ly thế, giết thêm một con đại yêu.
 
-Năm người còn lại, Trần Bình An chỉ biết một người trong đó, đi ở phía trước nhất, là lão giả cao lớn râu tóc trắng như tuyết, tính tình quả thực không tốt, năm đó Trần Bình An tận mắt nhìn thấy, chính tai nghe thấy, vị lão giả này gọi thẳng tục danh đối với lão đại kiếm tiên, lớn tiếng chất vấn Trần Thanh Đô vì sao đánh giết Đổng Quan Bộc. Vị lão gia chủ Đổng thị này, còn thiếu chút nữa trực tiếp đánh nhau với lão đại kiếm tiên, ném ra một câu "Người khác đều sợ Trần Thanh Đô của ngươi, ta không sợ", cho nên Trần Bình An đối với vị lão nhân này, ấn tượng cực kỳ khắc sâu, đối với vị Đổng Quan Bộc bị lão đại kiếm tiên tiện tay một kiếm chém chết kia, cũng có chút tò mò, bởi vì dựa theo cách nói của Trữ Diêu, Đổng Quan Bộc vị "Tiểu Đổng gia gia" này thật ra rất tốt.
+Năm người còn lại, Trần Bình An chỉ biết một người, đi ở phía trước nhất, là lão giả cao lớn râu tóc trắng như tuyết, tính tình quả thực không tốt. Năm đó Trần Bình An tận mắt thấy, chính tai nghe, vị lão giả này gọi thẳng tục danh lão đại kiếm tiên, lớn tiếng chất vấn Trần Thanh Đô vì sao đánh giết Đổng Quan Bộc. Vị lão gia chủ họ Đổng này còn suýt đánh nhau thẳng với lão đại kiếm tiên, ném ra một câu: “Người khác đều sợ Trần Thanh Đô ngươi, ta không sợ.” Cho nên Trần Bình An có ấn tượng cực kỳ sâu với vị lão nhân này. Với Đổng Quan Bộc, người bị lão đại kiếm tiên tiện tay một kiếm chém chết, hắn cũng có chút tò mò, bởi vì theo cách nói của Ninh Diêu, vị “Tiểu Đổng gia gia” Đổng Quan Bộc này thật ra rất tốt.
 
-Chỉ có thể nói đây chính là cái gọi là gia gia có kinh khó khăn.
+Chỉ có thể nói đó chính là cái gọi là nhà nhà có cuốn kinh khó niệm.
 
-Một tòa kiếm khí Trường Thành, kiếm tiên kinh tài tuyệt diễm quá nhiều, ùn ùn hỗn loạn càng nhiều hơn.
+Một tòa Kiếm Khí Trường Thành, kiếm tiên kinh tài tuyệt diễm quá nhiều, mà chuyện rối ren còn nhiều hơn.
 
-Đổng Tam Canh cùng đoàn người Trử Thải ở bên trong Kiếm Khí Trường Thành, giống như là đang chạy tới quán rượu nhỏ này.
+Đổng Tam Canh cùng đoàn người Ly Thải đi trong Kiếm Khí Trường Thành, hình như đang đi tới quán rượu nhỏ này.
 
-Trần Bình An nhìn bốn vị kiếm tiên còn lại, đoán ra thân phận của hai người trong đó, tông chủ Thái Huy Kiếm Tông Hàn Hòe Tử, cùng chưởng luật lão tổ Hoàng Đồng của Tổ Sư Đường.
+Trần Bình An nhìn bốn vị kiếm tiên còn lại, đoán ra thân phận của hai người trong số đó: tông chủ Thái Huy Kiếm Tông Hàn Hòe Tử, và chưởng luật lão tổ ở Tổ Sư Đường Hoàng Đồng.
 
-Bọn Trần Bình An đều đã đứng lên.
+Đám Trần Bình An đều đã đứng lên.
 
-Đổng Họa Phù gọi Đổng Tam Canh kia là lão tổ tông, sau đó nói một câu công bằng, "Cửa hàng không ghi nợ."
+Đổng Họa Phù gọi Đổng Tam Canh là lão tổ tông, rồi nói một câu công bằng:
 
-Đổng Tam Canh trừng mắt nói: "Trên người của ngươi không mang theo tiền sao?"
+“Quán không ghi nợ.”
 
-Đổng Họa Phù lắc đầu nói: "Ta uống rượu chưa bao giờ tiêu tiền."
+Đổng Tam Canh trừng mắt:
 
-Đổng Tam Canh sang sảng cười nói: "Không hổ là con cháu Đổng gia ta, loại chuyện không biết xấu hổ này, toàn bộ Kiếm Khí Trường Thành, cũng chỉ có Đổng gia huynh đệ chúng ta làm, đều tỏ ra đặc biệt có lý."
+“Trên người ngươi không mang tiền sao?”
 
-Chướng núi xung quanh không khỏi run rẩy.
+Đổng Họa Phù lắc đầu:
+
+“Ta uống rượu chưa bao giờ tiêu tiền.”
+
+Đổng Tam Canh sang sảng cười:
+
+“Không hổ là con cháu Đổng gia ta. Loại chuyện không biết xấu hổ này, cả Kiếm Khí Trường Thành chỉ có huynh đệ Đổng gia chúng ta làm, mà ai cũng tỏ ra đặc biệt có lý.”
+
+Điệp Chướng đứng bên không khỏi run rẩy.
 
 Vị lão nhân này chính là gia chủ Đổng gia, Đổng Tam Canh.
 
-Lão Kiếm Tiên khắc chữ "Đổng" trên đầu tường thành!
+Lão kiếm tiên khắc chữ “Đổng” trên đầu tường thành!
 
-Một chuyện A Lương năm đó phiền nhất, chính là luận bàn kiếm thuật với Đổng Tam, có thể trốn thì trốn, tránh không xong, thì bảo Đổng Tam trả tiền, không trả tiền, A Lương hắn liền ngoan ngoãn đứng ở bên cạnh nhà tranh đầu tường kia bị đánh, không đi đầu tường quấy rầy lão đại kiếm tiên nghỉ ngơi, cũng được, vậy hắn nằm úp sấp ở nóc nhà bên kia từ đường Đổng gia.
+Có một chuyện mà A Lương năm đó phiền nhất, chính là luận bàn kiếm thuật với Đổng Tam. Trốn được thì trốn, tránh không xong thì bắt Đổng Tam trả tiền. Nếu không trả tiền, A Lương hắn sẽ ngoan ngoãn đứng bên căn nhà tranh trên đầu tường kia chịu đòn, không lên đầu tường quấy rầy lão đại kiếm tiên nghỉ ngơi. Được thôi, vậy hắn nằm sấp trên nóc từ đường Đổng gia.
 
-Đổng Tam vung tay lớn hơn, chọn hai cái bàn ghép lại với nhau, nói với những vãn bối kia: "Đừng ai cũng xúm lại nói nhảm, chỉ để ý bưng rượu lên bàn."
+Đổng Tam phất tay thật mạnh, chọn hai cái bàn ghép lại với nhau, nói với đám vãn bối:
 
-Trần Bình An chủ động gật đầu chào hỏi với Ly Thái, Ly Thái cười cười, cũng gật gật đầu.
+“Đừng ai cũng xúm lại nói nhảm, chỉ lo bưng rượu lên bàn.”
 
-Nào ngờ Thái Huy kiếm tông lão tổ sư Hoàng Đồng lại chủ động hướng Trần Bình An lộ ra khuôn mặt tươi cười, Trần Bình An đành phải ôm quyền hành lễ, cũng không nói gì.
+Trần Bình An chủ động gật đầu chào Ly Thải, Ly Thải cười cười, cũng gật đầu.
 
-Sau khi Đổng Tam Canh ngồi xuống, liếc mắt nhìn câu đối bên cửa hàng, chậc chậc nói: "Thật dám viết, cũng may chữ viết cũng không tệ lắm, dù sao so với con giun A Lương kia bò mạnh hơn nhiều."
+Nào ngờ lão tổ Thái Huy Kiếm Tông Hoàng Đồng lại chủ động mỉm cười với Trần Bình An, hắn đành ôm quyền hành lễ, không nói gì.
 
-Trên trán của núi trùng điệp đã không tự chủ được mà lấm tấm mồ hôi.
+Sau khi Đổng Tam Canh ngồi xuống, liếc nhìn câu đối bên cửa quán, chậc chậc:
+
+“Dám viết thật. May là chữ cũng không tệ lắm, dù sao cũng mạnh hơn cái con giun A Lương kia bò nhiều.”
+
+Trên trán Điệp Chướng đã không tự chủ được mà lấm tấm mồ hôi.
 
 Trần Tam Thu và Yến Trác cũng có chút co quắp.
 
-Hết cách rồi, bọn họ đến bên Đổng Tam Canh, chửi bới mấy câu cũng không với tới, phần lớn trưởng bối kiếm tiên của gia tộc bọn họ đều đã chịu đòn rất nặng.
+Hết cách, đến trước mặt Đổng Tam Canh, họ chửi mấy câu cũng không với tới, phần lớn trưởng bối kiếm tiên trong gia tộc họ đều từng chịu đòn rất nặng.
 
-Coi như trấn định tự nhiên, đại khái cũng chỉ còn lại Trữ Diêu cùng Trần Bình An.
+Nếu nói còn trấn định tự nhiên, đại khái chỉ còn Ninh Diêu và Trần Bình An.
 
-Đổng Tam Canh uống một bầu rượu rồi đứng dậy rời đi, hai vị kiếm tiên bản thổ Kiếm Khí Trường Thành còn lại cùng nhau cáo từ rời đi.
+Đổng Tam Canh uống một bầu rượu rồi đứng dậy rời đi. Hai vị kiếm tiên bản địa Kiếm Khí Trường Thành còn lại cũng cùng cáo từ.
 
-Đồng dạng là Hàn Hòe Tử, Hoàng Đồng cùng Trử Thải đến từ Bắc Câu Lô Châu, thì lưu lại.
+Còn Hàn Hòe Tử, Hoàng Đồng và Ly Thải đến từ Bắc Câu Lô Châu thì ở lại.
 
-Trần Bình An để cho Diệt Giới từ cửa hàng lấy thêm một vò rượu ngon, rồi tự mình xách qua đó, "Vãn bối Trần Bình An, ra mắt Hàn tông chủ, Lam tông chủ, Hoàng Kiếm Tiên."
+Trần Bình An bảo Điệp Chướng lấy thêm một vò rượu ngon từ quán, rồi tự mình xách qua đó:
 
-Chử Thải cười tủm tỉm nói: "Hoàng Đồng, nghe một chút, ta xếp ở phía trước ngươi, đây chính là kết cục của việc không làm tông chủ."
+“Vãn bối Trần Bình An, ra mắt Hàn tông chủ, Ly tông chủ, Hoàng kiếm tiên.”
+
+Ly Thải cười tủm tỉm nói:
+
+“Hoàng Đồng, nghe chưa, ta xếp trước ngươi. Đây chính là kết cục của việc không làm tông chủ.”
 
 Trần Bình An có chút bất đắc dĩ.
 
-Đây chính là Trử Thải Kiếm Tiên không nói đạo nghĩa giang hồ.
+Đây chính là Ly Thải kiếm tiên không nói đạo nghĩa giang hồ.
 
-Nào ngờ Hoàng Đồng cười tủm tỉm nói: "Ta ở phía sau lưng Lam Tông chủ, rất tốt a, phía trên phía dưới, cũng đều có thể."
+Nào ngờ Hoàng Đồng cười tủm tỉm nói:
 
-Trần Bình An vừa ngồi xuống thiếu chút nữa không ngồi vững, bất chấp cấp bậc lễ nghĩa, vội vàng tự uống ngụm rượu để an ủi.
+“Ta ở sau lưng Ly tông chủ, rất tốt mà. Phía trên phía dưới đều được.”
 
-Lúc trước du lịch Bắc Câu Lô Châu, không nghe nói vị Kiếm Tiên Thái Huy Kiếm Tông này, tính tình như vậy.
+Trần Bình An vừa ngồi xuống suýt không ngồi vững, bất chấp lễ nghi, vội tự uống một ngụm rượu để trấn an.
 
-Vì sao Tề Cảnh Long chưa từng nói nửa câu? Vì sao lại kiêng kỵ Tôn giả?
+Lúc trước du lịch Bắc Câu Lô Châu, hắn chưa từng nghe nói vị kiếm tiên Thái Huy Kiếm Tông này tính tình như vậy.
 
-Xem ra kiếm thuật Hoàng Đồng nhất định không thấp, nếu không tại Bắc Câu Lô Châu kia, làm sao có thể lăn lộn đến thượng ngũ cảnh.
+Vì sao Lưu Cảnh Long chưa từng nói nửa câu? Vì sao lại kiêng kỵ vị Tôn giả kia? [?]
 
-Ly Thải cười lạnh nói: "Cầu chúc lần này cô lên độ thuyền vượt châu, chết đuối ở nửa đường cho cá ăn."
+Xem ra kiếm thuật của Hoàng Đồng chắc chắn không thấp, nếu không ở Bắc Câu Lô Châu kia làm sao có thể lăn lộn lên đến thượng ngũ cảnh.
+
+Ly Thải cười lạnh:
+
+“Chúc lần này ngươi lên đò vượt châu, chết đuối giữa đường cho cá ăn.”
 
 Hoàng Đồng cười ha ha, không buồn bực chút nào, ngược lại còn rất khoái chí.
 
-Hàn Hòe Tử lại cực kỳ ổn trọng, một vị trưởng bối phong thái kiếm tiên mỉm cười nói với Trần Bình An: "Không cần để ý tới bọn họ nói hươu nói vượn."
+Hàn Hòe Tử lại cực kỳ ổn trọng, với phong thái của một vị trưởng bối kiếm tiên, mỉm cười nói với Trần Bình An:
 
-Hoàng Đồng thu liễm ý cười, không còn chút thần sắc già mà không tuân theo, "Hôm nay phi kiếm bên Đảo Huyền sơn đưa tin, mỗi một cái lai lịch nền móng, nội dung, đều gắt gao nhìn chằm chằm, thậm chí rất nhiều còn bị tự tiện chủ trương phong tỏa, cũng không có biện pháp nói lí lẽ, cũng may thư của Tề Cảnh Long nhà chúng ta, viết thông minh, sẽ không bị ngăn lại phong tồn, nếu Trần Bình An cùng Lưu Cảnh Long chúng ta là bạn tốt chí cốt!, Ly Thải, ngươi càng là kiếm tu quê nhà, như vậy bốn người đang ngồi đây xem như người trong nhà. Đầu tiên, ta cảm tạ Ly Thải đã hỏi kiếm trước, giúp Tề Cảnh Long mở một mối quan hệ tốt đẹp, cùng vị ở thư viện kia, theo sát phía sau, buộc lão già Bạch Thường kia phải bận tâm thể diện, mới có Tề Cảnh Long chẳng những lấy thân phận kiếm tiên đứng vững gót chân ở Bắc Câu Lô Châu, còn liên tục nhận được ba lần kiếm đạo mang lại lợi ích to lớn, chuyện này, Thái Huy Kiếm Tông chúng ta nợ Ly Thái Thái Thái ngươi một cái nhân tình lớn bằng trời."
+“Không cần để ý bọn họ nói hươu nói vượn.”
 
-Nói đến đây, Hoàng Đồng mỉm cười, "Cho nên Lam tông chủ muốn phía trước phía sau, tùy tiện chọn, Hoàng Đồng ta nói một chữ không, nhíu mày một cái, coi như ta không đủ gia!"
+Hoàng Đồng thu lại ý cười, không còn chút thần sắc già mà không nghiêm túc:
 
-Ly Thải giật giật khóe miệng, nói: "Nói cho ngươi một tin tức tốt, Khương Thượng Chân đã là Tiên Nhân cảnh."
+“Hôm nay phi kiếm đưa tin ở bên Đảo Huyền sơn, mỗi cái đều bị nhìn chằm chằm vào lai lịch nền móng, nội dung, thậm chí rất nhiều bị tự ý chủ trương phong tỏa, cũng không có cách nào nói lý. May mà thư của Lưu Cảnh Long nhà chúng ta viết khéo, sẽ không bị chặn phong lại. Trần Bình An và Lưu Cảnh Long chúng ta là bạn tốt chí cốt, Ly Thải ngươi lại là kiếm tu quê nhà, vậy bốn người đang ngồi đây coi như người nhà. Trước hết, ta cảm tạ Ly Thải đã hỏi kiếm trước, giúp Lưu Cảnh Long mở một mối quan hệ tốt đẹp, lại cùng vị ở thư viện kia bám sát phía sau, buộc lão già Bạch Thường kia phải bận tâm thể diện. Nhờ vậy Lưu Cảnh Long chẳng những đứng vững gót chân ở Bắc Câu Lô Châu với thân phận kiếm tiên, còn liên tiếp ba lần nhận được lợi ích lớn do kiếm đạo mang lại. Chuyện này, Thái Huy Kiếm Tông chúng ta nợ Ly Thải ngươi một cái nhân tình lớn bằng trời.”
 
-Hoàng Đồng lập tức nói: "Hoàng Đồng ta đường đường là Kiếm Tiên, đã đủ rồi, không phải đàn ông thì đã sao."
+Nói đến đây, Hoàng Đồng mỉm cười:
 
-Khương Thượng Chân chó má, chính là ác mộng chung của nam nữ tu sĩ Bắc Câu Lô Châu. Năm đó Kim Đan kia của hắn có thể dùng như Nguyên Anh, sau này cũng là Ngọc Phác Cảnh nổi danh có thể dùng làm tiên nhân, như vậy hiện tại Tiên Nhân cảnh rồi? Cho dù không nói tu vi của người này, một kẻ quả thực giống như là khiêng hố phân tán loạn, ai mà vui vẻ liên lụy quan đến hắn? Hướng Khương Thượng Chân kia đánh ra một quyền, thực sẽ đổi lấy rắm trét, mấu chốt là người này còn thù dai, công phu chạy trốn lại tốt, cho nên ngay cả Hoàng Đồng cũng không muốn trêu chọc, trên lịch sử Bắc Câu Lô Châu từng có một vị lão tu sĩ Nguyên Anh, không tin tà!, Không tiếc hao phí hai mươi năm thời gian, quyết tâm chỉ vì đánh chết người kia mà kêu đánh, lại không đánh chết được tai họa, kết quả không kiếm được bao nhiêu, kết cục sư môn thê thảm vô cùng, yêu hận dây dưa liên quan tới cả tòa sư môn chướng khí mù mịt, bịa đặt lung tung cho Khương Thượng Chân một trận, viết vài quyển Uyên Ương Hí Thủy Thần Tiên Thư, còn là loại có mưu đồ, hơn nữa Khương Thượng Chân thích gặp người liền tặng không, không thu, Khương Thượng Chân ta cho ngươi tiền, ngươi có nhận hay không, có phải hay không lật vài trang xem vài lần?
+“Cho nên Ly tông chủ muốn đứng trước hay đứng sau, cứ tùy ý chọn. Hoàng Đồng ta mà nói một chữ không, nhíu mày một cái, thì coi như ta không đủ đàn ông!”
 
-Hàn Hòe Tử cười nói: "Sư huynh, nơi này còn có vãn bối, cho dù ngươi không để ý đến thân phận của mình, tốt xấu gì cũng phải giúp Cảnh Long tích lũy chút ấn tượng tốt."
+Ly Thải giật giật khóe miệng:
 
-Hoàng Đồng ho khan một tiếng, uống ngụm rượu, tiếp tục nói: "Tịch Thái, nói chính sự, phong tục tập quán Kiếm Khí Trường Thành bên này nhìn như tương tự Bắc Câu Lô Châu, thực ra rất khác biệt. Chém giết trên chiến trường phía nam đầu tường càng là từng đôi chém giết quen thuộc với chúng ta, có khác biệt một trời một vực, rất nhiều tu sĩ châu khác, thường thường sẽ chết ở trong mấy ngày trước tiếp xúc chiến, một lần vô ý, chính là kết cục ngã xuống, đừng ỷ vào kiếm tu Ngọc Phác Cảnh thì như thế nào, trên chiến trường, chém giết, tính kế lẫn nhau, bên trong Yêu tộc cũng có tồn tại âm hiểm đến cực điểm."
+“Báo cho ngươi một tin tốt: Khương Thượng Chân đã là Tiên Nhân cảnh rồi.”
 
-Hoàng Đồng xoay cổ tay, từ trong gang tấc vật lấy ra ba quyển sách, hai cũ một mới, đẩy cho Ly Thải ngồi ở đối diện, "Hai quyển sách, bản Kiếm Khí Trường Thành khắc thành, một quyển giới thiệu Yêu tộc, một quyển cùng loại binh thư, quyển cuối cùng, là bản thân ta đã trải qua hai trận đại chiến, tâm đắc viết, ta khuyên ngươi một câu, không mang ba quyển sách lật xem đến nhớ kỹ trong lòng, vậy ta lúc này trước hết kính ngươi một chén rượu, như vậy về sau đến Bắc Câu Lô Châu Thái Huy Kiếm Tông, ta sẽ không tế ra Ly Thải Thải chết trận, bởi vì ngươi là Ly Thải tự mình cầu chết, căn bản không xứng Hoàng Đồng ta tế kiếm cho ngươi!"
+Hoàng Đồng lập tức nói:
 
-Ly Thải thu hồi ba quyển sách, gật đầu nói: "Sinh tử đại sự, ta sao dám tự phụ vô lễ."
+“Hoàng Đồng ta đường đường là kiếm tiên, thế là đủ rồi, không phải đàn ông thì đã sao.”
 
-Hoàng Đồng thở dài, quay đầu nhìn về phía sư đệ, cũng là tông chủ một tông của Thái Huy Kiếm Tông, "Lưu cô nương đây là tông môn không có cao nhân, cho nên chỉ có thể để nàng tự thân xuất mã, Thái Huy Kiếm Tông chúng ta, còn có Hoàng Đồng ta chống đỡ tràng diện sao? Sư đệ, ta không am hiểu xử lý việc vặt, ngươi rõ ràng, ta truyền thụ đệ tử càng không có kiên nhẫn, ngươi cũng rõ ràng, ngươi trở về Bắc Câu Lô Châu, lại giúp đỡ Cảnh Long leo lên cao hộ tống một đoạn đường, không phải rất tốt sao? Kiếm Khí Trường Thành, cũng không phải không có kiếm tiên của Thái Huy Kiếm Tông, có ta a."
+Khương Thượng Chân chó má ấy chính là ác mộng chung của nam nữ tu sĩ Bắc Câu Lô Châu. Năm đó Kim Đan của hắn đã dùng được như Nguyên Anh, sau này lại là Ngọc Phác cảnh nổi danh dùng được như tiên nhân, vậy bây giờ đến Tiên Nhân cảnh rồi sao? Cho dù không nói tu vi của người này, một kẻ quả thực giống như khiêng hố phân tung tóe khắp nơi, ai mà vui vẻ dính dáng đến hắn? Hướng Khương Thượng Chân đánh ra một quyền, thật sự sẽ đổi lại một đống rắm. Mấu chốt là người này còn thù dai, lại giỏi chạy trốn, cho nên ngay cả Hoàng Đồng cũng không muốn chọc. Trong lịch sử Bắc Câu Lô Châu từng có một vị lão tu sĩ Nguyên Anh không tin tà, không tiếc hao hai mươi năm, quyết tâm chỉ vì đánh chết người kia mà kêu đánh, nhưng lại không đánh chết được tai họa. Kết quả chẳng kiếm được bao nhiêu, kết cục sư môn thê thảm vô cùng, yêu hận dây dưa khiến cả sư môn chướng khí mù mịt. Lão bịa đặt lung tung chửi Khương Thượng Chân một trận, viết vài quyển “Uyên Ương Hí Thủy Thần Tiên Thư”, còn là loại có mưu đồ. Mà Khương Thượng Chân thì thích gặp người là tặng không: không nhận à? Khương Thượng Chân ta cho ngươi tiền, ngươi có nhận không, có lật vài trang xem vài lần không? [?]
 
-Hàn Hòe Tử lắc đầu, "Việc này ta và ngươi đã sớm nói chắc rồi, không cần khuyên ta hồi tâm chuyển ý."
+Hàn Hòe Tử cười nói:
 
-Hoàng Đồng cả giận nói: "Nói chắc cái rắm, đó là lão tử đánh không lại ngươi, chỉ có thể cút về Bắc Câu Lô Châu."
+“Sư huynh, ở đây còn có vãn bối. Cho dù huynh không để ý thân phận của mình, tốt xấu gì cũng phải giúp Cảnh Long tích lũy chút ấn tượng tốt.”
 
-Hàn Hòe Tử lạnh nhạt nói: "Về Thái Huy Kiếm Tông rồi luyện kiếm cho tốt là được."
+Hoàng Đồng ho khan một tiếng, uống một ngụm rượu, tiếp tục nói:
 
-Hoàng Đồng ưu sầu không thôi, uống một chén rượu lớn, "Nhưng ngươi chung quy vẫn là nhất tông chi chủ. Ngươi đi, lưu lại một Hoàng Đồng, Thái Huy Kiếm Tông ta, không thẹn với lương tâm."
+“Ly Thải, nói chính sự. Phong tục ở Kiếm Khí Trường Thành bên này nhìn như tương tự Bắc Câu Lô Châu, thực ra rất khác. Chém giết trên chiến trường phía nam đầu tường lại càng khác một trời một vực với kiểu chém giết chúng ta quen thuộc. Rất nhiều tu sĩ ngoại châu thường chết ngay trong mấy ngày đầu tiếp chiến, một lần vô ý là kết cục ngã xuống. Đừng ỷ mình là kiếm tu Ngọc Phác cảnh thì thế nào. Trên chiến trường chém giết, tính kế lẫn nhau, trong Yêu tộc cũng có những tồn tại âm hiểm đến cực điểm.”
 
-Hàn Hòe Tử nói: "Ta có hổ thẹn. Từ khi thành lập tông môn đến nay, chưa từng có một vị tông chủ nào chiến tử Kiếm Khí Trường Thành, cũng không có bất kỳ một vị kiếm tiên Phi Thăng cảnh nào, người sau, có Lưu Cảnh Long ở đây, là có hy vọng. Cho nên ta có thể yên tâm đi làm thành người trước."
+Hoàng Đồng xoay cổ tay, từ vật chỉ xích lấy ra ba quyển sách, hai cũ một mới, đẩy cho Ly Thải ngồi đối diện:
+
+“Hai quyển là bản do Kiếm Khí Trường Thành khắc in, một quyển giới thiệu Yêu tộc, một quyển giống như binh thư. Quyển cuối là tâm đắc do chính ta viết sau khi trải qua hai trận đại chiến. Ta khuyên ngươi một câu: nếu không lật ba quyển sách này đến nhớ kỹ trong lòng, thì bây giờ ta kính ngươi một chén rượu trước. Như vậy sau này đến Thái Huy Kiếm Tông ở Bắc Câu Lô Châu, ta sẽ không tế kiếm cho Ly Thải ngươi chết trận, bởi vì ngươi là tự mình cầu chết, căn bản không xứng để Hoàng Đồng ta tế kiếm cho ngươi!” [?]
+
+Ly Thải thu lại ba quyển sách, gật đầu nói:
+
+“Sinh tử đại sự, ta sao dám tự phụ vô lễ.”
+
+Hoàng Đồng thở dài, quay đầu nhìn sư đệ, cũng là tông chủ Thái Huy Kiếm Tông:
+
+“Như vậy là tông môn không có cao nhân, nên chỉ có thể để ngươi tự mình xuất mã sao? [?] Thái Huy Kiếm Tông chúng ta chẳng lẽ không có Hoàng Đồng ta chống đỡ tràng diện? Sư đệ, ta không giỏi xử lý việc vặt, ngươi rõ; ta truyền thụ đệ tử lại càng không kiên nhẫn, ngươi cũng rõ. Ngươi trở về Bắc Câu Lô Châu, giúp Cảnh Long leo lên cao, hộ tống một đoạn đường, chẳng phải rất tốt sao? Kiếm Khí Trường Thành đâu phải không có kiếm tiên của Thái Huy Kiếm Tông, còn có ta đây.”
+
+Hàn Hòe Tử lắc đầu:
+
+“Việc này ta và huynh đã nói chắc từ lâu rồi, không cần khuyên ta hồi tâm chuyển ý.”
+
+Hoàng Đồng cả giận nói:
+
+“Nói chắc cái rắm, đó là lão tử đánh không lại ngươi, chỉ có thể cút về Bắc Câu Lô Châu.”
+
+Hàn Hòe Tử nhạt giọng nói:
+
+“Về Thái Huy Kiếm Tông rồi luyện kiếm cho tốt là được.”
+
+Hoàng Đồng ưu sầu không thôi, uống một chén rượu lớn:
+
+“Nhưng ngươi rốt cuộc vẫn là chủ một tông. Ngươi đi, để lại một Hoàng Đồng, thì Thái Huy Kiếm Tông ta mới không thẹn với lương tâm.”
+
+Hàn Hòe Tử nói:
+
+“Ta có hổ thẹn. Từ khi thành lập tông môn đến nay, chưa từng có một vị tông chủ nào chiến tử ở Kiếm Khí Trường Thành, cũng chưa có vị kiếm tiên Phi Thăng cảnh nào. Điều sau thì có Lưu Cảnh Long ở đây, là có hy vọng. Cho nên ta có thể yên tâm đi làm thành điều trước.”
 
 Hoàng Đồng buồn bã rời đi.
 
-Nhưng trước khi đi Đảo Huyền sơn, Hoàng Đồng đi tới cửa hàng rượu một chuyến, lấy kiếm khí viết tên mình, viết một câu ở sau lưng.
+Nhưng trước khi đi Đảo Huyền sơn, Hoàng Đồng đến quán rượu một chuyến, dùng kiếm khí viết tên mình, rồi viết một câu ở mặt sau.
 
 Lúc lão nhân rời đi, ý thái tiêu điều, không có nửa điểm khí phách của kiếm tiên.
 
-Chử Thải nghe nói quy củ quán rượu, cũng hào hứng bừng bừng, chỉ khắc tên mình, nhưng không viết gì ở sau lưng Vô Sự bài, chỉ nói chờ nàng chém giết hai con yêu vật ngũ cảnh, viết lại.
+Ly Thải nghe nói quy củ của quán rượu cũng hào hứng bừng bừng, chỉ khắc tên mình, không viết gì ở mặt sau vô sự bài, bảo chờ nàng chém hai con yêu vật ngũ cảnh rồi sẽ viết.
 
-Hàn Hòe Tử cũng viết tên, ngôn ngữ cũng viết.
+Hàn Hòe Tử cũng viết tên, còn viết thêm cả lời.
 
-"Tông chủ đời thứ tư của Thái Huy Kiếm Tông, Hàn Hòe Tử."
+“Tông chủ đời thứ tư của Thái Huy Kiếm Tông, Hàn Hòe Tử.”
 
-"Đời này không có gì tiếc nuối cả."
+“Đời này không có gì tiếc nuối cả.”
 
-Trong lúc này, Trần Bình An vẫn yên lặng uống rượu.
+Trong lúc ấy, Trần Bình An vẫn lặng lẽ uống rượu.
 
-Đợi cho hai vị tông chủ Bắc Câu Lô Châu Trử Thải cùng Hàn Hòe Tử sóng vai rời đi, đi ở trên đường cái tịch liêu đêm khuya yên tĩnh.
+Đợi đến khi hai vị tông chủ Bắc Câu Lô Châu là Ly Thải và Hàn Hòe Tử sánh vai rời đi, đi trên con đường cái tịch liêu yên tĩnh giữa đêm khuya,
 
-Trần Bình An đứng lên, hô: "Hai vị tông chủ."
+Trần Bình An đứng lên, gọi:
 
-Hàn Hòe Tử nhẹ giọng cười nói: "Đừng quay đầu lại."
+“Hai vị tông chủ.”
 
-Nào ngờ Cù Thải đã quay đầu hỏi: "Có việc?"
+Hàn Hòe Tử khẽ cười:
 
-Trần Bình An cười nói: "Tiền rượu."
+“Đừng quay đầu lại.”
 
-Chử Thải hỏi Hàn Hòe Tử, nghi hoặc nói: "Ở Kiếm Khí Trường Thành, uống rượu còn muốn tiêu tiền?"
+Nào ngờ Ly Thải đã quay đầu hỏi:
 
-Hàn Hòe Tử thần sắc tự nhiên nói: "Không biết."
+“Có việc gì?”
 
-Ly Thải nhíu mày: "Chỉ cần ghi tiền cho Khương Thượng Chân, một đồng Tuyết Hoa tiền ngươi ghi lại một đồng tiền Tiểu Thử!"
+Trần Bình An cười nói:
+
+“Tiền rượu.”
+
+Ly Thải hỏi Hàn Hòe Tử, nghi hoặc nói:
+
+“Ở Kiếm Khí Trường Thành, uống rượu còn phải tiêu tiền sao?”
+
+Hàn Hòe Tử thần sắc tự nhiên:
+
+“Không biết.”
+
+Ly Thải nhíu mày:
+
+“Cứ ghi cho Khương Thượng Chân. Một đồng tiền tuyết hoa ngươi ghi một đồng tiền tiểu thử!”
 
 Trần Bình An cười gật đầu.
 
-Hai vị kiếm tiên chậm rãi tiến lên.
+Hai vị kiếm tiên chậm rãi đi tiếp.
 
-Chử Thải cảm thấy có chút kỳ quái, theo lý thuyết, với tính tình của Trần Bình An, không nên như thế mới đúng, quay đầu nhìn lại.
+Ly Thải thấy hơi lạ. Theo lý, với tính tình của Trần Bình An thì không nên như vậy mới đúng, nàng quay đầu nhìn lại.
 
-Người trẻ tuổi hai tay lồng trong tay áo, đang nhìn về phía hai người bọn họ, sau khi nhìn thấy Trử Thải quay đầu, mới ngồi trở lại bàn rượu.
+Người trẻ tuổi hai tay lồng trong tay áo, đang nhìn về phía hai người họ. Thấy Ly Thải quay đầu, hắn mới ngồi trở lại bàn rượu.
 
-Cũng tốt, đêm nay rượu, đều tính luôn lên đầu nhị chưởng quỹ là hắn.
+Cũng tốt, rượu đêm nay đều tính lên đầu nhị chưởng quầy là hắn.
 
-Cùng Trữ Diêu, cùng bằng hữu. Cộng thêm lão kiếm tiên Đổng Tam Canh cùng hai vị kiếm tiên bản thổ, lại thêm Hàn Hòe Tử, Chử Thải cùng Hoàng Đồng.
+Cùng Ninh Diêu, cùng bằng hữu. Cộng thêm lão kiếm tiên Đổng Tam Canh và hai vị kiếm tiên bản địa, lại thêm Hàn Hòe Tử, Ly Thải và Hoàng Đồng.
 
-Mãi đến giờ phút này, Trần Bình An mới hiểu được vì sao Kiếm Khí Trường Thành nhiều tửu quán lớn nhỏ như vậy, người muốn uống rượu nợ tiền lại muốn nợ.
+Mãi đến giờ phút này, Trần Bình An mới hiểu vì sao Kiếm Khí Trường Thành có nhiều tửu quán lớn nhỏ như vậy mà người muốn uống rượu vẫn nợ tiền rồi lại nợ.
 
-Cho nên quy củ cửa hàng không được nợ tiền, vẫn là không thay đổi đi.
+Cho nên quy củ của quán là không ghi nợ, vẫn không nên thay đổi.
 
-Dù sao rượu quán của quán rượu nhà mình rẻ, nhưng nếu thật sự có người uống rượu mà không trả tiền... vậy cũng được, coi như dư xài.
+Dù sao rượu của quán nhà mình cũng rẻ. Nhưng nếu thật có người uống rượu mà không trả tiền... vậy cũng được, coi như dư xài.
 
-Đại khái có thể cầu cái có thiếu nợ có trả, muộn chút không sao.
+Đại khái chỉ có thể cầu cái có vay có trả, muộn chút cũng không sao.
 
-Hàn Hòe Tử dùng tiếng nói tiếng lòng cười nói: "Người trẻ tuổi này, là đang tìm lời nói để nói, đại khái cảm thấy tán gẫu thêm một hai câu đều là tốt."
+Hàn Hòe Tử dùng tâm thanh cười nói:
 
-Ly Thải bất đắc dĩ nói: "Đây là cái gì cùng cái gì a?"
+“Người trẻ tuổi này đang tìm lời để nói đấy, đại khái là thấy tán gẫu thêm một hai câu cũng tốt.”
 
-Hàn Hòe Tử suy nghĩ một chút, vậy mà thật sự đưa ra một đáp án, "Kiếm tu cùng kiếm tu."
+Ly Thải bất đắc dĩ nói:
+
+“Đây là cái gì với cái gì vậy?”
+
+Hàn Hòe Tử suy nghĩ một chút, vậy mà thật sự đưa ra được một đáp án:
+
+“Kiếm tu với kiếm tu.”

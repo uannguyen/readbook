@@ -1,5 +1,5 @@
 // So chương đã viết lại với bản thô. Kết quả là cảnh báo để xem lại, không phải lỗi chắc chắn.
-//   node .claude/skills/rewrite-chapter/scripts/check-chapter.mjs kiem-lai 578
+//   node .agents/skills/rewrite-chapter/scripts/check-chapter.mjs kiem-lai 578
 import fs from 'node:fs';
 
 const [slug, n] = process.argv.slice(2);
@@ -7,7 +7,7 @@ if (!slug || !n) {
   console.error('Cách dùng: check-chapter.mjs <slug> <n>');
   process.exit(1);
 }
-const rawText = fs.readFileSync(`raw/${slug}/chuong-${n}.md`, 'utf8');
+const rawText = fs.readFileSync(`raw/${slug}-vi/chuong-${n}.md`, 'utf8');
 const newText = fs.readFileSync(`web/chapters/${slug}/chuong-${n}.md`, 'utf8');
 
 const paragraphs = (t) => t.split('\n').filter((l) => l.trim() && !l.startsWith('# '));
