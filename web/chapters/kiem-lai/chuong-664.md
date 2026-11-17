@@ -1,151 +1,257 @@
 # Chương 664: Bùi Tiễn túi tiền nhỏ
 
-Đã lờ mờ có thể thấy được hình dáng tòa Đảo Huyền sơn nọ.
+Đã thấp thoáng nhìn thấy hình dáng Đảo Huyền sơn.
 
-Tào Tình Lãng đưa mắt nhìn ra xa, không dám tin nói: "Đây thế mà lại là một Sơn Tự Ấn?"
+Tào Tình Lãng đưa mắt nhìn xa, không dám tin:
 
-Chủng Thu cảm khái nói: "Dị quốc tha hương, phong cảnh tráng lệ, nhiều cỡ nào."
+- Đây lại là một chiếc ấn chữ Sơn sao?
 
-Bùi Tiền và Thôi Đông Sơn ngồi ở trên lan can, quay đầu nhỏ giọng nói: "Hai phu tử, kiến thức còn không bằng ta. Ngươi nhìn ta, nhìn thấy Đảo Huyền sơn kia, sẽ cảm thấy kỳ quái sao? Không có chút gì cả, nói đến cùng, vẫn là chỉ đọc sách không đi đường gây họa, ta thì khác, chép sách không ngừng, còn theo sư phụ đi qua thiên sơn vạn thủy vạn thủy thiên sơn, Chủng phu tử đi qua Đồng Diệp Châu lớn như vậy sao? Đi qua Bảo Bình châu Thanh Loan quốc sao? Hơn nữa, ta mỗi ngày chép sách, chuyện trên đời này chép sách thành núi, trừ Bảo Bình tỷ tỷ, ta tự xưng thứ ba, thì không ai dám xưng thứ hai!"
+Chủng Thu cảm khái:
 
-Thôi Đông Sơn vẻ mặt nghi hoặc nói: "Đại sư tỷ vừa rồi thấy Đảo Huyền sơn, giống như ch** n**c miếng, một lòng một dạ muốn chuyển về Lạc Phách sơn, về sau ai không phục, liền lấy ấn này đập đứa đó đầu óc đứa đó."
+- Phong cảnh tráng lệ nơi đất khách quê người nhiều biết bao.
 
-Bùi Tiền có chút thẹn thùng, "Bảo bối lớn như vậy, ai nhìn thấy mà không thèm."
+Bùi Tiền và Thôi Đông Sơn ngồi trên lan can. Nàng quay đầu, nhỏ giọng nói:
 
-"Về chuyện chép sách, thật ra lão đầu bếp bị ngươi xem thường học vấn vẫn rất lợi hại, năm xưa ở trên tay hắn, triều đình phụ trách biên soạn sách sử, bị hắn kéo hơn mười vị văn thần đại nho danh khắp thiên hạ, hơn hai mươi hán lâm viện đọc sách tinh thần phấn chấn bừng bừng, ngày đêm biên soạn, chép không ngừng, cuối cùng viết ra ngàn vạn chữ, trong đó một tay Chu Liễm nhỏ bé kia, thật sự là tuyệt diệu, nói là xuất thần nhập hóa không quá đáng..., Cho dù là mấy loại tư các thể thịnh hành nhất của Hạo Nhiên Thiên Hạ hôm nay cũng không bằng Chu Liễm năm xưa viết thư, lần này biên thư, xem như một lần học vấn hội tụ thú vị nhất trong lịch sử Ngẫu Hoa phúc địa, đáng tiếc lão đạo sĩ mũi trâu nào đó cảm thấy chướng mắt, dời đi ngón út, một hồi họa diệt quốc, giống như điểm hỏa lò kính tự của một tòa hương tục địa phương nào đó của Hạo Nhiên Thiên Hạ, chuyên môn đốt cháy giấy vụn, mang chữ nát các vật, liền thiêu hủy bảy tám phần mười, tâm huyết thư sinh, học vấn trên giấy, liền lập tức trả lại hơn phân nửa thiên địa."
+- Hai vị phu tử kiến thức còn không bằng ta. Ngươi nhìn ta đi, thấy Đảo Huyền sơn kia, ta có cảm thấy kỳ quái không? Một chút cũng không. Nói cho cùng đều tại chỉ đọc sách mà không đi đường. Ta thì khác, chép sách không ngừng, còn theo sư phụ đi qua thiên sơn vạn thủy, vạn thủy thiên sơn.
 
-Thôi Đông Sơn chán đến chết, từng nói một ít lịch cũ đơn bạc nơi nhỏ, một trên một dưới vung hai tay áo, thuận miệng nói: "Chỉ xem không nhớ việc, bèo tấm xoay tròn, theo sóng lưu chuyển, không bằng người ta gặp một là một, gặp hai là hai, gặp ba là biết trăm ngàn, làm từng bước, là trụ cột vững vàng, kích khởi sóng dài thời gian vạn trượng."
+- Chủng phu tử đã đi qua Đồng Diệp Châu lớn như thế chưa? Đã đến Thanh Loan quốc ở Bảo Bình châu chưa? Hơn nữa ta ngày ngày chép sách. Trên đời này nói đến chuyện chép sách, ngoại trừ Bảo Bình tỷ tỷ, ta tự nhận thứ ba thì không ai dám nhận thứ hai!
 
-Bùi Tiền trừng mắt nói: "Đại bạch nga, ngươi rốt cuộc là phe nào? Sao luôn khuỷu tay hướng ra bên ngoài thế, nếu không ta giúp ngươi nhéo nhéo một cái? Ta hôm nay học võ đại thành, ước chừng có sư phụ một thành công lực, ra tay cũng không nhẹ nhàng, dát băng một chút, nói đoạn là gãy. Đến chỗ sư phụ, ngươi đừng cáo trạng nha."
+Thôi Đông Sơn nghi hoặc nói:
 
-Về phần học vấn của lão đầu bếp, viết chữ đi, dẹp đi.
+- Vừa rồi đại sư tỷ nhìn thấy Đảo Huyền sơn, hình như nước miếng cũng sắp chảy ra, một lòng muốn chuyển về núi Lạc Phách. Sau này ai không phục thì lấy ấn này đập lên đầu người đó.
 
-Sư phụ chỉ cần một tay, nói hai ba câu là có thể khiến lão đầu bếp cam bái hạ phong, an tâm ở trong bếp nhóm lửa nấu cơm.
+Bùi Tiền hơi thẹn thùng:
 
-Thôi Đông Sơn vươn tay đi, nói: "Cho ta mượn một tấm phù lục giấy vàng dán lên ót, ta đè nén kinh hãi, bị đại sư tỷ hù chết rồi."
+- Bảo bối lớn như vậy, ai thấy mà không thèm.
 
-Bùi Tiền nhíu mày nói: "Đừng làm rộn, sư phụ từng nói, ra ngoài, không được tùy tiện lấy ra phù lục khoe khoang của cải của mình, nơi tu sĩ tụ tập, dễ dàng làm người ta đỏ mắt, đỏ một cái là có nhiều thị phi, mình không sai sẽ chọc tới người khác sai, không sai nữa, đánh nhau quậy phá, chung quy cũng chưa nói tới ba chữ "Ta không sai". Về phần đất tụ tập sơn quỷ thần kỳ, càng sẽ bị coi là khiêu khích, cái này không phải là ta nói bừa, năm đó ta cùng sư phụ ở Đồng Diệp châu bên kia, ở rừng núi hoang vắng nguyệt phong cao, đã gặp được trận trượng sơn thần đón dâu., Ta chỉ liếc mắt một cái, thật sự chỉ liếc một cái, những tinh quái quỷ mị kia đồng loạt trừng mắt nhìn ta, giỏi lắm, ngươi đoán thế nào, sư phụ thấy ta chịu ủy khuất cực lớn, lập tức trừng mắt nhìn lại, những sơn thủy thần quái trước kia còn vênh váo tự đắc, như bị sét đánh, sau đó từng người nằm xuống đất không dậy nổi, quỳ xuống đất cầu xin tha thứ, ngay cả mỹ kiều nương không biết là người hay quỷ ngồi trên kiệu cũng không ai nâng, đoán chừng bị ngã bảy tám lần, đã nhiều năm như vậy, trong lòng ta vẫn còn rất áy náy."
+Thôi Đông Sơn nói:
 
-Thôi Đông Sơn mỉm cười nói: "Nói thật xong rồi, đổi phiên bản giả nói một chút xem."
+- Nhắc tới chép sách, thật ra học vấn của lão đầu bếp bị ngươi xem thường rất lợi hại. Năm xưa hắn phụ trách biên soạn sách sử cho triều đình, kéo hơn mười vị văn thần đại nho danh khắp thiên hạ và hơn hai mươi người trẻ tuổi đầy sức sống ở Hàn Lâm viện đến. Bọn họ ngày đêm biên soạn, chép không ngừng, cuối cùng viết ra ngàn vạn chữ.
 
-Bùi Tiền ồ một tiếng, "Giả à, cũng có, chỉ là sư phụ đứng lên, chủ động xin lỗi một vị lão ma đầu đội ngũ đón dâu, còn thuận tiện thành tâm chúc mừng bọn họ, sau đó giáo huấn ta một trận, còn nói sự bất quá tam, đã hai lần, nếu còn phạm sai lầm, sẽ không khách khí với ta."
+- Chữ nhỏ do chính tay Chu Liễm viết thật sự tuyệt diệu, nói xuất thần nhập hóa cũng không quá đáng. Dù mấy kiểu chữ thịnh hành nhất Hạo Nhiên Thiên Hạ hôm nay cũng không bằng chữ của Chu Liễm năm ấy. Lần biên soạn ấy xem như một lần hội tụ học vấn thú vị nhất trong lịch sử phúc địa Ngẫu Hoa.
 
-Bùi Tiền dụi dụi mắt, làm bộ làm tịch nói: "Cho dù là chuyện xưa giả, nhưng suy nghĩ một chút, vẫn làm người ta đau lòng rơi lệ."
+- Đáng tiếc có một lão đạo sĩ mũi trâu nhìn không vừa mắt, khẽ động ngón tay út, khiến một trận họa diệt quốc xảy ra. Giống như đốt giấy vụn có chữ trong lò kính tự ở một số nơi tại Hạo Nhiên Thiên Hạ, sách bị đốt mất bảy tám phần mười, tâm huyết thư sinh và học vấn trên giấy lập tức trả hơn phân nửa về cho thiên địa.
 
-Thôi Đông Sơn cười tủm tỉm nói: "Nhớ giữ lại gỉ mắt, đừng vò không còn."
+Thôi Đông Sơn nhàm chán nói chuyện cũ của một nơi nhỏ bé, hai tay áo vung lên vung xuống, thuận miệng nói:
 
-Bùi Tiền đánh ra một quyền, dừng ở cách đầu Thôi Đông Sơn một tấc, thu quyền, vui cười nói: "Có sợ không?"
+- Chỉ xem mà không ghi nhớ thì giống bèo trôi theo sóng, không bằng người thấy một biết một, thấy hai biết hai, thấy ba biết trăm ngàn, từng bước vững vàng, làm trụ cột giữa dòng, khơi lên sóng dài muôn trượng của thời gian.[?]
 
-Thôi Đông Sơn đầu tiên là không có động tĩnh, sau đó trợn mắt một phen, cả người bắt đầu run rẩy, thân thể run rẩy không thôi, mơ hồ không rõ nói: "Quyền cương thật bá đạo, ta nhất định là bị nội thương rất nặng."
+Bùi Tiền trừng mắt:
 
-Bùi Tiền khép hai ngón tay lại, chọc một cái, "Định!"
+- Đại bạch nga, rốt cuộc ngươi đứng về phe nào? Sao cứ bênh người ngoài thế, có cần ta giúp ngươi nắn khuỷu tay một chút không? Bây giờ ta học võ đại thành, ước chừng có một thành công lực của sư phụ, ra tay không nhẹ đâu. Rắc một tiếng là gãy ngay. Đến chỗ sư phụ, ngươi đừng mách đấy.
 
-Thôi Đông Sơn lập tức không nhúc nhích.
+Còn học vấn và chữ viết của lão đầu bếp ấy à, thôi đi.
 
-Bùi Tiền hít sâu một hơi, chính là muốn thu thập.
+Sư phụ chỉ cần một tay, nói hai ba câu đã khiến lão đầu bếp cam bái hạ phong, yên tâm ở trong bếp nhóm lửa nấu cơm.
 
-Sau một lát, Thôi Đông Sơn vô cùng lo lắng nói: "Đại sư tỷ, mau mau thu hồi thần thông!"
+Thôi Đông Sơn chìa tay ra:
 
-Bùi Tiền hai tay chống má, nhìn phương xa, chậm rãi nói khẽ: "Đừng có nói chuyện với ta, hại ta phân tâm, ta phải chuyên tâm nhớ sư phụ."
+- Cho ta mượn một tấm phù giấy vàng dán lên trán, để ta trấn tĩnh một chút. Ta bị đại sư tỷ dọa chết rồi.
 
-Thôi Đông Sơn hậu quả thực vững như bàn thạch, chỉ là ngửa đầu nhìn tòa Đảo Huyền sơn kia, tâm hướng về, đã ở Bất Huyền sơn, thậm chí không ở Hạo Nhiên Thiên Hạ cùng với Thanh Minh Thiên Hạ càng thêm xa xôi, mà là thiên ngoại thiên, các thiên ma ngoại trừ tu sĩ Phi Thăng cảnh kia không ai đoán ra căn nguyên.
+Bùi Tiền nhíu mày:
 
-Cách đó không xa hai vị phu tử lớn nhỏ của Chủng Thu và Tào Tình Lãng đã quen hai người kia đùa giỡn.
+- Đừng làm rộn. Sư phụ từng nói ra ngoài không được tùy tiện lấy phù lục ra khoe của. Ở nơi tu sĩ tụ tập dễ khiến người ta đỏ mắt, đỏ mắt rồi thì sinh nhiều thị phi. Mình không sai cũng chọc cho người khác phạm sai, đến khi đánh nhau quậy phá, cuối cùng cũng chẳng thể nói ba chữ “ta không sai”.
 
-Tào Tình Lãng về chuyện tu hành, ngẫu nhiên gặp gỡ rất nhiều quan ải mấu chốt Chủng Thu không thể giải thích nghi hoặc, cũng sẽ chủ động hỏi Thôi Đông Sơn đồng sư môn, cùng bối phận kia, Thôi Đông Sơn mỗi lần cũng chỉ là luận sự, sau khi nói xong hạ lệnh trục khách, Tào Tình Lãng liền nói lời cảm tạ cáo từ, lần sau như thế.
+- Còn ở nơi sơn thần quỷ quái tụ tập, làm vậy càng dễ bị xem là khiêu khích. Ta không nói bừa đâu. Năm đó ta cùng sư phụ ở Đồng Diệp Châu, giữa rừng núi hoang vắng, trăng cao gió lớn, từng gặp một đội ngũ sơn thần đón dâu.
 
-Tào Tình Lãng thật ra tính là loại tồn tại năm đó sau khi Du Chân Ý ở Ngẫu Hoa phúc địa một lòng làm tiên nhân, một nhóm mầm mống tu đạo sớm nhất cảm giác được thiên địa linh khí biến cố, mà ở trong một dúm nhỏ mỹ ngọc tu đạo, Tào Tình Lãng không thể nghi ngờ là thiên phú, căn cốt, cơ duyên cũng không thiếu, cho nên lần thứ hai gặp được Bùi Tiền, Tào Tình Lãng lúc ấy đã đi lên con đường tu đạo mới có thể nói thẳng, cho dù lần đầu tiên gặp lại Bùi Tiền, Bùi Tiền thật sự ra tay, cũng sẽ không thực hiện được, sau đó Tâm Tương tự ở chỗ ngồi bên ngõ hẹp kia, Tào Tình Lãng ra tay, vài lần khuyên can Bùi Tiền, thật ra rất... tiên khí.
+- Ta chỉ nhìn một cái, thật sự chỉ một cái thôi, đám tinh quái quỷ mị ấy đã đồng loạt trừng mắt nhìn ta. Giỏi lắm, ngươi đoán thế nào? Sư phụ thấy ta chịu ủy khuất lớn, lập tức trừng mắt nhìn lại. Đám thần quái núi sông vừa rồi còn vênh váo tự đắc giống như bị sét đánh, từng kẻ ngã xuống đất không dậy nổi, quỳ lạy cầu xin tha thứ.
 
-Chủng Thu mang theo Tào Tình Lãng đi khắp giang hồ liên Ngẫu thiên hạ, không đề cập tới nghi thức treo tượng tổ sư đường Lạc Phách sơn lần đó, thật ra xem như lần đầu tiên thân lâm Hạo Nhiên Thiên Hạ, trên ý nghĩa thật sự, rời khỏi tiểu thiên hạ trên lịch sử thường xuyên sẽ có trích tiên nhân lạc trần thế, sau đó tới tòa đại thiên hạ quê nhà các trích tiên nhân này của Hạo Nhiên Thiên Hạ. Quả nhiên, nơi này có ba nhà, bách gia tranh minh, thư tịch thánh hiền mênh mông như biển khói, may mắn Bắc Nhạc đại sơn quân Ngụy Bách, ở cửa ra Ngưu Giác Sơn chủ động cho Chủng Thu mượn một món phương thốn vật, bằng không chỉ là ở chuyện chọn sách mua sách ở Lão Long thành, cũng đủ khiến tình cảnh xấu hổ Chủng Thu rơi vào chiếu cố này mất này mất kia.
+- Ngay cả mỹ kiều nương không biết là người hay quỷ ngồi trên kiệu cũng chẳng ai khiêng, đoán chừng bị ngã bảy tám lần. Đã nhiều năm như vậy, trong lòng ta vẫn rất áy náy.
 
-Lúc trước ở sau khi quay về kinh thành Nam Uyển quốc, bắt tay chuẩn bị rời khỏi Liên Ngẫu phúc địa, Chủng Thu nói một câu chân thành với Tào Tình Lãng: Trời cao đất rộng, nên càng thêm nhớ kỹ bốn chữ du lịch tất có phương.
+Thôi Đông Sơn mỉm cười:
 
-Sở dĩ phải ở trước khi rời khỏi quê nhà đi khắp phúc địa, trừ Chủng Thu ở kinh thành Nam Uyển quốc vẽ đất làm nhà lao hơn nửa đời người, bản thân rất muốn tự mình lĩnh hội phong thổ bốn nước, trên cả hành trình, cũng cùng Tào Tình Lãng cùng nhau tự tay vẽ mấy trăm bức bản đồ phong thủy. Chủng Thu và Tào Tình Lãng nói rõ, sau đó phương thiên hạ này sẽ là bố cục mới long trời lở đất trước nay chưa từng có, sẽ có người tu đạo ùn ùn vào núi tìm tiên, lên cao cầu chân, cũng sẽ có rất nhiều sơn thuỷ thần linh cùng từ miếu từng tòa từng tòa đứng sừng sững lên, sẽ có các tinh quái quỷ mị như cá lọt lưới gây loạn nhân thế rất nhiều.
+- Nói chuyện thật xong rồi, đổi sang chuyện giả cho ta nghe xem.
 
-Trần Bình An tiên sinh nhà ngươi, không có khả năng hao phí quá nhiều thời gian cùng tâm tư nhìn chằm chằm bản đồ này, hắn cần có người phân ưu cho nó, kiến ngôn cho nó, thậm chí càng cần có người ở bên cạnh nguyện ý nói một đôi lời trung ngôn nghịch nhĩ. Sau đó Chủng Thu hỏi Tào Tình Lãng, thực sự có một ngày như vậy, có nguyện ý nói hay không, có dám nói hay không.
+Bùi Tiền ồ một tiếng:
 
-Thiếu niên cười gật đầu, nguyện ý, cũng dám.
+- Chuyện giả à, cũng có. Chỉ là sư phụ đứng dậy, chủ động xin lỗi một vị lão ma đầu trong đội đón dâu, còn thành tâm chúc mừng bọn họ. Sau đó sư phụ dạy dỗ ta một trận, nói sự bất quá tam, đã hai lần rồi, nếu còn phạm sai lầm thì sẽ không khách khí với ta nữa.
 
-Chủng Thu hỏi lại, nếu ngươi và tiên sinh không tranh chấp được, mỗi người có lý, thì nên làm thế nào?
+Nàng dụi mắt, làm bộ làm tịch:
 
-Thiếu niên lại đáp, không thể tranh luận chỉ vì tranh luận, cần từ trong lời nói của đối phương lấy thừa bù thiếu, tìm ra đạo lý, bễ nghễ lẫn nhau, thì có khả năng, ở Ngẫu Hoa phúc địa, sẽ xuất hiện một con đường lớn cả thiên hạ thương sinh đều có thể được tự do.
+- Tuy chỉ là chuyện giả, nhưng nghĩ lại vẫn khiến người ta đau lòng rơi lệ.
 
-Chủng Thu cuối cùng còn hỏi, nhưng nếu là đại đạo tương lai của hai bên các ngươi, lại nhất định chỉ là tranh luận, mà không có kết quả, phải chọn một bỏ một, lại nên làm như thế nào?
+Thôi Đông Sơn cười tủm tỉm:
 
-Tào Tình Lãng trả lời cuối cùng, tạm thời có đi có về, tạm nghĩ mà được.
+- Nhớ giữ lại ghèn mắt, đừng dụi sạch.
 
-Chủng Thu vui mừng, không hỏi tâm nữa.
+Bùi Tiền đánh ra một quyền, dừng cách đầu hắn một tấc, rồi thu quyền, cười hỏi:
 
-Hôm nay vị Chủng phu tử này suy nghĩ càng nhiều hơn, vẫn là hai người sau khi cùng nhau rời khỏi Liên Ngẫu phúc địa cùng Đại Ly Lạc Phách sơn, nên cầu học nghiên cứu học vấn như thế nào, về phần chuyện Luyện khí sĩ tu hành, Chủng Thu sẽ không can thiệp Tào Tình Lãng quá nhiều, tu hành chứng đạo trường sinh, đây không phải sở trường của Chủng Thu ta, vậy cố gắng đừng khoa tay múa chân đối với Tào Tình Lãng.
+- Có sợ không?
 
-Thật ra Tào Tình Lãng quả thật là một học sinh rất đáng giá yên tâm, nhưng Chủng Thu dù sao cũng chưa từng lãnh hội phong cảnh tòa thiên hạ kia, hơn nữa hắn ký thác kỳ vọng cao đối với Tào Tình Lãng, cho nên khó tránh khỏi phải nói thêm một ít lời nặng nề.
+Ban đầu Thôi Đông Sơn không nhúc nhích, sau đó trợn mắt, cả người run lẩy bẩy, nói không rõ tiếng:
 
-Phong cảnh hai tòa thiên hạ lớn nhỏ, đạo lý khác nhau, mọi người trên đường sống thăm hỏi thắng lợi, vô luận là sống yên phận, hay là phương lược nghiên cứu học vấn hơi chật hẹp, đều sẽ có nan đề như vậy. Chủng Thu không cảm thấy chút học vấn đó của mình, nhất là chút cảnh giới võ học đó, có thể ở Hạo Nhiên Thiên Hạ che chở, thụ nghiệp Tào Tình Lãng quá nhiều. Làm người địa phương năm đó ở Ngẫu Hoa phúc địa sinh trưởng ở địa phương, đại khái trừ Đinh Anh, Chủng Thu hắn cùng chí hữu Du Chân Ý trước kia, tính là số rất ít nhân vật có thể thông qua con đường của mình vững bước leo lên, từ đáy giếng đi đến trên miệng giếng, thật sự cảm ngộ thiên địa to lớn, có thể tưởng tượng đạo pháp cao tới mức nào.
+- Quyền cương thật bá đạo, ta nhất định đã bị nội thương rất nặng.
 
-Độ thuyền đến Đảo Huyền sơn, Thôi Đông Sơn trực tiếp dẫn ba người đi khách sạn Linh Chi trai kia, đầu tiên là bất đắc dĩ, chọn bốn gian phòng đắt nhất, hỏi có đắt hơn tốt hơn hay không, chỉnh cho nữ tu Linh Chi trai kia dở khóc dở cười, Quá giang long đến Đảo Huyền sơn, không thiếu tiền tài của thần tiên tiền thật không ít, nhưng lời lẽ trắng ra như vậy không nhiều. Cho nên nữ tu liền nói không còn, đại khái là thật sự chịu không nổi ánh mắt châm chọc của thiếu niên áo trắng kia, dám ở Đảo Huyền sơn ăn no căng như vậy, thực coi mình là đại nhân vật hàng ngày? Nữ tu Kim Đan phụ trách hằng ngày của khách sạn liền cười nói một câu, nói ở Đảo Huyền sơn so với khách sạn nhà mình tốt hơn, cũng chỉ có Viên Nhựu phủ, Xuân Phiên trai, Mai Hoa viên và Thủy Tinh cung tư trạch tứ xứ.
+Bùi Tiền khép hai ngón tay, chọc một cái:
 
-Thiếu niên kia lấy quyền đánh chưởng, ném ra câu tiếp theo, cứ như vậy trực tiếp mang theo ba người còn lại rời khỏi khách sạn Linh Chi Trai, Bùi Tiền không hiểu ra sao, theo con ngỗng trắng rời khỏi cửa chính khách sạn, vừa rồi nó thật ra rất hài lòng với khách sạn, liếc mắt nhìn một cái, trên tường treo, trên đất trải, còn có cô gái kia mặc trên người, hình như tất cả đều là vật đáng giá. Vì thế nó nhẹ giọng hỏi ngươi nhận ra bốn phía tư trạch kia? Thôi Đông Sơn cười hì hì, nói không hẳn nhận ra hết, nhưng chủ nhân của Viên Nhựu Phủ Lưu Tài, Mai Viên Viên Viên Viên Viên Viên Viên Viên Viên, năm xưa vẫn từng giao tiếp, thấy mặt thì cầm tay nói chuyện vui, ăn uống linh đình, phải có, sau đó trong lòng nhớ tới đối phương chết sớm siêu sinh, bạn tốt như vậy, Thôi Đông Sơn nó ở Hạo Nhiên Thiên Hạ mênh mông nhiều.
+- Định!
 
-Bùi Tiền càng thêm buồn bực, vậy còn đi ăn nhờ ở đậu thế nào, kết quả Thôi Đông Sơn vòng tới vòng lui, mang theo ba người đi vào một ngõ nhỏ, ngủ lại ở khách sạn Quán Tước kia!
+Thôi Đông Sơn lập tức đứng yên bất động.
 
-Chủng Thu và Tào Tình Lãng tự nhiên không sao cả.
+Bùi Tiền hít sâu một hơi, đang định thu thập hắn.
 
-Bùi Tiền ngay từ đầu còn có chút hờn dỗi, kết quả Thôi Đông Sơn ngồi ở trong phòng nó, rót cho mình một chén trà, đến một câu như vậy, tiền của học sinh, có phải tiền của tiên sinh hay không, là tiền của tiên sinh, có phải tiền của sư phụ ngươi, là tiền của sư phụ ngươi, là tiền của sư phụ ngươi, ngươi làm đệ tử, có muốn tiết kiệm chút hay không.
+Một lát sau, Thôi Đông Sơn lo lắng nói:
 
-Bùi Tiền lập tức ánh mắt sáng lên, đan xen vào nhau, không chê vào đâu được, có đạo lý nha!
+- Đại sư tỷ, mau thu hồi thần thông!
 
-Nàng lập tức hô quát một tiếng, cầm Hành Sơn trượng trong tay, vui vẻ đùa giỡn một trận kiếm pháp Phong Ma ở trong phòng.
+Bùi Tiền chống hai tay lên má, nhìn ra xa, chậm rãi nói:
 
-Sau đó Thôi Đông Sơn lén lút rời khỏi khách sạn Quán Tước một chuyến.
+- Đừng nói chuyện với ta, khiến ta phân tâm. Ta phải chuyên tâm nhớ sư phụ.
 
-Bùi Tiền cũng lười quản hắn, nhỡ đâu ngỗng trắng to ở bên ngoài bị người ta bắt nạt, lại khóc sướt mướt tìm đại sư tỷ kể khổ, vô dụng.
+Thôi Đông Sơn quả nhiên vững như bàn thạch, chỉ ngẩng đầu nhìn Đảo Huyền sơn. Nhưng lòng hắn không ở Đảo Huyền sơn, thậm chí không ở Hạo Nhiên Thiên Hạ hay Thanh Minh Thiên Hạ xa hơn, mà hướng về thiên ngoại thiên, về căn nguyên của thiên ma, điều mà ngoại trừ tu sĩ Phi Thăng cảnh không ai đoán được.[?]
 
-Bởi vì nàng là một sát thủ được tình cảm.
+Cách đó không xa, hai vị phu tử một lớn một nhỏ Chủng Thu và Tào Tình Lãng đã quen với chuyện hai người kia đùa giỡn.
 
-Khi Thôi Đông Sơn lén lút quay về quán trọ, đã là đêm khuya, đứng ở hành lang ngoài cửa hành lang của Bùi Tiền, phát hiện nàng còn đang tẩu thung trong phòng.
+Trong lúc tu hành, mỗi khi gặp những cửa ải quan trọng mà Chủng Thu không thể giải đáp, Tào Tình Lãng cũng chủ động hỏi Thôi Đông Sơn cùng sư môn, cùng vai vế. Mỗi lần Thôi Đông Sơn chỉ bàn chuyện cần bàn, nói xong liền hạ lệnh đuổi khách. Tào Tình Lãng nói lời cảm tạ cáo từ, lần sau lại như vậy.
 
-Bùi Tiền chậm rãi đi cọc, nửa ngủ nửa tỉnh, tro bụi và ánh trăng bốn phía mắt thường khó thấy kia giống như đều bị quyền ý của nó vặn vẹo vặn vẹo.
+Năm đó sau khi Du Chân Ý ở phúc địa Ngẫu Hoa một lòng muốn làm tiên nhân, Tào Tình Lãng là một trong những mầm mống tu đạo sớm nhất cảm nhận được biến đổi của linh khí thiên địa. Trong số ít ngọc tốt tu đạo ấy, thiếu niên không thiếu thiên phú, căn cốt lẫn cơ duyên.
 
-Bên bệ cửa sổ, cửa sổ bỗng nhiên tự mở ra, một mảng lớn tuyết trắng phiêu nhiên rơi xuống, lộ ra một quỷ thắt cổ đầu rũ xuống, lè lưỡi.
+Cho nên lần gặp lại Bùi Tiền, Tào Tình Lãng đã bước lên con đường tu đạo, mới có thể nói thẳng rằng dù khi gặp lại lần đầu, Bùi Tiền thật sự ra tay cũng sẽ không thành công. Sau đó tại chỗ ngồi cạnh ngõ hẹp ở Tâm Tương tự, Tào Tình Lãng mấy lần ra tay khuyên can Bùi Tiền, thật ra rất có tiên khí.
 
-Bùi Tiền vẫn có chút mơ hồ dựa vào bản năng, lấy thế sét đánh không kịp bưng tai, dán một lá bùa lên trán, bước ra một bước, đưa tay bắt lấy, gậy leo núi tựa vào bàn bị nắm trong lòng bàn, lấy gậy leo núi làm kiếm, một kiếm đâm vào, điểm trúng mi tâm của quỷ treo cổ kia, rầm một tiếng, quỷ treo cổ áo trắng bị một kiếm đánh lui, mũi chân Bùi Tiền khẽ điểm, thả lỏng gậy leo núi không cần, nhảy ra khỏi cửa sổ, quyền giá cùng nhau, muốn ra quyền, tự nhiên là muốn lấy thiết kỵ đục trận thức mở đường, lại lấy Thần Nhân Lôi Cổ Thức phân thắng bại, thắng bại sinh tử chỉ ở Bùi Tiền ta có thể chống đỡ bao lâu, không ở đối thủ, bởi vì Thôi gia gia từng nói, võ phu ra quyền, trước người không có ai.
+Chủng Thu dẫn Tào Tình Lãng đi khắp giang hồ thiên hạ Liên Ngẫu. Không tính lần dự nghi thức treo tượng ở tổ sư đường núi Lạc Phách, đây xem như lần đầu hai người tự mình đến Hạo Nhiên Thiên Hạ, thật sự rời khỏi tiểu thiên hạ mà trong lịch sử thường có trích tiên nhân rơi xuống trần gian, đến quê nhà của những vị trích tiên nhân ấy.
 
-Hành văn liền mạch lưu loát, nước chảy mây trôi, thậm chí có thể đối với Bùi Tiền mà nói, không có tư tưởng gì, cho nên đặc biệt thuần túy.
+Quả nhiên nơi đây có ba nhà, bách gia tranh minh, sách vở thánh hiền nhiều như biển khói. May mà Bắc Nhạc đại sơn quân Ngụy Bách chủ động cho Chủng Thu mượn một món phương thốn vật ở bến đò Ngưu Giác Sơn, bằng không chỉ riêng chuyện chọn mua sách ở Lão Long thành cũng đủ khiến Chủng Thu khó xử, lo được việc này lại mất việc kia.
 
-Kết quả thấy được con ngỗng trắng to ngáp dài, Thôi Đông Sơn nhìn chung quanh, "Đại sư tỷ mà, hơn nửa đêm không ngủ, ra ngoài ngắm phong cảnh?"
+Trước đó, sau khi trở lại kinh thành Nam Uyển quốc, chuẩn bị rời phúc địa Liên Ngẫu, Chủng Thu đã chân thành nói với Tào Tình Lãng: Trời cao đất rộng, càng phải ghi nhớ bốn chữ “du lịch tất có phương”.
 
-Bùi Tiền căm tức nói: "Hơn nửa đêm giả thần giả quỷ, nhỡ đâu bị ta một quyền đánh chết quái ai."
+Trước khi rời quê nhà, bọn họ đi khắp phúc địa. Một phần vì Chủng Thu đã tự giam mình trong kinh thành Nam Uyển quốc hơn nửa đời, muốn tự mình cảm nhận phong thổ bốn nước; dọc đường hắn còn cùng Tào Tình Lãng tự tay vẽ mấy trăm bức bản đồ núi sông.
 
-Thôi Đông Sơn cười hỏi: "Xuất quyền quá nhanh, nhanh hơn ý niệm võ phu, thì nhất định tốt sao? Người ra quyền như vậy, rốt cuộc là ai?"
+Chủng Thu nói rõ với Tào Tình Lãng, sau này thiên hạ ấy sẽ có bố cục mới long trời lở đất chưa từng thấy. Sẽ có tu sĩ ùn ùn vào núi tìm tiên, lên cao cầu chân; sẽ có rất nhiều thần linh núi sông và đền miếu lần lượt xuất hiện; cũng sẽ có không ít tinh quái quỷ mị lọt lưới gây loạn nhân gian.
 
-Bùi Tiền ngẩn ra một phen, nghi hoặc nói: "Ngươi đang nói cái búa?"
+Trần Bình An tiên sinh của ngươi không thể hao phí quá nhiều thời gian và tâm tư trông coi cả vùng đất này. Hắn cần có người phân ưu, góp ý, thậm chí càng cần người bên cạnh nguyện ý nói vài lời trung ngôn nghịch nhĩ.
 
-Thôi Đông Sơn liếc mắt xem thường, "Ta đi cáo trạng với tiên sinh, nói ngươi đánh ta."
+Sau đó Chủng Thu hỏi Tào Tình Lãng, nếu thật có ngày ấy, ngươi có nguyện ý nói không, có dám nói không?
 
-Bùi Tiền cả giận nói: "Là ngươi dọa ta trước!"
+Thiếu niên cười gật đầu. Nguyện ý, cũng dám.
 
-Cuối cùng hai người nói tốt về chuyện tốt, cùng nhau ngồi ở trên tường viện, nhìn vầng trăng tròn kia của Hạo Nhiên Thiên Hạ.
+Chủng Thu lại hỏi, nếu ngươi và tiên sinh tranh luận không phân thắng bại, mỗi người đều có lý, vậy nên làm thế nào?
 
-Thôi Đông Sơn mặt mỉm cười, nghe nói Kiếm Khí Trường Thành bên kia hiện nay rất thú vị, lại dám có người nói Văn Thánh nhất mạch hôm nay, trừ Tả Hữu, có thêm một Trần Bình An thì như thế nào, Văn Thánh nhất mạch, Văn Thánh không Văn Thánh, về phần đạo thống văn mạch càng thêm đáng thương, còn có hương khói đáng nói sao?
+Thiếu niên đáp, không thể tranh luận chỉ vì tranh luận. Cần từ trong lời đối phương lấy chỗ thừa bù chỗ thiếu, tìm ra đạo lý, cùng nhìn nhận lẫn nhau[?]. Như vậy có lẽ ở phúc địa Ngẫu Hoa sẽ xuất hiện một con đường lớn, để thương sinh trong thiên hạ đều được tự do.
 
-Thôi Đông Sơn cười cười, nói với Bùi Tiền: "Ngày mai chúng ta đi dạo một vòng Đảo Huyền sơn trước, ngày mốt đi Kiếm Khí Trường Thành, ngươi có thể gặp được sư phụ."
+Cuối cùng Chủng Thu hỏi, nhưng nếu đại đạo tương lai của hai người nhất định chỉ có thể tranh luận mà không có kết quả, phải chọn một bỏ một, thì nên làm sao?
 
-Bùi Tiền nói: "Đảo Huyền sơn có gì mà đi dạo, sáng mai chúng ta sẽ đi Kiếm Khí Trường Thành."
+Tào Tình Lãng trả lời, tạm thời cứ qua lại suy xét, vừa nghĩ vừa tìm đáp án[?].
 
-Thôi Đông Sơn cười nói: "Đảo Huyền sơn có nhiều thứ tốt như vậy, chúng ta không thể mua chút lễ vật?"
+Chủng Thu vui mừng, không hỏi thêm nữa.
 
-Bùi Tiền cảm thấy cũng đúng, thật cẩn thận từ trong tay áo lấy ra túi tiền túi thơm Quế Di Lão Long thành tặng, bắt đầu đếm tiền.
+Bây giờ điều vị Chủng phu tử này nghĩ nhiều hơn là sau khi cùng rời phúc địa Liên Ngẫu và núi Lạc Phách ở Đại Ly, hai người nên cầu học nghiên cứu học vấn thế nào. Còn chuyện tu hành của luyện khí sĩ, Chủng Thu sẽ không can thiệp Tào Tình Lãng quá nhiều. Tu hành chứng đạo trường sinh không phải sở trường của hắn, vậy thì cố gắng đừng khoa tay múa chân với học trò.
 
-Thôi Đông Sơn hai tay ôm lấy cái ót, cười nói: "Ta có tiền, không cần ngươi đào."
+Thật ra Tào Tình Lãng quả thật là học sinh rất khiến người ta yên tâm. Nhưng Chủng Thu chưa từng lĩnh hội phong cảnh của tòa thiên hạ kia, lại đặt nhiều kỳ vọng vào thiếu niên, khó tránh khỏi nói thêm mấy lời nặng nề.
 
-Bùi Tiền từng đồng tiền, từng đồng bạc vụn đều không bỏ qua, cẩn thận kiểm kê, dù sao trong tiền riêng gia sản của nó hôm nay, tiền thần tiên rất ít, đáng thương, cũng không có bao nhiêu bạn, cho nên mỗi lần đếm tiền, đều phải sờ chúng nó nhiều thêm một chút, lặng lẽ nói chuyện với chúng nó. Lúc này nghe được lời của Thôi Đông Sơn, nó cũng không ngẩng đầu lên, lắc đầu nhỏ giọng nói: "Là mua quà cho sư phụ, con mới không lấy tiền thần tiên của người."
+Phong cảnh hai tòa thiên hạ lớn nhỏ khác nhau, đạo lý cũng khác. Người đi trên đường đời, bất kể tìm cách sống yên ổn hay nghiên cứu học vấn trong phạm vi hẹp hơn, đều sẽ gặp những vấn đề như vậy[?]. Chủng Thu không cảm thấy chút học vấn của mình, nhất là cảnh giới võ học ấy, có thể che chở và dạy dỗ Tào Tình Lãng quá nhiều ở Hạo Nhiên Thiên Hạ.
 
-Thôi Đông Sơn vui đùa nói: "Đồng tiền bồi ngươi lâu như vậy, bạc vụn cùng tiền thần tiên, ngươi nỡ để chúng nó rời khỏi ổ nhỏ túi thơm của ngươi? Ly biệt như vậy, có thể đời này cũng không gặp lại chúng nó nữa, không đau lòng? Không đau lòng?"
+Là người sinh trưởng ở phúc địa Ngẫu Hoa năm đó, ngoài Đinh Anh, Chủng Thu và chí hữu cũ Du Chân Ý xem như số ít có thể dựa vào con đường của mình vững bước leo lên, từ đáy giếng đi đến miệng giếng, thật sự cảm nhận thiên địa rộng lớn. Có thể tưởng tượng đạo pháp nơi này cao đến mức nào.
 
-Bùi Tiền cầm lên một đồng tiền Tuyết Hoa bí mật đặt tên, giơ lên cao cao, nhẹ nhàng lay động vài cái, nói: "Có cách gì, những đứa nhỏ này đi thì đi thôi, dù sao con sẽ nhớ chúng nó, trên sổ sách nhỏ đó của con có viết tên riêng của chúng nó, cho dù chúng nó đi rồi, con còn có thể giúp chúng nó tìm học sinh cùng đệ tử, túi thơm này của con chính là một tòa tổ sư đường nho nhỏ, con không hiểu đâu, trước kia con chỉ từng nói với sư phụ, chưa từng nói với sư phụ hạt gạo nào ấm cây, sư phụ lúc ấy còn khen con, nói con rất có tâm, con không biết. Cho nên a, đương nhiên vẫn là sư phụ quan trọng nhất, sư phụ cũng không thể đánh mất."
+Độ thuyền đến Đảo Huyền sơn, Thôi Đông Sơn trực tiếp dẫn ba người đến khách điếm Linh Chi trai. Hắn chọn bốn gian phòng đắt nhất, lại hỏi có phòng nào đắt hơn, tốt hơn không, khiến nữ tu ở đó dở khóc dở cười.
 
-Bùi Tiền đặt đồng tiền Tuyết Hoa xuống, thu hồi túi thơm nhỏ vào tay áo, lắc chân, "Cho nên ta cảm tạ ông trời đã tặng ta một sư phụ."
+Khách từ bên ngoài đến Đảo Huyền sơn không thiếu người giàu tiền thần tiên, nhưng nói trắng ra như vậy thì không nhiều. Nữ tu bảo không còn. Đại khái chịu không nổi ánh mắt châm chọc của thiếu niên áo trắng, nàng thầm nghĩ dám làm bộ như vậy ở Đảo Huyền sơn, thật sự cho mình là đại nhân vật sao?
 
-Bùi Tiền nghĩ nghĩ, "Nhưng nếu ông trời dám thu hồi sư phụ..."
+Nữ tu Kim Đan phụ trách khách điếm bèn cười nói, ở Đảo Huyền sơn có chỗ tốt hơn khách điếm nhà mình thì chỉ có bốn tư trạch Viên Nhựu phủ, Xuân Phiên trai, Mai Hoa viên và Thủy Tinh cung.
 
-Nói tới đây, Bùi Tiền học hạt gạo nhỏ kia, há to miệng ngao ô một tiếng, thở phì phì nói: "Ta rất hung dữ!"
+Thiếu niên lấy quyền đập vào lòng bàn tay, nói một câu rồi trực tiếp dẫn ba người rời Linh Chi trai.
+
+Bùi Tiền không hiểu ra sao, đi theo con ngỗng trắng ra cửa. Nàng vốn rất hài lòng với khách điếm này, liếc mắt nhìn đã thấy những thứ treo trên tường, trải dưới đất, cả quần áo nữ tử kia mặc, hình như đều rất đáng tiền.
+
+Nàng nhẹ giọng hỏi hắn có quen biết bốn tư trạch ấy không. Thôi Đông Sơn cười hì hì, nói không hẳn quen hết, nhưng năm xưa từng qua lại với chủ nhân Viên Nhựu phủ Lưu Tài và chủ nhân Mai Hoa viên[?]. Gặp mặt thì nắm tay chuyện trò vui vẻ, ăn uống linh đình, chuyện ấy nhất định phải có. Sau đó trong lòng lại mong đối phương sớm chết sớm siêu sinh. Loại bằng hữu tốt như vậy, Thôi Đông Sơn hắn có rất nhiều ở Hạo Nhiên Thiên Hạ.
+
+Bùi Tiền càng buồn bực, vậy làm sao đến ăn nhờ ở đậu? Kết quả Thôi Đông Sơn vòng tới vòng lui, dẫn ba người vào một ngõ nhỏ, nghỉ lại ở khách điếm Quán Tước!
+
+Chủng Thu và Tào Tình Lãng đương nhiên không thấy sao.
+
+Ban đầu Bùi Tiền còn hơi giận dỗi. Sau đó Thôi Đông Sơn ngồi trong phòng nàng, rót cho mình một chén trà, hỏi: Tiền của học sinh có phải tiền của tiên sinh không? Là tiền của tiên sinh thì có phải tiền của sư phụ ngươi không? Đã là tiền của sư phụ, ngươi làm đệ tử có nên tiết kiệm một chút không?
+
+Mắt Bùi Tiền lập tức sáng lên. Từng câu nối tiếp, không chê vào đâu được, có đạo lý!
+
+Nàng lập tức hô một tiếng, cầm gậy leo núi vui vẻ thi triển một trận kiếm pháp điên cuồng trong phòng.
+
+Sau đó Thôi Đông Sơn lén rời khách điếm Quán Tước một chuyến. Bùi Tiền cũng lười để ý hắn. Nhỡ đại bạch nga ở ngoài bị người ta bắt nạt, lại khóc lóc tìm đại sư tỷ kể khổ, vô dụng.
+
+Bởi vì nàng là một sát thủ không có tình cảm[?].
+
+Khi Thôi Đông Sơn lén trở về khách điếm đã là đêm khuya. Đứng ngoài cửa phòng Bùi Tiền, hắn phát hiện nàng vẫn đang đi cọc trong phòng.
+
+Bùi Tiền chậm rãi đi cọc, nửa ngủ nửa tỉnh. Bụi bặm và ánh trăng bốn phía mắt thường khó thấy, tựa hồ đều bị quyền ý của nàng vặn vẹo.
+
+Cửa sổ bỗng tự mở ra, một mảng trắng như tuyết bay xuống, hiện ra một con quỷ thắt cổ cúi đầu lè lưỡi.
+
+Bùi Tiền vẫn còn mơ màng, dựa vào bản năng dán một lá phù lên trán với tốc độ sét đánh không kịp bưng tai. Nàng bước ra, đưa tay nắm lấy gậy leo núi tựa bên bàn, lấy gậy làm kiếm, đâm trúng giữa mày con quỷ.
+
+Một tiếng rầm vang lên, quỷ áo trắng bị đánh lui. Mũi chân Bùi Tiền khẽ điểm, buông gậy nhảy ra ngoài cửa sổ, bày quyền giá, định dùng thức Thiết Kỵ Đục Trận mở đường, tiếp đó dùng thức Thần Nhân Lôi Cổ phân thắng bại.
+
+Thắng bại sống chết chỉ phụ thuộc vào việc Bùi Tiền nàng có thể chống đỡ bao lâu, không phụ thuộc vào đối thủ. Bởi vì Thôi gia gia từng nói, võ phu ra quyền, trước người không có ai.
+
+Tất cả liền mạch lưu loát như nước chảy mây trôi. Với Bùi Tiền, nàng thậm chí không cần suy nghĩ, cho nên đặc biệt thuần túy.
+
+Kết quả nàng nhìn thấy đại bạch nga đang ngáp dài. Thôi Đông Sơn nhìn quanh:
+
+- Đại sư tỷ à, nửa đêm không ngủ, ra ngoài ngắm cảnh sao?
+
+Bùi Tiền tức giận:
+
+- Nửa đêm giả thần giả quỷ, lỡ bị ta đánh một quyền chết mất thì trách ai?
+
+Thôi Đông Sơn cười hỏi:
+
+- Xuất quyền quá nhanh, nhanh hơn cả ý niệm của võ phu, nhất định là tốt sao? Người ra quyền như vậy, rốt cuộc là ai?
+
+Bùi Tiền ngẩn người, nghi hoặc:
+
+- Ngươi đang nói cái gì thế?
+
+Thôi Đông Sơn đảo mắt:
+
+- Ta sẽ mách tiên sinh, nói ngươi đánh ta.
+
+Bùi Tiền nổi giận:
+
+- Là ngươi dọa ta trước!
+
+Cuối cùng hai người giảng hòa, cùng ngồi trên tường viện nhìn vầng trăng tròn của Hạo Nhiên Thiên Hạ.
+
+Thôi Đông Sơn mỉm cười. Nghe nói Kiếm Khí Trường Thành bây giờ rất thú vị, lại có người dám nói Văn Thánh nhất mạch hôm nay, ngoại trừ Tả Hữu, có thêm Trần Bình An thì đã sao? Văn Thánh nhất mạch, Văn Thánh không còn là Văn Thánh, đạo thống văn mạch càng đáng thương, còn nói gì đến hương khói?
+
+Thôi Đông Sơn cười, nói với Bùi Tiền:
+
+- Ngày mai chúng ta dạo quanh Đảo Huyền sơn một vòng, ngày kia đến Kiếm Khí Trường Thành, ngươi sẽ gặp được sư phụ.
+
+Bùi Tiền nói:
+
+- Đảo Huyền sơn có gì mà dạo, sáng mai chúng ta đi Kiếm Khí Trường Thành đi.
+
+Thôi Đông Sơn cười:
+
+- Đảo Huyền sơn có nhiều thứ tốt như vậy, chúng ta không thể mua chút lễ vật sao?
+
+Bùi Tiền cảm thấy cũng đúng, cẩn thận lấy từ trong tay áo ra túi tiền là túi thơm Quế Di ở Lão Long thành tặng, bắt đầu đếm tiền.
+
+Thôi Đông Sơn hai tay ôm đầu, cười nói:
+
+- Ta có tiền, không cần ngươi bỏ ra.
+
+Bùi Tiền kiểm kê cẩn thận từng đồng tiền, từng mẩu bạc vụn, không bỏ sót thứ nào. Trong gia sản riêng của nàng hiện giờ, tiền thần tiên ít đến đáng thương, cũng không có mấy bằng hữu, cho nên mỗi lần đếm tiền đều phải sờ chúng thêm một chút, lặng lẽ trò chuyện với chúng.
+
+Nghe Thôi Đông Sơn nói, nàng không ngẩng đầu, lắc đầu nói nhỏ:
+
+- Mua quà cho sư phụ, ta mới không lấy tiền thần tiên của ngươi.
+
+Thôi Đông Sơn trêu:
+
+- Đồng tiền, bạc vụn và tiền thần tiên đã ở bên ngươi lâu như vậy, ngươi nỡ để chúng rời khỏi cái ổ nhỏ trong túi thơm sao? Chia tay lần này, có khi cả đời cũng không gặp lại, không đau lòng à?
+
+Bùi Tiền cầm một đồng tiền tuyết hoa đã bí mật đặt tên, giơ cao nhẹ nhàng lắc mấy cái:
+
+- Biết làm sao được, những đứa nhỏ này đi thì đi thôi. Dù sao ta cũng sẽ nhớ chúng, tên riêng của chúng đều được ghi trong sổ nhỏ. Cho dù chúng đi rồi, ta còn có thể giúp chúng tìm học sinh và đệ tử. Túi thơm này của ta chính là một tòa tổ sư đường nho nhỏ, ngươi không hiểu đâu.
+
+- Trước kia ta chỉ nói với sư phụ, chưa từng nói với Noãn Thụ hay Hạt Gạo Nhỏ. Lúc ấy sư phụ còn khen ta, nói ta rất có lòng, ngươi không biết đâu. Cho nên đương nhiên sư phụ vẫn quan trọng nhất, không thể đánh mất sư phụ được.
+
+Bùi Tiền đặt đồng tiền tuyết hoa xuống, cất túi thơm vào tay áo, đung đưa chân:
+
+- Cho nên ta cảm tạ ông trời đã tặng ta một sư phụ.
+
+Nàng nghĩ một lát:
+
+- Nhưng nếu ông trời dám lấy sư phụ đi...
+
+Nói đến đây, Bùi Tiền học theo Hạt Gạo Nhỏ, há miệng “ngao ô” một tiếng, tức giận nói:
+
+- Ta rất hung dữ đấy!

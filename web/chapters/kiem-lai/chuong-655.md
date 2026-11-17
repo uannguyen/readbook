@@ -1,341 +1,447 @@
 # Chương 655: Cảnh giới đối với ta không có ý nghĩa
 
-Người tu đạo, không thích lỡ như.
+Tu sĩ không thích chuyện bất trắc.
 
-Lâm Quân Bích đặc biệt không thích xảy ra chuyện ngoài ý muốn ở bên cạnh mình.
+Lâm Quân Bích càng không thích bên cạnh mình xảy ra chuyện ngoài ý muốn.
 
-Nghiêm Luật, Chu Mai và Tưởng Quan Trừng, có biên cảnh làm bạn, ba ngày trước đi tới quán rượu mua rượu, không phải là ngoài ý muốn gì, mà là hắn cố ý làm.
+Ba ngày trước, Nghiêm Luật, Chu Mai và Tưởng Quan Trừng cùng Biên Cảnh đến quán rượu mua rượu, không phải chuyện trùng hợp, mà là do hắn cố ý sắp đặt.
 
-Lão tổ nghiêm luật, quen biết với Trúc Hải động thiên, bản thân Nghiêm Luật tính tình, khuôn mặt tươi cười giấu đao, thiên hướng âm trầm, am hiểu gây chuyện, châm lửa. Chu Mai sư bá, trước kia tiên thiên kiếm phôi vỡ ở hai tay kiếm tiên, bản thân nàng lại bị học vấn hun đúc của Á Thánh nhất mạch thấm nhuần, thích nhất bênh vực kẻ yếu, tâm trực khẩu nhanh, Tương Quan Trừng xúc động, lần này nam hạ Đảo Huyền sơn, ẩn nhẫn một đường. Có ba người này, ở tiệm rượu bên kia, không sợ Trần Bình An kia không ra tay, cũng không sợ Trần Bình An ra tay nặng, mặc dù Trần Bình An để cho mình thất vọng, tính tình nóng nảy, thích khoe khoang tu vi, so với Tương Quan Trừng chẳng tốt hơn là bao, chung quy còn có sư huynh bảo giá hộ tống biên cảnh. Hơn nữa Trần Bình An một khi ra tay quá nặng, sẽ gây thù lớn.
+Lão tổ nhà Nghiêm Luật quen biết với Trúc Hải động thiên. Bản thân Nghiêm Luật ngoài mặt tươi cười nhưng trong lòng giấu đao, tính tình âm trầm, am hiểu gây chuyện châm lửa. Sư bá của Chu Mai năm xưa bị hai vị kiếm tiên đánh vỡ tiên thiên kiếm phôi; nàng lại chịu học vấn một mạch Á Thánh hun đúc, thích bênh vực kẻ yếu, tâm thẳng miệng nhanh. Tưởng Quan Trừng thì xúc động, lần này xuôi nam đến Đảo Huyền sơn, đã nhẫn nhịn suốt dọc đường.
 
-Cho nên ở ngoài lương đình phủ đệ của Kiếm Tiên Tôn Cự Nguyên bản thổ, đám người Chu Mai áy náy không chịu nổi, tâm cao khí ngạo nghiêm luật đều có chút thấp thỏm, Lâm Quân Bích căn bản không có tức giận, đối với quân cờ trên bàn cờ của mình, cần đối xử tử tế mới đúng. Đây là tiên sinh truyền thụ học vấn của mình, đồng thời cũng là sư phụ truyền thụ đạo pháp, quốc sư đại nhân của Thiệu Nguyên vương triều, lời khai tông minh nghĩa dạy Lâm Quân Bích chơi cờ ngày đầu tiên, tức người và quân cờ chung quy khác nhau, người có tính mạng phải sống, có đại đạo phải đi, có thất tình lục dục đủ loại thường tình con người, một mặt nhìn như vật chết, tùy ý thao túng, mình cách cái chết không xa.
+Có ba người này ở quán rượu, không sợ Trần Bình An không ra tay, cũng không sợ hắn ra tay quá nặng. Cho dù Trần Bình An khiến mình thất vọng, tính tình nóng nảy, thích khoe khoang tu vi, chẳng tốt hơn Tưởng Quan Trừng bao nhiêu, chung quy vẫn còn sư huynh Biên Cảnh đi theo bảo vệ. Hơn nữa một khi Trần Bình An ra tay quá nặng, sẽ kết thù lớn.
 
-Trên thực tế, Lâm Quân Bích một đường xuôi nam, bỏ qua nghiêm luật đám người, quả thật có thể gọi là thẳng thắn đối đãi, lấy lễ đối đãi, bất kể là ai thỉnh giáo trị học, kiếm thuật và kỳ thuật của mình, Lâm Quân Bích biết gì nói nấy.
+Cho nên bên ngoài lương đình trong phủ đệ của kiếm tiên bản thổ Tôn Cự Nguyên, đám người Chu Mai áy náy không thôi, ngay cả Nghiêm Luật tâm cao khí ngạo cũng có chút thấp thỏm, nhưng Lâm Quân Bích căn bản không tức giận. Đối với quân cờ trên bàn cờ của mình, phải đối xử tử tế mới đúng.
 
-Trên đường nam hạ, Lâm Quân Bích đã hiểu rõ ràng những thiên kiêu tám châu bên ngoài Trung Thổ Thần Châu, nhất là những người có tính cách cực kỳ rõ ràng, tỷ như Lâm Tố ở Bắc Câu Lô Châu, Lưu U Châu Ngai Ngai châu, Mã Khổ Huyền của Bảo Bình Châu. Đều có chỗ thích hợp, xem nhân sinh, có thể lấy ra mài dũa đạo tâm của mình.
+Đó là điều tiên sinh dạy học vấn, đồng thời cũng là sư phụ truyền đạo pháp của hắn, quốc sư vương triều Thiệu Nguyên, đã nói rõ ngay ngày đầu tiên dạy hắn đánh cờ. Người và quân cờ rốt cuộc khác nhau. Người có tính mạng để sống, có đại đạo phải đi, có thất tình lục dục cùng đủ loại thường tình. Nếu chỉ coi người như vật chết, tùy ý thao túng, bản thân cũng cách cái chết không xa.
 
-Nhưng Lâm Quân Bích lập tức trở tay không kịp, giống như trên bàn cờ, chỉ có một mình lẻ loi trơ trọi, vạn pháp không thể mượn, đại thế không thể, chỉ có mình và thanh phi kiếm bản mạng kia, đặt mình trong hiểm cảnh.
+Thật ra trên đường xuôi nam, ngoại trừ chuyện của đám Nghiêm Luật, Lâm Quân Bích quả thật thẳng thắn đối đãi, lấy lễ đối đãi với mọi người. Bất kể ai thỉnh giáo học vấn, kiếm thuật hay kỳ thuật, hắn đều biết gì nói nấy.
 
-Lúc trước ở phủ đệ Tôn Cự Nguyên, Lâm Quân Bích đã nói thẳng với biên cảnh, không muốn giằng co với Trần Bình An sớm như vậy, bởi vì quả thật không có phần thắng, dù sao hắn hôm nay mới chưa đến mười lăm tuổi.
+Dọc đường, Lâm Quân Bích đã tìm hiểu rõ những thiên kiêu ở tám châu ngoài Trung Thổ Thần Châu, đặc biệt là người có tính tình nổi bật, chẳng hạn Lâm Tố ở Bắc Câu Lô Châu, Lưu U Châu ở Ngai Ngai Châu, Mã Khổ Huyền ở Bảo Bình Châu. Mỗi người đều có chỗ đáng xem, có thể lấy nhân sinh của họ để mài giũa đạo tâm của mình.
 
-Đối với Trần Bình An mà đã như thế, đối với Trữ Diêu lại càng là như thế. Sự tự tin của Lâm Quân Bích, bắt nguồn từ chính mình của mười năm sau, cùng Trần Bình An hôm nay đối lập với Trữ Diêu. Hoặc là nói Lâm Quân Bích hôm nay, cùng Trần Bình An và Trữ Diêu mười năm trước.
+Nhưng lúc này Lâm Quân Bích bị đánh cho trở tay không kịp. Tựa như trên bàn cờ chỉ còn lại một mình hắn lẻ loi, không thể mượn vạn pháp, không thể dựa vào đại thế, chỉ có bản thân và thanh phi kiếm bản mạng cùng đặt trong hiểm cảnh.
 
-Đây cũng là câu dạy bảo thứ hai của Quốc sư tiên sinh lúc trước, cùng người tranh thắng tranh đấu khí lực, người không muốn nhận thua dễ dàng chết.
+Trước đó ở phủ Tôn Cự Nguyên, hắn đã nói thẳng với Biên Cảnh rằng mình không muốn giằng co với Trần Bình An sớm như vậy, bởi quả thật không có phần thắng. Dù sao hôm nay hắn còn chưa đến mười lăm tuổi.
 
-Lâm Quân Bích tâm tư nhanh quay ngược trở lại, hy vọng tìm ra một cái biện pháp vẹn toàn có thể trợ giúp mình giải vây.
+Đối với Trần Bình An đã như thế, đối với Ninh Diêu lại càng như thế. Điều Lâm Quân Bích tự tin là bản thân mười năm sau có thể so với Trần Bình An và Ninh Diêu hôm nay. Hoặc là hắn hôm nay có thể so với hai người họ mười năm trước.
 
-Về phần vì sao Lâm Quân Bích nhằm vào hoặc là nói nhớ Trần Bình An như thế, đương nhiên vẫn là vì trận tranh đấu ba bốn kia mà ra, môn sinh Nho gia chú ý nhất là Thiên Địa Quân Thân Sư, trên đường tu hành thường thường sư thừa thân cận nhất, lúc đầu làm bạn lâu nhất, ảnh hưởng sâu nhất, Lâm Quân Bích cũng không ngoại lệ, một khi dấn thân vào một chi đạo thống văn mạch nào đó, thường thường cũng sẽ đồng thời kế thừa những ân oán quá khứ, tiên sinh nhà mình cùng vị lão tú tài kia., Oán hận chất chứa sâu nặng, trước kia cấm học vấn thư tịch Tuyệt Văn Thánh, vương triều Thiệu Nguyên là vương triều Trung Thổ sớm nhất, cũng là tận hết sức lực nhất, chỉ là mỗi lần nói riêng với lão tú tài, quốc sư vốn có hi vọng đi đến trường cung phó tế tửu, tế tửu, văn miếu phó giáo chủ con đường này, lại không có quá nhiều thù hận thù hận oán, nếu là không nói làm người, chỉ nói học vấn, quốc sư ngược lại rất thưởng thức, điều này làm cho Lâm Quân Bích càng thêm không thoải mái trong lòng.
+Đó cũng là lời dạy thứ hai của quốc sư tiên sinh: tranh thắng đấu sức với người, kẻ không chịu nhận thua rất dễ chết.
 
-Trữ Diêu nói xong lời kia, liền không nói gì nữa.
+Tâm tư Lâm Quân Bích xoay chuyển thật nhanh, mong tìm được một cách vẹn toàn để giải vây.
 
-Đối với nàng mà nói, lựa chọn của Lâm Quân Bích rất đơn giản, không xuất kiếm, nhận thua. Xuất kiếm, hay là thua, chịu nhiều đau khổ một chút.
+Còn vì sao hắn nhằm vào, hay nói đúng hơn là ghi nhớ Trần Bình An như vậy, đương nhiên vẫn vì trận tranh đấu thứ ba thứ tư kia[?]. Môn sinh Nho gia coi trọng thiên địa quân thân sư, trên đường tu hành, sư thừa thường là người thân cận nhất, ở bên lâu nhất từ thuở đầu và có ảnh hưởng sâu nhất.
 
-Cho nên Trữ Diêu không quá rõ cái này có cái gì phải suy nghĩ nhiều.
+Lâm Quân Bích cũng không ngoại lệ. Một khi bước vào một nhánh đạo thống văn mạch, thường cũng sẽ kế thừa ân oán ngày trước. Tiên sinh nhà hắn và lão tú tài kia có oán hận chất chứa sâu nặng. Năm xưa cấm học vấn và sách vở của Văn Thánh, vương triều Thiệu Nguyên là vương triều Trung Thổ làm sớm nhất, cũng tận hết sức lực nhất.
 
-Trữ Diêu không thích thiếu niên này, trừ không quản được ánh mắt, không quá biết nói chuyện ra, hơn nữa tâm tư quá nặng, hơn nữa không thuần túy, kiếm tu luyện kiếm, cố ý áp cảnh, quả nhiên là nửa điểm không muốn tôn trọng phi kiếm bản mạng của mình sao? Nếu nói tam giáo chư tử bách gia, đối với phi kiếm của kiếm tu, chỉ trích rất nhiều, có thể lý giải là đạo bất đồng bất tương vi mưu, như vậy vì sao ngay cả bản thân kiếm tu, cũng không nguyện ý xuất ra thêm một chút thành tâm thành ý. Cho nên sau khi đối phương xuất kiếm thua, Trữ Diêu chuẩn bị chỉ nói một câu, thế gian ngàn vạn thần tiên pháp, chỉ có phi kiếm trực tiếp nhất. Nếu không xuất kiếm liền nhận thua, như vậy những lời này đều không cần nhiều lời.
+Chỉ là mỗi lần nhắc riêng đến lão tú tài, quốc sư vốn có hy vọng đi theo con đường từ phó tế tửu đến tế tửu học cung, rồi phó giáo chủ văn miếu[?], lại không tỏ ra oán hận nhiều. Nếu không bàn chuyện làm người, chỉ bàn học vấn, quốc sư trái lại rất thưởng thức lão tú tài. Chuyện ấy càng khiến Lâm Quân Bích khó chịu.
 
-Kỳ thật ngoại trừ Lâm Quân Bích lúng túng nhất, cách đó không xa đường cái hai người đang giằng co nghiêm khắc, cũng rất xấu hổ.
+Ninh Diêu nói xong câu kia liền im lặng.
 
-Về phần người thứ hai thủ quan bên Kiếm Khí Trường Thành, kiếm tu Long Môn cảnh Lưu Thiết Phu, tự nhiên sẽ không xấu hổ, ngược lại rất vui vẻ, nguyên nhân rất đơn giản, hắn tự phong mình là người ngưỡng mộ Trữ Diêu đệ nhất nhân của Kiếm Khí Trường Thành, trưởng thành ở phố phường ngõ hẹp, lại có một bộ da mặt dày, thời điểm sớm nhất đã dùng hết mọi thủ đoạn, muốn lẫn vào Trữ phủ, ví dụ như Thôi Sàm, trước tiên trở thành đệ tử không ký danh đi đêm khuya của Nạp Lan, hoặc là ý đồ đi Trữ phủ làm tạp vụ, làm hộ viện trông cửa, nhưng mà mỗi một lần trên đường gặp được Trữ Diêu, Lưu Thiết Phu đều phải đỏ mặt, cúi đầu khom lưng, chạy đi thật xa, liền mạch lưu loát, cách thật xa, nhìn từ xa Trữ Diêu một chút liền hài lòng, nói là mình cách Trữ Diêu gần, thì sắc mặt sẽ trắng bệch, tay đổ mồ hôi, dễ dàng làm cho Trữ Diêu phiền chán mình.
+Đối với nàng, lựa chọn của Lâm Quân Bích rất đơn giản: không xuất kiếm thì nhận thua; xuất kiếm vẫn thua, chỉ là chịu khổ thêm một chút.
 
-Cho nên Lưu Thiết Phu lớn tiếng nói nghiêm luật, chờ bên kia xong xuôi, hai ta lại tỷ thí.
+Cho nên nàng không hiểu có gì phải nghĩ nhiều.
 
-Về phần Nghiêm Luật nghe không hiểu được ngôn ngữ của mình, Lưu Thiết Phu lười quản, dù sao hắn đã ngồi xổm trên mặt đất, xa xa nhìn vị Trữ cô nương kia, mấy lần phất tay, đại khái là muốn để cho thanh niên áo xanh trâm bạch ngọc bên cạnh Trữ cô nương kia khẩn cầu dời đi một chút, không nên gây trở ngại ta ngưỡng mộ Trữ cô nương.
+Ninh Diêu không thích thiếu niên này. Ngoài chuyện hắn không quản được ánh mắt, cũng không biết nói chuyện, còn bởi tâm tư quá nặng, không đủ thuần túy. Kiếm tu luyện kiếm mà cố ý áp chế cảnh giới, chẳng lẽ không muốn dành cho phi kiếm bản mạng của mình chút tôn trọng nào?
 
-Đối với người ngoại hương Trần Bình An kia, Lưu Thiết Phu vẫn tương đối bội phục, nhưng cho dù người này trước sau đánh thắng Tề Thú và Bàng Nguyên Tể, Lưu Thiết Phu cảm thấy hắn vẫn không xứng với Ninh cô nương, nhưng nếu Ninh cô nương chính mình thích, hắn cũng sẽ nhịn. Không đành lòng cũng không có biện pháp, đánh cũng đánh không lại, chỉ có thể tìm cơ hội đi tới tiệm rượu một chuyến, uống rượu, khắc tên mình, vụng trộm viết xuống một câu Ninh cô nương sau khi không có chuyện gì làm, người cô có yêu, ta rất thương. Kết quả lần thứ hai Lưu Thiết Phu đi uống rượu, liền nhìn thấy Trần Bình An kia đứng ở cửa hàng, cười hướng hắn ngoắc ngoắc, nói chúng ta tán gẫu. Lưu Thiết Phu không nói hai lời, nhanh chân chạy như điên, chỉ dám nhờ người hỏi thăm, khối bài vô sự kia của mình có bị vứt bỏ hay không, biết được không, liền cảm thấy Trần Bình An kia cũng không tệ lắm.
+Tam giáo chư tử bách gia chỉ trích phi kiếm của kiếm tu, có thể hiểu là đạo bất đồng bất tương vi mưu. Nhưng vì sao ngay cả bản thân kiếm tu cũng không chịu thành tâm thêm một chút?
 
-Người Trữ cô nương thích, nếu là bụng dạ hẹp hòi, quá không hợp lý.
+Cho nên nàng định chờ đối phương xuất kiếm rồi thua, sẽ nói một câu: thế gian có ngàn vạn phép thần tiên, chỉ có phi kiếm trực tiếp nhất. Nếu hắn không xuất kiếm đã nhận thua, ngay cả câu ấy cũng không cần nói.
 
-Từng vị kiếm tiên từ đầu tường chạy đến, dồn dập đáp xuống trên đầu tường phủ đệ hai bên đường cái.
+Thật ra ngoài Lâm Quân Bích đang khó xử nhất, Nghiêm Luật đang giằng co với người khác trên đường cách đó không xa cũng rất lúng túng.
 
-Không chỉ như thế, ở không trung giữa Kiếm Khí Trường Thành cùng thành trì, rõ ràng còn có kiếm tiên không ngừng ngự kiếm mà đến.
+Còn người thủ cửa thứ hai của Kiếm Khí Trường Thành, kiếm tu Long Môn cảnh Lưu Thiết Phu, đương nhiên không thấy khó xử, trái lại rất vui vẻ. Nguyên nhân rất đơn giản: hắn tự phong mình là người ngưỡng mộ Ninh Diêu số một Kiếm Khí Trường Thành.
 
-Lâm Quân Bích thần sắc tự nhiên, ôm quyền nói với Trữ Diêu: "Tuổi nhỏ vô tri, đắc tội nhiều. Lâm Quân Bích nhận thua."
+Lớn lên nơi phố phường ngõ hẹp, hắn có một bộ da mặt dày, lúc đầu dùng đủ mọi cách muốn lẻn vào Ninh phủ. Chẳng hạn noi theo Thôi Sàm[?], trước tiên trở thành đệ tử ký danh của Nạp Lan Dạ Hành, hoặc tìm cách vào phủ làm tạp dịch, làm hộ viện trông cửa.
 
-Biên cảnh thở phào nhẹ nhõm, không xuất kiếm là đúng, xuất kiếm rồi, biên cảnh sẽ lo lắng vị Lâm Quân Bích này kiếm đạo đỉnh trụ tương lai của vương triều Thiệu Nguyên, sẽ khiến kiếm tâm sụp đổ tha hương ở dị quốc, đến lúc đó quốc sư đại nhân cũng sẽ không tha cho hắn biên cảnh. Khác với Lâm Quân Bích suy nghĩ chu đáo chặt chẽ, biên cảnh sẽ không suy nghĩ quá nhiều, chỉ chọn một hai mạch lạc để nhìn thấu, ví dụ như Kiếm Khí Trường Thành có câu nói, Trữ Diêu là một loại kiếm tu, còn lại là một loại khác, hơn nữa Trữ Diêu từng tham gia nhiều lần ra khỏi thành chém giết, hơn nữa tuổi còn trẻ đã một mình du lịch Hạo Nhiên Thiên Hạ, Trữ Diêu tuyệt đối không phải loại ếch ngồi đáy giếng tư chất vô cùng tốt, cho nên Trữ Diêu có câu này, liền ý nghĩa Trữ Diêu nắm chắc thắng lợi, lời nói của nàng liền xuất kiếm.
+Nhưng mỗi lần gặp Ninh Diêu trên đường, Lưu Thiết Phu đều đỏ mặt, cúi đầu khom lưng rồi chạy thật xa, động tác liền mạch. Đứng cách thật xa nhìn Ninh Diêu một cái là hắn đã thỏa mãn. Theo lời hắn, đến gần Ninh Diêu thì mặt mày trắng bệch, tay đổ mồ hôi, rất dễ khiến nàng chán ghét mình.
 
-Cho nên biên cảnh căn bản không cần đi truy xét kỹ Ninh Diêu rốt cuộc vì sao phi kiếm, sát lực lớn nhỏ, nàng thân mang thần thông gì, cảnh giới như thế nào.
+Cho nên Lưu Thiết Phu lớn tiếng bảo Nghiêm Luật chờ bên kia xong xuôi rồi hai người lại tỷ thí.
+
+Nghiêm Luật có nghe hiểu lời mình hay không, hắn cũng lười quan tâm. Hắn ngồi xổm trên đất, xa xa nhìn Ninh cô nương, còn mấy lần phất tay, dường như muốn cầu thanh niên áo xanh cài trâm bạch ngọc bên cạnh nàng tránh ra một chút, đừng cản trở hắn ngưỡng mộ Ninh cô nương.
+
+Đối với người ngoại hương Trần Bình An, Lưu Thiết Phu vẫn khá bội phục. Nhưng cho dù người này lần lượt đánh thắng Tề Thú và Bàng Nguyên Tể, hắn vẫn cảm thấy Trần Bình An không xứng với Ninh cô nương. Chỉ là nếu chính nàng thích, hắn cũng đành nhịn.
+
+Không nhịn cũng chẳng còn cách nào, đánh lại không đánh thắng. Hắn chỉ có thể tìm dịp đến quán rượu uống một chén, khắc tên mình lên vô sự bài, lén viết một câu: “Ninh cô nương có người trong lòng, ta rất đau lòng”[?].
+
+Kết quả lần thứ hai đến uống rượu, hắn nhìn thấy Trần Bình An đứng ở cửa quán, cười ngoắc tay bảo hai người nói chuyện. Lưu Thiết Phu không nói hai lời, co chân chạy như điên, chỉ dám nhờ người hỏi thăm vô sự bài của mình có bị vứt đi hay không. Biết được không có, hắn liền cảm thấy Trần Bình An cũng không tệ lắm.
+
+Người Ninh cô nương thích mà bụng dạ hẹp hòi thì quá vô lý.
+
+Từng vị kiếm tiên từ đầu tường thành chạy tới, lần lượt đáp xuống tường các phủ đệ hai bên đường. Trên không trung giữa Kiếm Khí Trường Thành và thành trì, vẫn không ngừng có kiếm tiên ngự kiếm tới.
+
+Lâm Quân Bích thần sắc tự nhiên, ôm quyền với Ninh Diêu:
+
+- Tuổi nhỏ vô tri, đã đắc tội nhiều. Lâm Quân Bích nhận thua.
+
+Biên Cảnh thở phào nhẹ nhõm. Không xuất kiếm là đúng. Nếu xuất kiếm, hắn lo Lâm Quân Bích, trụ cột kiếm đạo tương lai của vương triều Thiệu Nguyên, sẽ để kiếm tâm sụp đổ nơi đất khách. Đến lúc đó quốc sư đại nhân cũng sẽ không tha cho Biên Cảnh hắn.
+
+Không giống Lâm Quân Bích suy nghĩ chu đáo chặt chẽ, Biên Cảnh không nghĩ quá nhiều, chỉ chọn một hai đầu mối để nhìn cho thấu. Chẳng hạn Kiếm Khí Trường Thành có câu: Ninh Diêu là một loại kiếm tu, những người còn lại là một loại khác.
+
+Hơn nữa nàng từng nhiều lần ra khỏi thành chém giết, còn trẻ đã một mình du lịch Hạo Nhiên Thiên Hạ, tuyệt đối không phải loại ếch ngồi đáy giếng chỉ có tư chất cực tốt. Nàng đã nói vậy tức là nắm chắc phần thắng. Lời nói của nàng cũng như xuất kiếm.
+
+Cho nên Biên Cảnh căn bản không cần truy xét phi kiếm của Ninh Diêu là gì, sát lực lớn nhỏ thế nào, nàng có thần thông gì, cảnh giới ra sao.
 
 Không cần thiết.
 
-Trữ Diêu nói: "Vậy ngươi tới Kiếm Khí Trường Thành, luyện kiếm ý nghĩa ở đâu?"
+Ninh Diêu nói:
 
-Lâm Quân Bích mỉm cười nói: "Không nhọc Trữ tỷ tỷ hao tâm tổn trí, Quân Bích tự có đại đạo có thể đi."
+- Vậy ngươi đến Kiếm Khí Trường Thành luyện kiếm có ý nghĩa gì?
 
-Trữ Diêu nhíu mày nói: "Đem lời nói thu hồi lại."
+Lâm Quân Bích mỉm cười:
 
-Lâm Quân Bích bất đắc dĩ nói: "Chẳng lẽ người xứ khác ở Kiếm Khí Trường Thành, đến mức cần thận trọng lời nói và việc làm như thế? Sau này Quân Bích xuất kiếm, chẳng phải là phải nơm nớp lo sợ."
+- Không nhọc Ninh tỷ tỷ hao tâm tổn trí, Quân Bích tự có đại đạo để đi.
 
-Trữ Diêu quay đầu nhìn phía Trần Bình An.
+Ninh Diêu nhíu mày:
 
-Trần Bình An cười nói: "Đừng quan tâm cái nhìn của ta. Trữ Diêu chính là Trữ Diêu."
+- Thu lại lời vừa rồi.
 
-Biên cảnh đi ra một bước.
+Lâm Quân Bích bất đắc dĩ nói:
 
-Cũng không thể trơ mắt nhìn Lâm Quân Bích trước sau thất cứ, chung quy vẫn là thiếu niên lang, cái gọi là trầm ổn, phần lớn là mưa dầm thấm đất nhiều năm ở bên cạnh Quốc Sư đại nhân, tạm thời vẫn là bắt chước nhiều hơn, vẫn chưa học được tinh túy. Huống chi Kiếm Tiên quan chiến như mây, mang đến áp lực quá lớn cho Lâm Quân Bích, thật ra đám người Nghiêm Luật Chu Mai nhìn không ra manh mối, biên cảnh lại rất rõ ràng, Lâm Quân Bích cơ hồ đã đến cực hạn ẩn nhẫn, người suy nghĩ nhiều, một khi ra tay, sẽ đặc biệt không quan tâm, rời khỏi vương triều Thiệu Nguyên, Quốc Sư đại nhân chuyên môn tìm hắn biên cảnh, đề cập việc này, hy vọng nửa đệ tử biên cảnh, có thể ở thời khắc mấu chốt ngăn cản sư đệ Lâm Quân Bích một cái, chính là vì không tổn thương tới đại đạo căn bản "Cực cờ thua", trợ giúp Lâm Quân Bích thắng cờ trên đường đời.
+- Chẳng lẽ người xứ khác ở Kiếm Khí Trường Thành phải thận trọng lời nói việc làm đến thế? Sau này Quân Bích xuất kiếm, chẳng phải cũng phải nơm nớp lo sợ sao?
 
-Bởi vì trong mắt quốc sư, vị đệ tử đắc ý Lâm Quân Bích này đến Kiếm Khí Trường Thành, không vì luyện kiếm, mà là trọng tu tâm. Bằng không Lâm Quân Bích loại kiếm phôi tiên thiên không xuất thế, vô luận ở nơi nào tu hành kiếm đạo, ở đỉnh núi Ly Trần, ở phố phường lầy lội, ở miếu đường giang hồ, chênh lệch cũng không lớn. Vấn đề hoàn toàn là Lâm Quân Bích quá tự phụ mà không tự biết, đây là cực đoan, Quân Bích kiếm thuật cao hơn là tất nhiên, căn bản không cần sốt ruột, nhưng mà tâm tính của Quân Bích lại cần hướng hai chữ Dung dựa vào, phải tránh đi một cực đoan khác, bằng không đạo tâm bị long đong, kiếm tan nát cõi lòng, chính là thiên đại tai ương.
+Ninh Diêu quay đầu nhìn Trần Bình An.
 
-Biên cảnh thật ra đều có chút ghen tị tiểu tử Lâm Quân Bích này, đáng giá Quốc sư cẩn thận từng li từng tí dẫn dắt con đường tu đạo như thế.
+Hắn cười nói:
 
-Trần Bình An mặt mang ý cười, hầu như đồng thời, cùng nhau đi về phía trước một bước, cười nhìn phía vị đồng đạo thiện nghệ giả vờ công phu, đáng tiếc đối phương chỉ có cảnh giới giả vờ làm con trai, giả bộ con trai cũng không tính, vẫn là kém không ít hỏa hầu. Lúc trước trong xung đột ở quán rượu kia, biểu hiện của vị huynh đệ này cũng quá mức rõ ràng, không đủ nước chảy thành sông, ít nhất sắc mặt cùng ánh mắt đối phương thất kinh, phần luống cuống tay chân nhìn như hậu tri hậu giác, không đủ thành thạo tự nhiên, hăng hái quá hoá dở.
+- Đừng quan tâm ta nghĩ thế nào. Ninh Diêu chính là Ninh Diêu.
 
-Ít nhất không dùng được ở Trần Bình An bên này.
+Biên Cảnh bước ra một bước.
 
-Trữ Diêu nói: "Người ngoại lai qua ba cửa, các ngươi có thể sẽ cảm thấy là chúng ta khi nhục người khác, thực ra không phải vậy, là một loại lễ kính của kiếm tu Kiếm Khí Trường Thành ta, nhưng ba cửa ải, thua liên tiếp ba trận thì đã sao, dám đến đầu tường kiếm khí Trường Thành lịch lãm, dám đi đầu tường liếc mắt nhìn thiên hạ hoang, cũng đã đủ chứng minh thân phận kiếm tu. Nhưng mà ngươi nếu ở trên việc này trăm phương ngàn kế, tự mình chế định quy củ, tính toán kiếm khí Trường Thành, cũng không sao, chém giết trên chiến trường, có thể tính toán đối thủ thành công, đó là bản lãnh của Lâm Quân Bích ngươi. Dù sao kiếm tu dựa vào kiếm nói chuyện, thắng chính là thắng."
+Hắn không thể trơ mắt nhìn Lâm Quân Bích liên tiếp thất thế. Chung quy vẫn là thiếu niên, vẻ trầm ổn phần lớn là do nhiều năm ở bên quốc sư đại nhân mưa dầm thấm đất, bây giờ vẫn bắt chước nhiều hơn, chưa học được tinh túy.
 
-Các kiếm tiên quan chiến âm thầm gật đầu, phần lớn đều hiểu ý cười một tiếng.
+Huống chi kiếm tiên quan chiến đông như mây, tạo cho Lâm Quân Bích áp lực quá lớn. Đám Nghiêm Luật, Chu Mai không nhìn ra, nhưng Biên Cảnh hiểu rất rõ: Lâm Quân Bích gần như đã nhẫn nhịn đến cực hạn. Người suy nghĩ càng nhiều, một khi ra tay lại càng dễ bất chấp tất cả.
 
-Tuyệt đại đa số Kiếm Tiên bản thổ, có người nào chưa từng trẻ tuổi, cũng đều tự mình thủ qua ba cửa.
+Trước khi rời vương triều Thiệu Nguyên, quốc sư đặc biệt tìm Biên Cảnh nhắc đến chuyện này, hy vọng nửa đệ tử như hắn có thể ngăn sư đệ vào lúc then chốt, để không tổn hại căn bản đại đạo vì một ván cờ thua[?], giúp Lâm Quân Bích thắng ván cờ trên đường đời.
 
-Ngược lại là một ít kiếm tu trẻ tuổi, hai mặt nhìn nhau, vừa nói như vậy với Trữ Diêu, mới phát hiện chúng ta vốn là đạo đức tốt như vậy? Không đúng, chúng ta vốn là muốn đánh cho những hộ ngoại lai mặt xám mày tro kia phải không? Tựa như nhóm người Tề Thú kia cộng thêm Bàng Nguyên Tế vốn chỉ là giúp vui, kết phường đánh nhị chưởng quầy kia, chúng ta khởi điểm đều coi là trò cười. Về phần nhị chưởng quỹ hắc tâm cẩu keo kiệt kia cuối cùng lại thắng, đương nhiên lại là chuyện khác. Nhưng nói như vậy, Trữ Diêu ngược lại không nói sai, kiếm khí Trường Thành, đối với cường giả chân chính, vô luận đến từ nơi nào của Hạo Nhiên Thiên Hạ, cũng không có khúc mắc, hoặc nhiều hoặc ít, đều nguyện ý lễ kính vài phần từ đáy lòng.
+Bởi trong mắt quốc sư, đệ tử đắc ý đến Kiếm Khí Trường Thành không phải để luyện kiếm, mà chú trọng tu tâm. Một tiên thiên kiếm phôi hiếm thấy như Lâm Quân Bích, bất kể tu hành kiếm đạo ở đâu, trên đỉnh núi cách xa bụi trần, nơi phố phường lầy lội hay giữa miếu đường giang hồ, khác biệt cũng không lớn.
 
-Kiếm tiên, có A Lương chó hoang, kiếm thuật cao hơn trên dưới tầng mây, Bảo Bình châu nho nhỏ tiêu sái Ngụy Tấn.
+Vấn đề là Lâm Quân Bích quá tự phụ mà không tự biết, đó là một cực đoan. Kiếm thuật của hắn cao hơn nữa là chuyện tất nhiên, căn bản không cần sốt ruột. Nhưng tâm tính hắn phải tiến gần đến hai chữ trung dung[?], tránh đi sang cực đoan khác, bằng không đạo tâm long đong, kiếm tâm tan vỡ, chính là tai họa tày trời.
 
-Người trẻ tuổi, trước có phong thái thần tiên Tào Từ, sau có Trần Bình An thối không biết xấu hổ.
+Biên Cảnh thật ra có chút ghen tị với tiểu tử này, được quốc sư cẩn thận dẫn dắt con đường tu đạo như thế.
 
-Lâm Quân Bích hít sâu một hơi, "Chẳng lẽ ngươi nhất định phải xuất kiếm chém giết, mới bỏ qua?"
+Trần Bình An mỉm cười, gần như đồng thời bước lên một bước, nhìn vị đồng đạo giỏi giả vờ kia. Đáng tiếc công phu của đối phương vẫn kém không ít hỏa hầu[?]. Trong cuộc xung đột ở quán rượu lúc trước, biểu hiện của vị huynh đệ này quá rõ ràng, không đủ tự nhiên. Sắc mặt, ánh mắt kinh hoảng và vẻ luống cuống như chậm nhận ra sự tình đều chưa thuần thục, có chút hăng quá hóa dở.
 
-"Lúc trước lời nói này, chỉ là lời khách khí. Ta hi vọng ngươi xuất kiếm, chỉ là nhìn ngươi không vừa mắt."
+Ít nhất trò ấy không qua được mắt Trần Bình An.
 
-Trữ Diêu nói: "Ngươi nếu nói mình còn trẻ không biết gì, vậy ta sẽ áp cảnh thấp hơn so với ngươi, cái này cũng không dám xuất kiếm, còn phải như thế nào mới dám xuất kiếm, cùng Cao Ấu Thanh?"
+Ninh Diêu nói:
 
-Nói tới đây, Trữ Diêu quay đầu nhìn lại, nhìn phía cô gái đứng ở giữa Cao Dã Hầu cùng Bàng Nguyên Tể, hốc mắt sưng đỏ, "Khóc cái gì mà khóc, về nhà khóc đi."
+- Người ngoài đến đây phải qua ba cửa, các ngươi có thể cảm thấy chúng ta khi nhục người khác. Thật ra không phải, đó là một cách kiếm tu Kiếm Khí Trường Thành bày tỏ lòng kính trọng. Thua liên tiếp ba trận thì đã sao? Dám đến đầu tường Kiếm Khí Trường Thành lịch lãm, dám đứng trên đó nhìn Man Hoang thiên hạ một lần, đã đủ chứng minh thân phận kiếm tu.
 
-Cao Ấu Thanh lúc này trên mặt kỳ thực đã không còn nước mắt, vẫn sợ tới mức vội vàng lau lau khuôn mặt.
+- Nhưng nếu ngươi trăm phương ngàn kế, tự đặt ra quy củ để tính toán Kiếm Khí Trường Thành, cũng không sao. Chém giết trên chiến trường mà tính kế đối thủ thành công là bản lĩnh của Lâm Quân Bích ngươi. Dù sao kiếm tu dựa vào kiếm nói chuyện, thắng chính là thắng.
 
-Trong khoảnh khắc biên cảnh, trong lòng biết không ổn, muốn có động tác, lại nhìn thấy ánh mắt Trần Bình An kia, liền có chần chờ trong nháy mắt.
+Các kiếm tiên quan chiến thầm gật đầu, phần lớn đều hiểu ý mỉm cười. Tuyệt đại đa số kiếm tiên bản thổ, ai mà chưa từng trẻ tuổi, cũng đều từng tự mình thủ ba cửa.
+
+Ngược lại, một số kiếm tu trẻ tuổi nhìn nhau. Nghe Ninh Diêu nói như vậy mới phát hiện chúng ta vốn có đạo đức tốt đến thế sao? Không đúng, chẳng phải ban đầu chúng ta muốn đánh đám người ngoại hương kia mặt xám mày tro sao?
+
+Giống như đám Tề Thú cùng Bàng Nguyên Tể vốn chỉ đến góp vui, kết phường đánh Nhị chưởng quầy, ban đầu mọi người đều coi là trò cười. Còn tên Nhị chưởng quầy lòng dạ đen tối, keo kiệt kia cuối cùng lại thắng, đương nhiên là chuyện khác.
+
+Nhưng nói đi cũng phải nói lại, Ninh Diêu không sai. Kiếm Khí Trường Thành đối với cường giả thật sự, bất kể đến từ nơi nào ở Hạo Nhiên Thiên Hạ, đều không có khúc mắc, ít nhiều đều thật lòng kính trọng.
+
+Trong các kiếm tiên có A Lương chó hoang, kiếm thuật cao tận trên mây, có Ngụy Tấn tiêu sái đến từ Bảo Bình Châu nhỏ bé.
+
+Người trẻ tuổi trước có Tào Từ phong thái thần tiên, sau có Trần Bình An thối không biết xấu hổ.
+
+Lâm Quân Bích hít sâu một hơi:
+
+- Chẳng lẽ ngươi nhất định phải xuất kiếm chém giết mới chịu bỏ qua?
+
+- Những lời vừa rồi chỉ là khách sáo. Ta muốn ngươi xuất kiếm, chỉ vì nhìn ngươi không vừa mắt.
+
+Ninh Diêu nói:
+
+- Ngươi đã nói mình trẻ tuổi không biết gì, vậy ta sẽ áp cảnh thấp hơn ngươi. Như thế vẫn không dám xuất kiếm, phải thế nào mới dám? Đánh với Cao Ấu Thanh sao?
+
+Nói đến đây nàng quay đầu nhìn thiếu nữ mắt sưng đỏ đang đứng giữa Cao Dã Hầu và Bàng Nguyên Tể:
+
+- Khóc cái gì, về nhà mà khóc.
+
+Trên mặt Cao Ấu Thanh lúc này thật ra đã không còn nước mắt, nhưng vẫn sợ đến mức vội vàng lau mặt.
+
+Trong khoảnh khắc ấy, Biên Cảnh biết không ổn, muốn hành động, nhưng nhìn thấy ánh mắt Trần Bình An thì chần chừ một thoáng.
 
 Lâm Quân Bích như rơi vào hầm băng.
 
-Trên đường cái cùng hai bên cửa lớn và đầu tường, đầu tiên là kiếm quang lóe lên, sau đó trong nháy mắt, Lâm Quân Bích phảng phất như đặt mình trong một tòa đại trận phi kiếm.
+Trên đường cái, trước cửa và trên đầu tường hai bên, kiếm quang lóe lên. Trong nháy mắt, Lâm Quân Bích tựa như đặt mình giữa một đại trận phi kiếm.
 
-Mấy chục thanh "phi kiếm bản mạng" tựa như kiếm tiên thượng ngũ cảnh, kiếm tu Địa tiên tự mình tế kiếm hiện thế, vây khốn thiếu niên Lâm Quân Bích, kiếm ý thuần túy, sát khí nồng đậm, căn bản không có bất cứ dấu hiệu mô phỏng nào.
+Mấy chục thanh “phi kiếm bản mạng” giống như do kiếm tiên thượng ngũ cảnh và kiếm tu Địa Tiên tự mình tế ra, vây khốn thiếu niên. Kiếm ý thuần túy, sát khí nồng đậm, căn bản không có dấu hiệu là vật mô phỏng.
 
-Mỗi một thanh phi kiếm, mũi kiếm lơ lửng ở bốn phía Lâm Quân Bích, đều có khác biệt, nhưng đều không ngoại lệ, đều là những khiếu huyệt mấu chốt tu hành khẩn yếu nhất của Lâm Quân Bích.
+Mũi kiếm lơ lửng bốn phía, mỗi thanh đều khác nhau nhưng không ngoại lệ đều chỉ vào những khiếu huyệt quan trọng nhất trên đường tu hành của Lâm Quân Bích.
 
-Nhưng đây vẫn chưa phải là chuyện khiến Lâm Quân Bích lạnh cả sống lưng, tim mật sắp nứt ra nhất.
+Nhưng đó còn chưa phải chuyện khiến hắn lạnh sống lưng nhất.
 
-Một màn khiến thiếu niên cảm thấy tuyệt vọng nhất, là một thanh phi kiếm lơ lửng ở phía trước một trượng, mũi kiếm trực chỉ mi tâm.
+Một thanh phi kiếm lơ lửng phía trước một trượng, mũi kiếm chĩa thẳng mi tâm, mới là cảnh tượng khiến hắn tuyệt vọng nhất.
 
-Phi kiếm bản mệnh của Lâm Quân Bích tên là "Sát Giao".
+Phi kiếm bản mạng của Lâm Quân Bích tên là Sát Giao.
 
-Mà một thanh trước mắt mình, chính là "Giết giao".
+Mà thanh trước mắt cũng chính là Sát Giao.
 
-Phi kiếm bản mạng của Lâm Quân Bích tự nhiên là ở khiếu huyệt bản mệnh, phi kiếm trước mắt đương nhiên là một thanh phỏng chế phi kiếm, nhưng ngoại trừ Lâm Quân Bích không cách nào tâm ý tương thông, chỉ nói khí tức, kiếm khí, thần ý, đúng là không khác gì bản mạng phi kiếm của mình. Lâm Quân Bích thậm chí hoài nghi thanh kiếm giết giao mô phỏng kiếm tuyệt đối không nên xuất hiện ở nhân gian này, có thể hay không thật sự có được bản mạng thần thông giết giao.
+Phi kiếm bản mạng của hắn đương nhiên vẫn ở trong khiếu huyệt bản mạng. Thanh trước mắt chắc chắn là phi kiếm phỏng chế, nhưng ngoại trừ việc không thể tâm ý tương thông với hắn, khí tức, kiếm khí, thần ý đều không khác gì bản mạng phi kiếm của hắn.
 
-Đừng nói là Lâm Quân Bích, ngay cả Trần Bình An cũng là ở giờ khắc này, mới hiểu được vì sao Trữ Diêu lúc trước nói chuyện phiếm với hắn, lại hời hợt nói một câu như vậy, "Cảnh giới với ta, ý tứ không lớn".
+Lâm Quân Bích thậm chí hoài nghi thanh Sát Giao mô phỏng vốn tuyệt đối không nên xuất hiện ở nhân gian này, liệu có thật sự có được thần thông bản mạng của Sát Giao hay không.
 
-Chỉ tiếc Trữ Diêu luôn không thích đàm luận tu hành của mình ở chỗ Trần Bình An.
+Đừng nói Lâm Quân Bích, ngay cả Trần Bình An đến lúc này mới hiểu vì sao trước kia lúc trò chuyện, Ninh Diêu từng hời hợt nói một câu: “Cảnh giới đối với ta không có ý nghĩa lắm”.
 
-Càng nhiều là kiên nhẫn nghe Trần Bình An tán gẫu về những chuyện vụn vặt lông gà vỏ tỏi, nhiều nhất chính là vỗ rơi bàn tay lén lút đưa qua của hắn.
+Chỉ tiếc nàng luôn không thích bàn chuyện tu hành của mình với hắn. Phần nhiều nàng kiên nhẫn nghe Trần Bình An kể những chuyện vụn vặt, nhiều nhất chỉ vỗ rơi bàn tay hắn lén đưa sang.
 
-Sau khi Lâm Quân Bích tuyệt vọng lớn nhất, lại còn có tuyệt vọng lớn hơn nữa.
+Sau nỗi tuyệt vọng lớn nhất của Lâm Quân Bích, vẫn còn nỗi tuyệt vọng lớn hơn.
 
-Nếu nói Trữ Diêu tế ra nhiều phi kiếm sâu cạn không biết như vậy, nhất là Trữ Diêu có thể bắt chước bản mạng phi kiếm của mình, mấy chục thanh phi kiếm công phạt, vây khốn hắn, đã đủ kinh thế hãi tục, như vậy Trữ Diêu bên kia, lại có mấy chục thanh phi kiếm kết trận, kiếm dẫn dắt, không biết lấy thần thông gì, tạo ra một tòa tiểu thiên địa danh xứng với thực, Trữ Diêu tu vi cảnh giới quả thật áp chế ở Quan Hải cảnh, cứ đặt mình trong đó, là Quan Hải cảnh không giả, nhưng đây còn tính là Quan Hải cảnh gì?
+Nếu việc Ninh Diêu tế ra nhiều phi kiếm không biết sâu cạn như vậy, đặc biệt là có thể mô phỏng phi kiếm bản mạng của hắn, dùng mấy chục thanh phi kiếm vây khốn hắn, đã đủ kinh thế hãi tục, thì bên phía nàng lại có thêm mấy chục thanh phi kiếm kết trận. Kiếm khí dẫn dắt, không biết dùng thần thông gì tạo thành một tòa tiểu thiên địa danh xứng với thực.
 
-Đừng nói là Lâm Quân Bích, cho dù là sư huynh ở biên cảnh bình cảnh Kim Đan, muốn lấy phi kiếm phá vỡ một tòa tiểu thiên địa, rất dễ dàng sao?
+Tu vi Ninh Diêu quả thật áp chế ở Quan Hải cảnh. Nàng ở trong đó, là Quan Hải cảnh không giả, nhưng đây còn tính là Quan Hải cảnh gì?
 
-Trữ Diêu lạnh nhạt nói: "Xuất kiếm."
+Đừng nói Lâm Quân Bích, ngay cả sư huynh Biên Cảnh đang ở bình cảnh Kim Đan, muốn dùng phi kiếm phá vỡ một tòa tiểu thiên địa, chẳng lẽ dễ dàng sao?
 
-Lâm Quân Bích thần sắc dại ra, không có xuất kiếm, run giọng hỏi: "Vì sao rõ ràng là kiếm thuật, lại có thể xuất thần nhập hóa Thông Huyền?"
+Ninh Diêu lạnh nhạt nói:
 
-Trữ Diêu nói: "Thuật pháp thiên hạ trước đó là kiếm thuật, cái này cũng không biết? Ngươi sẽ không cảm thấy kiếm tiên Kiếm Khí Trường Thành sẽ chỉ dùng bội kiếm cùng phi kiếm đập hướng chiến trường chứ?"
+- Xuất kiếm.
 
-Trữ Diêu nhìn thiếu niên kia, lắc đầu, triệt hồi phi kiếm cùng tiểu thiên địa bên người.
+Lâm Quân Bích thần sắc đờ đẫn, không xuất kiếm, run giọng hỏi:
 
-Hơn mười thanh phi kiếm xung quanh Lâm Quân Bích cũng biến mất không thấy.
+- Vì sao rõ ràng là kiếm thuật, lại có thể xuất thần nhập hóa, thông huyền đến thế?
 
-Biên cảnh nhẹ giọng quát: "Không được!"
+Ninh Diêu nói:
 
-Biên cảnh một bước tiến về phía trước, bất chấp che giấu tu vi, cũng phải ngăn cản Lâm Quân Bích liều lĩnh thất thố tế ra phi kiếm bản mạng.
+- Trước khi có thuật pháp thiên hạ đã có kiếm thuật, chuyện này cũng không biết? Ngươi không thật sự cho rằng kiếm tiên Kiếm Khí Trường Thành chỉ biết ném bội kiếm và phi kiếm về phía chiến trường chứ?
 
-Trần Bình An không phải không phát hiện thiếu niên dụng tâm hiểm ác nọ, vẫn không có bất cứ động tác gì, hai tay áo bào, an tâm mang chiến trường giao cho Trữ Diêu.
+Nàng nhìn thiếu niên, lắc đầu, thu hồi phi kiếm và tiểu thiên địa bên cạnh. Hơn mười thanh phi kiếm xung quanh Lâm Quân Bích cũng biến mất.
 
-Cảnh giới Trữ Diêu là người đứng đầu cùng thế hệ, chiến trận chém giết nhiều, ra khỏi thành chiến công to lớn, há không phải?
+Biên Cảnh khẽ quát:
 
-Trước người Trữ Diêu xuất hiện một tòa kiếm trận tinh xảo lung linh, kim quang dẫn dắt, thanh phi kiếm giết giao đột ngột xuất hiện kia của Lâm Quân Bích, bị giam giữ chặt chẽ trong đó.
+- Không được!
+
+Hắn bước tới, bất chấp bại lộ tu vi cũng phải ngăn Lâm Quân Bích mất hết chừng mực, liều lĩnh tế ra phi kiếm bản mạng.
+
+Trần Bình An không phải không nhận ra tâm tư hiểm ác của thiếu niên, nhưng vẫn không có động tác gì. Hắn lồng hai tay trong tay áo, yên tâm giao chiến trường cho Ninh Diêu.
+
+Cảnh giới của nàng đứng đầu cùng thế hệ, chẳng lẽ số trận chém giết cùng chiến công khi ra khỏi thành lại không đứng đầu?
+
+Trước người Ninh Diêu xuất hiện một kiếm trận tinh xảo nhỏ nhắn, kim quang dẫn dắt, giam chặt thanh phi kiếm Sát Giao đột ngột xuất hiện của Lâm Quân Bích.
 
 Không chỉ như thế.
 
-Lúc trước bốn phía Lâm Quân Bích chợt lóe lên mấy chục thanh phi kiếm rồi biến mất, như mũi tên bắn chụm, đồng thời đâm thủng mấy chục khiếu huyệt trên thân thể Lâm Quân Bích, sau đó bỗng nhiên huyền đình, mũi kiếm nhao nhao hướng ra ngoài, chuôi kiếm hướng về thiếu niên, trong đó có thanh kiếm mô phỏng Sát Giao, từ mi tâm Lâm Quân Bích chợt lóe rồi biến mất, lơ lửng cách sau lưng thiếu niên một trượng, mũi kiếm ngưng tụ ra một giọt máu tươi.
+Mấy chục thanh phi kiếm từng lóe lên rồi biến mất quanh người hắn, tựa như mũi tên bắn chụm, đồng thời xuyên qua mấy chục khiếu huyệt trên thân thể hắn, sau đó đột ngột dừng lại giữa không trung. Mũi kiếm đều hướng ra ngoài, chuôi kiếm hướng về thiếu niên.
 
-Lâm Quân Bích toàn thân đẫm máu, lảo đảo sắp ngã.
+Trong đó thanh kiếm mô phỏng Sát Giao lóe qua mi tâm Lâm Quân Bích, lơ lửng sau lưng hắn một trượng, trên mũi kiếm ngưng tụ một giọt máu tươi.
 
-Lâm Quân Bích hai mắt nhìn chằm chằm Trữ Diêu tựa như sớm đã là kiếm tiên.
+Lâm Quân Bích toàn thân đẫm máu, lảo đảo sắp ngã, hai mắt nhìn chằm chằm Ninh Diêu tựa như đã sớm là kiếm tiên.
 
-Thiếu niên thua không thể nghi ngờ và nên nhận thua, hai điểm kim quang ở sâu trong đôi mắt chợt sáng lên.
+Thiếu niên đã thua không còn nghi ngờ, lẽ ra nên nhận thua, nhưng sâu trong hai mắt bỗng sáng lên hai điểm kim quang.
 
-Hai thanh phi kiếm bản mạng ẩn nấp ôn dưỡng nhiều năm trong mắt, điều này có nghĩa là Lâm Quân Bích không khác gì Tề Thú kia, đều có ba thanh phi kiếm tiên thiên.
+Hai thanh phi kiếm bản mạng được giấu kín ôn dưỡng nhiều năm trong mắt. Điều này có nghĩa Lâm Quân Bích không khác Tề Thú, đều có ba thanh phi kiếm tiên thiên.
 
-Chỉ là những điểm này đến điểm dừng, thiếu niên nhẹ thương hơn mười thanh phi kiếm huyền đình, vẽ ra từng đường vòng cung kiếm quang các màu, mũi kiếm tập hợp, vây quanh ở trước hai mắt Lâm Quân Bích.
+Chỉ là hơn mười thanh phi kiếm đang lơ lửng gây thương tích nhẹ cho hắn lập tức vẽ ra từng đường kiếm quang đủ màu, mũi kiếm tụ lại vây trước hai mắt hắn, khiến hắn không thể nhúc nhích[?].
 
-Lâm Quân Bích không hề nhúc nhích.
+Thiếu niên lại có âm thần xuất khiếu, lướt ngang mấy bước, tay cầm trường kiếm, sắp xuất kiếm về phía Ninh Diêu.
 
-Thiếu niên lại có âm thần xuất khiếu, lướt ngang mấy bước, trong tay nắm một thanh trường kiếm, sắp hướng Trữ Diêu xuất kiếm.
+Ninh Diêu vẫn đứng yên, cũng có một âm thần dáng người phiêu dật như thần tiên xuất hiện. Trong tay âm thần nàng là một bán tiên binh đã sớm đại luyện thành vật bản mạng. Nàng chẳng thèm nhìn âm thần Lâm Quân Bích, một tay cầm kiếm, mũi kiếm đã đặt lên trán thiếu niên.
 
-Trữ Diêu cũng lù lù bất động, cũng có một pho tượng âm thần dáng người phiêu diêu như thần tiên, cầm trong tay một bán tiên binh sớm đã đại luyện thành vật bản mạng, cũng không thèm nhìn âm thần Lâm Quân Bích kia, một tay cầm kiếm, mũi kiếm đã sớm đặt lên trán thiếu niên.
+Chân thân Ninh Diêu chậm rãi nói:
 
-Chân thân Trữ Diêu, chậm rãi nói: "Ta nhịn không giết ngươi, so với tùy tiện giết ngươi càng khó hơn. Cho nên ngươi phải tiếc mạng."
+- Ta nhịn không giết ngươi còn khó hơn tiện tay giết ngươi. Cho nên ngươi phải biết quý mạng.
 
-Lâm Quân Bích cho đến giờ phút này mới biết cái gì gọi là thiên tài mà quốc sư tiên sinh nói, vẫn có khác biệt một trời một vực.
+Đến giờ phút này Lâm Quân Bích mới hiểu lời quốc sư tiên sinh nói: giữa thiên tài với thiên tài vẫn có khác biệt một trời một vực.
 
-Lâm Quân Bích toàn thân đẫm máu, ánh mắt ảm đạm, tâm như cây khô.
+Hắn toàn thân đẫm máu, ánh mắt ảm đạm, tâm như cây khô.
 
-Biên cảnh tỏ rõ thành ý, không có tận lực cầu nhanh, sải bước đi đến bên cạnh Lâm Quân Bích, đưa tay đè lại đầu vai thiếu niên, trầm giọng nói: "Đánh cờ há có thể không thắng bại!"
+Biên Cảnh tỏ rõ thành ý, không cố cầu nhanh, sải bước đến bên cạnh thiếu niên, đặt tay lên vai hắn, trầm giọng nói:
 
-Ánh mắt Lâm Quân Bích khôi phục vài phần sáng ngời trước kia.
+- Đánh cờ há có thể không thắng không bại!
 
-Có kiếm tiên quan chiến cười nói: "Quá không tận hứng, Ninh nha đầu cho dù áp cảnh, vẫn giữ lại hơn phân nửa lực lượng."
+Ánh mắt Lâm Quân Bích khôi phục mấy phần sáng ngời.
 
-Hảo hữu kiếm tiên bên cạnh nói: "Được rồi, tuổi của chúng ta so với thiếu niên đầu óc bị nước vào kia, đoán chừng càng không nên chuyện."
+Một kiếm tiên quan chiến cười nói:
 
-Kiếm tiên Đào Văn đột nhiên bật ra một câu, "Có lẽ là uống quá nhiều rượu của Trần Bình An."
+- Xem chưa tận hứng. Ninh nha đầu cho dù áp cảnh vẫn giữ lại hơn phân nửa lực lượng.
 
-Không ít kiếm tu kiếm tiên tán thành.
+Hảo hữu kiếm tiên bên cạnh nói:
 
-Một lão kiếm tiên cảnh giới Tiên Nhân cười nói: "Ninh nha đầu, thanh "Hoành Tinh Đấu" này của ta không thể bắt chước được, vẫn còn kém một chút hỏa hầu, sao nào, xem thường phi kiếm bản mạng của ta?"
+- Thôi đi, lúc bằng tuổi thiếu niên đầu óc bị nước vào kia, chúng ta e rằng còn chẳng nên trò trống gì.
 
-Một lão kiếm tiên ở trong phủ đệ của mình ở phố Thái Tượng cười nhạo nói: "Thanh kiếm rách kia của ngươi vốn không được, mỗi lần xuất chiến đều là thứ chẳng để ý mông, cứ như làm được cái rắm vậy."
+Kiếm tiên Đào Văn đột nhiên nói một câu:
 
-Lưu Thiết Phu lau hốc mắt, kích động vạn phần, không hổ là Ninh cô nương mình chỉ dám nhìn xa, vụng trộm ngưỡng mộ, quá mạnh mẽ.
+- Có lẽ là uống quá nhiều rượu của Trần Bình An.
 
-Trần Bình An hai tay che lại, nói rõ với Lâm Quân Bích: "Thắng bại đối với ngươi mà nói, chỉ là việc nhỏ, mặt mũi cũng chỉ là chuyện lớn, huống chi có thể khiến Trữ Diêu nhà ta xuất kiếm, ngươi có thể thua bao nhiêu? Cho nên đừng giả bộ ở chỗ này với ta, được tiện nghi thì vui vẻ tiếp lấy, cất kỹ, về nhà vụng trộm vui vẻ. Bằng không ta thật sự sẽ không khách khí với ngươi."
+Không ít kiếm tu kiếm tiên đều tán thành.
 
-Sau đó Trần Bình An cười nói với biên cảnh kia: "Ngươi lo lắng vô ích cho hắn."
+Một lão kiếm tiên cảnh giới Tiên Nhân cười nói:
 
-Lâm Quân Bích ngoảnh mặt làm ngơ, Âm thần thu kiếm trở về khiếu, ôm quyền cúi đầu nói: "Cảm tạ Ninh tiền bối chỉ điểm kiếm thuật, đời này cuộc đời này của Quân Bích suốt đời khó quên."
+- Ninh nha đầu, thanh Hoành Tinh Đấu của ta ngươi không bắt chước được, vẫn còn kém chút hỏa hầu. Sao nào, xem thường phi kiếm bản mạng của ta?
 
-Trữ Diêu thu hồi âm thần cầm kiếm, nói: "Tùy ngươi, dù sao ta không nhớ được ngươi là ai."
+Một lão kiếm tiên trong phủ đệ ở phố Thái Tượng cười nhạo:
 
-Sau đó Trữ Diêu nhìn Nghiêm Luật cùng Lưu Thiết Phu trên đường cái, nhíu mày nói: "Còn xem kịch?"
+- Thanh kiếm rách của ngươi vốn chẳng ra gì, mỗi lần xuất chiến đều chẳng màng đến phía sau[?], làm được cái rắm gì chứ.
 
-Lưu Thiết Phu nhảy dựng lên, mẹ nó chứ, Trữ cô nương vậy mà lần đầu tiên nhìn ta một cái, khẩn trương, thật sự là có chút khẩn trương.
+Lưu Thiết Phu lau khóe mắt, kích động vạn phần. Không hổ là Ninh cô nương mà hắn chỉ dám nhìn từ xa, lén lút ngưỡng mộ, thật sự quá mạnh!
 
-Nghiêm Luật lại cảm thấy mình đánh một trận, đánh hay là không đánh, hình như cũng không có thú vị gì. Thắng không thú vị, thua mất mặt. Đoán chừng mặc kệ hai bên kế tiếp đánh sống đánh chết như thế nào, cũng không có mấy người nhấc lên hứng thú nhìn vài lần.
+Trần Bình An lồng hai tay trong tay áo, nói với Lâm Quân Bích:
 
-Sau khi thấy nữ tử kia thu tay lại, từng vị kiếm tiên đã sớm kết thành đội ngự kiếm đi xa, từng nhân vật thần tiên cao cao tại thượng, lúc rời đi, hình như rất vui vẻ?
+- Thắng bại đối với ngươi chỉ là chuyện nhỏ, mặt mũi cũng chỉ là chuyện lớn[?]. Huống chi khiến được Ninh Diêu nhà ta xuất kiếm, ngươi có thể thua bao nhiêu? Cho nên đừng giả bộ trước mặt ta, được tiện nghi thì vui vẻ nhận lấy, cất kỹ, về nhà lén vui. Bằng không ta thật sự sẽ không khách khí với ngươi.
 
-Lâm Quân Bích xoay người rời đi, lắc lư.
+Sau đó hắn cười nói với Biên Cảnh:
 
-Đối phương xuất kiếm, không làm tổn thương đến căn bản tu hành của hắn, chỉ là bộ dáng thê thảm một chút.
+- Ngươi lo lắng cho hắn vô ích rồi.
 
-Đối với trận thắng bại này, tựa như tên kia nói, Trữ Diêu chứng minh kiếm đạo của nàng quả thật rất cao, ngược lại không thương tổn Lâm Quân Bích hắn quá nhiều đạo tâm, ảnh hưởng đương nhiên khẳng định sẽ có, từ nay về sau mấy năm, nhắm chừng cũng sẽ như sương mù bao phủ Lâm Quân Bích kiếm tâm, như có núi cao vô hình trấn áp tâm hồ, nhưng mà Lâm Quân Bích tự nhận có thể xua tan mây mù, dời đi núi cao, chỉ có ngôn ngữ Trần Bình An ở ngoài chiến cuộc mới thật sự ghê tởm đến hắn! Khiến trong lòng Lâm Quân Bích hắn tích tụ không thôi.
+Lâm Quân Bích làm như không nghe thấy. Âm thần hắn thu kiếm trở về khiếu, hắn ôm quyền cúi đầu:
 
-Biên cảnh dẫn đầu đi đến bên cạnh Lâm Quân Bích.
+- Đa tạ Ninh tiền bối chỉ điểm kiếm thuật. Đời này Quân Bích suốt đời khó quên.
 
-Sắc mặt Lâm Quân Bích trắng bệch, cười khẽ nói: "Ta không sao, thua được."
+Ninh Diêu thu hồi âm thần cầm kiếm:
 
-Biên cảnh quay đầu nhìn phía người trẻ tuổi áo sam xanh nhìn thế nào cũng muốn ăn đòn kia, cảm giác có chút cổ quái, Trần Bình An này, so với loại gợi đòn của Tào Từ áo trắng kia, còn không quá giống.
+- Tùy ngươi, dù sao ta cũng không nhớ ngươi là ai.
 
-Võ học của Tào Từ, muôn hình vạn trạng, tới gần người, như ngẩng đầu nhìn lên đại nhạc, cho nên cho dù Tào Từ không nói lời nào, cũng mang đến cho người bên ngoài loại ảo giác "Ngươi thật sự đánh không lại ta, khuyên ngươi đừng ra tay", mà Trần Bình An kia giống như viết trên trán "Ngươi khẳng định đánh thắng được ta, không bằng ngươi thử xem."
+Sau đó nàng nhìn Nghiêm Luật và Lưu Thiết Phu trên đường, nhíu mày:
 
-Biên cảnh khó tránh khỏi có chút thổn thức, đụng phải tiền bối đắc đạo của người đồng đạo hay sao?
+- Còn xem kịch?
 
-Lâm Quân Bích và biên cảnh vừa đi, Tưởng Quan Trừng mấy người đều đi theo.
+Lưu Thiết Phu nhảy dựng lên. Mẹ nó, Ninh cô nương lần đầu tiên nhìn ta một cái! Khẩn trương, thật sự có chút khẩn trương.
 
-Lâm Quân Bích không quên gật đầu với một vị kiếm tu Kim Đan, người sau gật đầu thăm hỏi.
+Nghiêm Luật lại cảm thấy trận của mình đánh hay không đánh đều chẳng có ý nghĩa gì. Thắng không thú vị, thua lại mất mặt. Chỉ sợ mặc kệ hai người tiếp theo đánh sống đánh chết thế nào, cũng không mấy ai có hứng nhìn thêm vài lần.
 
-Chu Mai vẫn không muốn rời đi, cũng để lại năm sáu người cùng nàng ở lại.
+Sau khi nữ tử kia thu tay, từng vị kiếm tiên đã sớm kết thành nhóm ngự kiếm đi xa. Những nhân vật thần tiên cao cao tại thượng ấy, lúc rời đi hình như đều rất vui vẻ?
 
-Dù sao kế tiếp còn có hai cửa ải nữa.
+Lâm Quân Bích xoay người, lảo đảo rời đi.
 
-Chu Mai tâm tình có chút cổ quái, Trữ Diêu lợi hại đến cực điểm kia, nàng chỉ nhìn Trữ Diêu xuất kiếm một lần, tình cảm ngưỡng mộ che cả bầu trời, liền tự nhiên sinh ra, nhưng Trữ Diêu vì sao thích nam nhân bên cạnh nàng, ở trên chuyện nam nữ tình yêu, Trữ tiên tử cái này phải thiếu tâm nhãn bao nhiêu chứ?
+Đối phương xuất kiếm không làm tổn thương căn bản tu hành của hắn, chỉ là bộ dạng thê thảm một chút.
 
-Trần Bình An cùng Trữ Diêu cùng nhau đi đến bên cạnh bọn Yến Trác.
+Trận thắng bại này, như người kia đã nói, Ninh Diêu chứng minh kiếm đạo của nàng quả thật rất cao, ngược lại không làm tổn thương đạo tâm Lâm Quân Bích quá nhiều. Đương nhiên sẽ có ảnh hưởng, mấy năm tới e rằng nó sẽ như sương mù bao phủ kiếm tâm hắn, như núi cao vô hình trấn áp tâm hồ.
 
-Sau khi Trữ Diêu xuất hiện, dọc theo con đường này, không ai dám lớn tiếng xu nịnh huýt sáo.
+Nhưng Lâm Quân Bích tự nhận có thể xua tan mây mù, dời đi núi cao. Chỉ có lời Trần Bình An đứng ngoài cuộc nói mới thật sự khiến hắn ghê tởm, trong lòng tích tụ mãi không thôi!
 
-Khó trách Kiếm Khí Trường Thành đều lưu truyền một câu ngôn ngữ.
+Biên Cảnh đi trước đến bên cạnh hắn.
 
-Trữ Diêu xuất kiếm như thế nào? Cao hơn nàng một cảnh không có tác dụng gì.
+Lâm Quân Bích sắc mặt trắng bệch, cười khẽ:
 
-Điều này làm cho Trần Bình An trong lòng vừa vui vẻ, vừa tủi thân. Dựa vào cái gì chỉ có mình không được chào đón như vậy. Nhiều tên khốn kiếp, ngồi ở trên bàn rượu uống rượu, hoặc là ngồi ven đường ăn dưa muối, cũng không thiếu xưng huynh gọi đệ với mình.
+- Ta không sao, thua được.
 
-Thần thái sáng láng của Điệp Chướng, lặng lẽ nói chuyện với Trữ Diêu.
+Biên Cảnh quay đầu nhìn thanh niên áo xanh nhìn thế nào cũng muốn đánh kia, cảm thấy có chút cổ quái. Trần Bình An này không giống kiểu khiến người ta muốn đánh của Tào Từ áo trắng.
 
-Trần Bình An dùng lòng bàn tay v**t v* cằm, quay đầu hỏi Phạm Đại Tri, "Đại Triệt à."
+Võ học Tào Từ muôn hình vạn trạng, đến gần hắn tựa như ngẩng đầu nhìn núi cao. Cho dù hắn không nói lời nào, vẫn khiến người khác có cảm giác: “Ngươi thật sự đánh không lại ta, khuyên ngươi đừng ra tay”. Còn Trần Bình An giống như viết trên trán: “Ngươi chắc chắn đánh thắng được ta, không bằng thử xem”.
 
-Phạm Đại Triệt có chút bối rối: "Lại làm gì?"
+Biên Cảnh không khỏi cảm khái, chẳng lẽ gặp phải tiền bối đắc đạo của người cùng đường rồi sao?
 
-Trần Bình An thành tâm hỏi: "Ngươi cảm thấy con người ta thế nào?"
+Lâm Quân Bích và Biên Cảnh vừa đi, đám Tưởng Quan Trừng cũng theo sau. Lâm Quân Bích không quên gật đầu với một kiếm tu Kim Đan, người kia cũng gật đầu đáp lại.
 
-Phạm Đại Triệt thật cẩn thận liếc mắt nhìn Trữ Diêu ở bên cạnh, gật mạnh đầu nói: "Rất tốt!"
+Chu Mai không muốn rời đi, còn có năm sáu người ở lại cùng nàng. Dù sao tiếp theo vẫn còn hai cửa.
 
-Trần Bình An khiêm tốn thỉnh giáo, hỏi: "Có chỗ nào cần cải thiện hay không? Con người ta, thích nhất nghe người khác nói thẳng không kiêng dè khuyết điểm của ta."
+Tâm tình Chu Mai có chút kỳ quái. Chỉ nhìn Ninh Diêu lợi hại đến cực điểm xuất kiếm một lần, lòng ngưỡng mộ đã ùn ùn dâng lên. Nhưng vì sao nàng lại thích nam nhân bên cạnh? Trên chuyện tình cảm nam nữ, vị Ninh tiên tử này phải thiếu tâm nhãn đến mức nào chứ?
 
-Phạm Đại Triệt lắc đầu nói: "Không có!"
+Trần Bình An và Ninh Diêu cùng đi đến bên cạnh đám Yến Trác.
 
-Trữ Diêu bên cạnh mỉm cười gật đầu.
+Sau khi Ninh Diêu xuất hiện, dọc con đường này không ai dám lớn tiếng trêu ghẹo huýt sáo. Khó trách Kiếm Khí Trường Thành lưu truyền một câu: Ninh Diêu xuất kiếm thế nào? Cao hơn nàng một cảnh cũng vô dụng.
 
-Phạm Đại Triệt thiếu chút nữa nước mắt muốn chảy xuống, thì ra nếu mình không nói tốt, Ninh cô nương thật sự sẽ để bụng.
+Trần Bình An vừa vui vẻ vừa tủi thân. Dựa vào đâu chỉ có mình không được chào đón như vậy? Rất nhiều tên khốn kiếp ngồi uống rượu hay ăn dưa muối ven đường cũng từng xưng huynh gọi đệ với hắn.
 
-Trữ cô nương ngươi trước kia hình như không phải người như thế.
+Điệp Chướng thần thái sáng láng, lặng lẽ nói chuyện với Ninh Diêu.
 
-Trên đường lớn.
+Trần Bình An lấy tay vuốt cằm, quay đầu gọi:
 
-Nghiêm Luật và Lưu Thiết Phu bắt đầu cuộc chiến cửa thứ hai.
+- Đại Triệt à.
 
-So với hai kiếm tu Quan Hải Cảnh Lâm Quân Bích và Cao Ấu Thanh thì thắng bại ngay lập tức, hai người đánh có qua có lại, thủ đoạn xuất hiện nhiều lần.
+Phạm Đại Triệt có chút bối rối:
 
-Trần Bình An nhìn chăm chú.
+- Lại làm gì?
 
-Trần Tam Thu nghi ngờ nói: "Cần phải dụng tâm quan chiến như vậy sao?"
+Trần Bình An thành tâm hỏi:
 
-Trần Bình An gật gật đầu, cẩn thận đánh giá quỹ tích phi kiếm hai bên phức tạp, cười nói: "Bên ngoài các ngươi những bằng hữu này, ta đều lấy sinh tử đại địch coi trọng trước."
+- Ngươi thấy con người ta thế nào?
 
-Phạm Đại Triệt do dự, dò hỏi: "Ta cũng coi như bằng hữu?"
+Phạm Đại Triệt cẩn thận liếc Ninh Diêu bên cạnh, gật mạnh đầu:
 
-Trần Bình An theo bản năng thu hồi tầm mắt, nhìn Phạm Đại Triệt, "Đương nhiên."
+- Rất tốt!
 
-Phạm Đại Triệt lấy hết dũng khí nói: "Bằng hữu là bằng hữu, nhưng còn không phải không bằng đám người Tam Thu, đúng không? Nếu không lúc ngươi nói chuyện với ta, không cần cố ý đối mặt với ta."
+Trần Bình An khiêm tốn thỉnh giáo:
 
-Trần Bình An cũng nhịn không được ngẩn ra một phen, chưa phủ nhận, cười nói: "Ngươi nói ngươi một đại lão gia, tâm tư tinh tế như vậy làm cái gì."
+- Có chỗ nào cần sửa không? Con người ta thích nhất nghe người khác nói thẳng khuyết điểm của mình, không cần kiêng dè.
 
-Trừ Trữ Diêu, mọi người đều cười ha ha nhìn phía Trần Bình An.
+Phạm Đại Triệt lắc đầu:
 
-Phạm Đại Triệt lặng lẽ dịch bước, gượng gạo cười, nhẹ nhàng cho Trần Tam Thu một khuỷu tay: "Năm đồng Tuyết Hoa một bầu rượu, ta hiểu."
+- Không có!
 
-Trần Tam Thu tức giận nói: "Ngươi hiểu cái rắm."
+Ninh Diêu bên cạnh mỉm cười gật đầu.
 
-Trần Bình An đột nhiên nói: "Đại Triệt, về sau đi theo Tam Thu Thường đến Trữ phủ, chúng ta thay nhau ra trận, luận bàn với ngươi, nhớ rõ nhỡ đâu thật sự phá cảnh, sẽ chạy tới quán rượu bên kia uống rượu, gào thét vài tiếng. Bầu rượu năm đồng Tuyết Hoa tiền kia coi như chúc mừng ta tặng ngươi."
+Phạm Đại Triệt suýt nữa chảy nước mắt. Hóa ra nếu mình không nói tốt, Ninh cô nương thật sự sẽ để bụng.
 
-Phạm Đại Triệt sững sờ không nói gì.
+Ninh cô nương, trước kia nàng hình như đâu phải người như vậy.
 
-Trần Tam Thu một cước dẫm lên mu bàn chân Phạm Đại Triệt, lúc này Phạm Đại Triệt mới lấy lại tinh thần, ừ một tiếng, nói không có vấn đề.
+Trên đường lớn, Nghiêm Luật và Lưu Thiết Phu bắt đầu trận chiến cửa thứ hai.
 
-Cửa thứ hai, quả nhiên như Trần Bình An sở liệu, nghiêm luật tiểu thắng.
+Không giống hai kiếm tu Quan Hải cảnh Lâm Quân Bích và Cao Ấu Thanh phân thắng bại trong chớp mắt, hai người đánh có qua có lại, thủ đoạn liên tiếp xuất hiện.
 
-Lưu Thiết Phu thua cũng không tính là quá khó chịu.
+Trần Bình An chăm chú quan sát.
 
-Hai bên đường, tiếng nói huýt sáo nổi lên bốn phía, Lưu Thiết Phu da mặt không tệ nhếch miệng, hai tay ôm quyền, cười cảm tạ chư vị Kiếm Tiên đang xem cuộc chiến.
+Trần Tam Thu nghi hoặc:
 
-Cửa ải thứ ba, Tư Đồ Úy Nhiên phụ trách thủ quan.
+- Cần phải dụng tâm xem như vậy sao?
 
-Đối phương là một vị kiếm tu Kim Đan tên là Kim Chân Mộng, vừa mới phá cảnh tễ thân kiếm tu Địa Tiên không bao lâu, hơn ba mươi tuổi, cũng là thiên chi kiêu tử cực kỳ nổi danh của vương triều Thiệu Nguyên. Chỉ là lần này xuôi nam rời nhà, tất cả hào quang đều bị thiên phú kiếm đạo của Lâm Quân Bích, Nghiêm Luật, gia thế của Tưởng Quan Trừng, che dấu. Hơn nữa bản thân Kim Chân Mộng cũng không phải là loại kiếm tu thích mạnh mẽ xuất đầu, lần này vượt qua tam quan, Cho dù biết rõ là "con trai bị vứt bỏ" duy nhất của Lâm Quân Bích, trong lòng cũng không có bao nhiêu khúc mắc. Có thể cùng bạn cùng lứa tuổi ở Kiếm Khí Trường Thành, cùng thiên tài Vấn Kiếm chân chính, Kim Chân Mộng lớn tuổi nhất trong số những người đồng hành cùng nhau cũng không tiếc nuối. Lần này đi theo một đám thiên tài trẻ tuổi xuôi xuống Đảo Huyền sơn, vào ở Mai hoa viên, lại đến phủ đệ của Tôn Kiếm Tiên ở Kiếm Khí Trường Thành, Lâm Quân Bích an bài như thế nào, Kim Chân Mộng làm theo không sai, nhưng có rất nhiều dự định nhỏ của mình, đều có liên quan đến kiếm.
+Trần Bình An gật đầu, cẩn thận nhìn quỹ tích phức tạp của phi kiếm hai bên, cười nói:
 
-Cho nên trận qua ải thủ quan này, tuy thắng bại kỳ thật không có gì bất ngờ, nhưng lại là một trận vấn kiếm chính thức nhất.
+- Ngoại trừ các bằng hữu như các ngươi, ta đều xem trước như đại địch sinh tử.
 
-Tư Đồ Úy Nhiên cũng không có tận lực xuất kiếm cầu nhanh, cũng chỉ coi trận luận bàn này như một trận lịch lãm rèn luyện.
+Phạm Đại Triệt do dự hỏi:
 
-Cho nên sau một nén nhang, Kim Chân Mộng thu kiếm nhận thua, Tư Đồ Úy Nhiên vẫn rất tâm cao khí ngạo cũng hiếm khi có một khuôn mặt tươi cười, sau khi thu kiếm hoàn lễ.
+- Ta cũng tính là bằng hữu?
 
-Kỳ thật chỉ nói ba cửa ải chiến đấu, phe Lâm Quân Bích là đại thắng mà về.
+Trần Bình An theo bản năng thu hồi tầm mắt, nhìn hắn:
 
-Chỉ có điều chuyện cho tới bây giờ, Lâm Quân Bích bên kia ai cũng sẽ không cảm thấy mình thắng mảy may là được.
+- Đương nhiên.
 
-Tam quan kết thúc, kiếm tu quan chiến trên đường đều tán đi.
+Phạm Đại Triệt lấy hết dũng khí nói:
 
-Không ít người trực tiếp đi tới quán rượu bên kia núi, vừa rồi xem cuộc chiến, nhìn nhiều một hồi, đồ ăn và rượu của hôm nay rất mạnh mẽ, so với đĩa dưa muối mặn chết người không đền mạng kia, tư vị tốt hơn nhiều. Nhưng hôm nay có một bát mỳ mùa xuân cũng không thu tiền, cũng đành nhịn Nhị chưởng quỹ kia một chút.
+- Là bằng hữu, nhưng vẫn không bằng đám Tam Thu, đúng không? Nếu không khi nói chuyện với ta, ngươi không cần cố ý quay sang nhìn ta.
 
-Trữ Diêu không đi tới quán rượu bên kia giúp vui, nói là muốn trở về tu hành, chỉ là nhắc nhở Trần Bình An có thương tích trong người, cố gắng uống ít một chút.
+Trần Bình An cũng ngẩn người, không phủ nhận, cười nói:
 
-Yến Trác hỏi: "Chuyện gì xảy ra?"
+- Ngươi nói xem một đại lão gia như ngươi, tâm tư tinh tế như vậy làm gì?
 
-Trần Bình An lấy tiếng lòng cười đáp: "Mấy ngày nay đều đang luyện chế vật bản mạng, xảy ra chút phiền toái nhỏ."
+Ngoại trừ Ninh Diêu, mọi người đều nhìn Trần Bình An cười ha ha.
 
-Yến Trác không hỏi nhiều.
+Phạm Đại Triệt lặng lẽ dịch bước, cười gượng, khẽ thúc khuỷu tay vào Trần Tam Thu:
 
-Trần Tam Thu cũng không nói gì nhiều.
+- Một bầu rượu năm đồng tiền tuyết hoa, ta hiểu rồi.
 
-Lúc trước bên Ninh phủ dường như xảy ra chút dị tượng, Kiếm Tiên bình thường cũng không biết, lại làm kinh động đến lão tổ Trần Hi. Lúc ấy Trần Tam Thu đang luyện kiếm không hiểu ra sao, chẳng biết tại sao lão tổ tông lại hiện thân. Lão tổ tông chỉ cười nói một câu với Trần Tam Thu, lão tăng trên tường thành ngủ gật nhiều năm, đoán chừng cũng nên mở mắt nhìn.
+Trần Tam Thu tức giận:
+
+- Ngươi hiểu cái rắm.
+
+Trần Bình An đột nhiên nói:
+
+- Đại Triệt, sau này thường theo Tam Thu đến Ninh phủ, chúng ta thay nhau luận bàn với ngươi. Nhớ kỹ, nếu thật sự phá cảnh thì chạy đến quán rượu uống rượu, hô lên mấy tiếng. Bầu rượu năm đồng tiền tuyết hoa kia coi như ta tặng ngươi chúc mừng.
+
+Phạm Đại Triệt sững sờ không nói gì. Trần Tam Thu giẫm một cước lên mu bàn chân hắn, hắn mới hồi thần, ừ một tiếng, nói không thành vấn đề.
+
+Cửa thứ hai quả nhiên như Trần Bình An dự liệu, Nghiêm Luật nhỉnh hơn một chút mà thắng. Lưu Thiết Phu thua cũng không quá khó chịu.
+
+Hai bên đường tiếng nói cười, huýt sáo nổi lên. Lưu Thiết Phu da mặt dày nhếch miệng, ôm quyền cười cảm tạ chư vị kiếm tiên quan chiến.
+
+Cửa thứ ba do Tư Đồ Úy Nhiên thủ quan.
+
+Đối thủ là một kiếm tu Kim Đan tên Kim Chân Mộng, vừa phá cảnh, bước vào hàng ngũ kiếm tu Địa Tiên chưa bao lâu. Hắn hơn ba mươi tuổi, cũng là thiên chi kiêu tử cực kỳ nổi danh của vương triều Thiệu Nguyên.
+
+Chỉ là lần này xuôi nam rời nhà, ánh hào quang của hắn đều bị thiên phú kiếm đạo của Lâm Quân Bích, Nghiêm Luật và gia thế của Tưởng Quan Trừng che lấp. Bản thân hắn cũng không phải kiếm tu thích tranh giành nổi bật. Lần này qua ba cửa, cho dù biết rõ mình là “quân cờ bị bỏ” duy nhất của Lâm Quân Bích, hắn cũng không có bao nhiêu khúc mắc.
+
+Có thể vấn kiếm với thiên tài chân chính cùng thế hệ ở Kiếm Khí Trường Thành, Kim Chân Mộng lớn tuổi nhất trong đám người đồng hành đã không còn tiếc nuối. Lần này theo các thiên tài trẻ tuổi xuôi nam đến Đảo Huyền sơn, ở Mai Hoa viên rồi đến phủ Tôn kiếm tiên, Lâm Quân Bích sắp xếp thế nào hắn đều làm theo, nhưng vẫn có rất nhiều dự định riêng, tất cả đều liên quan đến kiếm.
+
+Cho nên trận vượt ải này tuy thắng bại không có gì bất ngờ, lại là một trận vấn kiếm đúng nghĩa nhất.
+
+Tư Đồ Úy Nhiên cũng không cố xuất kiếm cầu nhanh, chỉ coi cuộc luận bàn như một lần rèn luyện. Sau một nén hương, Kim Chân Mộng thu kiếm nhận thua. Tư Đồ Úy Nhiên vốn tâm cao khí ngạo cũng hiếm khi mỉm cười, thu kiếm hoàn lễ.
+
+Thật ra nếu chỉ tính ba trận qua cửa, phe Lâm Quân Bích đã đại thắng trở về. Chỉ là đến lúc này không ai bên đó cảm thấy mình thắng chút nào.
+
+Ba cửa kết thúc, kiếm tu quan chiến trên đường đều tản đi.
+
+Không ít người đi thẳng đến quán rượu của Điệp Chướng. Vừa rồi xem một hồi lâu, trận chiến hôm nay là món nhắm rượu tuyệt hảo, ngon hơn nhiều so với đĩa dưa muối mặn chết người không đền mạng kia. Nhưng hôm nay một bát mì xuân cũng không thu tiền[?], đành nhịn Nhị chưởng quầy kia một chút.
+
+Ninh Diêu không đến quán rượu góp vui, nói muốn trở về tu hành, chỉ nhắc Trần Bình An có thương tích trong người, cố gắng uống ít đi.
+
+Yến Trác hỏi:
+
+- Xảy ra chuyện gì?
+
+Trần Bình An dùng tiếng lòng cười đáp:
+
+- Mấy ngày nay luyện chế vật bản mạng, gặp chút phiền toái nhỏ.
+
+Yến Trác không hỏi thêm. Trần Tam Thu cũng không nói gì.
+
+Trước đó bên Ninh phủ dường như có chút dị tượng. Kiếm tiên bình thường không biết, nhưng lại kinh động đến lão tổ Trần Hi. Khi ấy Trần Tam Thu đang luyện kiếm, không hiểu vì sao lão tổ tông đột nhiên hiện thân.
+
+Lão tổ tông chỉ cười nói với hắn một câu: lão tăng ngủ gật nhiều năm trên tường thành, e rằng cũng nên mở mắt nhìn rồi.

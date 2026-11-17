@@ -1,217 +1,299 @@
 # Chương 657: Già trẻ núi Lạc Phách
 
-Vừa có phi kiếm của Trữ phủ đưa tin, Phạm Đại Triệt sẽ đi Trữ phủ lịch lãm, không phải ăn nắm đấm của Trần Bình An thì chính là phi kiếm ăn của Yến Trác hoặc là Đổng Hắc Thán. Trần Tam Thu sẽ không ra tay, phải cõng Phạm Đại Triệt về nhà. Yến Trác và Đổng Họa đều có bội kiếm Tử Điện, Hồng Trang, một khi rút kiếm, Phạm Đại Triệt càng thảm hại hơn, hiện tại Phạm Đại Triệt chỉ hận mình tư chất quá kém, chỉ có "Đại Triệt" không có "Đại ngộ" thì không thể phá cảnh. Trần Bình An nói chỉ cần Phạm Đại Triệt hắn chen chân vào Kim Đan, luyện kiếm sẽ kết thúc một đoạn, sau đó đi tới cửa hàng rượu bên kia vài câu, liền đại công cáo thành.
+Sau khi nhận được phi kiếm truyền tin của Ninh phủ, Phạm Đại Triệt lại đến đó lịch luyện. Hắn không ăn quyền của Trần Bình An thì cũng phải chịu phi kiếm của Yến Trác hoặc Đổng Họa. Trần Tam Thu không ra tay, bởi còn phải cõng Phạm Đại Triệt về nhà. Yến Trác và Đổng Họa đều có bội kiếm Tử Điện, Hồng Trang, một khi rút kiếm, Phạm Đại Triệt chỉ càng thêm thê thảm. Bây giờ hắn chỉ hận tư chất mình quá kém, có “Đại Triệt” mà không có “đại ngộ”, mãi không thể phá cảnh.
 
-Kiếm tu Long Môn cảnh của Kiếm Khí Trường Thành, nào có đơn giản như vậy phá vỡ bình cảnh, chen thân Kim Đan, đối với kiếm tu Kiếm Khí Trường Thành mà nói, tựa như một hồi cập quan lễ thật sự.
+Trần Bình An nói, chỉ cần Phạm Đại Triệt bước vào Kim Đan, việc luyện kiếm sẽ kết thúc một giai đoạn. Sau đó hắn đến quán rượu nói mấy câu là đại công cáo thành.
 
-Kiếm Khí Trường Thành sở dĩ có thể trở thành chỗ mạnh nhất của mấy tòa thiên hạ kiếm tu, còn có thể đủ đưa tới Hạo Nhiên Thiên Hạ từng nhóm từng nhóm kiếm tu tới đây ma luyện, tự nhiên rất có huyền cơ, chính là ở chỗ kiếm tu ở đây, như võ phu thuần túy bị mớm quyền, một lát không ngừng, trụ cột cảnh giới đều đánh vô cùng tốt, trụ cột vững chắc, liền ý nghĩa phá cảnh bình cảnh lớn hơn nữa, nếu có đại đạo áp vai, không thể thẳng lưng.
+Kiếm tu Long Môn cảnh ở Kiếm Khí Trường Thành nào có dễ phá bình cảnh, bước vào Kim Đan như vậy. Đối với bọn họ, đó tựa như một lần làm lễ trưởng thành thật sự.
 
-Cùng Phạm Đại Triệt, cùng là Long Môn cảnh, nếu là đi Đảo Huyền sơn ở Hạo Nhiên Thiên Hạ, phá cảnh dễ dàng hơn rất nhiều, chỉ là phá cảnh như thế, phẩm trật Kim Đan kém hơn rất nhiều, về lâu dài mà nói, được không bù mất. Trừ phi là những Địa tiên tu sĩ vô vọng phá cảnh ở Kiếm Khí Trường Thành, mới có thể đi Đảo Huyền sơn tu hành một đoạn thời gian, thử vận khí một lần, dù sao sau khi Kim Đan, mỗi cao hơn một cảnh, đó là trường thọ thật sự trăm năm thậm chí ngàn năm.
+Kiếm Khí Trường Thành có thể trở thành nơi kiếm tu mạnh nhất trong mấy tòa thiên hạ, còn thu hút từng nhóm kiếm tu Hạo Nhiên thiên hạ tới mài giũa, tự có nguyên do. Kiếm tu nơi này giống như võ phu thuần túy được người khác mớm quyền không ngừng, căn cơ từng cảnh giới đều được rèn giũa vững chắc. Căn cơ càng vững, bình cảnh khi phá cảnh càng lớn, tựa như đại đạo đè lên vai, khiến người ta không thể thẳng lưng.
 
-Nhưng mà tu sĩ dưới Kim Đan, không được đi Đảo Huyền sơn tu hành, là thiết luật của Kiếm Khí Trường Thành, chính là vì phần tâm lý may mắn triệt để đánh giết kiếm tu trẻ tuổi. Cho nên lúc trước Trữ Diêu rời nhà trốn đi, vụng trộm đi hướng Đảo Huyền sơn, cho dù lấy tư chất Trữ Diêu, căn bản không cần đi đường tắt gì, vẫn như cũ chỉ trích không nhỏ. Chỉ là lão đại kiếm tiên đối với điều này đều mở một mắt nhắm một mắt mở một mắt, hơn nữa A Lương âm thầm hộ giá hộ tống cho nàng, tự mình một đường đi theo Trữ Diêu đến Đảo Huyền sơn tróc phóng đình, người bên ngoài cũng chỉ là bực bội vài câu, sẽ không có vị kiếm tiên nào thật sự đi ngăn trở Trữ Diêu.
+Cùng là Long Môn cảnh như Phạm Đại Triệt, nếu đến Đảo Huyền sơn ở Hạo Nhiên thiên hạ, phá cảnh sẽ dễ dàng hơn nhiều. Nhưng Kim Đan kết thành như vậy có phẩm trật kém hơn, xét về lâu dài thì được không bù mất. Chỉ những địa tiên tu sĩ không còn hy vọng phá cảnh ở Kiếm Khí Trường Thành mới đến Đảo Huyền sơn tu hành một thời gian, thử vận may một lần. Dù sao sau Kim Đan, mỗi khi lên một cảnh giới, tuổi thọ thật sự có thể tăng thêm trăm năm, thậm chí ngàn năm.
 
-Mấy lần diễn võ gần đây, Trần Bình An và Phạm Đại Triệt kết phường, Yến Trác, Đổng Huyễn liên thủ vẽ bùa, tùy tiện dùng phi kiếm bản mạng, lại không dùng bội kiếm, bốn người chỉ cầm gậy gỗ làm kiếm, phương thức phân thắng bại cũng rất cổ quái, có người kiếm gỗ vỡ trước, một bên thua. Kết quả một đống gậy gỗ đặt ở trên diễn võ trường, hầu như đều bị Phạm Đại Triệt dùng hết, đây vẫn là kết quả Trần Bình An nhiều lần cứu viện Phạm Đại Triệt.
+Nhưng tu sĩ dưới Kim Đan không được đến Đảo Huyền sơn tu hành, đó là thiết luật của Kiếm Khí Trường Thành, nhằm dập tắt tâm lý may mắn của kiếm tu trẻ tuổi. Bởi vậy, lúc trước Ninh Diêu bỏ nhà đi, lén tới Đảo Huyền sơn, cho dù với tư chất của nàng, căn bản chẳng cần đi đường tắt, vẫn có không ít lời chỉ trích.
 
-Bất kể như thế nào, cuối cùng Phạm Đại Triệt cũng có thể đứng rời khỏi Ninh phủ, mỗi lần trước khi về nhà, đều sẽ đi quán rượu bên kia uống bình Trúc Hải Động Thiên tửu rẻ nhất.
+Chỉ là lão đại kiếm tiên nhắm một mắt mở một mắt, A Lương lại âm thầm hộ tống, tự mình theo nàng đến tận Tróc Phóng đình ở Đảo Huyền sơn. Người khác có bực tức nói vài câu cũng không có vị kiếm tiên nào thật sự ngăn cản.
 
-Trần Tam Thu cũng sẽ cùng Phạm Đại Triệt tán gẫu một chút được mất của luyện kiếm, khi Phạm Đại Triệt uống rượu, nghe bạn tốt dốc lòng chỉ điểm, ánh mắt sáng ngời.
+Mấy lần diễn võ gần đây, Trần Bình An kết đội với Phạm Đại Triệt, Yến Trác và Đổng Họa liên thủ. Bọn họ có thể tùy ý dùng phi kiếm bản mạng, nhưng không dùng bội kiếm, chỉ cầm gậy gỗ làm kiếm. Cách phân thắng bại cũng rất lạ: kiếm gỗ của ai vỡ trước thì bên đó thua. Kết quả, cả đống gậy gỗ đặt trên diễn võ trường gần như đều bị Phạm Đại Triệt dùng hết, ấy là Trần Bình An còn nhiều lần cứu viện hắn.
 
-Nhất là Trần Bình An đề nghị, về sau bốn người bọn họ hợp lực, cùng tiền bối kiếm tiên Nạp Lan Dạ Hành giằng co chém giết, càng làm cho Phạm Đại Triệt kích động.
+Dẫu sao cuối cùng Phạm Đại Triệt cũng có thể tự đứng mà rời Ninh phủ. Mỗi lần trước khi về nhà, hắn đều đến quán rượu uống một bình Trúc Hải Động Thiên tửu rẻ nhất.
 
-Cửa hàng tơ lụa của Yến Trác, ngoại trừ hơn trăm con dấu Kiếm Tiên lục tục bán ra, cửa hàng lại đẩy ra một quyển 《 Kiếm Tiên Ấn Phổ 》 mới tinh đóng thành sách, hơn nữa còn có thêm một vật tặng kèm quạt trúc, 《 Ấn Ấn Ấn 》 có một ít không cất giấu ở ngoài 《 Võ Tiên Ấn Phổ 》, xương quạt trúc, mặt quạt vẫn như cũ đều là chất liệu bình thường, công phu chỉ ở trên thơ từ chương câu, 《Văn 》.
+Trần Tam Thu cũng trò chuyện với hắn về những được mất khi luyện kiếm. Phạm Đại Triệt vừa uống rượu vừa nghe bạn tốt tận tình chỉ điểm, ánh mắt sáng ngời.
 
-Tựa như quán rượu lớn nhỏ bị quán rượu bắc ép treo câu đối không sai biệt lắm, cửa hàng tơ lụa lớn cửa hàng lớn nhỏ Kiếm Khí Trường Thành hiện giờ cũng bị Yến Trác dùng để tặng đi một ít loại tinh xảo như quạt xếp, túi hương son phấn, chỉ là khách nhân, nhất là những cô gái gia cảnh giàu có, không thiếu tiền riêng, tựa hồ cũng không quá nể mặt những cửa hàng khác. Thật ra không ít cô gái cũng chưa chắc thật sự thích con dấu, quạt xếp của cửa hàng Yến gia như vậy, chỉ là bên trong có mấy vị nữ tử kiếm tiên, còn có rất nhiều phụ nhân xuất thân hào phiệt, đều đến mua hàng của Yến gia, hình như cô gái không qua bên kia mua chút gì, ánh mắt kém người ta một bậc, như vậy sao được.
+Đặc biệt, Trần Bình An còn đề nghị sau này bốn người hợp lực, giao đấu với kiếm tiên tiền bối Nạp Lan Dạ Hành, khiến Phạm Đại Triệt càng thêm kích động.
 
-Không chỉ thế, một số đại lão gia ngày thường đần độn không chịu nổi cũng không biết uống rượu ở tiệm rượuĐiệp chướng bên kia, nghe nói gì đó, lại là phá lệ tự mình đăng môn hoặc mời toàn bộ người trong phủ tới cửa hàng Yến gia, mua chút tơ lụa đẹp đẽ không vừa mắt, cùng với quạt xếp đưa cho nữ nhân của mình, không ít nữ nhân thật ra đều cảm thấy mua đắt, chẳng qua khi các nàng nhìn thấy kỳ vọng trong mắt nam tử chất phác nhà mình, cũng chỉ có thể nói một câu thích thú. Sau đó nhàn hạ, giữa hè, tránh nóng nạp lạnh, mở ra quạt xếp, gió mát tập luyện, nhìn văn tự đẹp đẽ bên trên mặt quạt, liền nhẹ giọng hỏi với người khác, biết được ngụ ý trong đó, liền cảm thấy rất tốt.
+Cửa hàng tơ lụa của Yến Trác đã lần lượt bán ra hơn trăm con dấu Kiếm Tiên, nay lại cho ra một quyển Kiếm Tiên Ấn Phổ mới đóng thành sách, kèm theo quạt trúc. Trên quạt có một số ấn văn chưa được thu vào ấn phổ[?]. Nan quạt và mặt quạt vẫn làm bằng chất liệu bình thường, công phu đều đặt ở thơ văn, câu chữ trên đó.
 
-Trần Bình An hôm nay luyện khí xong, tản bộ ở trong màn đêm, một mình đi tới đình nghỉ mát trên Trảm Long Nhai.
+Giống như các quán rượu lớn nhỏ bị quán rượu phía bắc ép phải treo câu đối, cửa hàng tơ lụa ở Kiếm Khí Trường Thành bây giờ cũng bị cửa hàng Yến Trác ép phải tặng khách những vật tinh xảo như quạt xếp, túi hương, son phấn. Nhưng khách hàng, nhất là những cô nương nhà giàu có, chẳng thiếu tiền riêng, dường như không nể mặt các cửa hàng khác cho lắm.
 
-Trữ Diêu hôm nay bế quan ở mật thất, trước khi bế quan, Trữ Diêu không nhiều lời, chỉ nói không vì phá cảnh tễ thân Nguyên Anh, dù sao không có phiêu lưu gì.
+Thật ra không ít cô nương chưa chắc đã thích con dấu hay quạt xếp của cửa hàng Yến gia đến vậy. Chẳng qua mấy vị nữ tử kiếm tiên cùng nhiều phu nhân xuất thân hào phiệt đều đến Yến gia mua hàng. Nếu mình không đến đó mua chút gì, chẳng phải ánh mắt kém người ta một bậc sao? Như thế sao được?
 
-Trần Bình An ở Kiếm Khí Trường Thành bên này ít nhất phải đợi năm năm, nếu đến lúc đó đại chiến vẫn chưa khởi động, phải vội vàng về Bảo Bình châu một chuyến, dù sao quê nhà Lạc Phách sơn bên kia, sự tình không ít, sau đó sẽ cần lập tức khởi hành quay về Đảo Huyền sơn. Hôm nay phi kiếm vượt châu đưa tin, Kiếm Khí Trường Thành cùng Đảo Huyền sơn đều quản cực nghiêm, cần qua hai đạo thủ, đều khám nghiệm không có sai sót, mới có cơ hội đưa ra hoặc là lấy tới tay. Cái này đối với Trần Bình An mà nói, sẽ đặc biệt phiền toái.
+Không chỉ vậy, một số nam nhân ngày thường khờ khạo cũng chẳng biết đã nghe được chuyện gì khi uống rượu ở quán Điệp Chướng, lại phá lệ tự mình đến cửa hoặc đưa cả nhà đến cửa hàng Yến gia, mua tơ lụa đẹp đẽ mà mình chẳng nhìn ra có gì hay, cùng quạt xếp tặng nữ nhân nhà mình.
 
-Không phải là không thể nắm đúng thời cơ, đi Đảo Huyền sơn một chuyến, sau đó mang mật thư, thư nhà giao cho Lão Long thành Phạm gia Quế Hoa Đảo, hoặc là Sơn Hải Quy Tôn Gia Thụ, hai bên trên đại thể không phá hư quy củ, có thể tranh thủ đến Bảo Bình châu rồi hỗ trợ chuyển gửi cho Lạc Phách Sơn, Trần Bình An hôm nay, làm thành việc này không tính là quá khó, trả giá đương nhiên cũng sẽ có, bằng không chuyện khám nghiệm phi kiếm hai nơi Kiếm Khí Trường Thành cùng Đảo Huyền sơn, sẽ thành chuyện cười to lớn, thực sự coi Kiếm Tiên cùng Đạo Quân là vật trang trí không thành. Nhưng Trần Bình An không phải sợ trả giá phải trả, mà là cũng không hy vọng đem Phạm gia cùng Tôn gia, ở ngoài việc làm ăn quang minh chính đại, cùng Lạc Phách Sơn dính dáng quá nhiều, người ta hảo tâm buôn bán với Lạc Phách Sơn, chung quy không thể chưa phân hoa hồng tiền lời, đã bị vị sơn chủ Lạc Phách Sơn này kéo vào trong rất nhiều lốc xoáy.
+Không ít nữ tử thật ra cảm thấy mua đắt, nhưng nhìn thấy vẻ mong chờ trong mắt nam nhân chất phác nhà mình, cũng chỉ nói một tiếng thích. Sau đó lúc rảnh rỗi giữa mùa hè, các nàng hóng mát, mở quạt xếp, gió mát thổi tới, nhìn chữ viết đẹp đẽ trên mặt quạt, nhẹ giọng hỏi người khác ý nghĩa, biết rồi lại cảm thấy rất tốt.
 
-Trần Bình An đi xuống Trảm Long Nhai, quay về bên tiểu trạch, sương phòng vốn chỉ có một cái bàn đặt ấn chương, hôm nay lại có thêm một cái bàn, là một tấm bản đồ Long Tuyền quận Trần Bình An vẽ, quan viên đốc tạo thự diêu vụ nhìn thấy, hẳn là sẽ không quá cao hứng. Bởi vì trên tấm bản đồ này, chính xác vẽ ra toàn bộ Long Tuyền Long Diêu lớn nhỏ, Thiên Khôi Diêu, Tinh Đấu Diêu, Văn Xương Diêu, Võ Long Diêu, Trùng Tiêu Diêu, Hoa Hủy Diêu, Đồng Sương Diêu, Chỉ Trấn Diêu, Linh Chi Diêu, Ngọc Ly, Hà Hoa Diêu...
+Hôm nay sau khi luyện khí xong, Trần Bình An tản bộ trong đêm, một mình đến đình nghỉ mát trên Trảm Long Nhai.
 
-Trên bàn còn đặt hai quyển sách, đều là Trần Bình An viết tay, một quyển ghi lại toàn bộ truyền thừa lịch sử của Long Ngao Khẩu, một quyển viết tổng cộng mười bốn đại tộc thế gia vọng tộc của trấn nhỏ lưu chuyển sâu xa, đều lấy chữ nhỏ viết thành, rậm rạp, nhắm chừng huyện nha Hòe Hoàng cùng nha môn Hình bộ Đại Ly nhìn thấy, cũng sẽ không vui vẻ.
+Ninh Diêu đang bế quan trong mật thất. Trước khi bế quan, nàng không nói nhiều, chỉ bảo không phải vì phá cảnh bước vào Nguyên Anh, dù sao chuyện đó không có gì nguy hiểm.
 
-Rất nhiều ghi chép, là Trần Bình An dựa vào ký ức viết xuống, còn có hơn phân nửa hồ sơ bí mật, là trước đây ít năm thông qua Lạc Phách Sơn từng chút một, từng món từng món âm thầm thu thập được.
+Trần Bình An phải ở lại Kiếm Khí Trường Thành ít nhất năm năm. Nếu đến lúc đó đại chiến vẫn chưa bắt đầu, hắn phải vội về Bảo Bình châu một chuyến. Dù sao núi Lạc Phách ở quê nhà còn không ít việc, sau đó hắn lại phải lập tức quay về Đảo Huyền sơn.
 
-Trần Bình An hai tay lồng trong tay áo, thân thể nhẹ nhàng lắc lư trước sau, chăm chú nhìn tấm bản đồ nọ.
+Bây giờ việc dùng phi kiếm vượt châu truyền tin được cả Kiếm Khí Trường Thành và Đảo Huyền sơn quản rất nghiêm. Thư phải qua hai cửa kiểm tra, đều không có sai sót mới có cơ hội gửi đi hoặc nhận được. Chuyện này đối với Trần Bình An đặc biệt phiền phức.
 
-Đầu cũng không quay, đưa tay ra khỏi tay áo, hai ngón tay mở ra một quyển sách trong đó, là Chính Dương sơn, liếc mắt, lại lật, là Thanh Phong thành Hứa thị.
+Không phải hắn không thể tìm đúng thời cơ đến Đảo Huyền sơn, giao mật thư và thư nhà cho Quế Hoa đảo của Phạm gia ở Lão Long thành, hoặc Sơn Hải Quy của Tôn Gia Thụ. Hai bên về cơ bản không phá quy củ, sau khi đến Bảo Bình châu có thể giúp chuyển thư tới núi Lạc Phách. Với Trần Bình An hiện giờ, làm được chuyện này không quá khó, đương nhiên phải trả giá. Nếu không, việc kiểm tra phi kiếm ở hai nơi chẳng phải thành trò cười, chẳng lẽ coi kiếm tiên và đạo quân chỉ là vật trang trí?
+
+Nhưng Trần Bình An không sợ phải trả giá. Hắn chỉ không muốn ngoài việc làm ăn quang minh chính đại, Phạm gia và Tôn gia còn dính dáng quá nhiều đến núi Lạc Phách. Người ta có lòng tốt buôn bán với núi Lạc Phách, chẳng lẽ lợi nhuận còn chưa chia, đã bị sơn chủ như hắn kéo vào những vòng xoáy ấy?
+
+Trần Bình An xuống Trảm Long Nhai, trở về tiểu trạch. Trong sương phòng vốn chỉ có một cái bàn đặt ấn chương, bây giờ lại thêm một bàn nữa, bên trên đặt tấm bản đồ Long Tuyền quận do chính hắn vẽ. Quan viên đốc tạo thự phụ trách việc lò nung trông thấy, hẳn sẽ không vui.
+
+Bởi trên bản đồ vẽ chính xác toàn bộ lò rồng lớn nhỏ ở Long Tuyền: Thiên Khôi diêu, Tinh Đấu diêu, Văn Xương diêu, Võ Long diêu, Trùng Tiêu diêu, Hoa Hủy diêu, Đồng Sương diêu, Chỉ Trấn diêu, Linh Chi diêu, Ngọc Ly, Hà Hoa diêu...
+
+Trên bàn còn có hai quyển sách do Trần Bình An tự tay viết. Một quyển ghi lại toàn bộ lịch sử truyền thừa của Long Diêu[?], một quyển viết về nguồn gốc và sự lưu chuyển của mười bốn đại tộc thế gia vọng tộc ở trấn nhỏ. Chữ nhỏ chi chít, e rằng huyện nha Hòe Hoàng và nha môn Hình bộ Đại Ly nhìn thấy cũng sẽ không vui.
+
+Rất nhiều ghi chép là Trần Bình An dựa vào ký ức viết xuống. Hơn phân nửa hồ sơ bí mật còn lại là những gì núi Lạc Phách âm thầm thu thập từng chút một trong mấy năm trước.
+
+Trần Bình An lồng hai tay trong tay áo, thân thể khẽ đung đưa trước sau, chăm chú nhìn tấm bản đồ.
+
+Hắn không quay đầu, đưa một tay ra khỏi tay áo, dùng hai ngón tay mở một quyển sách. Đó là Chính Dương sơn. Hắn liếc mắt, lại lật sang Thanh Phong thành Hứa thị.
 
 Đều là người quen cũ.
 
-Mười tám đời tổ tông, đều được ghi chép rõ ràng trên sách. Nhắm chừng Trần Bình An so với con em đích truyền tổ sư đường của hai tòa tiên gia hào môn này, càng rõ ràng hơn đỉnh núi, mạch lạc gia tộc của bọn họ.
+Mười tám đời tổ tông của bọn họ đều được ghi chép rõ ràng trong sách. E rằng Trần Bình An còn hiểu rõ các đỉnh núi và mạch lạc gia tộc của hai tiên gia hào môn ấy hơn cả con cháu đích truyền trong tổ sư đường của họ.
 
-Đây là hai quyển chính sách đã đại khái hoàn công, tiếp theo còn có thể có hai quyển phó sách, nội dung văn tự chỉ biết càng nhiều, một quyển về việc mua bán bản mạng từ, cùng với có thể là tiên gia Bảo Bình châu, tông môn châu khác, trừ Mã gia phố phường Hạnh Hoa nhìn như tầng dưới chót còn có thể có Quỳnh Lâm tông cao cao tại thượng, tiền có thể thông thần, viết đến Quỳnh Lâm tông bắc Câu Lô châu kia, tự nhiên không tránh khỏi Từ Sàm, sau đó chính là Thanh Lương tông tông tông chủ Hạ Tiểu Lương, cho nên lại phải liên lụy đến người chấp tai trâu trên núi Bảo Bình châu Thần Cáo tông. Một quyển khác, viết trấn nhỏ đại tộc cùng rất nhiều tiên gia bên ngoài Ly Châu Động Thiên thiên thiên ti vạn lũ, hai quyển phó sách, tự nhiên sẽ giăng khắp nơi, có liên hệ với nhau.
+Hai quyển chính sách này đã gần hoàn thành, sau đó còn hai quyển phó sách, nội dung chỉ nhiều hơn. Một quyển ghi việc mua bán bản mạng từ, cùng những tiên gia Bảo Bình châu và tông môn ở châu khác có thể liên quan. Từ Mã gia ở phố Hạnh Hoa trông như tầng dưới chót, cho tới Quỳnh Lâm tông cao cao tại thượng, có tiền thì có thể thông thần.
 
-Trần Bình An đi ra khỏi phòng, Nạp Lan Dạ Hành đứng ở cửa, vẻ mặt có chút ngưng trọng, còn có vài phần phẫn uất, bởi vì bên cạnh lão nhân có một đệ tử không ký danh, là Thôi Sàm kiếm tu Kim Đan sinh trưởng ở địa phương Kiếm Khí Trường Thành.
+Viết đến Quỳnh Lâm tông ở Bắc Câu Lô châu, tự nhiên không tránh khỏi Từ Sàm[?], tiếp đó là Hạ Tiểu Lương tông chủ Thanh Lương tông, lại phải liên lụy đến Thần Cáo tông, thế lực đứng đầu trên núi ở Bảo Bình châu. Quyển còn lại viết về vô số mối liên hệ giữa các đại tộc trấn nhỏ với tiên gia bên ngoài động thiên Ly Châu. Hai quyển phó sách đương nhiên đan xen, liên hệ với nhau.
 
-Sát khí của Nạp Lan Dạ Hành rất nặng, dường như không nhịn được, muốn đánh chết người này ngay tại chỗ.
+Trần Bình An ra khỏi phòng, thấy Nạp Lan Dạ Hành đứng ở cửa, vẻ mặt ngưng trọng, còn có mấy phần phẫn uất. Bên cạnh lão là một đệ tử không ký danh, kiếm tu Kim Đan tên Thôi Sàm, sinh trưởng ngay tại Kiếm Khí Trường Thành.
 
-Trần Bình An hiểu rõ trong lòng, cười nói với lão nhân: "Nạp Lan gia gia không cần tự trách như thế, về sau rảnh rỗi, ta sẽ nói với Nạp Lan gia gia một hồi vấn tâm cục."
+Sát khí trên người Nạp Lan Dạ Hành rất nặng, dường như không nhịn được muốn đánh chết người này ngay tại chỗ.
 
-Dạ Hành Nạp Lan Dạ gật đầu, quay đầu nói với Thôi Sàm: "Từ tối nay trở đi, ngươi và Nạp Lan Dạ Hành ta không còn chút tình nghĩa thầy trò nào nữa."
+Trần Bình An hiểu rõ, cười nói:
 
-Thôi Sàm thần sắc lạnh nhạt, ôm quyền bồi tội với vị kiếm tiên này mà thôi.
+- Nạp Lan gia gia không cần tự trách như vậy. Sau này rảnh rỗi, ta sẽ kể cho gia gia nghe về một trận vấn tâm cục.
 
-Về phần Thôi Sàm lập tức trong lòng rốt cuộc nghĩ như thế nào, một người có thể ẩn nhẫn đến nay, khẳng định sẽ không toát ra chút nào.
+Nạp Lan Dạ Hành gật đầu, quay sang nói với Thôi Sàm:
 
-Đêm đó, Nạp Lan Hành chợt lóe rồi biến mất.
+- Từ tối nay trở đi, ngươi và Nạp Lan Dạ Hành ta không còn chút tình nghĩa thầy trò nào nữa.
 
-Trần Bình An dời ra hai cái ghế, Thôi Sàm nhẹ nhàng ngồi xuống, "Trần tiên sinh hẳn là đã đoán được."
+Thôi Sàm thần sắc lạnh nhạt, chỉ ôm quyền tạ tội với vị kiếm tiên.
 
-Trần Bình An gật đầu nói: "Ngay từ đầu đã có chút hoài nghi, bởi vì dòng họ thật sự quá chói mắt, một khi bị rắn cắn mười năm sợ dây thừng, không thể không nghĩ nhiều, chỉ là trải qua thời gian dài quan sát như vậy, lòng hoài nghi của ta đã giảm đi hơn phân nửa, dù sao ngươi hẳn là chưa bao giờ rời khỏi Kiếm Khí Trường Thành. Rất khó tin tưởng có người có thể ẩn nhẫn như thế, càng không hiểu vì sao ngươi nguyện ý trả giá như thế, như vậy có phải hay không có thể nói, người truyền đạo chân chính đưa ngươi lên con đường tu hành, là quân cờ Thôi Sàm đã xếp vào Kiếm Khí Trường Thành từ rất sớm?"
+Trong lòng hắn lúc này nghĩ gì, một người có thể ẩn nhẫn đến tận hôm nay chắc chắn sẽ không để lộ ra ngoài.
 
-Thôi Sàm gật gật đầu, "Trần tiên sinh đoán không sai. Không chỉ là ta, hầu như toàn bộ bản thân đều không muốn thừa nhận là gian tế tồn tại, ví dụ như Hoàng Châu ngõ Đại Ly, con đường tu hành, đều bắt nguồn từ một chuyện ngoài ý muốn không đáng chú ý, không chút dấu vết, cho nên chúng ta thậm chí ngay từ đầu đã bị hoàn toàn mờ mịt, từ nay về sau nên làm cái gì, nên nói cái gì, đều ở trong sự khống chế cực kỳ nhỏ bé, cuối cùng sẽ ở một ngày nào đó, ví dụ như Thôi Sàm ta, đột nhiên biết được ám hiệu chỉ lệnh phù hợp nào đó, tự nguyện đi vào Ninh phủ, để biểu lộ thân phận với Trần tiên sinh."
+Nạp Lan Dạ Hành chợt lóe thân, biến mất trong đêm.
 
-Thôi Sàm gọn gàng dứt khoát nói: "Quá khứ đủ loại, Trần tiên sinh mặc dù hỏi kỹ, ta cũng sẽ không nói, nói, càng không có chút ý nghĩa, người truyền đạo cho Thôi Sàm trước hết, đã sớm chết trận ở chiến trường phía nam. Thôi Sàm hôm nay đến thăm Ninh phủ, chỉ nói một sự kiện, Trần tiên sinh về sau chỉ cần gửi mật tín về Bảo Bình Châu, giao cho Thôi Sàm phụ trách là được. Trần tiên sinh đương nhiên có thể lựa chọn tin tưởng, cũng có thể không tin."
+Trần Bình An dời ra hai cái ghế. Thôi Sàm nhẹ nhàng ngồi xuống:
 
-Trần Bình An lắc đầu nói: "Ta đương nhiên không tin ngươi, cũng sẽ không mang bất cứ thư gì giao cho ngươi. Nhưng ngươi yên tâm, Thôi Sàm ngươi hôm nay vô ích với Ninh phủ, ta sẽ không làm điều thừa. Về sau Thôi Sàm vẫn là Thôi Sàm, chẳng qua bớt đi tầng đệ tử không ký danh đi đêm qua liên lụy mà thôi."
+- Trần tiên sinh hẳn đã đoán được.
 
-Thôi Sàm từ trong tay áo lấy ra một viên đá cuội, đưa cho Trần Bình An, vị kiếm tu Kim Đan này, chưa nói một chữ.
+Trần Bình An gật đầu:
 
-Trần Bình An tiếp nhận tay, là cục đá trong khe suối trong Xuân Lộ Phố ngọc oánh nhai, Thôi Đông Sơn nhặt được.
+- Ban đầu ta có chút hoài nghi, bởi họ của ngươi thật sự quá chói mắt. Một lần bị rắn cắn, mười năm sợ dây thừng, không thể không nghĩ nhiều. Nhưng sau khi quan sát lâu như vậy, lòng nghi ngờ của ta đã giảm hơn phân nửa. Dù sao ngươi hẳn chưa từng rời Kiếm Khí Trường Thành. Rất khó tin có người ẩn nhẫn được như thế, ta càng không hiểu vì sao ngươi nguyện ý trả giá như vậy.
 
-Trần Bình An tiếp nhận viên đá, thu vào trong tay áo, cười nói: "Về sau ta và ngươi gặp mặt, cũng đừng ở Ninh phủ, tận lực đi tới quán rượu bên kia. Đương nhiên ngươi ta vẫn là tranh thủ ít chạm trán, miễn cho làm người ta sinh nghi, ta chỉ cần có việc tìm ngươi, sẽ thoáng di chuyển khối vô sự bài của Thôi Sàm ngươi. Ta từ tháng sau trở đi, không nói chuyện bản thân ta không có việc gì cùng bạn bè uống rượu, nếu muốn gửi thư nhận thư, sẽ dời đi không có việc gì làm trước, sau đó sẽ chỉ xuất hiện ở ngày mùng một này, cùng ngươi gặp mặt, nếu không có ngoại lệ, tháng sau, thì thuận theo đến mùng hai, nếu có ngoại lệ, lúc ta gặp mặt ngươi, cũng sẽ chào hỏi. Nói như vậy, trong một năm gửi thư nhận thư, nhiều nhất hai lần là đủ rồi. Nếu có phương thức liên hệ tốt hơn, hoặc là băn khoăn về ngươi, ngươi có thể nghĩ ra một chương trình, quay đầu nói cho ta biết."
+- Vậy có thể nói, người thật sự truyền đạo, đưa ngươi vào đường tu hành, là quân cờ Thôi Sàm đã sớm xếp vào Kiếm Khí Trường Thành?
 
-"Nhớ kỹ."
+Thôi Sàm gật đầu:
 
-Thôi Sàm đứng lên, yên lặng rời đi.
+- Trần tiên sinh đoán không sai. Không chỉ mình ta, gần như tất cả những kẻ ngay cả bản thân cũng không muốn thừa nhận mình là gian tế, ví dụ như Hoàng Châu ở ngõ Đại Ly[?], đều bắt đầu tu hành từ một chuyện ngoài ý muốn không đáng chú ý, không để lại dấu vết.
 
-Trần Bình An đứng lên, không tiễn.
+- Bởi vậy lúc đầu ngay cả chúng ta cũng hoàn toàn không hay biết. Sau đó nên làm gì, nói gì, từng việc nhỏ đều nằm trong sự khống chế[?]. Cuối cùng đến một ngày, chẳng hạn như ta, đột nhiên biết được ám hiệu cùng chỉ lệnh tương ứng, tự nguyện đến Ninh phủ, bày tỏ thân phận với Trần tiên sinh.
 
-Nạp Lan Dạ Hành xuất hiện dưới mái hiên, cảm khái nói: "Biết người biết mặt không biết lòng."
+Thôi Sàm nói thẳng:
 
-Trần Bình An cười nói: "Đáng ra nên cảm thấy may mắn vì bên người thiếu đi một "nhỡ đâu không tốt"."
+- Chuyện quá khứ, Trần tiên sinh dù hỏi kỹ, ta cũng sẽ không nói. Nói ra càng không có ý nghĩa. Người đầu tiên truyền đạo cho ta đã sớm chết trận ở chiến trường phía nam. Hôm nay ta đến Ninh phủ chỉ nói một chuyện: sau này Trần tiên sinh muốn gửi mật thư về Bảo Bình châu, cứ giao cho ta phụ trách. Tiên sinh đương nhiên có thể tin, cũng có thể không tin.
 
-Về phần nói tốt cho Thôi Giác cái gì, hoặc là giúp Nạp Lan Dạ Hành mắng Thôi Sàm, đều không cần thiết.
+Trần Bình An lắc đầu:
 
-Nạp Lan Dạ Hành cười khổ không thôi, càng thổn thức không thôi.
+- Ta đương nhiên không tin ngươi, cũng sẽ không giao bất cứ lá thư nào cho ngươi. Nhưng ngươi yên tâm, hôm nay ngươi không gây hại cho Ninh phủ[?], ta sẽ không làm chuyện thừa. Sau này Thôi Sàm vẫn là Thôi Sàm, chẳng qua không còn thân phận đệ tử không ký danh của Nạp Lan Dạ Hành mà thôi.
 
-Trần Bình An dẫn lão nhân đi sương phòng đối diện, lão nhân lấy ra hai bầu rượu, không có rượu và thức ăn cũng không sao.
+Thôi Sàm lấy từ trong tay áo ra một viên đá cuội, đưa cho Trần Bình An. Vị kiếm tu Kim Đan không nói một lời.
 
-Nghe Trần Bình An nói đại khái trận vấn tâm cuộc Thư Giản hồ kia, rất nhiều tin tức nói nhiều vô ích. Trên đại thể vẫn là vì để cho lão nhân bớt lo, thua Thôi Sàm không kỳ quái.
+Trần Bình An nhận lấy. Đó là viên đá trong khe suối ở sườn dốc Ngọc Oánh, phố Xuân Lộ, do Thôi Đông Sơn nhặt được.
 
-Nạp Lan Dạ Hành nghe được không nhịn được uống nhiều một bầu rượu, cuối cùng hỏi: "Mệt tâm như thế, cô gia làm sao sống qua được."
+Hắn thu viên đá vào tay áo, cười nói:
 
-Trần Bình An cười nói: "Không phải Nạp Lan gia gia đã nói đáp án rồi sao?"
+- Sau này chúng ta gặp mặt đừng ở Ninh phủ nữa, cố gắng đến quán rượu bên kia. Đương nhiên vẫn nên ít gặp nhau, tránh khiến người ta sinh nghi. Khi cần tìm ngươi, ta sẽ khẽ di chuyển khối vô sự bài của ngươi.
 
-Nạp Lan Dạ Hành sửng sốt nửa ngày, lập tức hiểu ý, sang sảng cười to.
+- Từ tháng sau, không tính những lúc ta rảnh rỗi uống rượu với bằng hữu, nếu muốn gửi hoặc nhận thư, ta sẽ dời khối vô sự bài trước[?], sau đó đến gặp ngươi vào ngày mùng một. Nếu không có ngoại lệ, tháng tiếp theo sẽ đổi thành mùng hai. Nếu có ngoại lệ, lúc gặp ngươi ta sẽ nói trước. Như vậy mỗi năm gửi nhận thư nhiều nhất hai lần là đủ. Nếu có cách liên lạc tốt hơn, hoặc ngươi có điều băn khoăn, cứ nghĩ cách rồi nói với ta.
 
-Kiếm Khí Trường Thành đang lúc nóng bức, Bảo Bình châu Long Tuyền quận của Hạo Nhiên thiên hạ, lại rơi xuống trận tuyết lớn lông ngỗng đầu tiên sau khi bắt đầu mùa đông.
+- Nhớ kỹ.
 
-Tổ sư đường Lạc Phách Sơn không ở chủ phong, cách chỗ ở có chút khoảng cách, nhưng Trần Noãn Thụ mỗi nửa tuần đều phải đi bên tổ sư đường của Kỳ Sắc phong, mở cửa chính, cẩn thận lau chùi một phen.
+Thôi Sàm đứng dậy, lặng lẽ rời đi. Trần Bình An cũng đứng lên, không tiễn.
 
-Hôm nay Bùi Tiền và Chu Mễ Hạt đi theo Trần Noãn Thụ, nói muốn hỗ trợ. Trên đường đi, Bùi Tiền khẽ vươn tay, Hữu hộ pháp Lạc Phách Sơn liền cung kính hai tay dâng lên Hành Sơn trượng, Bùi Tiền chơi một đường kiếm pháp điên cuồng, đánh nát vô số bông tuyết.
+Nạp Lan Dạ Hành xuất hiện dưới mái hiên, cảm khái:
 
-Đến cửa chính bên ngoài cùng phủ đệ tổ sư đường, Bùi Tiền hai tay chống kiếm đứng ở trên bậc thang, nhìn quanh, tuyết lớn mịt mờ, sư phụ không ở trên Lạc Phách Sơn, nó vị khai sơn đại đệ tử này, liền có một loại tịch mịch vô địch thiên hạ.
+- Biết người biết mặt không biết lòng.
 
-Trần Noãn Thụ xách thùng nước nhỏ lấy ra chìa khóa mở cửa, phía sau cửa là một sân rộng lớn, sau nữa, mới là tổ sư đường không đóng cửa kia, Chu Mễ Hạt tiếp nhận thùng nước, hít sâu một hơi, sử dụng bản mạng thần thông, ở trong sân vườn tuyết đọng dày nặng vắt chân chạy như điên, hai tay dùng sức lắc lư thùng nước, rất nhanh đã biến ra một thùng nước sạch, giơ lên cao cao, giao cho Trần Noãn Thụ đứng ở chỗ cao, Trần Noãn Thụ sắp bước qua cửa, đi hướng bức tranh treo, đặt ở tổ sư đường chỗ ngồi, Bùi Tiền đột nhiên kéo lấy Trần Noãn Thụ, kéo nàng đến phía sau mình. Bùi Tiền hơi hơi khom lưng, cầm gậy leo núi, gắt gao nhìn chăm chú vào gần ghế dựa đặt ở phía trước nhất của tổ sư đường.
+Trần Bình An cười nói:
 
-Đó chính là cái ghế của sư phụ mình.
+- Nên thấy may mắn vì bên cạnh đã bớt đi một chuyện có thể gây hại[?].
 
-Liên Y từng trận, sau đó trống rỗng xuất hiện một vị lão tiên sinh mặc nho sam, râu tóc trắng như tuyết.
+Còn việc nói tốt cho Thôi Sàm, hoặc giúp Nạp Lan Dạ Hành mắng hắn, đều không cần thiết.
 
-Bùi Tiền nhìn lão đầu nhi gầy nhỏ kia, nhìn mà suy nghĩ xuất thần.
+Nạp Lan Dạ Hành cười khổ, thổn thức không thôi.
 
-Đèn đuốc nhân gian như ngân hà.
+Trần Bình An dẫn lão sang sương phòng đối diện. Lão lấy ra hai bầu rượu, không có thức ăn nhắm cũng chẳng sao.
 
-Đó là một loại tâm cảnh mà nàng chưa từng gặp qua, mênh mông vô ngần, giống như mặc kệ nàng mở to mắt nhìn như thế nào, phong cảnh đều vô cùng tận.
+Lão nghe Trần Bình An kể đại khái về trận vấn tâm cục ở Thư Giản hồ. Có nhiều chuyện nói thêm cũng vô ích, chủ yếu là để lão bớt tự trách: thua Thôi Sàm chẳng có gì kỳ quái.
 
-Lão tú tài đứng ở bên cạnh ghế dựa, chỗ cao phía sau, chính là ba bức họa treo trên tường, nhìn tiểu cô nương ngoài cửa cao hơn không ít kia, cảm khái rất nhiều.
+Nạp Lan Dạ Hành nghe xong không nhịn được uống thêm một bầu rượu, cuối cùng hỏi:
 
-Không uổng phí mình đánh cược với một khuôn mặt già nua, lại là cùng người khác mượn đồ vật.
+- Mệt lòng như vậy, cô gia làm sao vượt qua được?
 
-Nói cho cùng, vẫn là đệ tử quan môn của mình, chưa bao giờ để tiên sinh cùng với sư huynh thất vọng.
+Trần Bình An cười nói:
 
-Bùi Tiền hỏi: "Văn thánh lão lão gia?"
+- Nạp Lan gia gia chẳng phải đã nói đáp án rồi sao?
 
-Lão tú tài ngẩn ra một phen, thật sự chưa từng bị người ta xưng hô như thế, tò mò hỏi: "Vì sao là lão lão gia?"
+Nạp Lan Dạ Hành ngẩn người hồi lâu, lập tức hiểu ra, cất tiếng cười sang sảng.
 
-Bùi Tiền nghiêm trang nói: "Như vậy có vẻ bối phận cao hơn một chút."
+Kiếm Khí Trường Thành đang giữa mùa nóng, còn Long Tuyền quận ở Bảo Bình châu của Hạo Nhiên thiên hạ lại đón trận tuyết lớn đầu tiên sau khi vào đông.
 
-Lão tú tài nhặt râu mà cười, nhẹ nhàng gật đầu, "Cái này rất tốt nha."
+Tổ sư đường núi Lạc Phách không nằm trên chủ phong, cách chỗ ở một quãng. Cứ nửa tháng một lần[?], Trần Noãn Thụ lại đến tổ sư đường trên Kỳ Sắc phong, mở cửa chính, cẩn thận lau dọn.
 
-Môn học vấn nào đó của nhất mạch mình, chỉ có thể hiểu được bí mật bất truyền, nhanh như vậy đã phát dương quang đại rồi?
+Hôm nay Bùi Tiền và Chu Mễ Hạt đi theo, nói muốn giúp đỡ. Trên đường, Bùi Tiền khẽ vươn tay, Hữu hộ pháp núi Lạc Phách liền cung kính dùng hai tay dâng gậy leo núi. Bùi Tiền múa kiếm điên cuồng suốt đường đi, đánh nát vô số bông tuyết.
 
-Bùi Tiền nhìn bức họa treo ở chỗ cao nhất, thu hồi tầm mắt, cất cao giọng nói: "Văn Thánh lão gia, ông một người sống sờ sờ như vậy, hình như so với treo bức họa còn uy nghiêm hơn!"
+Đến cửa ngoài phủ đệ tổ sư đường, Bùi Tiền hai tay chống kiếm đứng trên bậc thềm, nhìn quanh tuyết lớn mịt mù. Sư phụ không ở núi Lạc Phách, khai sơn đại đệ tử như nàng bèn cảm thấy nỗi tịch mịch của kẻ vô địch thiên hạ.
 
-Trần Noãn thụ chớp chớp mắt, không nói lời nào.
+Trần Noãn Thụ xách thùng nước nhỏ, lấy chìa khóa mở cửa. Sau cửa là một sân rộng, phía sau nữa mới đến tổ sư đường không đóng cửa.
 
-Chu Mễ nghiêng đầu, dùng sức cau mày, liếc qua liếc lại giữa bức họa treo cùng lão tú tài, nàng thật không nhìn ra được.
+Chu Mễ Hạt nhận lấy thùng nước, hít sâu một hơi, thi triển thần thông bản mạng. Nàng chạy như bay trong sân tuyết đọng dày, hai tay ra sức lắc thùng, chẳng mấy chốc đã biến ra một thùng nước sạch, giơ cao đưa cho Trần Noãn Thụ đứng trên bậc thềm.
 
-Lão tú tài ho khan vài tiếng, kéo kéo cổ áo, thẳng sống lưng, hỏi: "Thật sao?"
+Trần Noãn Thụ sắp bước qua cửa vào lau chùi chỗ ngồi trong tổ sư đường, Bùi Tiền đột nhiên kéo nàng ra sau lưng. Bùi Tiền hơi khom người, cầm gậy leo núi, nhìn chằm chằm về phía chiếc ghế ở vị trí trước nhất.
 
-Bùi Tiền dùng sức gật đầu, rụt cổ, lắc đầu trái phải, nhìn trái nhìn phải, kiễng chân theo dõi nhìn, cuối cùng gật đầu nói: "Thiên chân vạn xác, đúng vậy! Đại bạch nga cũng khen ta nhìn người rất chuẩn!"
+Đó là ghế của sư phụ nàng.
 
-Lão tú tài cười đến không khép được miệng, gọi ba tiểu nha đầu ngồi xuống, dù sao ở bên này, các nàng vốn đều có ghế ngồi, lão tú tài đè thấp giọng nói: "Chuyện ta đến Lạc Phách Sơn, ba tiểu nha đầu các ngươi biết là được rồi, tuyệt đối đừng nói với người khác."
+Từng đợt gợn sóng nổi lên, một lão tiên sinh mặc nho sam, râu tóc trắng như tuyết, bỗng xuất hiện từ hư không.
 
-Bùi Tiền ho khan một tiếng, "Làm ấm cây, hạt gạo!"
+Bùi Tiền nhìn lão nhân gầy nhỏ, nhất thời xuất thần.
 
-Trần Noãn Thụ lập tức gật đầu nói: "Được."
+Đèn lửa nhân gian như ngân hà.
 
-Chu Mễ đang khiêng Hành Sơn trượng "Ngự Tứ" của Bùi Tiền, ưỡn ngực, ngậm chặt miệng.
+Đó là một loại tâm cảnh nàng chưa từng gặp, mênh mông vô ngần, tựa như bất kể nàng mở to mắt nhìn thế nào, phong cảnh vẫn không có điểm cuối.
 
-Từ giờ trở đi, nàng phải làm người câm. Hơn nữa, nàng vốn chính là đến từ đại thủy quái ở hồ người câm.
+Lão tú tài đứng bên cạnh ghế, phía sau trên cao là ba bức họa treo tường. Nhìn tiểu cô nương ngoài cửa đã cao lên không ít, lão cảm khái muôn phần.
 
-Lão tú tài chậm rãi tản bộ ở trong tổ sư đường, cây Trần Noãn bắt đầu thuần thục rửa sạch từng cái ghế dựa, Bùi Tiền đứng ở bên cạnh cái ghế dựa kia của mình, hạt gạo Châu muốn ngồi ở trên cái ghế dán mảnh giấy nhỏ của Hữu hộ pháp kia, kết quả trừng mắt với Bùi Tiền, không có chút cấp bậc lễ nghĩa, trưởng bối sư phụ mình đại giá quang lâm, lão tiên sinh cũng không ngồi xuống, ngươi ngồi cái búa. Hạt gạo Châu lập tức đứng thẳng, trong lòng có chút tủi thân và uất ức, mình đây không phải muốn để vị lão tiên sinh kia hiểu được mình rốt cuộc là ai sao.
+Không uổng công mình đem mặt già ra đánh cược, lại đi mượn đồ của người khác.
 
-Lão tú tài nhìn ở trong mắt, cười ở trên mặt, cũng chưa nói cái gì.
+Nói cho cùng, đệ tử quan môn của lão chưa bao giờ khiến tiên sinh và sư huynh thất vọng.
 
-Có thể từng bước một đưa Bùi Tiền tới con đường hôm nay, tâm thần đệ tử bế quan kia của mình đã hao phí không ít. Dạy tốt như vậy, càng đáng quý hơn.
+Bùi Tiền hỏi:
 
-Đây thật ra là lần thứ ba lão tú tài đến Lạc Phách Sơn, hai lần trước, đi đi vội vàng, cũng chưa đặt chân nơi đây, lần này qua đi, hắn lại có bận rộn, lao khổ mệnh.
+- Văn Thánh lão lão gia?
 
-Lúc trước chỉ là lão nhân lén lút đi học thục trấn nhỏ một chuyến, thân ở trong đó, đứng ở một vị trí.
+Lão tú tài ngẩn ra, thật sự chưa từng được gọi như vậy, tò mò hỏi:
 
-Đưa mắt nhìn lại, sớm mấy năm, trên lớp học này, hẳn là sẽ có một tiểu cô nương áo bông đỏ ngồi nghiêm chỉnh, nhìn như chuyên tâm nghe giảng bài, thực ra thần du vạn dặm.
+- Vì sao lại là lão lão gia?
 
-Sẽ có Lâm Thủ Nhất ngưng thần chuyên chú, tiên sinh nói đến đâu, liền nghĩ đến nơi đó.
+Bùi Tiền nghiêm trang đáp:
 
-Sẽ có Lý Hòe gà con mổ thóc ngủ gà ngủ gật.
+- Như vậy trông bối phận cao hơn một chút.
 
-Sẽ có Triệu Tuân lúc ấy chắc chắn không thể tưởng tượng tương lai của mình, thế mà có một ngày sẽ rời khỏi bên cạnh tiên sinh, ngồi xe bò đi xa, cuối cùng lại một mình đi Trung Thổ Thần Châu.
+Lão tú tài vuốt râu cười, khẽ gật đầu:
 
-Sẽ có một Đổng Thủy Tỉnh đại trí giả ngu, một tiểu cô nương búi sừng dê.
+- Cái này rất tốt.
 
-Lão nhân lúc ấy đứng ở bên kia, cũng nghĩ tới một đệ tử ký danh không khác biệt lắm với Mao Tiểu Đông, Mã Chiêm, một bước sai từng bước sai, sau khi hoàn toàn tỉnh ngộ, rõ ràng có cơ hội hối cải, lại chỉ nguyện ý lấy cái chết để minh chí.
+Một môn học vấn chỉ có thể hiểu ngầm, bí mật bất truyền của nhất mạch mình, nhanh như vậy đã được phát dương quang đại rồi sao?
 
-Lão nhân phát hiện đến cuối cùng, giống như tất cả sai lầm, đều là ở bản thân, tiên sinh thân là truyền đạo thụ nghiệp giải thích nghi hoặc, truyền thụ học vấn của đệ tử, không đủ nhiều, truyền thụ cho đệ tử phương pháp sống yên phận, càng rối tinh rối mù.
+Bùi Tiền nhìn bức họa treo ở vị trí cao nhất, thu hồi tầm mắt, cất cao giọng:
 
-Lão tú tài cúi đầu vuốt râu càng thêm lo lắng.
+- Văn Thánh lão gia, người sống sờ sờ thế này, hình như còn uy nghiêm hơn cả bức họa treo trên kia!
 
-Chỉ là hôm nay đến tổ sư đường Lạc Phách sơn của quan môn đệ tử mình, treo bức tượng cao cao, ghế dựa ngay ngắn trật tự, sáng sủa sạch sẽ, không nhiễm một hạt bụi, nhất là thấy được ba tiểu cô nương hoạt bát đáng yêu, lão nhân mới có vài phần nét mặt tươi cười. Nhưng lão tú tài lại càng thêm áy náy, bức họa kia giống như thế nào lại treo ở chỗ cao nhất? Chính mình tên tiên sinh vô liêm sỉ chó má này, đã làm bao nhiêu cho đệ tử? Có thể dốc lòng truyền thụ học vấn, giải thích nghi hoặc cho hắn? Có giống như Thôi Sàm không?, Mang theo bên người, cùng nhau đi xa vạn dặm? Nhưng giống như Mao Tiểu Đông, Mã Chiêm, trong lòng có nghi hoặc, liền có thể hướng tiên sinh hỏi? Trừ dăm ba câu, mơ mơ hồ hồ quán thâu phần học thuyết trình tự kia của một vị thiếu niên lang, để cho đệ tử tuổi còn trẻ liền khốn đốn không tiến, suy nghĩ trùng trùng, năm đó cũng chỉ còn lại có chút lời say liên thiên, như thế nào đã thành tiên sinh của người ta?
+Trần Noãn Thụ chớp mắt, không nói gì.
 
-Một số học vấn, sớm đặt chân, khó như vào núi mà dời núi.
+Chu Mễ Hạt nghiêng đầu, cau mày nhìn qua nhìn lại giữa bức họa và lão tú tài. Nàng thật sự không nhìn ra được.
+
+Lão tú tài ho khan mấy tiếng, kéo cổ áo, ưỡn thẳng lưng, hỏi:
+
+- Thật sao?
+
+Bùi Tiền ra sức gật đầu, rụt cổ, nghiêng đầu nhìn trái nhìn phải, lại kiễng chân nhìn kỹ, cuối cùng gật đầu:
+
+- Thiên chân vạn xác! Đại bạch nga cũng khen con nhìn người rất chuẩn!
+
+Lão tú tài cười không khép miệng, gọi ba tiểu nha đầu ngồi xuống. Dù sao ở đây các nàng đều có ghế. Lão hạ giọng:
+
+- Chuyện ta đến núi Lạc Phách, ba tiểu nha đầu các ngươi biết là được, tuyệt đối đừng nói với người khác.
+
+Bùi Tiền ho khan một tiếng:
+
+- Noãn Thụ, Mễ Hạt!
+
+Trần Noãn Thụ lập tức gật đầu:
+
+- Được.
+
+Chu Mễ Hạt đang khiêng gậy leo núi “ngự tứ” của Bùi Tiền, ưỡn ngực, ngậm chặt miệng.
+
+Từ giờ trở đi, nàng phải làm người câm. Hơn nữa, nàng vốn là đại thủy quái đến từ hồ Ách Ba.
+
+Lão tú tài chậm rãi đi lại trong tổ sư đường. Trần Noãn Thụ thành thạo lau từng chiếc ghế, Bùi Tiền đứng bên ghế của mình. Chu Mễ Hạt định ngồi lên chiếc ghế có dán mảnh giấy ghi Hữu hộ pháp, kết quả bị Bùi Tiền trừng mắt.
+
+Không có chút lễ nghĩa nào! Trưởng bối của sư phụ giá lâm, lão tiên sinh còn chưa ngồi, ngươi ngồi cái búa gì?
+
+Chu Mễ Hạt lập tức đứng thẳng, trong lòng hơi tủi thân. Nàng chỉ muốn để lão tiên sinh biết mình là ai mà thôi.
+
+Lão tú tài nhìn thấy, mỉm cười, không nói gì.
+
+Có thể từng bước đưa Bùi Tiền đến ngày hôm nay, đệ tử quan môn của lão đã hao phí không ít tâm thần. Dạy tốt như vậy, càng đáng quý hơn.
+
+Đây thật ra là lần thứ ba lão tú tài đến núi Lạc Phách. Hai lần trước đến đi vội vàng, chưa đặt chân vào nơi này. Sau lần này, lão lại phải bận rộn; đúng là số vất vả.
+
+Trước đó lão lén đến trường học ở trấn nhỏ một chuyến, đứng ở một vị trí trong lớp.
+
+Đưa mắt nhìn quanh, mấy năm trước hẳn nơi đây có một tiểu cô nương áo bông đỏ ngồi ngay ngắn, trông như chăm chú nghe giảng, thật ra tâm trí đã bay xa vạn dặm.
+
+Có Lâm Thủ Nhất tập trung tinh thần, tiên sinh nói đến đâu liền nghĩ đến đó.
+
+Có Lý Hòe ngủ gà ngủ gật, đầu gật như gà con mổ thóc.
+
+Có Triệu Tuân, lúc ấy chắc chắn không thể tưởng tượng được rằng sau này một ngày nọ mình sẽ rời bên cạnh tiên sinh, ngồi xe bò đi xa, cuối cùng một mình đến Trung Thổ Thần Châu.
+
+Có Đổng Thủy Tỉnh đại trí giả ngu, có một tiểu cô nương búi tóc sừng dê.
+
+Khi đứng ở đó, lão còn nghĩ đến một đệ tử ký danh cũng như Mao Tiểu Đông và Mã Chiêm, một bước sai, từng bước sai. Sau khi hoàn toàn tỉnh ngộ, rõ ràng có cơ hội hối cải, người ấy lại chỉ nguyện lấy cái chết để tỏ rõ chí hướng.
+
+Cuối cùng lão phát hiện dường như mọi sai lầm đều ở bản thân. Một tiên sinh truyền đạo, dạy học, giải đáp nghi hoặc như lão đã truyền cho đệ tử quá ít học vấn; còn cách giúp đệ tử sống yên ổn trên đời, lão càng dạy rối tinh rối mù.
+
+Lão tú tài cúi đầu vuốt râu, càng thêm lo lắng.
+
+Hôm nay đến tổ sư đường núi Lạc Phách của đệ tử quan môn, thấy tranh treo trên cao, ghế đặt ngay ngắn, mọi thứ sáng sủa sạch sẽ, không nhiễm hạt bụi, nhất là thấy ba tiểu cô nương hoạt bát đáng yêu, lão mới có thêm mấy phần tươi cười.
+
+Nhưng lão càng thêm áy náy. Bức họa của mình sao lại treo ở vị trí cao nhất? Một tiên sinh vô liêm sỉ khốn kiếp như mình đã làm được bao nhiêu cho đệ tử? Có từng dốc lòng truyền thụ học vấn, giải đáp nghi hoặc cho hắn? Có từng giống như với Thôi Sàm, mang hắn bên người, cùng đi xa vạn dặm? Hắn có thể như Mao Tiểu Đông, Mã Chiêm, trong lòng có nghi hoặc liền hỏi tiên sinh hay không?
+
+Ngoài mấy câu mơ mơ hồ hồ đem học thuyết, đạo lý rót vào đầu thiếu niên, khiến đệ tử tuổi còn trẻ đã khốn đốn không tiến, suy nghĩ trùng trùng, năm đó lão chỉ còn biết nói mấy lời say sưa liên miên. Như thế sao đã trở thành tiên sinh của người ta?
+
+Có những học vấn, bước chân vào quá sớm khó như vào núi mà dời núi.
 
 Lão tiên sinh áy náy không chịu nổi.
 
-Lúc ấy ở trường tư, lão nhân quay đầu nhìn ra bên ngoài, giống như có đứa nhỏ xanh xao vàng vọt kiễng gót chân, đứng ở ngoài cửa sổ, đứa nhỏ mở to mắt, dựng thẳng lỗ tai, nghe tiếng đọc sách, ngửi hương sách, nhìn học sinh tiên sinh bên trong, đứa nhỏ cô đơn một mình đứng ở ngoài trường tư, trong đôi mắt sạch sẽ, tràn ngập khát khao.
+Khi còn ở trường học, lão quay đầu nhìn ra ngoài, tựa như thấy một đứa trẻ xanh xao gầy yếu kiễng chân đứng bên cửa sổ. Đứa trẻ mở to mắt, vểnh tai nghe tiếng đọc sách, ngửi hương sách, nhìn tiên sinh và học trò bên trong. Nó cô đơn đứng ngoài trường, đôi mắt trong trẻo đầy vẻ khát khao.
 
-Ở trong cuộc đời sau này của đứa nhỏ đó, có lẽ sẽ cõng cái sọt lớn, ở trên núi hái thuốc, tăng thêm can đảm cho mình, lớn tiếng hô "Nhân chi sơ, tính bản thiện" cũng không hiểu ý nghĩa, ở trên đường xuống núi, cao hứng bừng bừng ngâm nga "Thiên địa huyền hoàng, vũ trụ hồng hoang", ở giữa lên núi xuống núi phơi nắng, mặt trời chiếu rọi, mồ hôi đầm đìa, đứa nhỏ tránh ở dưới bóng cây nghỉ ngơi, tự mình chơi đấu cỏ, thắng thua đều là mình, giơ cao một tay, ồn ào thắng lâu la, mới có thể hơi hiện vẻ trẻ con non nớt.
+Trong những năm tháng về sau, có lẽ đứa trẻ ấy sẽ đeo sọt lớn lên núi hái thuốc, lớn tiếng đọc “Nhân chi sơ, tính bản thiện” mà chẳng hiểu nghĩa, chỉ để tăng thêm can đảm. Trên đường xuống núi, nó vui vẻ ngâm nga “Thiên địa huyền hoàng, vũ trụ hồng hoang”.
 
-Thế gian cực khổ trùng trùng, cuộc đời đứa nhỏ như thế, cũng không hiếm thấy.
+Lên núi xuống núi dưới ánh mặt trời, mồ hôi đầm đìa, đứa trẻ tránh dưới bóng cây nghỉ ngơi, một mình chơi đấu cỏ, thắng thua đều là mình. Nó giơ cao một tay, reo lên mình thắng rồi, lúc ấy mới hơi lộ ra vẻ trẻ con non nớt.
 
-Chỉ là tuổi còn nhỏ, đã tự mình tiêu thụ, cũng không thấy nhiều.
+Thế gian đầy rẫy khổ cực, cuộc đời như đứa trẻ ấy không hiếm thấy.
 
-Lão tú tài thậm chí hối hận lúc trước nói những lời đó với Trần Bình An, đầu vai thiếu niên lang nên nâng dương liễu lả lướt cùng cỏ dài chim bay.
+Chỉ là tuổi còn nhỏ đã tự mình gánh chịu, lại không có nhiều.
 
-Nói với bọn Bùi Tiền những đứa nhỏ này, không có vấn đề, nói cái này với Trần Bình An, có phải cũng quá đứng nói chuyện không đau lưng hay không?
+Lão tú tài thậm chí hối hận từng nói những lời ấy với Trần Bình An: trên vai thiếu niên nên là cành dương liễu thướt tha, cỏ mọc chim bay.
 
-Nhưng mà lão tú tài lại nghĩ, lại nhìn Lạc Phách Sơn hôm nay, giống như năm xưa nói lời như thế với thiếu niên giầy rơm kia, lại là đúng nhất.
+Nói với những đứa trẻ như Bùi Tiền thì không sao, nhưng nói với Trần Bình An, chẳng phải quá giống đứng nói chuyện không đau lưng sao?
 
-Cuối cùng bọn Bùi Tiền phát hiện lão tiên sinh đường xa mà đến kia, ngồi ở trên một cái ghế gần bậc cửa nhất, im lặng ngồi ở bên kia, ngẩng đầu nhìn ba bức họa treo trên tường.
+Nhưng nghĩ lại, nhìn núi Lạc Phách hôm nay, lão lại cảm thấy năm xưa nói những lời ấy với thiếu niên giày rơm mới là đúng nhất.
 
-Không nhìn bức họa mình treo ở giữa, nhìn Thôi Thành như thật lâu, nhẹ nhàng gật đầu, lẩm bẩm, ai cũng nghe không rõ, cuối cùng lão tiên sinh vẫn nhìn về phía bức họa đệ tử của mình, im lặng không lên tiếng.
+Cuối cùng, bọn Bùi Tiền phát hiện lão tiên sinh đường xa mà đến đã ngồi trên chiếc ghế gần cửa nhất, lặng lẽ ngẩng đầu nhìn ba bức họa trên tường.
 
-Lão tiên sinh lẩm bẩm: "Hay là: "Lấy ơn báo oán như thế nào?"
+Lão không nhìn bức họa của mình ở giữa, mà nhìn Thôi Thành rất lâu, khẽ gật đầu, lẩm bẩm điều gì không ai nghe rõ. Cuối cùng lão nhìn về bức họa đệ tử của mình, im lặng không nói.
 
-Lão tiên sinh tự hỏi tự đáp: "Tử viết: "Lấy gì báo đức? Lấy thẳng báo oán, lấy đức báo đức."
+Lão tiên sinh lẩm bẩm:
 
-Một chiếc độ thuyền vượt châu đến từ Bảo Bình châu Quế Hoa Đảo, đi xuống một đôi quê nhà là thầy trò kiếm tu bắc Câu Lô châu kia.
+- Có người hỏi: “Lấy ơn báo oán thì thế nào?”
 
-Vị kiếm tiên áo xanh làm sư phụ kia, đại khái còn không rõ ràng lắm, hôm nay hắn ở rất nhiều ngõ nhỏ Kiếm Khí Trường Thành, ù ù cạc cạc có chút danh tiếng.
+Lão tự hỏi tự đáp:
+
+- Tử viết: “Lấy gì báo đức? Lấy ngay thẳng báo oán, lấy đức báo đức.”
+
+Một chiếc độ thuyền vượt châu từ Quế Hoa đảo ở Bảo Bình châu cập bến. Từ trên thuyền bước xuống một đôi thầy trò kiếm tu, quê ở Bắc Câu Lô châu.
+
+Vị kiếm tiên áo xanh làm sư phụ kia có lẽ vẫn chưa biết, hôm nay ở rất nhiều ngõ nhỏ của Kiếm Khí Trường Thành, hắn đã không hiểu sao có chút danh tiếng.

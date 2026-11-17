@@ -1,207 +1,263 @@
 # Chương 668: Thế gian người người tâm ngồi một mình
 
-Ninh phủ mặc dù không ở phố Thái Tượng, phố Huyền Miểu, nhưng dinh thự lại không nhỏ.
+Ninh phủ tuy không nằm trên phố Thái Tượng hay phố Huyền Miểu, nhưng dinh thự cũng không nhỏ.
 
-Trần Bình An giúp ba người chọn lựa ba tòa nhà, Tào Tình Lãng là Luyện khí sĩ, cho nên vị trí chú ý nhất, linh khí không thể mỏng manh, lại có kiếm khí không thể quá nặng, bằng không Tào Tình Lãng thân là bình cảnh Động Phủ cảnh, tu sĩ sắp chen thân Quan Hải cảnh, vừa vặn là Luyện khí sĩ ngoại hương không muốn đặt thân vào Kiếm Khí Trường Thành nhất. Cũng may Trần Bình An hiểu rất rõ Ninh phủ, ba người Tào Tình Lãng hẳn là ở nơi nào, lại có những suy tính rất nhỏ cùng chú ý chỗ lớn nào, việc này, Trữ Diêu đều bảo Trần Bình An quyết định, không cần Trữ Diêu thân là chủ nhân Trữ phủ nói, cũng không cần Trần Bình An tạm thời coi như nửa người ngoài hỏi như thế nào.
+Trần Bình An giúp ba người chọn chỗ ở. Tào Tình Lãng là luyện khí sĩ, nơi ở của hắn phải được chọn lựa cẩn thận nhất: linh khí không thể quá mỏng, kiếm khí cũng không thể quá nặng. Hắn đang ở bình cảnh Động Phủ cảnh, sắp bước vào Quan Hải cảnh, chính là loại luyện khí sĩ ngoại hương ngại đặt chân đến Kiếm Khí Trường Thành nhất.
 
-Bùi Tiền tựa như một con se sẻ nhỏ, hạ quyết tâm xoay quanh sư nương không đi.
+May mà Trần Bình An rất quen thuộc Ninh phủ. Ba người Tào Tình Lãng nên ở đâu, chuyện lớn chuyện nhỏ cần lưu ý những gì, Ninh Diêu đều để hắn quyết định. Nàng là chủ nhân Ninh phủ nhưng không cần nói thêm, còn Trần Bình An tuy tạm xem là nửa người ngoài, cũng không cần hỏi ý nàng.
 
-Trần Bình An khởi điểm còn lo lắng Bùi Tiền sẽ chậm trễ Trữ Diêu bế quan, kết quả Trữ Diêu nói một câu, trên đường tu hành, có khi nào không bế quan. Trần Bình An không nói gì, Trữ Diêu liền mang theo Bùi Tiền đi xem pháp bảo tiên gia cất giữ trân quý của Trữ phủ, kho chứa đồ trên núi, nói là muốn tặng Bùi Tiền một món lễ gặp mặt, tùy tiện Bùi Tiền chọn lựa, sau đó Trữ Diêu nàng lại chọn lựa một món, làm quà quà quà quà quà quà quà tặng lúc trước ở cửa chính.
+Bùi Tiền giống như một con chim sẻ nhỏ, quyết định đi theo sư nương không rời.
 
-Chủng Thu và Trần Bình An hỏi chút quy củ kiêng kị của Trữ phủ, sau đó một mình hắn đi tới Lương đình trên Trảm Long Nhai.
+Ban đầu Trần Bình An còn lo nàng sẽ làm chậm trễ việc Ninh Diêu bế quan. Ninh Diêu chỉ nói, trên đường tu hành, khi nào mà chẳng có thể bế quan?
 
-Tào Tình Lãng ở tòa nhà của mình cất kỹ hành lý, đi theo Trần Bình An đi hướng tòa nhà nhỏ kia. Trần Bình An đi ở trên đường, hai tay lồng trong tay áo, cười nói: "Vốn là muốn ngươi và Bùi Tiền đều ở bên ta, còn nhớ rõ ba người chúng ta quen biết lúc ấy chứ? Nhưng ngươi hiện tại ở quan ải tu hành mấu chốt, vẫn là tu đạo làm trọng."
+Trần Bình An không nói gì nữa. Ninh Diêu bèn dẫn Bùi Tiền đến xem kho cất giữ những pháp bảo tiên gia quý giá của Ninh phủ. Nàng nói muốn tặng Bùi Tiền một món lễ gặp mặt, để nàng tùy ý chọn. Sau đó Ninh Diêu sẽ tự chọn thêm một món, làm quà đáp lại lễ vật khi trước ở cửa chính.
 
-Tào Tình Lãng cười gật đầu, "Tiên sinh, thật ra từ lúc ấy, ta đã rất sợ Bùi Tiền, chỉ là sợ tiên sinh xem thường, liền cố gắng giả vờ không sợ Bùi Tiền, nhưng ở sâu trong lòng lại bội phục Bùi Tiền, luôn cảm thấy nếu đổi thành ta là nó, tình cảnh giống nhau, ở kinh thành Nam Uyển quốc là không sống nổi nữa. Nhưng lúc ấy trên người Bùi Tiền rất nhiều chuyện ta không quá hiểu, lúc ấy, ta quả thật cũng không quá thích. Nhưng ta nào dám nói này nói nọ với Bùi Tiền, tiên sinh có thể không rõ ràng lắm, năm đó lúc tiên sinh ra ngoài, Bùi Tiền nói với ta rất nhiều chuyện phong cảnh khi nó đi lại giang hồ, ý nói, ta đương nhiên nghe ra được."
+Chủng Thu hỏi Trần Bình An vài điều về quy củ kiêng kỵ trong phủ, rồi một mình đi đến lương đình trên Trảm Long Nhai.
 
-Trần Bình An cười hỏi: "Lúc ta không ở tổ trạch nhà ngươi, Bùi Tiền có vụng trộm đánh lén ngươi hay không?"
+Tào Tình Lãng cất hành lý trong chỗ ở của mình xong, theo Trần Bình An đến tòa nhà nhỏ kia. Trên đường đi, Trần Bình An hai tay lồng trong tay áo, cười nói:
 
-Tào Tình Lãng gật mạnh đầu, trái lại không nói chi tiết.
+- Vốn định để ngươi và Bùi Tiền đều ở bên cạnh ta. Còn nhớ lúc ba người chúng ta quen nhau không? Nhưng bây giờ ngươi đang ở thời điểm tu hành quan trọng, vẫn nên lấy tu đạo làm trọng.
 
-Trần Bình An cũng không hỏi kỹ.
+Tào Tình Lãng cười gật đầu:
 
-Trần Bình An hoàn toàn có thể tưởng tượng mình lúc không ở tổ trạch ngõ hẹp của Tào Tình Lãng, quang cảnh hắn ở chung với Bùi Tiền.
+- Tiên sinh, thật ra từ khi ấy ta đã rất sợ Bùi Tiền. Chỉ vì sợ tiên sinh xem thường, ta mới cố giả vờ không sợ nàng. Nhưng trong lòng ta lại rất bội phục nàng, luôn cảm thấy nếu đổi thành ta ở vào cảnh ngộ của nàng, ta không thể sống nổi ở kinh thành Nam Uyển quốc.
 
-Đương nhiên đến lúc ba người ở chung, Trần Bình An cũng sẽ làm chút chuyện năm đó Tào Tình Lãng và Bùi Tiền đều sẽ không cố ý đi suy nghĩ sâu xa, có thể là ngôn ngữ, có thể là việc nhỏ.
+- Khi đó có nhiều chuyện ở Bùi Tiền ta không hiểu, quả thật cũng không thích lắm. Nhưng ta nào dám nói gì nàng? Tiên sinh có lẽ không biết, năm ấy khi tiên sinh ra ngoài, Bùi Tiền kể với ta rất nhiều chuyện nàng đi lại giang hồ. Ý trong lời nàng, đương nhiên ta nghe hiểu.
 
-Nhưng rất nhiều chuyện, thật sự cũng chỉ có thể Tào Tình Lãng tự mình đi đối mặt, lớn đến sinh tử của trưởng bối, nhỏ đến những lời vụn vặt đâm sau lưng, giấu ở trong khe hở hạt dưa, giấu ở trên ghế nhỏ thuận miệng nói chuyện phiếm, giấu ở trong một đống đồ ăn lớn trên bàn hàng xóm láng giềng.
+Trần Bình An cười hỏi:
 
-Trên thực tế, đứa nhỏ Tào Tình Lãng chính là dựa vào một chữ viết, cứng rắn chịu đựng ra mây tan trăng sáng, đêm đi ban ngày.
+- Lúc ta không ở tổ trạch nhà ngươi, Bùi Tiền có lén đánh ngươi không?
 
-Lúc ấy Tào Tình Lãng thật sự đánh không lại Bùi Tiền, ngay cả trả đòn cũng không dám. Mấu chốt là lúc ấy trên người Bùi Tiền trừ bỏ không sợ, còn cất giấu một khí thế tựa như tội phạm, một cước một ổ kiến, một chưởng ruồi muỗi bay côn trùng, Tào Tình Lãng không sợ không được. Nhất là có một lần Bùi Tiền cầm băng ghế nhỏ, nhìn chằm chằm nó, lại bất thường không nói nửa chữ ngoan độc, lúc ấy Tào Tình Lãng vẫn là đứa nhỏ gầy yếu, đó là thực sự sợ, dẫn tới rất nhiều thời điểm Trần Bình An không ở trong tòa nhà, Tào Tình Lãng đều chỉ có thể bị Bùi Tiền chạy tới làm môn thần.
+Tào Tình Lãng gật đầu thật mạnh, nhưng không kể chi tiết. Trần Bình An cũng không hỏi thêm.
 
-Một đứa nhỏ cô đơn buồn bã ngồi ở trên bậc thang, cũng không dám ở nhà mình, đứa nhỏ kia cũng chỉ có thể trông mong nhìn về phía góc phố, chờ vị Trần công tử áo trắng bối kiếm, thắt lưng đeo hồ lô rượu màu son kia về nhà, chỉ cần hắn đến ngõ nhỏ, nhìn thấy bóng người kia, Tào Tình Lãng cuối cùng cũng có thể về nhà, còn chưa thể nói cái gì, càng không thể cáo trạng.
+Hắn hoàn toàn có thể hình dung cảnh hai đứa trẻ chung sống trong tổ trạch ở ngõ hẹp khi mình vắng mặt.
 
-Bởi vì Bùi Tiền thật sự rất thông minh, loại thông minh đó, là Tào Tình Lãng người cùng lứa tuổi lúc ấy căn bản không thể tưởng tượng, nó ngay từ đầu đã từng nhắc nhở Tào Tình Lãng, ngươi tên không có cha mẹ này cũng coi như là có nắm, nếu dám cáo trạng, ngươi cáo trạng một lần, ta sẽ đánh ngươi một lần, cho dù ta bị tên khốn kiếp chết có tiền nhưng không cho người ta đuổi đi, cũng sẽ hơn nửa đêm trèo tường tới nơi này, ném vỡ bát đĩa gáo chậu nhà ngươi, ngươi ngăn được? Tên kia giả người tốt, giúp đỡ ngươi, ngăn được một ngày hai ngày, ngăn được một năm hai năm sao? Hắn là ai, ngươi lại là người như thế nào?, Hắn thật sẽ ở chỗ này? Hơn nữa, tính tình của hắn là gì, ta biết nhiều hơn so với tên ngu ngốc như ngươi, mặc kệ ta làm cái gì, hắn đều tuyệt đối sẽ không đánh chết ta, cho nên ngươi thức thời một chút, nếu không sẽ kết thù với ta, ta có thể quấn lấy ngươi nhiều năm, sau này mỗi khi đến ngày lễ tết, dù sao nhà ngươi cũng sẽ tuyệt chủng, câu đối môn thần xuân cũng mua không nổi, ta liền trộm thùng nước của ngươi đi chứa phân của người khác, bôi đầy cửa lớn của ngươi, mỗi ngày lúc đi ngang qua nhà ngươi, đều sẽ nhét một túi đá lớn, ta ngược lại muốn nhìn xem là ngươi dùng tiền may giấy dán cửa sổ nhanh hơn, hay là ta nhặt đá nhanh hơn.
+Đương nhiên, lúc ba người ở cùng nhau, Trần Bình An cũng làm một số việc mà khi ấy Tào Tình Lãng và Bùi Tiền sẽ không cố ý nghĩ sâu. Có thể chỉ là một câu nói, cũng có thể là một chuyện nhỏ.
 
-Chỗ Bùi Tiền cảm thấy khó chịu nhất năm đó, còn không phải những uy h**p thẳng thừng này, không phải lời khó nghe nhất dọa người nhất, mà là những lời khác của Bùi Tiền cười hì hì nhẹ nhàng.
+Nhưng rất nhiều chuyện vẫn chỉ có thể để Tào Tình Lãng tự mình đối mặt. Chuyện lớn như sinh tử của trưởng bối, chuyện nhỏ như những lời vụn vặt sau lưng, giấu giữa những vỏ hạt dưa, trong câu chuyện phiếm trên ghế nhỏ hay bên mâm cơm của hàng xóm láng giềng.
 
-"Nhà ngươi đều nghèo đến mức vại gạo so với giường còn sạch sẽ hơn, tác dụng duy nhất của Tang Môn tinh này của ngươi, không phải chính là lăn ra ngoài cửa làm môn thần sao, biết hai tấm môn thần cần bao nhiêu tiền sao, bán đi ngươi cũng mua không nổi. Ngươi nhìn nhà người khác, cuộc sống đều vượt qua càng nhiều người, tiền càng nhiều, nhà ngươi thì tốt, người chết, tiền cũng không lưu lại mấy cái? Muốn ta xem, cha ngươi năm đó không phải kẻ gánh hàng rong bán đồ vật hàng rong sao? Cách ngõ Trạng Nguyên không xa nơi này, không phải có rất nhiều kỹ viện sao, tiền của cha ngươi, cũng không phải đều dùng ở sờ tay đám đàn bà đó sao."
+Thật ra đứa trẻ ấy chính là dựa vào một chữ nhẫn[?], cứng rắn chịu đựng cho đến khi mây tan trăng sáng, đêm qua ngày tới.
 
-"Hạt dưa đâu, không có đâu?! Có tin ta đập vỡ cả bình đựng hạt dưa của ngươi không? Phá nát cả đống sách nát của ngươi không? Chờ tên họ Trần kia quỳ xuống đất khóc, hắn nhiều tiền, mua cho ngươi chút hạt dưa làm gì, ở khách đ**m còn phải tiêu tiền, ngươi là ngu, hắn là đồ xấu, các ngươi đều không phải thứ tốt, khó trách có thể gom góp một đống. Tính ra ta xui tám đời mới gặp được hai người các ngươi."
+Khi ấy Tào Tình Lãng thật sự đánh không lại Bùi Tiền, ngay cả trả đòn cũng không dám. Trên người Bùi Tiền ngoài vẻ không biết sợ, còn có một luồng khí thế hung dữ. Nàng đá một cước vào ổ kiến, vung một chưởng đập ruồi muỗi côn trùng, Tào Tình Lãng không thể không sợ.
 
-"Tào Tình Lãng, ngươi sẽ không thật sự cho rằng tên kia thích ngươi chứ, người ta chỉ là thương xót ngươi, hắn và ta mới là một loại người, biết chúng ta là ai không? Tựa như ta dạo chơi trên đường, nhìn thấy trên đất có con chim nhỏ từ trên cây tổ chim rơi xuống, ta thật lòng thương nó, sau đó ta liền đi tìm một tảng đá, một tảng đá đi xuống, lập tức đập chết nó, để nó bớt chịu chút tội, có đạo lý hay không? Cho nên ta có phải người tốt hay không? Ngươi cho rằng ta là ở nhà của ngươi ở lại không đi? Ta là đang bảo vệ ngươi, nói không chừng ngày nào đó ngươi sẽ bị nó đánh chết, có ta ở đây, nó không dám a, ngươi không cảm ơn ta được?"
+Nhất là có lần Bùi Tiền cầm ghế nhỏ nhìn chằm chằm hắn, khác thường không nói một lời hung ác nào. Khi đó Tào Tình Lãng vẫn là một đứa trẻ gầy yếu, thật sự sợ hãi. Cho nên nhiều khi Trần Bình An không ở nhà, hắn bị Bùi Tiền đuổi ra cửa làm môn thần.
 
-"Sao ngươi làm gì mỗi ngày mặt mày đau khổ, ngươi không phải cũng mới một đôi cha mẹ? Sao, lại chết một đôi rồi? Ài, ài, dù sao ngươi có lỗi cha mẹ chết sớm nhất của ngươi, có lỗi đặt cho ngươi cái tên này, đổi thành ta là cha ngươi mẹ ngươi, cái gì đầu thất hoàn hồn, cái gì thanh minh tiết trung nguyên, chỉ cần thấy ngươi, khẳng định sẽ bị tức chết một lần nữa. Tào Tình Lãng, ta thấy ngươi chết rồi thôi, ngươi nếu chết sớm một chút, chạy nhanh một chút, nói không chừng còn có thể đuổi kịp cha mẹ ngươi, nhưng nhớ rõ chết xa một chút, đừng để cho tên kia tìm được, hắn có tiền, nhưng keo kiệt nhất, ngay cả một chiếu rách cũng không nỡ mua giúp ngươi, dù sao về sau tòa nhà này sẽ thuộc về ta."
+Đứa trẻ cô đơn buồn bã ngồi trên bậc thềm, ngay cả nhà mình cũng không dám vào, chỉ có thể trông ngóng về góc phố, chờ Trần công tử áo trắng đeo kiếm, bên hông treo hồ lô rượu màu son về nhà. Chỉ cần bóng người kia xuất hiện trong ngõ, Tào Tình Lãng cuối cùng có thể về nhà, nhưng vẫn không dám nói gì, càng không dám cáo trạng.
 
-Tào Tình Lãng chủ động đánh hai lần với Bùi Tiền, một lần là vì cha mẹ, một lần là vì Trần công tử một lần nào đó rất lâu không trở về, đương nhiên Tào Tình Lãng sao có khả năng là đối thủ của Bùi Tiền, Bùi Tiền quen nhìn người khác đánh nhau, cũng bị người khác đánh quen rồi, đối phó một Tào Tình Lãng ngay cả hạ độc thủ cũng không dám, Bùi Tiền ứng phó rất không có sức, nhưng nó chỉ là trong lòng vô lực, sức tay cũng không nhỏ, cho nên Tào Tình Lãng hai lần hạ tràng đều không tốt lắm.
+Bởi vì Bùi Tiền thật sự rất thông minh, cái thông minh mà Tào Tình Lãng cùng tuổi khi ấy không thể tưởng tượng nổi. Ngay từ đầu nàng đã cảnh cáo hắn:
 
-Trần Bình An dẫn theo Tào Tình Lãng đứa nhỏ đã sớm không phải người gầy yếu kia ngõ hẹp, cùng nhau vào sương phòng đặt hai cái bàn tay trái. Trần Bình An bảo Tào Tình Lãng ngồi ở cạnh bàn đặt con dấu, mặt quạt xương quạt, tự mình bắt đầu thu thập những bản đồ cùng sổ phó chính kia. Loại chuyện "ký sổ", học sinh Tào Tình Lãng, đệ tử Bùi Tiền, tự nhiên vẫn là người sau học nhiều chút.
+- Tên không cha không mẹ nhà ngươi coi như có chút gan đấy. Dám đi cáo trạng, ngươi cáo trạng một lần, ta đánh ngươi một lần. Dù bị tên khốn có tiền mà keo kiệt kia đuổi đi, nửa đêm ta cũng sẽ trèo tường vào đập vỡ bát đĩa, gáo chậu nhà ngươi. Ngươi ngăn được sao?
 
-Trần Bình An chưa từng nói với bất luận kẻ nào.
+- Tên giả làm người tốt kia giúp ngươi, ngăn được một ngày hai ngày, có ngăn được một năm hai năm không? Hắn là ai, ngươi lại là ai? Hắn thật sự sẽ ở mãi đây sao? Tính tình hắn thế nào, ta còn biết rõ hơn tên ngốc như ngươi. Mặc kệ ta làm gì, hắn tuyệt đối sẽ không đánh chết ta.
 
-Ở trong lòng hắn, Tào Tình Lãng chỉ là từng trải cuộc đời giống mình, tính tình bản tính, thật ra nhìn có chút giống, quả thật cũng có rất nhiều chỗ tương tự, nhưng trên thực tế lại không phải.
+- Cho nên ngươi thức thời một chút, bằng không kết thù với ta, ta có thể bám lấy ngươi nhiều năm. Sau này đến lễ tết, nhà ngươi dù sao cũng tuyệt hậu, câu đối với tranh môn thần cũng không mua nổi. Ta sẽ trộm thùng nước nhà ngươi đi đựng phân, bôi đầy cửa lớn. Mỗi ngày đi ngang qua, ta đều nhét đầy một túi đá. Ta muốn xem ngươi bỏ tiền vá giấy cửa sổ nhanh hơn, hay ta nhặt đá nhanh hơn.
 
-Đó là một loại cảm giác rất kỳ quái.
+Nhưng điều khiến Tào Tình Lãng khó chịu nhất năm đó lại không phải những lời uy hiếp thẳng thừng ấy, cũng không phải những câu khó nghe dọa người nhất, mà là những lời khác Bùi Tiền cười hì hì nói ra một cách nhẹ bẫng.
 
-Nhưng những thứ này không chậm trễ Trần Bình An lúc rời khỏi Ngẫu Hoa phúc địa, hy vọng nhất mang theo Tào Tình Lãng cùng nhau rời khỏi, cho dù không thể làm được, vẫn tâm tâm niệm niệm đứa nhỏ ngõ hẹp kia, tự đáy lòng hy vọng Tào Tình Lãng, tương lai có thể trở thành một hạt giống đọc sách, có thể mặc nho sam, trở thành một người đọc sách thật sự, trở thành người đọc sách như Tề tiên sinh, càng sẽ hối hận mình đi quá mức vội vàng, lại lo lắng mình sẽ dạy sai., Tào Tình Lãng tuổi còn quá nhỏ, rất nhiều cái chỉ ở Trần Bình An là đúng, đến trên người đứa nhỏ này là không đúng. Cho nên ở trước khi Ngẫu Hoa phúc địa chia ra làm bốn, Trần Bình An chiếm cứ một cái, Trần Bình An cứ như vậy luôn lo lắng Tào Tình Lãng, dẫn tới ở trong khách sạn biên cảnh vương triều Đại Tuyền Đồng Diệp Châu, Bùi Tiền hỏi hắn vấn đề đó, Trần Bình An không chút do dự liền nói là, thừa nhận mình căn bản là không muốn mang theo Bùi Tiền ở bên người. Nếu có thể, mình chỉ mang theo Tào Tình Lãng rời khỏi quê nhà, tới quê nhà Trần Bình An hắn.
+- Nhà ngươi nghèo đến mức vại gạo còn sạch hơn giường. Tang Môn tinh nhà ngươi có ích gì ngoài lăn ra cửa làm môn thần? Biết hai tấm tranh môn thần giá bao nhiêu không? Bán ngươi đi cũng mua không nổi. Nhìn nhà người ta xem, sống càng lâu người càng đông, tiền càng nhiều. Nhà ngươi thì hay rồi, người chết hết mà tiền cũng chẳng để lại mấy đồng.
 
-Tục ngữ nói Nê Bồ Tát cũng có hỏa khí.
+- Theo ta thấy, cha ngươi năm đó chẳng phải là kẻ gánh hàng rong sao? Cách ngõ Trạng Nguyên không xa có rất nhiều kỹ viện. Tiền của cha ngươi chẳng phải đều dùng để sờ tay đám đàn bà ở đó rồi sao?
 
-Nhưng ở trên người Trần Bình An, chung quy không thường thấy, đặc biệt là đứa nhỏ lúc ấy thật sự tức giận với Bùi Tiền lớn như vậy, ở trong cuộc đời Trần Bình An, càng chỉ một lần này.
+- Hạt dưa đâu, không có à? Có tin ta đập vỡ cả bình đựng hạt dưa, xé nát đống sách rách của ngươi không? Chờ tên họ Trần kia quỳ xuống đất khóc đi. Hắn có nhiều tiền, mua cho ngươi ít hạt dưa thì sao? Ở khách điếm cũng phải tiêu tiền đấy thôi. Ngươi thì ngu, hắn thì xấu, cả hai đều không phải thứ tốt, khó trách có thể ở cùng nhau. Ta xui xẻo tám đời mới gặp phải hai người các ngươi.
 
-Triệu Thụ Hạ học quyền giống mình nhất, nhưng mà ở trên người Triệu Thụ Hạ, Trần Bình An càng nhiều hơn, là thấy được bằng hữu tốt nhất của mình, Lưu Tiện Dương. Lần đầu gặp nhau, dưới trướng Triệu Thụ Hạ là Nguyễn Cung bảo hộ như thế nào, như vậy ở trấn nhỏ, cùng Lưu Tiện Dương trở thành người quen, bằng hữu tốt nhất cuộc đời này nhiều năm như vậy, Lưu Tiện Dương chính là Trần Bình An bảo hộ như thế nào.
+- Tào Tình Lãng, ngươi thật sự cho rằng tên kia thích ngươi sao? Người ta chỉ thương hại ngươi thôi. Hắn và ta mới là cùng một loại người. Biết chúng ta là ai không? Giống như lúc ta đi trên đường, thấy một con chim nhỏ từ trên tổ rơi xuống đất, ta thật lòng thương nó, bèn tìm một hòn đá đập chết nó, để nó bớt chịu khổ. Có lý không? Vậy ta có phải người tốt không?
 
-Thật ra giống Trần Bình An hơn, thật ra là loại ánh mắt nhát gan kia của Bùi Tiền vụng trộm đánh giá thế giới, là phỏng đoán lòng người của Tùy Cảnh Trừng, hôm nay lại có một thiếu niên Kiếm Khí Trường Thành, cũng giống, không phải Trương Gia Trinh đã hỗ trợ ở quán rượu, mà là một thiếu niên bần hàn tên là Tương Khứ ngõ Mậu. Phố bên kia, mỗi lần Trần Bình An làm thuyết thư tiên sinh, thiếu niên ngôn ngữ ít nhất, mỗi lần đều ngồi ở chỗ xa nhất, lại là tâm tư hắn nhiều nhất, học quyền dụng tâm nhất, cho nên học quyền nhiều nhất, mấy lần chạm mặt cùng ngôn ngữ vừa đúng chỗ, thiếu niên đều hơi tỏ ra co quắp, nhưng mà ánh mắt kiên định, Trần Bình An liền chỉ dạy thiếu niên đi kiếm lô lập thung một chiêu Hám Sơn Quyền kia của thiếu niên.
+- Ngươi cho rằng ta ở lì trong nhà ngươi không đi sao? Ta đang bảo vệ ngươi đấy. Biết đâu ngày nào đó ngươi bị hắn đánh chết, có ta ở đây, hắn không dám. Ngươi không cảm ơn ta à?
 
-Tưởng Khứ mỗi lần ngồi xổm ở bên đó, nhìn như tập trung tinh thần nghe kể chuyện xưa sơn thủy của tiên sinh thuyết thư, nhưng ánh mắt, sắc mặt, cùng với ngôn ngữ rất nhỏ của người quen biết với thiếu niên, đều tràn ngập một loại lòng h*m m**n công lợi mơ hồ không rõ.
+- Sao ngày nào ngươi cũng ủ rũ như vậy? Chẳng phải ngươi mới chỉ có một đôi cha mẹ sao? Thế nào, lại chết thêm một đôi nữa à? Dù sao ngươi cũng có lỗi với cha mẹ chết sớm của mình, có lỗi với người đặt cho ngươi cái tên này. Nếu ta là cha mẹ ngươi, bất kể là ngày đầu thất hoàn hồn, tiết Thanh Minh hay Trung Nguyên, chỉ cần nhìn thấy ngươi, chắc chắn sẽ tức chết thêm một lần nữa.
 
-Trần Bình An không có nửa điểm phản cảm, chỉ là có chút sầu não.
+- Tào Tình Lãng, ta thấy ngươi chết đi cho rồi. Chết sớm một chút, chạy nhanh một chút, biết đâu còn đuổi kịp cha mẹ ngươi. Nhưng nhớ chết xa một chút, đừng để tên kia tìm được. Hắn có tiền nhưng keo kiệt nhất, ngay cả một chiếc chiếu rách cũng không nỡ mua cho ngươi. Dù sao sau này tòa nhà này sẽ thuộc về ta.
 
-Không ai biết vì sao năm đó Ngụy Bách ở trước trúc lâu Lạc Phách Sơn, nói A Lương kia hai ba chuyện.
+Tào Tình Lãng từng chủ động đánh nhau với Bùi Tiền hai lần. Một lần vì cha mẹ, một lần vì Trần công tử rất lâu không trở về. Đương nhiên hắn không thể là đối thủ của nàng. Bùi Tiền đã quen nhìn người ta đánh nhau, bản thân cũng quen bị đánh. Đối phó với Tào Tình Lãng ngay cả ra tay nặng cũng không dám, nàng cảm thấy rất vô vị, nhưng sức tay lại không hề nhỏ, cho nên cả hai lần Tào Tình Lãng đều có kết cục không tốt.
 
-Thiếu niên Trần Bình An vì sao sẽ lệ rơi đầy mặt, lại vì sao sẽ ở ngoài hướng tới tâm thần, đáy lòng cất giấu một phần xấu hổ khó có thể nói thành lời, hối hận, bất đắc dĩ, đó là một loại cảm xúc Ngụy Bách lúc ấy chưa từng biết.
+Trần Bình An dẫn Tào Tình Lãng, đứa trẻ gầy yếu trong ngõ hẹp năm xưa nay đã lớn, vào gian sương phòng đặt hai chiếc bàn. Hắn bảo Tào Tình Lãng ngồi bên chiếc bàn đặt con dấu, mặt quạt và xương quạt, còn mình bắt đầu thu dọn bản đồ cùng sổ sách. Chuyện ghi sổ này, giữa học sinh Tào Tình Lãng và đệ tử Bùi Tiền, dĩ nhiên người sau học được nhiều hơn.
 
-Hầu như mọi người đều cảm thấy đó là lần đầu tiên Trần Bình An xuất môn đi xa, là đang hộ tống bọn Lý Bảo Bình đi hướng thư viện Đại Tùy học tập, là Trần Bình An tận tâm tận lực hộ đạo cho bọn họ. Kết quả đến xem, Trần Bình An giống như quả thật làm không thể tốt hơn, bất cứ người ngoài nào, ai cũng không thể chỉ trích đôi chút.
+Trần Bình An chưa từng nói với ai rằng trong lòng hắn, Tào Tình Lãng chỉ có trải nghiệm giống mình. Tính tình nhìn qua cũng có nhiều chỗ tương tự, nhưng thật ra lại không phải như vậy.
 
-Nhưng sau khi thiếu niên giày rơm lần đầu tiên gặp được A Lương, đó thật ra mới là một hồi kỳ thi lớn cuộc đời của Trần Bình An, lặng yên không một tiếng động, kéo co trong lòng.
+Đó là một cảm giác rất kỳ lạ.
 
-Trần Bình An hy vọng trong mắt hán tử đội nón tự xưng là kiếm khách kia, mình chính là người Tề tiên sinh phó thác hy vọng, Trần Bình An hy vọng một cái xuất hiện ngoài ý muốn, mình có thể cam đoan không sai. Cho nên một trận kia khởi đầu ở bờ sông, rời xa dịch trạm trấn Hồng Chúc, Trần Bình An luôn luôn cố gắng suy đoán suy nghĩ của A Lương, đi đặt mình vào tưởng tượng một vị thế ngoại cao nhân ngang trời xuất thế, thích cái gì, không thích cái gì, đi đoán vị bội đao này lại tự xưng kiếm khách., Bằng hữu của Tề tiên sinh, rốt cuộc sẽ thích một vãn bối, một thiếu niên như thế nào, cho dù không thích, xem thường, nhưng mà cũng tuyệt đối không thể khiến đối phương sinh lòng phản cảm. Cho nên lúc ấy mỗi lời nói cử động của Trần Bình An, nhất cử nhất động, đều là cố ý, suy nghĩ rất nhiều, thiếu niên lang nho nhỏ đi giữa núi xanh nước biếc kia, thật sự có tâm tình ngắm núi ngắm nước?
+Dẫu vậy, khi rời khỏi Ngẫu Hoa phúc địa, người Trần Bình An muốn mang theo nhất vẫn là Tào Tình Lãng. Cho dù không làm được, hắn vẫn luôn nhớ đến đứa trẻ trong ngõ hẹp, từ đáy lòng hy vọng sau này Tào Tình Lãng có thể trở thành một hạt giống đọc sách, khoác nho sam, trở thành người đọc sách thật sự, trở thành người đọc sách như Tề tiên sinh.
 
-Cho dù dự tính ban đầu của Trần Bình An là để cho mình thành công hộ tống Bảo Bình bọn họ bình yên đi thư viện, là nam nhân cổ quái dắt lông lừa, đeo đao trúc kia, sẽ không tạo thành mảy may thương tổn đối với bọn họ bảo bình, nhưng mà sau đó hồi tưởng lại đoạn cuộc đời kia của mình, Trần Bình An nghĩ một lần, sẽ thương cảm một lần, liền thường xuyên muốn uống rượu một lần.
+Hắn cũng hối hận mình đi quá vội vàng, lại lo mình dạy sai. Khi ấy Tào Tình Lãng còn quá nhỏ, rất nhiều chuyện đúng với Trần Bình An, đặt lên người đứa trẻ này lại không đúng.
 
-Con đường nhân sinh đi qua, chính là thật sự đi qua, không phải quê hương, không về được.
+Trước khi Ngẫu Hoa phúc địa chia làm bốn, Trần Bình An có được một phần trong đó, hắn vẫn luôn lo lắng cho Tào Tình Lãng. Cho nên tại khách điếm ở biên cảnh vương triều Đại Tuyền, Đồng Diệp Châu, khi Bùi Tiền hỏi câu ấy, Trần Bình An không chút do dự đáp phải. Hắn thừa nhận mình vốn không muốn mang Bùi Tiền theo bên người. Nếu có thể, hắn chỉ muốn đưa Tào Tình Lãng rời quê nhà, đến quê hương của Trần Bình An.
 
-Thỉnh thoảng quay đầu nhìn một cái, làm sao có thể không uống rượu.
+Tục ngữ nói tượng đất cũng có ba phần nóng nảy. Nhưng Trần Bình An rất ít khi như vậy, nhất là nổi giận với một đứa trẻ như Bùi Tiền đến mức ấy, trong đời hắn chỉ có một lần.
 
-Hôm nay Kiếm Khí Trường Thành thật cẩn thận Tưởng Chi, rất giống với Trần Bình An năm đó giữa sơn thủy suy nghĩ trùng điệp.
+Triệu Thụ Hạ học quyền giống hắn nhất, nhưng từ Triệu Thụ Hạ, Trần Bình An lại nhìn thấy nhiều hơn bóng dáng bằng hữu tốt nhất của mình, Lưu Tiện Dương. Khi mới gặp, Triệu Thụ Hạ được Nguyễn Cung che chở thế nào[?], thì ở trấn nhỏ năm xưa, sau khi quen biết và trở thành bằng hữu tốt nhất của Trần Bình An, Lưu Tiện Dương cũng che chở hắn như vậy.
 
-Tào Tình Lãng động tác nhẹ nhàng, từng xem một ít con dấu cùng mặt quạt khắc xong ấn văn, đột nhiên phát hiện tiên sinh của mình chỉ là ngồi ở bàn cách vách bên kia, lặng yên không tiếng động, suy nghĩ xuất thần.
+Thật ra giống Trần Bình An hơn là ánh mắt nhút nhát lén nhìn ngó thế giới của Bùi Tiền, là cách Tùy Cảnh Trừng phỏng đoán lòng người. Bây giờ ở Kiếm Khí Trường Thành cũng có một thiếu niên như vậy. Không phải Trương Gia Trinh từng giúp việc ở quán rượu, mà là thiếu niên nghèo tên Tưởng Khứ[?] ở ngõ Mậu.
 
-Tào Tình Lãng cũng không dám quấy rầy tiên sinh suy nghĩ chuyện gì, liền lấy ra thanh khắc đao nhỏ có khí cũ kỹ, phong nhận lại vẫn như cũ, nhẹ nhàng đặt lên bàn.
+Mỗi khi Trần Bình An kể chuyện bên phố, thiếu niên ấy ít nói nhất, lần nào cũng ngồi xa nhất, nhưng lại suy nghĩ nhiều nhất, học quyền dụng tâm nhất, cho nên học được nhiều nhất. Mấy lần gặp mặt, trò chuyện đôi câu vừa phải, hắn đều hơi câu nệ nhưng ánh mắt rất kiên định. Trần Bình An bèn chỉ dạy hắn đến kiếm lô tập đứng tấn theo một thức Hám Sơn Quyền.
 
-Hắn không biết tiên sinh vì sao phải mang vật ấy tặng cho mình, Tào Tình Lãng đương nhiên không đến mức cảm thấy dao khắc là chất liệu tầm thường, sẽ không quý trọng, hoàn toàn ngược lại, phần quà tiên sinh lâm thời nảy sinh ý tưởng này, càng "không đáng giá tiền", thì càng đáng giá mình trân quý.
+Mỗi lần ngồi xổm ở đó, Tưởng Khứ tựa như chăm chú nghe tiên sinh kể chuyện núi sông. Nhưng ánh mắt, sắc mặt và những lời rất nhỏ của hắn với người quen đều lộ ra một lòng ham muốn công lợi khó nói rõ.
 
-Trần Bình An đứng lên, cười nói: "Nghĩ chút chuyện trước kia."
+Trần Bình An không hề phản cảm, chỉ có chút buồn bã.
 
-Tào Tình Lãng cũng đã đứng dậy.
+Không ai biết vì sao năm ấy, khi Ngụy Bách kể vài chuyện về A Lương trước trúc lâu núi Lạc Phách, thiếu niên Trần Bình An lại rơi đầy nước mắt. Cũng không ai biết ngoài lòng ngưỡng mộ, hắn còn giấu trong đáy lòng nỗi xấu hổ khó nói thành lời, cùng với hối hận và bất đắc dĩ. Đó là cảm xúc mà lúc ấy Ngụy Bách không biết.
 
-Trần Bình An đưa tay ấn hờ, "Sau này không cần lễ nghi phiền phức như vậy, tự tại chút."
+Hầu hết mọi người đều cho rằng lần đầu Trần Bình An rời nhà đi xa là để hộ tống Lý Bảo Bình và những người khác đến thư viện Đại Tùy học tập, rằng hắn tận tâm tận lực bảo vệ bọn họ. Nhìn kết quả, quả thật hắn đã làm không thể tốt hơn, người ngoài không ai có thể chỉ trích đôi chút.
 
-Tào Tình Lãng cười gật đầu, lại vẫn đợi sau khi tiên sinh ngồi xuống bên cạnh bàn, lúc này mới ngồi xuống.
+Nhưng sau khi thiếu niên giày rơm lần đầu gặp A Lương, đó mới thật sự là một kỳ thi lớn trong đời Trần Bình An, một cuộc giằng co lặng lẽ trong lòng.
 
-Trần Bình An hai tay che tay áo, nghiêng người về phía trước, nhìn thanh tiểu khắc đao trên bàn, cười nói: "Thanh khắc đao này, là năm đó ta lần đầu tiên rời khỏi quê nhà đi xa nhà, ở kinh thành Đại Tùy một gian cửa hàng mua con dấu ngọc thạch kia, chưởng quầy tặng kèm. Còn nhớ những thẻ tre lúc trước ta tặng cho ngươi không, đều là do thanh tiểu khắc đao này khắc ra từng chữ một, đồ vật bản thân không đáng giá tiền, lại là vật rất có ý nghĩa trong cuộc đời ta."
+Trần Bình An hy vọng trong mắt hán tử đội nón tự xưng kiếm khách kia, mình chính là người Tề tiên sinh gửi gắm hy vọng. Hắn cũng hy vọng nếu có chuyện bất ngờ xảy ra, mình có thể bảo đảm không mắc sai lầm[?].
 
-Tào Tình Lãng đứng lên, lui vài bước, chắp tay trí lễ.
+Cho nên từ lần gặp bên bờ sông, sau khi rời dịch trạm ở trấn Hồng Chúc, Trần Bình An luôn cố gắng phỏng đoán suy nghĩ của A Lương. Hắn tự hỏi một vị cao nhân ngoài đời đột nhiên xuất hiện sẽ thích gì, ghét gì; vị bằng hữu của Tề tiên sinh đeo đao mà tự xưng kiếm khách ấy rốt cuộc thích một vãn bối, một thiếu niên như thế nào.
 
-Trần Bình An bất đắc dĩ nói: "Có chút ý nghĩa, cũng chỉ là có chút ý nghĩa, ngươi không cần trịnh trọng như vậy, với vật có ý nghĩa của ta nhiều đi, phần lớn không đáng giá, kết quả ngươi để ý như vậy, ta còn có một đống lớn giày rơm, ngươi có muốn hay không? Tặng cho ngươi một đôi, ngươi cúi đầu vái chào một lần, ai thua thiệt ai kiếm? Giống như hai bên đều chỉ có phần lỗ vốn, chuyện học sinh tiên sinh không kiếm được, thì cũng đừng làm nữa."
+Cho dù đối phương không thích, xem thường mình, hắn cũng tuyệt đối không thể để đối phương sinh lòng phản cảm. Vì vậy mỗi lời nói cử động của Trần Bình An khi ấy đều có chủ ý, đều đã suy tính rất nhiều. Thiếu niên bé nhỏ đi giữa núi xanh nước biếc kia, thật sự có tâm tình ngắm núi ngắm nước sao?
 
-Tào Tình Lãng lắc đầu cười nói: "Tiên sinh, giầy rơm thì thôi, bản thân con cũng có thể bện, nói không chừng so với tay nghề của sư phụ còn tốt hơn một chút."
+Dù ý định ban đầu của hắn chỉ là hộ tống Bảo Bình và mọi người bình an đến thư viện, không để nam nhân kỳ quái dắt lừa, đeo đao trúc kia gây ra bất cứ tổn thương nào cho bọn họ, nhưng mỗi lần nhớ lại quãng đời ấy, Trần Bình An đều buồn bã, thường muốn uống một ngụm rượu.
 
-Trần Bình An lắc đầu nói: "Nói học vấn, nói tu hành, ta tiên sinh gà mờ này, nói không chừng thật đúng là không bằng ngươi, duy chỉ có chuyện bện giày rơm, tiên sinh du lịch thiên hạ bốn phương, hiếm gặp địch thủ."
+Con đường đời đã đi qua là thật sự đi qua, không giống quê hương, không thể quay về.
 
-Tào Tình Lãng mỉm cười.
+Thỉnh thoảng ngoảnh đầu nhìn lại, làm sao có thể không uống rượu?
 
-Trần Bình An vui đùa nói: "Dựa theo cách nói của viên chủ tiền nhiệm Lý Đoàn Cảnh Phong Lôi viên mà suy ra, nếu là bện giày rơm cũng là một môn tu đại đạo, như vậy ngươi cũng chỉ là hạ ngũ cảnh mới ra đời, không hiểu được thượng ngũ cảnh bện giày rơm là phong cảnh gì."
+Tưởng Khứ[?] cẩn thận từng li từng tí ở Kiếm Khí Trường Thành hôm nay rất giống Trần Bình An năm ấy, khi đi giữa núi sông mà lòng chất đầy suy nghĩ.
 
-Tào Tình Lãng gật đầu nói: "Tiên sinh nói phải chứ."
+Tào Tình Lãng nhẹ nhàng xem từng con dấu và mặt quạt đã khắc chữ, chợt phát hiện tiên sinh ngồi bên chiếc bàn cạnh đó, lặng lẽ xuất thần.
 
-Trần Bình An không còn lời nào để chống đỡ, ngược lại nghĩ, hôm nay Lạc Phách sơn nhà mình thiếu hụt không khí gì, cỏ đầu tường không thiếu, Phi Thăng cảnh nịnh nọt không thiếu, đều lừa gạt đại đệ tử khai sơn cùng Chu Liễm của mình đến không biết đi đâu, thế cho nên ngay cả Quách Trúc Tửu nửa đệ tử kia, cũng là người trong đồng đạo vô sư tự thông như Bùi Tiền, cho nên chỉ thiếu khí khái như Tào Tình Lãng.
+Hắn không dám quấy rầy, bèn lấy con dao khắc nhỏ cũ kỹ nhưng lưỡi vẫn sắc bén ra, nhẹ nhàng đặt lên bàn.
 
-Vì thế Trần Bình An cười thật sự vui mừng. Mình rốt cuộc thu được một học sinh tốt bình thường.
+Hắn không biết vì sao tiên sinh tặng vật này cho mình. Đương nhiên Tào Tình Lãng không vì chất liệu dao khắc tầm thường mà không quý trọng. Trái lại, món quà tiên sinh nhất thời nảy ý tặng này càng không đáng tiền, hắn càng phải trân quý.
 
-Tào Tình Lãng ngược lại có chút không được tự nhiên, đưa tay cầm lấy một cây quạt trúc đề khoản, xương quạt cũng khắc chữ, quạt xếp này vô cùng thân mật xưng biệt danh rất văn nhã, trong đó liền có câu nói "Phong lương".
+Trần Bình An đứng dậy, cười nói:
 
-Đề tự trên mặt quạt tự nhiên rõ ràng, lọt vào mắt là biết, nhưng mà Tào Tình Lãng thật sự thích, lại là một hàng chữ nhỏ ruồi muỗi ở một bên xương quạt lớn, tựa như một tiểu hài tử che che đậy đậy, không dám gặp người, chữ viết cực nhỏ cực nhỏ, có lẽ hơi sơ ý người mua quạt, một cái không chú ý, liền cho rằng đó là một cây quạt trúc chỉ có mặt quạt nhưng không có chữ khắc, mấy tháng mấy năm, cuộc đời này kiếp này, cũng không biết được.
+- Nghĩ đến chút chuyện trước kia.
 
-Tào Tình Lãng khép lại quạt xếp, nắm ở lòng bàn tay, chăm chú nhìn một hàng chữ kia, ngẩng đầu cười nói: "Khó trách tiên sinh thích uống rượu."
+Tào Tình Lãng cũng đã đứng lên. Trần Bình An đưa tay ấn hờ:
 
-Trần Bình An hiểu ý cười.
+- Sau này không cần nhiều lễ nghi như vậy, cứ tự nhiên một chút.
 
-Trên trúc khắc văn.
+Tào Tình Lãng cười gật đầu, nhưng vẫn đợi tiên sinh ngồi xuống bên bàn rồi mới ngồi theo.
 
-Thế sự đại mộng một hồi, uống rượu không sợ say ngã, không say ngược lại là người trong mộng.
+Trần Bình An hai tay lồng trong tay áo, nghiêng người về phía trước, nhìn con dao nhỏ trên bàn, cười nói:
 
-Trần Bình An cười nói: "Nếu thích, thì tặng ngươi."
+- Năm đó ta lần đầu rời quê nhà đi xa, mua một con dấu ngọc ở cửa hàng trong kinh thành Đại Tùy, chưởng quầy tặng kèm con dao này. Còn nhớ những thẻ tre ta từng tặng ngươi không? Từng chữ trên đó đều do con dao nhỏ này khắc ra. Bản thân nó không đáng tiền, nhưng lại là vật rất có ý nghĩa trong đời ta.
 
-Tào Tình Lãng lắc đầu cười nói: "Không chậm trễ tiên sinh kiếm tiền."
+Tào Tình Lãng đứng dậy, lùi mấy bước, chắp tay hành lễ. Trần Bình An bất đắc dĩ nói:
 
-Trần Bình An tùy tay cầm lấy một cây quạt khác, phe phẩy thanh phong, cười ha ha nói: "Tiên sinh ngươi không phải người như vậy."
+- Có chút ý nghĩa thì cũng chỉ là có chút ý nghĩa, ngươi không cần trịnh trọng như vậy. Những vật có ý nghĩa với ta nhiều lắm, phần lớn đều không đáng tiền. Ngươi để ý như thế, ta còn có một đống giày rơm, ngươi có muốn không?
 
-Tào Tình Lãng hỏi: "Tiên sinh, vậy chúng ta cùng nhau khắc chữ chương vì tố?"
+- Tặng ngươi một đôi, ngươi lại cúi đầu vái một lần, ai lỗ ai lời? Hình như cả hai đều chịu thiệt. Chuyện tiên sinh và học sinh đều không kiếm được gì, vậy thì đừng làm nữa.
 
-Trần Bình An lập tức buông chiết phiến, cười nói: "Được."
+Tào Tình Lãng lắc đầu cười:
 
-Tào Tình Lãng nhịn cười, cầm con dấu tài thạch trắng như tuyết liếc mắt một cái đã trúng kia, cầm trong tay khắc đao, sau đó có chút do dự, chỉ đành nhẹ giọng hỏi: "Tiên sinh, khắc chữ viết chữ, khác nhau rất lớn, ta trước kia cũng chưa từng làm chuyện này, nếu là lần đầu ra tay, khắc kém, chẳng phải là lãng phí vô ích một con dấu?"
+- Tiên sinh, giày rơm thì thôi. Bản thân con cũng biết bện, nói không chừng tay nghề còn tốt hơn tiên sinh một chút.
 
-Trần Bình An tâm ý khẽ động, phi kiếm Mười Lăm lướt ra khỏi khiếu huyệt, bị hắn nắm trong tay, vẻ mặt không sao cả nói: "Con dấu chất liệu chỉ là vật tầm thường của Kiếm Khí Trường Thành, đá nhặt tùy tiện khắp núi đồi, chưa nói tới tiền không tiền, nhưng nếu ngươi thực sự để ý, vậy khắc chữ chậm một chút, tay chậm tâm nhanh sai sẽ nhỏ. Huống chi kiếm tu bên Kiếm Khí Trường Thành dễ nói chuyện, vốn không chú ý đến những tỳ vết rất nhỏ của bản thân chữ viết, chỉ cần chút ý tứ của ấn văn kia đến, nhất định bán được."
+Trần Bình An lắc đầu:
 
-Trần Bình An một tay cầm "thép khắc" Mười Lăm, một tay cầm chương, tính tặng Tào Tình Lãng cùng Bùi Tiền mỗi người một phương, cân nhắc nội dung ấn văn, rất lâu chưa khắc chữ.
+- Bàn về học vấn, tu hành, tiên sinh nửa vời như ta nói không chừng thật sự không bằng ngươi. Nhưng riêng chuyện bện giày rơm, tiên sinh đi khắp thiên hạ, hiếm gặp địch thủ.
 
-Cho nên ngược lại Tào Tình Lãng lần đầu tiên khắc chương lại sớm có bản thảo, dẫn đầu "hạ bút", sau khi viết xong chữ thứ nhất, Tào Tình Lãng hít sâu một hơi, nghỉ ngơi một chút, ngẩng đầu nhìn lại, tiên sinh còn ở bên kia trầm tư.
+Tào Tình Lãng mỉm cười. Trần Bình An lại đùa:
 
-Tào Tình Lãng cúi đầu, tiếp tục cúi đầu khắc chữ.
+- Dựa theo lời của Lý Đoàn Cảnh, viên chủ đời trước của Phong Lôi viên mà suy ra, nếu bện giày rơm cũng là một con đường tu hành, vậy ngươi mới chỉ là hạ ngũ cảnh vừa bước vào cửa, không hiểu phong cảnh bện giày rơm ở thượng ngũ cảnh đâu.
 
-Có câu nói, ở sau khi trở về với Bùi Tiền, nghẹn ở trong lòng Tào Tình Lãng đã lâu, chỉ là thiếu niên không tính nói với tiên sinh, bằng không sẽ có hiềm nghi cáo trạng, sẽ là nói sau lưng người ta thị phi.
+Tào Tình Lãng gật đầu:
 
-"Không biết Bùi Tiền trước kia có tốt bao nhiêu, sẽ không rõ Bùi Tiền hiện tại tốt bao nhiêu."
+- Tiên sinh nói phải.
 
-Về Bùi Tiền sau khi xa cách lâu ngày gặp lại, cho dù chỉ nói chuyện chiều cao, vì sao chênh lệch như trong tưởng tượng, thật ra lúc ấy thiếu niên che dù đã phong độ nhẹ nhàng đã rất bất ngờ ở góc rẽ phố ngõ quê nhà phúc địa.
+Trần Bình An không biết đáp sao, ngược lại nghĩ đến không khí trên núi Lạc Phách nhà mình. Cỏ đầu tường không thiếu, nịnh nọt đến Phi Thăng cảnh cũng không thiếu; đại đệ tử khai sơn và Chu Liễm của hắn đã dẫn dắt mọi người đi lệch không biết đến đâu. Ngay cả nửa đệ tử Quách Trúc Tửu kia cũng là người cùng đường với Bùi Tiền, không thầy tự thông. Núi Lạc Phách chỉ thiếu người có khí khái như Tào Tình Lãng.
 
-Sau đó gặp lại lần nữa, Tào Tình Lãng liền càng thêm nghi hoặc.
+Nghĩ vậy, Trần Bình An cười rất vui mừng. Cuối cùng mình cũng nhận được một học sinh tốt bình thường.
 
-Thẳng đến lúc theo Bùi Tiền đi Tâm Tướng tự lần đó, Tào Tình Lãng mới hơi giải thích nghi hoặc, về sau đến Lạc Phách sơn, nghi hoặc dần nhỏ đi, bắt đầu dần dần thích ứng cùng biến hóa không thay đổi của Bùi Tiền, về phần hôm nay, tuy nói vẫn chưa hoàn toàn nghĩ thông nguyên do trong đó, ít nhất Tào Tình Lãng đã không giống lúc trước nữa, sẽ lầm tưởng Bùi Tiền có phải bị người tu đạo chiếm cứ túi da hay không, hoặc là thay đổi một bộ phận hồn phách, bằng không Bùi Tiền vì sao tính tình biến đổi lớn như thế?
+Tào Tình Lãng lại hơi mất tự nhiên, đưa tay cầm một chiếc quạt trúc có đề chữ, trên xương quạt cũng có khắc chữ. Quạt xếp có những tên gọi rất thanh nhã, trong đó có hai chữ “phong lương”[?].
 
-Giống như là từ một cái cực đoan đi hướng khác cực đoan.
+Chữ đề trên mặt quạt rõ ràng, vừa nhìn đã thấy. Nhưng điều Tào Tình Lãng thật sự thích lại là một hàng chữ nhỏ như ruồi muỗi bên cạnh xương quạt lớn, giống như một đứa trẻ lén lút che giấu, không dám gặp người. Chữ nhỏ đến mức người mua chỉ cần sơ ý sẽ cho rằng chiếc quạt trúc này chỉ có chữ trên mặt quạt, không có chữ khắc. Mấy tháng, mấy năm, thậm chí cả đời cũng không biết đến nó.
 
-Thiếu niên thận trọng lại chu đáo chặt chẽ, thật ra cho dù là một đường đi xa sau khi rời khỏi Lạc Phách Sơn, vẫn có chút lo lắng không lớn không nhỏ.
+Tào Tình Lãng khép quạt, nắm trong lòng bàn tay, chăm chú nhìn hàng chữ, rồi ngẩng đầu cười nói:
 
-Sau đó liền có trận phát biểu giữa sư phụ cùng đệ tử trên đầu tường.
+- Khó trách tiên sinh thích uống rượu.
 
-Điều này làm cho thiếu niên hoàn toàn yên tâm.
+Trần Bình An hiểu ý mỉm cười.
 
-Chỉ là lúc này, Tào Tình Lãng đột nhiên có chút chột dạ, nói là không cáo trạng, giống như vừa rồi mình cũng không ít lần cáo trạng ở sau lưng Bùi Tiền.
+Trên trúc khắc rằng: “Thế sự là một giấc mộng lớn. Uống rượu không sợ say ngã, người không say ngược lại là kẻ trong mộng.”
 
-Tào Tình Lãng một lần nữa nín thở ngưng thần, tiếp tục khắc chữ.
+Trần Bình An cười nói:
 
-Bất tri bất giác, cô nhi ngõ hẹp năm đó, đã là nho sam thiếu niên tự phong lưu.
+- Nếu thích thì tặng ngươi.
 
-Tào Tình Lãng tính mang con dấu này tặng cho tiên sinh nhà mình.
+Tào Tình Lãng lắc đầu cười:
 
-Trần Bình An vẫn chưa nghĩ ra muốn khắc cái gì, đành phải buông con dấu trong tay, thu phi kiếm Mười Lăm Quy Khí Phủ, chuyển sang đề bút viết mặt quạt.
+- Không dám làm chậm trễ tiên sinh kiếm tiền.
 
-Tào Tình Lãng ngẩng đầu, nhìn về phía Trần Bình An, thật lâu chưa thu hồi tầm mắt.
+Trần Bình An tiện tay cầm một chiếc quạt khác, phe phẩy tạo gió, cười ha hả:
 
-Trần Bình An không ngẩng đầu, lại đã nhận ra thiếu niên khác thường, cười nói: "Làm sao vậy? Khắc sai rồi? Vậy đổi một con dấu, làm lại từ đầu, chỉ là lúc trước khắc sai con dấu, ngươi nếu muốn, thì thu lại, đừng đánh mất."
+- Tiên sinh của ngươi không phải người như vậy.
 
-"Chưa từng khắc sai."
+Tào Tình Lãng hỏi:
 
-Tào Tình Lãng lắc đầu, trầm mặc hồi lâu, lẩm bẩm nói: "Gặp tiên sinh, ta rất may mắn."
+- Tiên sinh, vậy chúng ta cùng khắc con dấu nhé?
 
-Trần Bình An bật cười, vẫn không ngẩng đầu, suy nghĩ một chút, tự mình gật đầu nói: "Tiên sinh gặp đệ tử, cũng rất vui vẻ."
+Trần Bình An lập tức buông quạt, cười nói:
 
-Tào Tình Lãng tiếp tục vùi đầu khắc chữ.
+- Được.
 
-Trần Bình An viết xong mặt quạt, quay đầu hỏi: "Khắc chữ gì?"
+Tào Tình Lãng nhịn cười, cầm khối đá trắng như tuyết vừa nhìn đã ưng ý lên, tay cầm dao khắc, rồi lại hơi do dự, đành nhẹ giọng hỏi:
 
-Tào Tình Lãng vội vàng nâng một tay lên, che con dấu, "Chưa khắc xong, tiên sinh về sau sẽ biết."
+- Tiên sinh, khắc chữ và viết chữ khác nhau rất nhiều. Trước kia con chưa từng làm chuyện này, nếu lần đầu khắc không tốt, chẳng phải lãng phí một con dấu sao?
 
-Trần Bình An cười cười, vị học sinh này, là không giống với khai sơn đại đệ tử đang khẳng định bận rộn nịnh nọt.
+Trần Bình An khẽ động tâm niệm, phi kiếm Mười Lăm lướt ra khỏi khiếu huyệt, được hắn nắm trong tay. Hắn không để ý nói:
 
-Tào Tình Lãng tư thế ngồi đoan chính, vẻ mặt chuyên chú, khắc chữ cẩn thận tỉ mỉ, tâm định khí nhàn thủ cực ổn.
+- Đá làm con dấu chỉ là vật tầm thường ở Kiếm Khí Trường Thành, trên núi dưới đất nhặt đâu cũng có, không đáng mấy đồng. Nhưng nếu ngươi thật sự để ý, cứ khắc chậm một chút, tay chậm tâm nhanh thì sẽ ít sai. Huống chi kiếm tu bên này dễ nói chuyện, vốn không chú ý đến những tỳ vết nhỏ trong chữ viết. Chỉ cần ý tứ của ấn văn đến nơi, nhất định bán được.
 
-Lấy chữ triện tiên sinh tặng cho, lần sau khi ly biệt, lại tặng con dấu trong tay tiên sinh.
+Trần Bình An một tay cầm Mười Lăm làm dao khắc, một tay cầm con dấu. Hắn định tặng Tào Tình Lãng và Bùi Tiền mỗi người một chiếc, suy nghĩ thật lâu về nội dung ấn văn mà vẫn chưa hạ tay.
 
-Tào Tình Lãng chưa khắc xong, trên đường nhắm mắt lại, trong đầu hiện ra một bức hoạ cuộn tròn tốt đẹp tưởng tượng đã lâu, suy nghĩ trong lòng là viết trên tay.
+Ngược lại, Tào Tình Lãng lần đầu khắc dấu đã sớm có chủ ý, dẫn đầu hạ bút. Khắc xong chữ thứ nhất, hắn hít sâu một hơi, nghỉ ngơi đôi chút, ngẩng đầu nhìn thì thấy tiên sinh vẫn còn trầm tư.
 
-"Tiên sinh ngồi một mình, xuân phong phiên thư."
+Tào Tình Lãng cúi đầu, tiếp tục khắc chữ.
+
+Sau khi gặp lại Bùi Tiền, có một câu đã nghẹn trong lòng hắn từ lâu, chỉ là thiếu niên không định nói với tiên sinh, bằng không sẽ giống như cáo trạng, nói xấu người ta sau lưng.
+
+“Không biết Bùi Tiền trước kia tốt đến mức nào, sẽ không hiểu Bùi Tiền hiện tại tốt đến mức nào.”[?]
+
+Khi gặp lại sau thời gian dài xa cách, chỉ nói riêng chiều cao của Bùi Tiền đã khác xa tưởng tượng, thiếu niên che dù phong độ nhẹ nhàng năm ấy rất bất ngờ ở góc phố quê nhà trong phúc địa. Sau đó gặp lại lần nữa, Tào Tình Lãng càng thêm nghi hoặc.
+
+Cho đến lần theo Bùi Tiền đến Tâm Tướng tự, hắn mới phần nào giải được nghi hoặc. Về sau đến núi Lạc Phách, nỗi nghi hoặc dần vơi đi, hắn cũng dần thích ứng với sự thay đổi và những điều không thay đổi ở Bùi Tiền.
+
+Đến hôm nay, tuy vẫn chưa hoàn toàn hiểu rõ nguyên do, ít nhất Tào Tình Lãng không còn như trước, lầm tưởng có phải thân xác Bùi Tiền bị tu sĩ chiếm lấy hay bị đổi một phần hồn phách hay không. Bằng không vì sao tính tình nàng biến đổi lớn đến vậy, giống như đi từ cực đoan này sang cực đoan khác?
+
+Thiếu niên thận trọng chu đáo ấy thật ra vẫn hơi lo lắng suốt chặng đường rời núi Lạc Phách đi xa. Sau đó có cuộc trò chuyện giữa sư phụ và đệ tử trên đầu tường, hắn mới hoàn toàn yên tâm.
+
+Chỉ là lúc này Tào Tình Lãng chợt thấy hơi chột dạ. Nói là không cáo trạng, hình như vừa rồi hắn cũng đã kể không ít chuyện của Bùi Tiền sau lưng nàng.
+
+Hắn lại nín thở ngưng thần, tiếp tục khắc chữ.
+
+Bất tri bất giác, đứa trẻ mồ côi nơi ngõ hẹp năm nào đã trở thành thiếu niên mặc nho sam, tự có phong thái riêng.
+
+Tào Tình Lãng định đem con dấu này tặng tiên sinh của mình.
+
+Trần Bình An vẫn chưa nghĩ ra muốn khắc gì, đành đặt con dấu xuống, thu phi kiếm Mười Lăm về khí phủ, chuyển sang cầm bút viết mặt quạt.
+
+Tào Tình Lãng ngẩng đầu nhìn hắn, thật lâu không dời mắt. Trần Bình An không ngẩng đầu, nhưng nhận ra vẻ khác thường của thiếu niên, cười hỏi:
+
+- Sao vậy? Khắc sai rồi? Vậy đổi một con dấu khác, làm lại từ đầu. Còn con dấu khắc sai, nếu ngươi muốn thì cứ giữ lấy, đừng làm mất.
+
+- Chưa khắc sai.
+
+Tào Tình Lãng lắc đầu, im lặng hồi lâu mới lẩm bẩm:
+
+- Được gặp tiên sinh, con rất may mắn.
+
+Trần Bình An bật cười, vẫn không ngẩng đầu. Hắn suy nghĩ một lát rồi tự gật đầu:
+
+- Tiên sinh gặp được học sinh, cũng rất vui.
+
+Tào Tình Lãng tiếp tục cúi đầu khắc chữ.
+
+Trần Bình An viết xong mặt quạt, quay đầu hỏi:
+
+- Khắc chữ gì vậy?
+
+Tào Tình Lãng vội giơ tay che con dấu:
+
+- Chưa khắc xong, sau này tiên sinh sẽ biết.
+
+Trần Bình An mỉm cười. Vị học sinh này thật không giống đại đệ tử khai sơn chắc hẳn đang bận nịnh nọt kia.
+
+Tào Tình Lãng ngồi ngay ngắn, vẻ mặt chuyên chú, cẩn thận khắc từng nét chữ, tâm yên khí định, bàn tay vô cùng vững vàng.
+
+Hắn dùng con dao tiên sinh tặng, định đến lần ly biệt sau sẽ trao con dấu trong tay cho tiên sinh.
+
+Khắc được một lúc, Tào Tình Lãng nhắm mắt lại. Trong đầu hắn hiện ra một bức tranh đẹp đẽ đã tưởng tượng từ lâu, rồi đem điều trong lòng gửi vào nét khắc:
+
+“Tiên sinh ngồi một mình, gió xuân lật trang sách.”

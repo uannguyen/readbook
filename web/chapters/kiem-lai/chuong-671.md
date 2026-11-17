@@ -1,881 +1,981 @@
 # Chương 671: Đánh cờ hỏng đạo tâm, rượu làm cay dạ giày
 
-Hôm nay tửu quỷ đổ côn bên quán rượu kín người hết chỗ, hòa hòa khí khí, đều là nói tốt về Nhị chưởng quầy, không phải nói Nhị chưởng quầy ngọc thụ lâm phong như vậy, có phong thái của Đại sư huynh hắn, nói cách khác Trúc Hải Động Thiên Tửu của Nhị chưởng quầy phối hợp với rau trộn Dương Xuân Diện, hẳn là đệ nhất tuyệt của Kiếm Khí Trường Thành chúng ta, không đến nơi này uống rượu không phải kiếm tiên.
+Hôm nay quán rượu chật ních đám sâu rượu và những kẻ ham đánh bạc. Ai nấy đều hòa thuận, miệng toàn nói tốt về Nhị chưởng quỹ. Người thì bảo Nhị chưởng quỹ ngọc thụ lâm phong, có phong thái của đại sư huynh. Kẻ lại nói rượu Trúc Hải Động Thiên của Nhị chưởng quỹ ăn kèm món nguội của Dương Xuân Diện là món ngon bậc nhất Kiếm Khí Trường Thành, không đến đây uống rượu thì không phải kiếm tiên.
 
-Điều này làm cho một ít người ngược lại hoảng hốt, uống rượu, cả người không có sức lực, suy nghĩ đây có phải là thủ đoạn của một vài thế lực đối địch hay không, chẳng lẽ đây là thủ đoạn nâng giết vụng về của Nhị chưởng quỹ? Vì vậy những người này liền yên lặng đem những lời nói kia hăng say nhất, nói khoác nhiều nhất, danh tự tướng mạo đều ghi lại, sau này sẽ tranh công với Nhị chưởng quỹ. Về phần có thể oan uổng người tốt, ngộ thương minh hữu hay không, dù sao Nhị chưởng quỹ tự mình đóng cửa là được, bọn họ chỉ phụ trách mật báo tin báo điêu trạng, dù sao trong đó còn có mấy vị, hôm nay chỉ là được Nhị chưởng quỹ ám chỉ, chưa thật sự trở thành đạo hữu có thể cùng nhau ngồi nhà mà áp chú lừa người kiếm tiền.
+Lời ấy trái lại khiến một số người hoảng hốt, uống rượu cũng thấy mất hết sức lực. Chẳng lẽ đây là thủ đoạn tâng bốc rồi hãm hại vụng về của thế lực đối địch với Nhị chưởng quỹ? Bọn họ lặng lẽ ghi nhớ tên tuổi, tướng mạo những kẻ nói hăng say nhất, khoác lác nhiều nhất, định ngày sau đem chuyện này tới tranh công.
 
-Đầu tường bên này, Úc Thỉ Phu gặm bánh nướng, một tay xách ấm nước, nhìn ra chiến trường nơi nào đó phía nam đầu tường, nhiều hơn rất nhiều hố nhỏ, có thể từ đầu tường cao như vậy, thấy những cái hố lồi lõm trên mặt đất, có thể tưởng tượng đặt mình trong đó, sẽ chỉ là cái hố lớn như hồ, quang cảnh người nhỏ như hạt cải.
+Có thể sẽ oan cho người tốt, đả thương đồng minh thì sao? Dù sao Nhị chưởng quỹ tự mình xét xử khi đóng cửa lại, bọn họ chỉ phụ trách mật báo. Trong số đó còn có mấy người mới được Nhị chưởng quỹ bóng gió ám chỉ, chưa thật sự trở thành đạo hữu có thể cùng mở sòng, đặt cược kiếm tiền.
 
-Úc Dận Phu hôm nay thường xuyên đến đầu tường, xem như nửa bằng hữu với thiếu nữ Chu Mai, dù sao ở trong đám kiếm tu vương triều Thiệu Nguyên này, thuận mắt nhất vẫn là Chu Mai yêu ghét rõ ràng, tiếp theo là Kim Chân Mộng kiếm tu Kim Đan kia, những thứ khác đều không thích lắm, đương nhiên Úc Dận Phu không thích, chỉ có một loại phương thức biểu hiện, đó chính là không giao tiếp. Ngươi chào hỏi với ta, ta cũng gật đầu trí lễ, ngươi muốn tiếp tục khách sáo hàn huyên thì miễn. Gặp tiền bối, chủ động chào hỏi, điểm đến là dừng, chỉ đơn giản như vậy.
+Trên đầu tường, Úc Thù Phu[?] vừa gặm bánh nướng vừa xách ấm nước nhìn về một nơi trên chiến trường phía nam. Mặt đất nơi ấy có thêm rất nhiều hố. Đứng trên đầu tường cao như vậy mà còn nhìn rõ những chỗ lồi lõm, có thể tưởng tượng mỗi cái hố lớn như hồ nước, người đứng trong đó nhỏ tựa hạt cải.
 
-Úc Dận Phu ta chỉ đến Cương quyền pháp, không phải đến giúp thế lực gia tộc mở rộng nhân mạch, huống chi Úc gia chỉ cùng Đảo Huyền sơn coi như có chút tình hương khói, cùng Kiếm Khí Trường Thành, tám sào không thể mở ra.
+Dạo này Úc Thù Phu thường đến đầu tường, coi như có nửa phần bằng hữu với thiếu nữ Chu Mai. Trong đám kiếm tu của vương triều Thiệu Nguyên, người nàng thấy thuận mắt nhất là Chu Mai yêu ghét rõ ràng, kế đến là kiếm tu Kim Đan Kim Chân Mộng. Những người còn lại nàng không thích lắm.
 
-Về phần Chu Mai, đại khái đã sớm cảm thấy mình và Úc Phúc Phu thất lạc nhiều năm, là tỷ muội ruột khác cha khác mẹ rồi.
+Cách Úc Thù Phu tỏ ý không thích rất đơn giản: không giao tiếp. Người ta chào hỏi, nàng gật đầu đáp lễ; muốn khách sáo hàn huyên thêm thì thôi. Gặp tiền bối, nàng chủ động chào hỏi rồi dừng lại ở đó.
 
-Úc Dận Phu có chút ưu sầu, bánh nướng áp chảo mang theo quá ít, ăn quá nhanh, những bánh nướng áp chảo bên trong đã sớm chết trận hầu như không còn, trong vật gang tấc cũng không còn nhiều lắm.
+Nàng đến đây hỏi quyền, đâu phải giúp gia tộc kết giao thêm người. Huống hồ Úc gia chỉ có chút hương hỏa với Đảo Huyền sơn, còn với Kiếm Khí Trường Thành thì chẳng có liên quan gì.
 
-Chẳng qua ưu sầu nho nhỏ không đáng nhắc tới, lần này tới Kiếm Khí Trường Thành rèn luyện thể phách, ước nguyện ban đầu là truy tìm con đường võ học của Tào Từ, đầm chặt Kim Thân cảnh. Không ngờ có thể gặp được nhị chưởng quầy cùng là võ phu Kim Thân cảnh kia, cũng không nghĩ tới so với Kiếm Khí Trường Thành trong cảm nhận, kiếm tiên nơi đây càng thêm làm cho lòng người hướng tới, cho dù Úc Diệp Phu không phải Luyện khí sĩ, lại càng không phải kiếm tu, vẫn sẽ cảm thấy Hạo Nhiên Thiên Hạ so với vật lớn đánh bạc, một ít chỗ đáng khen của Kiếm Khí Trường Thành, tuyệt đối không có.
+Về phần Chu Mai, có lẽ từ lâu đã coi Úc Thù Phu là tỷ muội ruột khác cha khác mẹ thất lạc nhiều năm.
 
-Úc Dận Phu ăn bánh nướng, uống ngụm nước, định nghỉ ngơi thêm chốc lát, rồi đứng dậy luyện quyền.
+Úc Thù Phu hơi buồn phiền. Nàng mang theo quá ít bánh nướng, lại ăn quá nhanh, bánh bên trong đã gần như chết trận sạch sẽ, trong vật gang tấc cũng chẳng còn mấy cái.
 
-Luyện quyền là chuyện lớn, nhất định là chuyện lớn nhất đời này của Úc Phu, nhưng ngẫu nhiên lười biếng, muốn điểm quyền pháp, không quan trọng.
+Nhưng chút phiền muộn này không đáng nhắc tới. Lần này nàng đến Kiếm Khí Trường Thành rèn luyện thể phách, vốn muốn đuổi theo con đường võ học của Tào Từ, củng cố Kim Thân cảnh. Nàng không ngờ sẽ gặp Nhị chưởng quỹ cũng là võ phu Kim Thân cảnh, càng không ngờ kiếm tiên nơi đây lại khiến người ta ngưỡng mộ hơn cả Kiếm Khí Trường Thành trong tưởng tượng.
 
-Kiếm thuật của vị tiền bối tả hữu kia, không thẹn với hai chữ cao nhất.
+Dù không phải luyện khí sĩ, càng không phải kiếm tu, nàng vẫn cảm thấy có những điều đáng quý ở Kiếm Khí Trường Thành mà Hạo Nhiên Thiên Hạ rộng lớn không có được.
 
-Kiếm Tiên Tôn Cự Nguyên tận mắt nhìn thấy thủ vĩ của trận chiến đó, dựa theo cách nói của Tôn Kiếm Tiên, lần này Tả Hữu xuất kiếm, đầu tiên là "lực đại vô lý", mạnh mẽ đánh Nhạc Thanh rớt xuống đầu tường, sau đó không còn gò bó kiếm khí nữa. Nhạc Thanh đếm từ đầu tới đuôi, đếm ngược lại có thể đếm được trên đầu ngón tay, không phải Nhạc Thanh không mạnh, mà là thanh phi kiếm bản mạng trăm trượng suối, thác nước kiếm khí, thanh thế lớn không bằng biển hồ kiếm khí xung quanh. Thanh phi kiếm Vân Tước bản mạng trên trời kia, ngay cả cơ hội rơi xuống đất cũng không nhiều.
+Úc Thù Phu ăn bánh, uống một ngụm nước, định nghỉ thêm lát nữa rồi đứng dậy luyện quyền.
 
-Nhưng Tôn Cự Nguyên cũng cười nói, Nhạc Thanh thu tay lại, không phải khách khí, mà là không dám, sợ thật sự bị Tả Hữu một kiếm chém chết.
+Luyện quyền là chuyện lớn, nhất định là chuyện lớn nhất đời nàng. Nhưng thỉnh thoảng lười biếng một chút, suy nghĩ về quyền pháp, cũng không sao.
 
-Đồng thời, cũng là bậc thang và lý do cho các kiếm tiên khác ra tay ngăn cản, đáng tiếc Tả Hữu không để ý tới hai vị kiếm tiên đang dùng lời lẽ hay khuyên bảo, chỉ nhìn chằm chằm vào Nhạc Thanh dùng kiếm khí đập loạn, không phải thật sự lộn xộn, hoàn toàn trái ngược, chỉ là kiếm khí bên trái quá nhiều, kiếm ý quá nặng, Kiếm Tiên trên chiến trường phân ra sinh tử, chỉ cần nhìn không rõ ràng thì sẽ chết ngay, không quan trọng, chỉ cần trốn được, phòng được, phá được, rất nhiều kiếm tiên thời gian hiểm trở xuất kiếm, thường thường thật sự chỉ tùy tâm sở dục, linh tê một chút, ngược lại có thể một kiếm công thành.
+Kiếm thuật của vị tiền bối Tả Hữu kia thật xứng với hai chữ cao nhất.
 
-Lúc ấy Tả Hữu không nói một lời, nhưng ý tứ rất rõ ràng, những Kiếm Tiên còn lại bên ngoài Nhạc Thanh, nhìn từ xa cũng không sao, ngôn ngữ không ngại, duy chỉ có người gần thân đều là địch.
+Kiếm tiên Tôn Cự Nguyên tận mắt chứng kiến đầu đuôi trận chiến. Theo lời hắn, lần này Tả Hữu xuất kiếm, trước hết dùng sức mạnh không nói đạo lý đánh Nhạc Thanh rơi khỏi đầu tường, sau đó không còn câu thúc kiếm khí.
 
-Lúc đó hai vị Kiếm Tiên kia đều rất lúng túng, một người trong đó bị trường kiếm trong tay trái phải ra khỏi vỏ chém xuống một kiếm, mặt đất nứt toác, khe rãnh sinh ra, nếu không phải Tả Hữu cố ý chếch đi mười trượng, vị Kiếm Tiên kia thiếu chút nữa đã dồn hết sức ngạnh kháng kiếm này, hắn đành phải hô bằng gọi hữu, lại hô hai vị Kiếm Tiên trợ trận, vẫn như cũ không ai dám buông tay công phạt, vạn nhất bỏ qua Nhạc Thanh, đổi lại người bị mũi kiếm chỉ, làm sao bây giờ?
+Từ đầu đến cuối, số kiếm Nhạc Thanh xuất ra có thể đếm trên đầu ngón tay. Không phải hắn không mạnh, mà là thác nước kiếm khí do phi kiếm bản mạng Bách Trượng Tuyền tạo thành, thanh thế không bằng biển hồ kiếm khí chung quanh. Phi kiếm bản mạng Vân Tước trên trời của hắn ngay cả cơ hội hạ xuống cũng chẳng có mấy lần.
 
-Khi Nhạc Thanh không thể không dốc hết sức xuất kiếm, trên đầu tường thành xuất hiện bóng dáng lão đại kiếm tiên, hai tay chắp sau lưng, nhìn chăm chú về phía chiến trường phía nam, dường như đang nói với Tả Hữu một câu.
+Tôn Cự Nguyên cười nói, Nhạc Thanh thu tay không phải vì khách khí, mà vì không dám tiếp tục, sợ thật sự bị Tả Hữu một kiếm chém chết. Hắn cũng muốn cho các kiếm tiên khác một bậc thang và lý do ra tay ngăn cản.
 
-Lúc này Tả Hữu mới thu kiếm.
+Đáng tiếc Tả Hữu không để ý hai vị kiếm tiên đang khuyên giải, chỉ nhìn chằm chằm Nhạc Thanh mà dùng kiếm khí đánh tới. Trông như đánh loạn, nhưng thật ra hoàn toàn ngược lại: kiếm khí của Tả Hữu quá nhiều, kiếm ý quá nặng.
 
-Tôn Cự Nguyên cuối cùng cảm khái nói với Úc Mật Phu, kiếm thuật cao như thế, còn không sợ nhất một người đơn đấu một đám, trái phải như vậy, chẳng lẽ là muốn một bước lên trời ở Kiếm Khí Trường Thành?
+Kiếm tiên phân sinh tử trên chiến trường, chỉ cần không nhìn rõ là có thể mất mạng. Còn đánh thế nào không quan trọng, miễn sao tránh được, đỡ được, phá được. Trong lúc hiểm nghèo, kiếm tiên xuất kiếm thường thuận theo tâm ý, linh quang chợt lóe, ngược lại có thể một kiếm thành công.
 
-Úc Dận Phu lúc ấy tò mò hỏi, cái gì gọi là một bước lên trời.
+Khi ấy Tả Hữu không nói một lời, nhưng ý tứ rất rõ: các kiếm tiên khác ngoài Nhạc Thanh đứng xa nhìn không sao, lên tiếng cũng không ngại, duy chỉ có ai đến gần đều là địch.
 
-Chỉ tiếc Tôn Cự Nguyên cười không nói gì nữa.
+Hai vị kiếm tiên kia đều lúng túng. Một người bị Tả Hữu rút trường kiếm chém tới, mặt đất nứt toác thành một khe dài. Nếu không phải Tả Hữu cố ý chém lệch mười trượng, hắn suýt nữa đã phải dốc sức chống đỡ một kiếm ấy.
 
-Úc Mật Phu đứng lên, dọc theo đầu tường chậm rãi ra quyền, ra quyền chậm, thân hình lại nhanh.
+Hắn đành gọi thêm hai vị kiếm tiên tới trợ trận, nhưng vẫn không ai dám buông tay công phạt. Lỡ Tả Hữu bỏ qua Nhạc Thanh, quay mũi kiếm sang mình thì phải làm sao?
 
-Sau khi đi ra ước chừng một nén nhang, gặp một vị thiếu niên lang áo trắng đi tới trước mặt, Úc Tẩy Phu căn bản không muốn biết người này họ gì tên gì, nhưng mà phải hỏi trước Nhĩ Báo Thần Chu Mai ríu rít, có đồng ý hay không. Chu Mai nói thiếu niên này là học sinh của Trần Bình An, người Bảo Bình châu, họ Thôi tên Đông Sơn, dựa theo bối phận, xem như đệ tử đời thứ ba của Văn Thánh nhất mạch, chính là Thôi Đông Sơn hình như đầu óc không được linh quang lắm, lúc tốt lúc xấu, đáng tiếc bộ túi da xinh đẹp kia.
+Đến khi Nhạc Thanh không thể không dốc hết sức xuất kiếm, lão đại kiếm tiên xuất hiện trên đầu tường, hai tay chắp sau lưng nhìn về chiến trường phía nam, dường như nói với Tả Hữu một câu. Lúc này Tả Hữu mới thu kiếm.
 
-Đối phương đi thẳng về phía trước, Úc Dận Phu liền thoáng dịch bước, để cho hai bên cứ như vậy lướt qua nhau.
+Cuối cùng Tôn Cự Nguyên cảm khái: kiếm thuật cao như vậy, lại chẳng sợ một mình đấu với cả đám, chẳng lẽ Tả Hữu muốn một bước lên trời ở Kiếm Khí Trường Thành?
 
-Nào ngờ đối phương cũng có dự tính như vậy, vừa vặn lại đổi tuyến đường, Úc Tỳ Hưu liền đổi mới, đối phương cũng vừa vặn dịch bước, thường xuyên qua lại, Thôi Đông Sơn kia dừng bước, vẻ mặt cầu xin nói: "Úc tỷ tỷ, tỷ cứ nói muốn đi bên trái hay là đi bên phải, dù sao ta cũng không dám động, bằng không ta sợ tỷ lầm tưởng ta mưu đồ gây rối, thấy nữ tử đẹp mắt thì như thế nào."
+Úc Thù Phu tò mò hỏi một bước lên trời là gì. Tôn Cự Nguyên chỉ cười, không nói thêm nữa.
 
-Úc Dận Phu cũng không nói gì, thấy hắn dừng bước, liền đi đường vòng qua hắn xa xa, nào ngờ người nọ cũng xoay người theo, sóng vai mà đi với nàng, chẳng qua hai bên cách năm sáu bước, Thôi Đông Sơn nhẹ giọng nói: "Úc tỷ tỷ, có từng nghe nói ấn phổ bách kiếm tiên cùng ấn phổ của Trứu Kiếm tiên? Có vật nào ngưỡng mộ trong mắt không? Ta là người không thành tài nhất trong số tiên sinh nhà ta, xấu hổ nhất trong túi, tu vi tốn nhiều tiền, ta không muốn tiên sinh lo lắng..., Cũng chỉ có thể tự mình kiếm ít tiền, dựa vào nhà lầu gần sông để hưởng trước, ở bên tiên sinh trộm mấy bản ấn phổ, mấy cái quạt xếp, lại đi cửa hàng tơ lụa của đại thiếu gia Yến gia, giá thấp thu nhập mấy con dấu, Úc tỷ tỷ tỷ ngươi coi như ta là Bao Phục Trai đi, ta chỗ này có hai bản ấn phổ, ba cái quạt xếp, sáu cái quạt xếp, cùng sáu cái ấn chương, Úc tỷ tỷ, có muốn xem một chút hay không?"
+Nàng đứng dậy, dọc theo đầu tường chậm rãi ra quyền. Quyền ra rất chậm, thân hình lại rất nhanh.
 
-Úc Sán Phu dừng bước, cười nói: "Nếu ta không nhìn lầm, chiếc thuyền phù chu kia của ngươi, là trọng bảo trên núi Lưu Hà châu sản xuất, ngươi dựa vào buôn bán ấn phổ, quạt xếp những vật vụn vặt này, cho dù làm ăn thịnh vượng, bán một trăm năm, có đủ mua chiếc thuyền phù đó hay không? Ta thấy khó. Nói thẳng đi, tìm ta là vì chuyện gì?"
+Đi được chừng một nén nhang, nàng gặp một thiếu niên áo trắng đi tới. Vốn Úc Thù Phu chẳng muốn biết hắn họ gì tên gì, nhưng Chu Mai líu ríu bên tai đã nói từ trước: thiếu niên là học sinh của Trần Bình An, người Bảo Bình Châu, họ Thôi tên Đông Sơn, tính theo vai vế là đệ tử đời thứ ba của một mạch Văn Thánh. Hình như đầu óc hắn lúc tốt lúc xấu, đáng tiếc cho bộ túi da đẹp đẽ kia.
 
-Chỉ thấy thiếu niên kia vẻ mặt đau thương, bất đắc dĩ, cay đắng, nói: "Ở trong cảm nhận của ta, Úc tỷ tỷ vốn là loại hào phiệt nữ tử khác nhau nhất trên đời này, hôm nay xem ra, vẫn là xem thường tiền vất vả gà nát gà nát như nhau. Cũng đúng, gia đình chung minh đỉnh thực, trên bàn tùy tiện một món văn phòng thanh cung không đáng chú ý, cho dù là tiền thần tiên chỉ vỡ vụn không chịu nổi may vá bổ sung, cũng cần bao nhiêu tiền?"
+Thấy hắn đi thẳng tới, Úc Thù Phu hơi dịch bước để hai người lướt qua nhau. Nào ngờ đối phương cũng nghĩ như vậy, vừa khéo đổi hướng. Nàng lại đổi hướng, hắn cũng dịch bước theo. Mấy lần như thế, Thôi Đông Sơn dừng lại, vẻ mặt đau khổ:
 
-Úc Phu lắc đầu nói: "Còn không muốn có chuyện gì nói thẳng? Ngươi hoặc là dựa vào thực lực tu vi ẩn tàng, để ta dừng bước, bằng không đừng nghĩ ta nhiều lời với ngươi."
+- Úc tỷ tỷ, tỷ cứ nói muốn đi bên trái hay bên phải đi. Ta không dám động đậy nữa, chỉ sợ tỷ tưởng ta thấy nữ tử xinh đẹp thì nảy ý xấu.
 
-Úc Dận Phu vừa muốn đi về phía trước, Thôi Đông Sơn vội vàng nói: "Ta một lòng một dạ kiếm tiền, thuận tiện muốn làm Úc tỷ tỷ nhớ kỹ ta là ai, Úc tỷ tỷ không tin, tổn thương lòng ta, cũng là ta tự tìm, ta cũng không nỡ trút giận với Úc tỷ tỷ. Đã như vậy, ta cùng Úc tỷ tỷ đánh cuộc, cược bên trong những vật này của ta, tất nhiên có Úc tỷ tỷ không chỉ để mắt tới, còn phải là nguyện ý bỏ tiền mua, mới tính là ta thắng thuật của tỷ, nếu là ta thua, ta liền lập tức cút đi, cuộc đời này kiếp này, liền rốt cuộc không thấy được Úc tỷ tỷ nữa, thua không thể lại nhiều hơn nữa. Nếu là ta thắng, Úc tỷ tỷ liền bỏ tiền mua, ta thắng được lại là cỡ hạt gạo, thế nào?"
+Úc Thù Phu không đáp, thấy hắn dừng lại liền vòng xa qua. Nào ngờ hắn cũng xoay người, sóng vai đi cùng, cách nàng năm sáu bước, nhẹ giọng nói:
 
-Úc孟 phu cười cười.
+- Úc tỷ tỷ từng nghe nói đến ấn phổ Bách Kiếm Tiên và ấn phổ của Trứu Kiếm tiên chưa? Có món nào tỷ vừa mắt không? Trong số học sinh của tiên sinh, ta là kẻ kém cỏi nhất, túi tiền cũng xấu hổ nhất. Tu hành lại tốn tiền, ta không muốn tiên sinh lo lắng, chỉ đành tự kiếm chút ít.
 
-Thiếu niên kia lại giống như đoán đúng tâm tư của nàng, cũng nở nụ cười: "Úc tỷ tỷ là ai, ta há lại không rõ ràng, sở dĩ có thể đánh cuộc chịu thua, cũng không phải là người thế nhân nghĩ Úc Phu xuất thân hào môn, tâm tính tốt như vậy, là đệ tử cao môn gì đó khí lượng lớn. Mà Úc tỷ tỷ từ nhỏ đã cảm thấy mình thua, cũng nhất định có thể thắng trở về. Nếu ngày mai có thể thắng, vì sao hôm nay không chịu thua? Không cần thiết nha."
+- Ta ở gần tiên sinh nên trộm được mấy bộ ấn phổ, mấy chiếc quạt xếp, rồi đến cửa hàng tơ lụa của đại thiếu gia Yến gia mua rẻ vài con dấu. Úc tỷ tỷ cứ coi ta như Bao Phục trai. Ta có hai bộ ấn phổ, quạt xếp và sáu con dấu[?], tỷ có muốn xem không?
 
-Úc Phu sắc mặt âm trầm, nói: "Ngươi là ai?!"
+Úc Thù Phu dừng bước, cười nói:
 
-Thiếu niên tủi thân và uất ức nói: "Từng nói với Úc tỷ tỷ, ta là Đông Sơn mà."
+- Nếu ta không nhìn lầm, chiếc phù chu của ngươi là trọng bảo xuất xứ từ Lưu Hà châu. Dựa vào bán ấn phổ, quạt xếp và những thứ vụn vặt này, dù làm ăn phát đạt suốt trăm năm, ngươi có đủ tiền mua nó không? Ta thấy khó. Nói thẳng đi, tìm ta có chuyện gì?
 
-Úc Dận Phu nhếch khóe miệng, "Ta chẳng những nguyện đánh cuộc chịu thua, ta cũng dám đánh cuộc, lấy đồ của ngươi ra đi."
+Thiếu niên lộ vẻ đau thương, bất đắc dĩ nói:
 
-Thôi Đông Sơn vẻ mặt ngượng ngùng, cúi đầu nhìn, hai tay vội vàng đè lại đai lưng, sau đó nghiêng người, nhăn nhăn nhó nhó, không dám gặp người.
+- Trong lòng ta, Úc tỷ tỷ vốn là nữ tử hào môn khác biệt nhất trên đời. Hôm nay xem ra tỷ cũng coi thường chút tiền vất vả này như người khác. Cũng phải, nhà tỷ giàu sang như vậy, một món đồ trong thư phòng tưởng chẳng đáng chú ý, dù nứt vỡ cần sửa chữa, cũng tốn biết bao tiền thần tiên?
 
-Úc Phu một quyền đã tới huyệt thái dương trên đầu đối phương.
+Úc Thù Phu lắc đầu:
 
-Chỉ là đối phương thế mà vẫn không nhúc nhích, như mộc nhân bị dọa choáng váng, lại như là hồn nhiên chưa phát giác, Úc Tễ Phu lập tức một quyền đem võ phu cảnh giới thứ sáu ban đầu, thu liễm quyền ý thật lớn, đặt ở trên ngũ cảnh quyền cương, cuối cùng quyền rơi xuống trên trán đối phương, quyền ý lại có hạ xuống, chỉ là lấy lực đạo của võ phu cảnh giới thứ tư, hơn nữa nắm tay hạ xuống, đánh vào trên má thiếu niên áo trắng kia, chưa từng nghĩ cho dù như thế, Úc Sán Phu đối với một màn kế tiếp, vẫn rất là bất ngờ.
+- Vẫn không chịu nói thẳng? Hoặc ngươi dùng tu vi giấu kín của mình giữ ta lại, bằng không đừng mong ta nói thêm.
 
-Vốn Úc Dận Phu nhìn không ra sâu cạn của đối phương, nhưng mà trong lòng sẽ có một suy đoán cao thấp, cao nhất Nguyên Anh cảnh, thấp nhất Động Phủ cảnh, bằng không đang ở Kiếm Khí Trường Thành, bước chân của thiếu niên này, hô hấp sẽ không thông thuận như thế. Cho dù là Động Phủ cảnh, tốt xấu gì cũng tễ thân trung ngũ cảnh, cho nên một quyền của võ phu ngũ cảnh này, đối phương có thể tránh, tứ cảnh một quyền, đối phương cũng có thể chống đỡ, tuyệt không đến mức bị thương như thế nào, đương nhiên nỗi khổ da thịt nhất thời nửa khắc vẫn sẽ có chút.
+Nàng vừa định đi tiếp, Thôi Đông Sơn vội nói:
 
-Nhưng Úc Dận Phu nào sẽ nghĩ đến đối phương sau khi trúng một quyền, thân thể lượn vòng vô số vòng, nặng nề ngã ở ngoài mười mấy bước, tay chân run rẩy, một cái, lại một cái.
+- Ta một lòng kiếm tiền, tiện thể muốn Úc tỷ tỷ nhớ ta là ai. Tỷ không tin, làm ta đau lòng, cũng là ta tự chuốc lấy, không nỡ trút giận lên tỷ. Hay là thế này, chúng ta đánh cược đi.
 
-Đây có thể coi là một quyền của Tứ Cảnh đánh chết người không?
+- Trong số đồ của ta, phải có món tỷ không chỉ vừa mắt mà còn chịu bỏ tiền ra mua thì ta mới thắng. Nếu thua, ta lập tức cút đi, đời này kiếp này không xuất hiện trước mặt tỷ nữa, không thể thua nhiều hơn. Nếu ta thắng, tỷ bỏ tiền mua đồ, ta chỉ thắng được chút ít bằng hạt gạo. Thế nào?
 
-Úc Tễ Phu lao ra một bước, ngồi xổm bên cạnh thiếu niên áo trắng, chảy máu mũi là thật, không phải giả bộ, sau đó thiếu niên kia ôm lấy cẳng chân Úc Tầm Phu, "Ngất tỷ tỷ, ta thiếu chút nữa cho rằng sắp không gặp lại tỷ nữa."
+Úc Thù Phu mỉm cười. Thiếu niên như đoán trúng tâm tư nàng, cũng cười theo:
 
-Úc Phu nhíu mày, quyền ý chấn động, lập tức đẩy thiếu niên áo trắng ra, người sau nháy mắt trượt ngang ra ngoài hơn mười bước.
+- Úc tỷ tỷ là người thế nào, ta há không rõ? Tỷ dám đánh cược chịu thua, không phải vì xuất thân hào môn, có khí độ của đệ tử nhà cao cửa rộng như người đời vẫn nghĩ. Mà là từ nhỏ tỷ đã cảm thấy, dù mình thua cũng nhất định có thể thắng lại. Nếu ngày mai có thể thắng, tại sao hôm nay không chịu thua?
 
-Thôi Đông Sơn ngồi dậy, lau máu mũi một phen, vừa định tùy tiện lau ở trên ống tay áo, tựa như là sợ dơ quần áo, liền bôi ở trên mặt đất đầu tường.
+Sắc mặt Úc Thù Phu trầm xuống:
 
-Úc Phu nhìn thấy càng thêm nhíu mày.
+- Ngươi là ai?
 
-Chu Mai không nói sai, đầu óc người này có bệnh thật.
+Thiếu niên tủi thân nói:
 
-Ngay tại lúc Úc Dận Phu muốn rời khỏi, thật sự không muốn dây dưa không rõ với loại người này, nào ngờ Thôi Đông Sơn đã từ trong tay áo nhanh chóng lấy ra hai bộ ấn phổ, đặt chỉnh tề ở trên mặt đất trước người, chẳng qua hai bản ấn phổ lại không phải đặt ngang, mà là dựng lên, che chắn toàn bộ con dấu phía sau, quạt xếp, Thôi Đông Sơn nhếch miệng cười, ngoắc tay nói: "Úc tỷ tỷ, cược một ván đi!"
+- Ta đã nói với Úc tỷ tỷ rồi, ta là Đông Sơn mà.
 
-Úc Dận Phu do dự một chút, bước về phía "Bàn đánh bạc nhỏ" kia.
+Úc Thù Phu nhếch khóe miệng:
 
-Nhắm chừng là lo lắng nàng ấy liếc thấy quang cảnh phía sau hai cánh đại môn "hai cánh cửa lớn" của ấn phổ, biết rõ tất thua, liền sinh lòng đổi ý không đánh cược, Thôi Đông Sơn còn giơ hai tay lên, nhanh chóng che khuất những con dấu kia, hai tay áo trắng như tuyết buông xuống, như dựng lên nóc phòng che gió che mưa.
+- Ta không chỉ nguyện đánh cược chịu thua, mà còn dám đánh cược. Lấy đồ của ngươi ra đi.
 
-Úc Phu ngồi xếp bằng, đưa tay đẩy hai bộ ấn phổ ra, rõ ràng không phải thứ có thể bỏ tiền ra mua được.
+Thôi Đông Sơn ngượng ngùng cúi đầu, vội dùng hai tay giữ đai lưng, nghiêng người nhăn nhó như không dám gặp ai.
 
-Nhưng ở trước khi Úc Thỉ Phu động thủ, Thôi Đông Sơn lại vươn hai tay, che giấu hai con dấu.
+Úc Thù Phu lập tức tung một quyền về phía huyệt thái dương của hắn.
 
-Toàn bộ quạt xếp đều bị Úc Thỉ Phu đưa tay dời đi, cầm lấy con dấu Thôi Đông Sơn không che đậy, xem ấn văn đó, cười cười, là cá hóa rồng. Cá, xem như hài âm.
+Đối phương vẫn không nhúc nhích, tựa như người gỗ bị dọa ngây ra, lại như hoàn toàn không hay biết. Nàng liền thu quyền ý từ lục cảnh xuống ngũ cảnh. Đến khi quyền sắp chạm trán hắn, nàng lại giảm xuống lực đạo của võ phu tứ cảnh, nắm đấm cũng hạ thấp, đánh vào má thiếu niên áo trắng.
 
-Là dấu hiệu tốt để nói chuyện, chẳng qua Úc Dận Phu vẫn không cảm thấy động tâm như thế nào, Úc Dật Phu ta từ nhỏ đã không thích cái tên Úc Diệc Phu này, đối với dòng họ Úc này, tự nhiên sẽ biết ơn, nhưng cũng không đến mức quá mức si mê. Về phần cái gì cá hóa rồng hay không, nàng lại không phải Luyện khí sĩ, cho dù từng tận mắt nhìn thấy phong cảnh rộng lớn của đạo Long Môn Trung Thổ kia, cũng chưa từng kích động tâm tình như thế nào, phong cảnh cũng chỉ là phong cảnh mà thôi.
+Dù vậy, cảnh tượng tiếp theo vẫn khiến nàng bất ngờ.
 
-Cho nên Úc Tễ Phu vẫn chỉ để nó qua một bên, cười nói: "Chỉ còn lại con dấu hai bên cuối cùng."
+Úc Thù Phu không nhìn thấu sâu cạn của đối phương, nhưng đoán cao nhất hắn là Nguyên Anh cảnh, thấp nhất cũng là Động Phủ cảnh. Nếu không, ở Kiếm Khí Trường Thành, bước chân và hơi thở của hắn đã chẳng thong dong như vậy. Dù chỉ là Động Phủ cảnh, hắn cũng đã thuộc trung ngũ cảnh, quyền của võ phu ngũ cảnh có thể tránh, quyền của tứ cảnh có thể chịu, không đến nỗi bị thương, nhiều lắm chỉ đau da thịt nhất thời.
 
-Trong lòng bàn tay Thôi Đông Sơn đè con dấu, như tiên nhân ngũ chỉ hướng xuống che đỉnh núi, "Úc tỷ tỷ, có dám cược lớn một chút hay không, đổ ước nhỏ phía trước vẫn có. Chúng ta lại đánh cược Úc tỷ tỷ là thích con dấu bên trái, hay là thích con dấu bên phải? Hoặc là Úc tỷ tỷ dứt khoát cược lớn hơn một chút, cược hai bên kia đều chướng mắt, mặc dù động lòng nhưng sẽ không tiêu tiền mua, thế nào? Úc tỷ tỷ, từng có hào kiệt nữ tử hỏi quyền tiên sinh nhà ta, không biết hôm nay hào khí thật sự vẫn còn?"
+Nào ngờ trúng một quyền xong, thân thể Thôi Đông Sơn xoay tít vô số vòng rồi nặng nề ngã xuống cách hơn mười bước, chân tay run rẩy từng hồi.
 
-Úc Phúc Phu hỏi: "Hai loại đặt cược, tiền đặt cược phân biệt là cái gì?"
+Chẳng lẽ một quyền tứ cảnh này đã đánh chết người?
 
-Thôi Đông Sơn liền lấy tiếng lòng nói, mỉm cười nói: "So với tiền đặt cược sớm hơn một chút, chính là cược Úc tỷ tỷ về sau chuyển lời cho Úc gia, cược lớn hơn nữa, chính là giúp ta chuyển lời cho Chu Thần Chi, vẫn chỉ có một câu, yên tâm, Úc tỷ tỷ chỉ là người chuyển lời mà thôi, tuyệt sẽ không cho tỷ làm nửa điểm việc dư thừa. Bằng không đổ ước hủy bỏ, hoặc là dứt khoát coi như ta thua."
+Úc Thù Phu lao tới, ngồi xổm bên cạnh hắn. Máu mũi chảy ra là thật, không phải giả vờ. Thiếu niên bỗng ôm lấy cẳng chân nàng:
 
-Úc Dận Phu nháy mắt thần sắc ngưng trọng, lấy võ phu tụ âm thành tuyến nói: "Ta có thể không cược?"
+- Úc tỷ tỷ, ta suýt nữa tưởng không được gặp lại tỷ rồi.
 
-Thôi Đông Sơn cười nói: "Đương nhiên có thể. Nào có ai cố gắng kéo người khác lên chiếu bạc làm cái gì? Trên đời này nào có Bao Phục trai nào cần người khác mua vật của mình? Chỉ là Úc tỷ tỷ lập tức tâm cảnh, đã không còn như vừa rồi, cho nên ta đã không phải tin tưởng như vậy nữa, dù sao Úc tỷ tỷ chung quy là người Úc gia, Chu Thần Chi càng là trưởng bối Úc tỷ tỷ kính trọng, vẫn là ân nhân cứu mạng, cho nên nói lời trái lương tâm, làm trái với tâm sự, là vì không vi phạm bản tâm lớn hơn nữa, đương nhiên có thể thông cảm, chỉ là bàn đánh bạc chính là bàn đánh bạc, ta làm cái gì cũng là vì kiếm tiền, công bằng khởi gặp mặt, ta cần Úc tỷ tỷ nguyện đánh cuộc thua, bỏ tiền mua toàn bộ vật phẩm."
+Úc Thù Phu nhíu mày, quyền ý chấn động, lập tức đẩy hắn trượt ngang ra hơn mười bước.
 
-Úc Phu thở phào nhẹ nhõm.
+Thôi Đông Sơn ngồi dậy, lau máu mũi, vừa định tiện tay chùi vào tay áo thì dường như sợ làm bẩn quần áo, bèn bôi xuống mặt đất.
 
-Thôi Đông Sơn mỉm cười nói: "Có chơi có chịu, là Úc Dận Phu tin tưởng mình có thể thắng. Chỉ tiếc hôm nay lần này nhận thua, cuộc đời này cũng chưa chắc có thể thắng trở lại. Đương nhiên, chung quy là việc nhỏ. Cuộc đời còn trên đời, há có thể vì khoái ý nhỏ của bản thân, mà bỏ qua thế gian quy củ lớn phong tục. Quyền cao thượng hơn nữa như thế, quyền chưa cao, sửa đổi như thế."
+Úc Thù Phu càng nhíu mày. Chu Mai nói không sai, đầu óc người này quả thật có bệnh.
 
-Úc Sán Phu ngẩng đầu, "Ngươi là cố ý dùng ngôn ngữ của Trần Bình An, khích tướng pháp với ta?"
+Nàng không muốn dây dưa thêm, vừa định rời đi thì Thôi Đông Sơn đã nhanh chóng lấy hai bộ ấn phổ trong tay áo ra, dựng ngay ngắn trước mặt để che hết con dấu và quạt xếp phía sau. Hắn nhếch miệng cười, vẫy tay:
 
-Trên đường cái cửa Ninh phủ, trận đầu tiên Úc Sán Phu hỏi quyền, Trần Bình An từng nói nặng lời võ phu, phải có quyền ý lớn.
+- Úc tỷ tỷ, cược một ván đi!
 
-Thôi Đông Sơn cười nheo mắt, "Đúng thì sao? Không phải thì sao? Hôm nay vừa lui thì sao, sáng mai đi thêm hai bước thôi. Úc tà phu cũng không phải Luyện khí sĩ, là võ phu thuần túy kia, con đường võ học, cho tới bây giờ đi ngược dòng, không tranh sớm chiều nhanh chậm."
+Úc Thù Phu do dự một lát rồi bước tới bàn cược nhỏ. Có lẽ sợ nàng liếc thấy đồ sau hai bộ ấn phổ, biết chắc sẽ thua mà đổi ý, Thôi Đông Sơn giơ hai tay che những con dấu, hai tay áo trắng buông xuống như mái nhà chắn gió che mưa.
 
-Úc Dận Phu hỏi: "Có phải ngươi đã lòng dạ biết rõ, nếu ta thua, lại giúp ngươi chuyển lời cho gia tộc, Úc Dận Phu ta vì bản tâm, muốn dung nhập Úc gia, cũng không có sức mạnh du lịch bốn phương nữa?"
+Nàng ngồi xếp bằng, đưa tay đẩy hai bộ ấn phổ sang bên. Đây rõ ràng không phải thứ có thể dùng tiền mua được. Nhưng trước khi nàng động thủ, Thôi Đông Sơn đã giơ tay che hai con dấu.
 
-Thôi Đông Sơn gật đầu cười nói: "Tự nhiên, không biết phẩm tính lòng người của khách đánh bạc, sao dám ngồi nhà cái, bát phương tiếp khách? Chẳng qua Úc Tật Phu không thích tên lão tổ tông ban cho mà thôi, thân là nữ tử, lại cứ phải bị người ta lấy nam nhi mà đối đãi, nữ tử nào có lòng dạ, trưởng thành còn có thể thích? Chẳng qua ta tin tưởng Úc Tầm Phu đối với dòng họ của mình, quan cảm vẫn là không tệ."
+Úc Thù Phu dời hết quạt xếp, cầm con dấu không bị che lên xem. Ấn văn là cá hóa rồng, chữ cá cũng đồng âm với họ Úc[?], coi như một điềm tốt. Nhưng nàng không động lòng lắm. Từ nhỏ nàng không thích cái tên của mình; với họ Úc, nàng biết ơn nhưng cũng không đến mức say mê. Nàng không phải luyện khí sĩ, từng tận mắt thấy phong cảnh rộng lớn của Long Môn ở Trung Thổ mà cũng không kích động. Phong cảnh chỉ là phong cảnh mà thôi.
 
-Úc Dận Phu cười khổ.
+Nàng đặt con dấu sang một bên, cười nói:
 
-Chu Mai Chu Mai, đồ ngốc ngu ngốc. Mặc kệ lần này thắng thua, quay đầu ta cũng mắng ngươi vài câu.
+- Chỉ còn hai con dấu cuối cùng.
 
-Nhưng ngoài tâm tình Úc Tăng Phu phức tạp, thật ra vẫn luôn tinh tế quan sát động tác rất nhỏ trên hai tay đối phương, hy vọng lấy cái này để phân biệt ra rốt cuộc con dấu nào, càng làm cho Thôi Đông Sơn này đã tính trước.
+Thôi Đông Sơn dùng lòng bàn tay đè lên hai con dấu, như tiên nhân xòe năm ngón tay che đỉnh núi:
 
-Chỉ là càng xem càng nghĩ, Úc Dận Phu càng không nắm chắc.
+- Úc tỷ tỷ có dám cược lớn hơn chút không? Đổ ước trước vẫn giữ. Chúng ta cược tỷ thích con dấu bên trái hay bên phải. Hoặc cược lớn hơn nữa, rằng cả hai đều không vừa mắt, dù động lòng cũng không bỏ tiền mua. Tỷ từng hỏi quyền tiên sinh nhà ta, chẳng biết hào khí ngày ấy còn không?
 
-Úc Sán Phu lấy ra một đồng tiền Tiểu Thử, nhẹ nhàng búng, sau khi rơi xuống đất, là mặt trái, Úc Sán Phu nói: "Tay phải! Ta cược tay phải che con dấu, ta sẽ không bỏ tiền mua."
+- Hai cách cược, tiền đặt cược là gì?
 
-Thôi Đông Sơn vừa khom lưng, liền muốn đi lấy tiền Tiểu Thử.
+Thôi Đông Sơn dùng tiếng lòng đáp:
 
-Úc Dận Phu cả giận nói: "Thôi Đông Sơn!"
+- Cược nhỏ thì sau này tỷ chuyển lời giúp ta tới Úc gia. Cược lớn thì chuyển lời tới Chu Thần Chi, cũng chỉ một câu thôi. Tỷ yên tâm, chỉ cần chuyển lời, tuyệt đối không phải làm thêm gì. Nếu không, đổ ước hủy bỏ, hoặc coi như ta thua.
 
-Thôi Đông Sơn ngẩng đầu, vẻ mặt mờ mịt, "Thắng không thu tiền, ta cần gì phải làm thợ cùng Bao Phục trai, tiên sinh nhà ta là đồng tử thiện tài, ta cũng không phải nữa, ta kiếm chút tiền vất vả cùng tiền lương tâm."
+Thần sắc Úc Thù Phu lập tức trở nên nghiêm trọng. Nàng dùng thủ đoạn tụ âm thành tuyến của võ phu hỏi:
 
-Úc Phu trợn mắt nhìn nhau.
+- Ta có thể không cược không?
 
-Thôi Đông Sơn cười hì hì thu tay, nâng một tay lên, lộ ra con dấu kia, "Lúc Úc tỷ tỷ tức giận, thì ra đẹp hơn."
+- Đương nhiên. Trên đời nào có ai cố kéo người khác lên chiếu bạc, hay Bao Phục trai nào ép người ta mua đồ? Chỉ là tâm cảnh của tỷ bây giờ không còn như vừa rồi, ta cũng không tin chắc nữa.
 
-Úc Dận Phu đưa tay chộp lấy, lăng không lấy vật, thu con dấu kia vào trong tay, không phải là ấn tín của Bách Kiếm Tiên Gia và ấn tín của Trử Kiếm Tiên Phổ, cúi đầu nhìn xuống.
+- Tỷ là người Úc gia, Chu Thần Chi lại là trưởng bối tỷ kính trọng, còn là ân nhân cứu mạng. Nói trái lòng, làm trái tâm ý, để không trái với bản tâm lớn hơn, dĩ nhiên có thể hiểu được. Nhưng bàn cược vẫn là bàn cược. Ta làm gì cũng vì kiếm tiền, cho công bằng, tỷ đã nguyện đánh cược thì phải chịu thua, bỏ tiền mua hết những thứ này.
 
-Biên giới: Thạch ở khe nước, như thế nào không phải trụ cột vững vàng. Khỉ Vân trên trời, quyền vẫn ở trên trời.
+Úc Thù Phu thở phào. Thôi Đông Sơn mỉm cười:
 
-Ấn văn thì là: Nữ tử Võ Thần, Trần Tào bên cạnh.
+- Tỷ nguyện đánh cược chịu thua vì tin mình có thể thắng lại. Chỉ tiếc lần nhận thua hôm nay, đời này chưa chắc thắng lại được. Đương nhiên đây chỉ là chuyện nhỏ. Sống trên đời, sao có thể vì chút khoái ý của bản thân mà bỏ qua quy củ lớn của thế gian? Quyền ý có cao hơn nữa cũng vậy; nếu chưa đủ cao thì sửa lại là được[?].
 
-Úc Sán Phu nắm chặt con dấu một phương này, trầm mặc hồi lâu, ngẩng đầu, "Ta thua, nói đi, ta sẽ chuyển lời cho gia tộc."
+Úc Thù Phu ngẩng đầu:
 
-Đối phương lợi hại, không biết hai cái tên giả Thạch Tại Khê, Úc Khởi Vân này, đối phương nếu ngay cả quan hệ của mình cùng gia tộc Chu lão tiên sinh, đều rõ ràng ràng, những thứ này cũng không tính là gì.
+- Ngươi cố ý dùng lời Trần Bình An để khích tướng ta?
 
-Sự lợi hại thật sự của đối phương, ở chỗ tính toán lòng người lợi hại, đoán chắc những lời nói kia của Úc Dận Phu từ đáy lòng tán thành Trần Bình An, đoán chắc một khi mình thua, sẽ tự nguyện đáp ứng gia tộc, không đi dạo chung quanh nữa, bắt đầu thật sự lấy con em Úc gia, vì gia tộc xuất lực. Điều này ý nghĩa là gì, ý nghĩa đối phương cần mình chuyển lời cho lão tổ tông, mặc kệ sau khi nghe nói Úc gia phản ứng như thế nào, ít nhất cũng sẽ nắm lỗ mũi nhận lấy phần tình hương khói này! Càng đoán chắc Úc Dận Phu của cô hôm nay đối với con đường võ học, tâm nguyện lớn nhất, đó là đuổi kịp Tào Từ cùng Trần Bình An, tuyệt đối sẽ không chỉ có thể nhìn bóng lưng hai nam nhân kia, càng đi càng xa!
+Trong trận hỏi quyền đầu tiên trên đường trước Ninh phủ, Trần Bình An từng nói nặng lời rằng võ phu phải có quyền ý lớn.
 
-Úc Phúc Phu thần sắc ảm đạm, chờ giây lát, phát hiện đối phương vẫn không dùng tiếng lòng, ngẩng đầu, thần sắc kiên nghị nói: "Ta dám đánh cuộc, dám chịu thua! Mời nói!"
+Thôi Đông Sơn nheo mắt cười:
 
-Thôi Đông Sơn nhìn nữ tử này, cười cười, rốt cuộc vẫn là một tiểu cô nương tương đối đáng yêu, liền nói câu nói.
+- Đúng thì sao, không đúng thì sao? Hôm nay lui một bước, sáng mai đi thêm hai bước là được. Úc tỷ tỷ đâu phải luyện khí sĩ, mà là võ phu thuần túy. Con đường võ học vốn đi ngược dòng, không tranh nhanh chậm một sớm một chiều.
 
-Úc Phu kinh ngạc nói: "Chỉ là câu nói này?"
+- Có phải ngươi đã tính rõ, nếu ta thua rồi giúp ngươi chuyển lời cho gia tộc, vì bản tâm mà hòa nhập vào Úc gia, ta sẽ không còn sức đi khắp bốn phương nữa?
 
-Lời nói của người này vừa rồi vô cùng cổ quái, cực kỳ cổ quái!
+Thôi Đông Sơn gật đầu:
 
-"Lão già Úc gia, mau đi tìm chỗ không người, lớn tiếng gào thét ba lần: "Ta không phải kẻ ham chơi cờ xấu mới là..."Ta thích cờ ăn hối hận, ta thắng ai""
+- Đương nhiên. Không biết phẩm tính của người đánh cược, sao dám mở sòng đón khách bốn phương? Tỷ chỉ không thích cái tên lão tổ tông ban cho. Thân là nữ tử lại luôn bị đối đãi như nam nhi, nữ tử nào lớn lên còn có thể thích? Nhưng ta tin tỷ vẫn có cảm tình không tệ với dòng họ của mình.
 
-Chẳng lẽ lời nói của cô gái nhỏ Chu Mai kia, kỳ thật mới là một câu nói, hoàn toàn chính xác?
+Úc Thù Phu cười khổ. Chu Mai, Chu Mai, đồ ngốc này. Bất kể lần này thắng thua, quay về nàng cũng phải mắng mấy câu.
 
-Dù sao loại ngôn ngữ này, mình chỉ là nói lời nói, còn về lão tổ tông có làm hay không, đều không sao cả.
+Tâm tình phức tạp là vậy, nhưng nàng vẫn luôn quan sát từng động tác nhỏ trên hai tay Thôi Đông Sơn, mong phân biệt con dấu nào khiến hắn nắm chắc phần thắng hơn. Chỉ là càng nhìn càng nghĩ, nàng càng không nắm chắc.
 
-Thôi Đông Sơn nhặt lên đồng tiền Tiểu Thử kia, chữ Hỷ cực kỳ hiếm thấy, vô cùng có khả năng là hàng cô phẩm tồn thế, một đồng tiền Tiểu Thử coi như tiền Cốc Vũ bán, đều sẽ bị các thần tiên "xưng tiền" kia cướp đến vỡ đầu, Úc tỷ tỷ không hổ là tiểu thư khuê các, về sau gả cho người ta, đồ cưới nhất định nhiều. Đáng tiếc cái ôm ấp kia, mệnh không tốt, không phúc tiêu thụ. Mệnh không tốt nhất, vẫn là chưa chết, lại chỉ có thể trơ mắt nhìn trước kia là xem thường lẫn nhau, hôm nay là hắn coi thường, nàng vẫn như cũ không nhìn trúng Úc tỷ tỷ của hắn, gả làm vợ người ta. Vừa nghĩ đến đây, Thôi Đông Sơn liền ghi tạc cho mình một công lao nho nhỏ, về sau có cơ hội, lại cố gắng khoác lác một phen với đại sư tỷ.
+Úc Thù Phu lấy một đồng tiền tiểu thử, nhẹ nhàng búng lên. Đồng tiền rơi xuống mặt trái, nàng nói:
 
-Tay trái Thôi Đông Sơn thủy chung đè lên con dấu cuối cùng, cười nói: "Úc tỷ tỷ, muốn cược một lần cuối hay không, nếu là ta thắng, Úc tỷ tỷ sẽ nói thêm một câu với Chu Thần Chi, nhưng nếu ta thua, nói chuyện với Úc gia cũng có thể không tính, tiền Tiểu Thử này cũng trả lại cho tỷ, dù sao tính ta một lần vô ý đầy bàn đều thua, toàn bộ đổ ước đều tính ta thua, thế nào?"
+- Tay phải! Ta cược con dấu dưới tay phải của ngươi, ta sẽ không bỏ tiền mua.
 
-Úc Dận Phu suy nghĩ một chút, cho dù ván cuối cùng của mình gần như là thắng chắc, nhưng Úc Dận Phu vẫn không đánh cược, chỉ là trực giác của nữ tử.
+Thôi Đông Sơn khom lưng định nhặt đồng tiền. Nàng tức giận gọi:
 
-Úc Thỉ Phu lắc đầu nói: "Không cược nữa!"
+- Thôi Đông Sơn!
 
-Mà người đối diện cười ha hả: "Vận may của Úc tỷ tỷ nhìn như không tốt, kì thực rất tốt, về phần vì sao ta nói như thế, Úc tỷ tỷ rất nhanh sẽ biết được đáp án, hơn nữa ngay hôm nay."
+Hắn ngẩng đầu, vẻ mặt mờ mịt:
 
-Úc Phúc Phu cả giận nói: "Còn phép khích tướng? Còn chờ nữa không?!"
+- Thắng mà không thu tiền, ta còn làm Bao Phục trai làm gì? Tiên sinh nhà ta là đồng tử thiện tài, ta đâu phải. Ta chỉ kiếm chút tiền vất vả, tiền lương tâm thôi.
 
-Thôi Đông Sơn cầm con dấu vẫn giấu đầu giấu đuôi kia, nhẹ nhàng vứt cho Úc Tỳ phu, "Cho ngươi, coi như là ta kẻ làm học sinh này, bồi tội cho tiên sinh nhà mình với ngươi."
+Úc Thù Phu trợn mắt nhìn hắn. Thôi Đông Sơn cười hì hì, nhấc một tay lên, để lộ con dấu:
 
-Úc Na Phu tiếp nhận con dấu kia, trợn mắt há hốc mồm, lẩm bẩm nói: "Không có khả năng, con dấu này đã bị Danh Kiếm Tiên Không Biết mua đi, cho dù là Kiếm Tiên Tôn Cự Nguyên cũng tra không ra là ai mua, ngươi mới đến Kiếm Khí Trường Thành vài ngày... Hơn nữa ngươi làm sao có thể biết, sẽ chỉ là con dấu, sẽ chỉ là nó..."
+- Hóa ra lúc Úc tỷ tỷ tức giận còn đẹp hơn.
 
-Thôi Đông Sơn như đứa bé kia ra vẻ cao thâm, thổn thức cảm khái nói: "Thiên hạ đánh cược lớn, thắng dựa vào đại vận."
+Nàng đưa tay hút con dấu vào lòng bàn tay. Nó không thuộc bộ ấn phổ Bách Kiếm Tiên hay Trứu Kiếm Tiên. Nàng cúi đầu xem, bên cạnh khắc: “Đá trong khe, sao chẳng thể làm trụ cột vững vàng. Mây trên trời, quyền vẫn ở trên trời.”[?]
 
-Thôi Đông Sơn thu hồi toàn bộ vật không được Úc Phi Phu coi trọng, đứng lên, "Những vật vụn vặt này coi như là hậu lễ Úc tỷ tỷ tặng cho ta, vừa nghĩ đến sau này với Úc tỷ tỷ là người quen, vui vẻ, thực vui vẻ."
+Ấn văn là: “Nữ tử Võ Thần, bên cạnh Trần Tào.”
 
-Úc Dận Phu vẫn ngồi tại chỗ, ngẩng đầu: "Tiền bối rốt cuộc là ai?"
+Úc Thù Phu nắm chặt con dấu, trầm mặc hồi lâu rồi ngẩng đầu:
 
-Có thể xưng hô lão tổ tông là Úc gia lão nhi cùng kẻ cờ dở hơi, thậm chí chỉ tên gọi họ, trực tiếp xưng hô Chu lão tiên sinh là Chu Thần Chi.
+- Ta thua. Nói đi, ta sẽ chuyển lời cho gia tộc.
 
-Thiếu niên áo trắng kia cười tủm tỉm nói: "Ta là Đông Sơn a."
+Đối phương biết hai cái tên giả Thạch Tại Khê và Úc Khởi Vân của nàng. Nhưng nếu ngay cả quan hệ của nàng với gia tộc và Chu lão tiên sinh hắn cũng rõ, chuyện ấy chẳng đáng gì.
 
-Thôi Đông Sơn sải bước rời đi, đi tìm người khác.
+Chỗ lợi hại thật sự của hắn là tính toán lòng người. Hắn đoán chắc nàng thật lòng tán thành lời Trần Bình An, đoán chắc một khi thua cược, nàng sẽ tự nguyện nhận trách nhiệm với gia tộc, không đi khắp nơi nữa, bắt đầu thật sự dùng thân phận con cháu Úc gia mà góp sức.
 
-Thôi Đông Sơn sau khi đi ra vài bước, chợt dừng bước quay đầu, mỉm cười nói: "Úc tỷ tỷ, về sau chớ có mất tiền trước mặt người khác, xem chính phản, để mà lựa chọn. Không dám nói toàn bộ, nhưng mà tuyệt đại đa số thời điểm, ngươi cảm thấy là chuyện vận khí hư vô mờ mịt kia, thực ra là cảnh giới của ngươi không cao, mới có thể là vận khí. Vận khí tốt hay không tốt, không ở ngươi, lại cũng không ở lão thiên gia, hôm nay có ta, ngươi còn có thể thừa nhận, về sau thì sao? Hôm nay chỉ là võ phu hàm phu, về sau lại là Úc Diệc Phu của Úc gia, tiên sinh nhà ta câu nói đó, nhưng xin Úc tỷ tỷ ngày nhớ đêm suy nghĩ, cân nhắc lại."
+Như vậy, bất kể sau khi nghe lời hắn nhắn, Úc gia phản ứng thế nào, ít nhất cũng phải nhận lấy phần tình nghĩa này. Hắn càng đoán chắc tâm nguyện lớn nhất trên con đường võ học của nàng hôm nay là đuổi kịp Tào Từ và Trần Bình An, tuyệt không cam lòng chỉ nhìn bóng lưng hai người đàn ông ấy càng đi càng xa.
 
-Úc Phúc Phu im lặng không nói gì.
+Úc Thù Phu ảm đạm chờ một lát, thấy hắn vẫn không truyền tiếng lòng, nàng ngẩng đầu, kiên quyết nói:
 
-Nàng lập tức cầm con dấu trong tay, cũng không có khoản tiền, chỉ có ấn văn.
+- Ta dám cược thì dám chịu thua! Mời nói!
 
-Nhạn đụng tường.
+Thôi Đông Sơn nhìn nàng, mỉm cười. Rốt cuộc vẫn là một cô nương khá đáng yêu. Hắn bèn nói ra lời muốn nhắn.
 
-Úc Tễ Phu quay đầu nhìn lại.
+Úc Thù Phu kinh ngạc:
 
-Thiếu niên áo trắng kia vừa đi vừa đánh quyền trên đầu tường, giọng không nhỏ, đó là một bộ quyền pháp đại khái có thể xem như vương bát quyền.
+- Chỉ một câu này thôi?
 
-Khổ Hạ Kiếm Tiên đang truyền thụ kiếm thuật của đám hài tử cho Thiệu Nguyên Vương Triều.
+Lời hắn nói hết sức kỳ quái: “Lão già Úc gia, mau tìm chỗ không người, lớn tiếng gào ba lần: Ta không phải kẻ đánh cờ dở, thích đi lại nước cờ, ta thắng được ai...”[?]
 
-Dựa theo quy củ của Kiếm Khí Trường Thành, lên đầu tường, sẽ không có quy củ, muốn tự mình lập quy củ, dựa vào kiếm nói chuyện.
+Chẳng lẽ cô bé Chu Mai nói hắn có bệnh, thật sự không sai chút nào?
 
-Khổ Hạ kiếm tiên là người từ nơi khác đến, kiếm thuật không thấp, nhưng tính tình ôn hòa, hơn nữa hôm nay mình cùng với đám thiên tài trẻ tuổi này thanh danh ở Kiếm Khí Trường Thành, thật sự bình thường, tự nhiên càng thêm sẽ không nhằm vào một thiếu niên áo trắng ngồi ở xa xa xem bọn họ luyện kiếm, hơn nữa thiếu niên kia chỉ nhìn bọn họ vài lần, liền rất nhanh tự mình đọc sách, Khổ Hạ kiếm tiên liếc mắt nhìn tên sách, là một bộ kỳ phổ, tên là 《 khoái đình phổ》, ở Trung Thổ Thần Châu nhất là Thiệu Nguyên vương triều, lưu truyền rất rộng, chuyên giải tử hoạt đề, trong đó có một câu sắp xếp, càng thêm được tôn sùng, "Ta lấy pháp cao thấp, cần phải xem cách ứng phó cờ lực lớn nhất của đối phương, lấy cường thủ chờ đợi cường thủ, lại lấy cường thủ bộ thắng chi, há không vui?"
+Dù sao nàng chỉ chuyển lời; lão tổ tông có làm hay không cũng chẳng liên quan đến nàng.
 
-Khổ Hạ Kiếm Tiên cười cười, người này có lẽ tu vi cảnh giới không thấp, nhưng mà ẩn giấu thật tốt, ngay cả hắn cũng rất khó liếc mắt nhìn thấu nội tình, vậy sẽ không phải là tu sĩ cảnh giới Quan Hải Long Môn, về phần là Địa Tiên Kim Đan hay là Nguyên Anh, khó nói.
+Thôi Đông Sơn nhặt đồng tiền tiểu thử lên. Trên đó có chữ Hỷ cực kỳ hiếm thấy, rất có thể là đồng duy nhất còn lại. Dù đem bán với giá một đồng tiền cốc vũ, những thần tiên thích sưu tầm tiền cũng sẽ tranh đến vỡ đầu.
 
-Chẳng lẽ là muốn lấy đánh cờ để đập phá? "thiếu niên lang" tuổi thật sự không dễ nói này, có thể tới sai chỗ hay không?
+Úc tỷ tỷ quả là tiểu thư khuê các, sau này xuất giá hẳn có nhiều đồ cưới. Đáng tiếc cho kẻ si tình kia số khổ, không có phúc hưởng thụ. Đau khổ nhất là chưa chết, lại chỉ có thể trơ mắt nhìn người từng không vừa mắt mình, nay mình không vừa mắt nàng, gả cho người khác[?].
 
-Khổ Hạ Kiếm Tiên ngoại trừ truyền thụ kiếm thuật ra, cũng sẽ để cho những lương tài tương lai của vương triều Thiệu Nguyên, tự mình tu hành, đi tìm kiếm cơ duyên bắt được.
+Nghĩ vậy, Thôi Đông Sơn tự ghi cho mình một công lao nho nhỏ, sau này có dịp sẽ khoác lác với đại sư tỷ.
 
-Thiếu niên môn sinh Văn Thánh nhất mạch kia, kiên nhẫn không tệ, ngồi ở bên đó xem cờ phổ, không chỉ như thế, còn lấy ra bàn cờ bình, bắt đầu một mình đánh cờ.
+Tay trái vẫn đè lên con dấu cuối cùng, hắn cười nói:
 
-Ở một khoảng nghỉ ngơi, toàn bộ kiếm tu trẻ tuổi đều vô ý vô ý vòng qua thiếu niên áo trắng kia, không phải sợ hắn, cũng không phải sợ tiên sinh Trần Bình An của hắn, mà là sợ đại sư huynh của Trần Bình An kia.
+- Úc tỷ tỷ muốn cược lần cuối không? Nếu ta thắng, tỷ chuyển thêm một câu cho Chu Thần Chi. Nếu ta thua, chuyện nhắn Úc gia không tính nữa, đồng tiền này cũng trả lại. Coi như ta sơ ý một nước, thua hết cả bàn. Thế nào?
 
-Về việc xuất kiếm trái phải, trên đầu thành, bọn họ đều có ăn ý, không đề cập tới một chữ, nhưng Tôn phủ ở Kiếm Tiên Tôn Cự Nguyên, lại bí mật không ít.
+Úc Thù Phu suy nghĩ. Dù ván cuối gần như chắc thắng, trực giác của nữ tử bảo nàng không nên cược tiếp. Nàng lắc đầu:
 
-"Đại Kiếm Tiên Nhạc Thanh chỉ tùy tiện nói vài câu hương hỏa của Văn Thánh nhất mạch thì thế nào, vậy thì trái phải liền phải phân sinh tử với người khác? Kiếm thuật cao hơn chút thì có lý? Không hổ là cao đồ của Văn Thánh nhất mạch, kiếm thuật thật cao, đạo lý thật lớn."
+- Không cược nữa!
 
-"Nhạc Thanh đại kiếm tiên ở Kiếm Khí Trường Thành bên này, chiến công hiển hách, trải qua bao nhiêu trận đại chiến, chém giết bao nhiêu yêu vật?! Mỗi bên hắn chỉ tham gia một trận đại chiến, nếu Nhạc Thanh bị thương nặng, thậm chí trực tiếp đánh chết Nhạc Thanh, như vậy có phải Man Hoang thiên hạ sẽ tặng cho Tả Hữu một tấm biển chữ vàng để bày tỏ lòng biết ơn không?"
+Đối phương cười lớn:
 
-"Vì chuyện nhỏ lông gà vỏ tỏi mà muốn chém chém giết giết, sao Đại Kiếm Tiên Nhạc Thanh lại nói sai, hương khói của Văn Thánh nhất mạch điêu linh, không phải là tự tìm sao? Cũng may Văn Thánh nhất mạch học vấn cấm tiệt, may mà năm xưa Thiệu Nguyên vương triều chúng ta cấm tiệt tiêu hủy tối đa là nhanh nhất, thật sự là vạn hạnh. Bằng không Hạo Nhiên Thiên Hạ nếu bị học vấn này làm chủ đương gia, vậy thì thật sự là chơi vui. Bụng dạ hẹp hòi, hưng sư động chúng, may mà nơi này là Kiếm Khí Trường Thành nơi chật hẹp, bằng không còn ở lại Hạo Nhiên Thiên Hạ, trời mới biết có thể dựa vào kiếm thuật, chọc ra cái sọt gì hay không."
+- Vận may của tỷ trông như không tốt, thật ra rất tốt. Vì sao thì tỷ sẽ nhanh chóng biết được đáp án, ngay trong hôm nay.
 
-Chỉ có điều khi những người trẻ tuổi này lòng đầy căm phẫn, cũng không rõ Kiếm Tiên Khổ Hạ ngồi ở bên cạnh Tôn Cự Nguyên, khuôn mặt khổ qua trời sinh càng thêm khổ sở.
+Úc Thù Phu tức giận:
 
-Tôn Cự Nguyên lấy áo rộng tay áo lớn, ngồi ở trên hành lang, cầm trong tay "Tửu Tuyền" chén uống rượu, cười hỏi: "Khổ Hạ, ngươi cảm thấy bọn người này là thật tâm cảm thấy như thế, hay là cố ý giả ngu không có lời nói?"
+- Lại dùng phép khích tướng? Còn chờ gì nữa?!
 
-Khổ Hạ không đưa ra đáp án.
+Thôi Đông Sơn cầm con dấu vẫn luôn giấu kín, nhẹ nhàng ném cho nàng:
 
-Bởi vì hai đáp án đều không phải là đáp án tốt.
+- Tặng tỷ, coi như học sinh ta đây thay tiên sinh bồi tội.
 
-Tôn Cự Nguyên tựa hồ so với Khổ Hạ càng nhận mệnh, ngay cả tức giận cũng lười tức giận, chỉ là mỉm cười nói: "Đám ô hợp, ồn ào quấy nhiễu người ta."
+Úc Thù Phu đón lấy, trợn mắt há miệng:
 
-Khổ Hạ nhẹ nhàng thở ra.
+- Không thể nào! Con dấu này đã bị một kiếm tiên không rõ danh tính mua đi. Ngay cả Tôn Cự Nguyên cũng không tra được người mua là ai. Ngươi mới đến Kiếm Khí Trường Thành mấy ngày... Hơn nữa sao ngươi biết được, lại đúng là con dấu này...
 
-Tốt xấu gì hắn cũng còn có thể ở lại Tôn phủ.
+Thôi Đông Sơn ra vẻ sâu xa, cảm khái:
 
-Nhưng mà một phen cuối cùng của Tôn Cự Nguyên, làm cho Khổ Hạ chỉ cảm thấy bất đắc dĩ, "Ở Hạo Nhiên Thiên Hạ, là đồ không thể ăn bậy, lời có thể nói lung tung. Ở bên chúng ta, vừa vặn điên đảo, đồ vật có thể ăn loạn, lời không thể nói lung tung. Nói hết ở đây, về sau có việc, đừng tìm ta giúp các ngươi cầu tình, Tôn Cự Nguyên ta chỉ là một kiếm tu Ngọc Phác cảnh nho nhỏ, không đủ mấy người mấy kiếm chém, huống chi chém chết còn uổng phí, không rơi vào nửa tốt, tội gì phải thế. Ta liền kỳ quái, Thiệu Nguyên vương triều theo lý thuyết, cũng là nơi văn khí không ít., Sao đám nhãi con này hẳn là đọc không ít sách vở, đạo lý trên sách, cũng nên ăn vào bụng mấy người chứ, ăn sơn trân hải vị, liền lôi phân ra nhét nhà vệ sinh, tốt xấu gì cũng có chút hữu dụng, nhưng ăn đạo lý cũng là thải ra phân, miệng mình thối không thối, người ngoài miệng thối không thối, cái này cũng không nghe thấy đâu? Ta nói trước, những lời này của bọn họ, ở trong Tôn phủ ta nói, thì thôi, dù sao thanh danh Tôn phủ ta, đã hại các ngươi đến đường cái thối rữa, nếu lại ra ngoài ồn ào, Tôn phủ không giúp nhặt xác dừng thi."
+- Đánh cược lớn trong thiên hạ, thắng là nhờ vận may lớn.
 
-Khổ Hạ kiếm tiên bây giờ còn nhớ rõ ánh mắt lạnh lùng cuối cùng của Tôn Cự Nguyên, cùng với câu nói cuối cùng kia, "Dù sao Kiếm Khí Trường Thành chúng ta là thâm sơn cùng cốc, đọc sách biết chữ càng là chuyện hiếm lạ, ra tay không nặng nhẹ, chết không toàn thây, rất khó chắp vá."
+Hắn thu lại những món Úc Thù Phu không coi trọng, đứng dậy:
 
-Khổ Hạ kiếm tiên sau khi mở miệng nói nghỉ ngơi nửa canh giờ, Chu Mai liền lập tức chạy đi tìm Úc Thất Phu, muốn nói cho nàng bên này có Thôi Đông Sơn tới, vừa thấy là muốn gây chuyện.
+- Những thứ vụn vặt này cứ coi là hậu lễ tỷ tặng ta. Nghĩ đến sau này được quen biết tỷ, ta thật vui vẻ.
 
-Kim Chân Mộng vẫn ngồi một mình trên bồ đoàn đối diện, yên lặng tìm kiếm kiếm khí trong kiếm khí.
+Úc Thù Phu vẫn ngồi nguyên, ngẩng đầu hỏi:
 
-Lâm Quân Bích ngồi trên bồ đoàn giải đáp nghi nan cho mấy vị kiếm tu.
+- Tiền bối rốt cuộc là ai?
 
-Chỉ có nghiêm luật đứng dậy, đi hướng đệ tử Trần Bình An tên là Thôi Đông Sơn kia nhảy lên đầu tường, quay đầu nhìn ván cờ, cười hỏi: "Là đề chết sống của Khê Lư tiên sinh《 Khoái Tai Đình Phổ》?"
+Người có thể gọi lão tổ tông là lão già Úc gia, kẻ đánh cờ dở, lại gọi thẳng họ tên Chu lão tiên sinh là Chu Thần Chi, rốt cuộc là ai?
 
-Thôi Đông Sơn ngẩng đầu, liếc mắt nghiêm luật, không nói gì, cúi đầu, tiếp tục một mình giải đề.
+Thiếu niên áo trắng cười híp mắt:
 
-Nghiêm Luật cười nói: "Ngươi ở lại bên này là muốn đánh cờ với ai? Muốn thỉnh giáo Quân Bích về kỳ thuật? Ta khuyên ngươi bỏ ý định này, Quân Bích sẽ không đi tới bên này."
+- Ta là Đông Sơn mà.
 
-Thôi Đông Sơn cũng không ngẩng đầu lên, nói: "Tương Quan Trừng, nếu ngươi muốn bám lấy quan hệ với ta, để trở mặt với đại sư bá của ta, ta cũng khuyên ngươi nhanh cút đi."
+Hắn sải bước đi tìm người khác. Đi được mấy bước, hắn bỗng dừng lại quay đầu:
 
-Tưởng Quan Trừng?
+- Úc tỷ tỷ, sau này đừng ném tiền xem sấp ngửa để quyết định trước mặt người khác nữa. Phần lớn những lúc tỷ cho là vận may hư vô khó nắm bắt, chẳng qua vì cảnh giới của tỷ chưa đủ cao nên mới coi đó là vận may.
 
-Nghiêm luật nhịn không được cười lên.
+- Vận may tốt xấu không nằm ở tỷ, cũng không nằm ở ông trời. Hôm nay có ta, tỷ còn chịu được, sau này thì sao? Hôm nay tỷ chỉ là võ phu Úc Thù Phu, sau này lại là Úc Thù Phu của Úc gia. Câu nói kia của tiên sinh nhà ta, xin tỷ ngày đêm suy ngẫm, cân nhắc cho kỹ.
 
-Thôi Đông Sơn ngẩng đầu, "Sao hả, đệ tử á thánh nhất mạch ngươi, muốn đấu văn với ta ở trên bàn cờ, so chiêu?"
+Úc Thù Phu im lặng. Nàng nắm con dấu trong tay, trên đó không có lạc khoản, chỉ có ấn văn:
 
-Nghiêm Luật lắc đầu, nụ cười điềm đạm, thần sắc thong dong, "Ngươi nhận lầm người, Nghiêm Luật ta tuy rằng không phải đệ tử Á Thánh nhất mạch, nhưng mà cũng rất rõ ràng, môn sinh đệ tử của Á Thánh nhất mạch, tuân thủ quy củ, cẩn tuân thánh hiền dạy bảo, chưa từng làm ra ý khí chi tranh vô vị, đạo lý ở trong sách, ở trong lòng, không ở trên quyền đầu kiếm, đương nhiên cũng sẽ không ở trên bàn cờ. Ta không phải Á Thánh nhất mạch, còn biết được đạo lý này, huống chi là hàng vạn hàng nghìn học sinh của Á Thánh nhất mạch, cho rằng đúng không?"
+“Nhạn đâm tường.”
 
-Thôi Đông Sơn nghi hoặc nói: "Ngươi tên Nghiêm Luật, không phải mộ tổ tiên trong nhà kia bốc nhầm khói xanh, sau đó có hai vị trưởng bối đều từng là quân tử thư viện Tưởng Quan Trừng? Ngươi là con em Nghiêm gia Trung Thổ?"
+Nàng quay đầu nhìn. Thiếu niên áo trắng kia vừa đi vừa đánh quyền trên đầu tường, động tĩnh không nhỏ. Đó là một bộ quyền pháp đại khái chỉ có thể gọi là vương bát quyền.
 
-Nghiêm luật nghiêm khắc hiện lên khuôn mặt, trầm giọng nói: "Xin ngươi nói cẩn thận!"
+Khổ Hạ kiếm tiên đang truyền thụ kiếm thuật cho đám trẻ của vương triều Thiệu Nguyên.
 
-Thôi Đông Sơn khoát tay, một tay cầm quân cờ, một tay cầm sách dạy đánh cờ, liếc mắt nghiêm túc nói: "Vậy thì không nói cái tên Tưởng Quan Trừng ngoài miệng ngươi để ý nữa, trong lòng không để ý chút nào, ta chỉ nói ngươi tốt rồi, lão tổ nhà ngươi, chính là kẻ mỗi lần Thanh Sơn thần tửu yến đều không nhận được thiệp mời, lại cứ muốn l**m mặt đi uống chực Nghiêm Hi, hưởng dự chân chó Nghiêm Đại Trung Thổ Thần Châu?! Mỗi lần uống rượu, cho dù chỉ có thể kính bồi tòa thành cuối cùng..., Nghiêm lão thần tiên không ai thèm hắn, lại cứ thích liều mạng mời rượu, rời khỏi Trúc Hải động thiên, liền lập tức bày ra một bộ "Ta chẳng những từng uống rượu ở Thanh Sơn thần, còn từng uống rượu với ai, lại uống cùng ai đó sắc mặt? Cũng may có một kẻ không thức thời, không cẩn thận nói toạc ra thiên cơ, nói lỡ miệng, bằng không ta nhắm chừng danh hiệu Nghiêm đại cẩu thối như vậy, thật đúng là không truyền lưu nổi, Nghiêm công tử, cho rằng vậy là đúng?"
+Theo quy củ của Kiếm Khí Trường Thành, lên đầu tường thì không có quy củ. Muốn tự lập quy củ, phải dựa vào kiếm mà nói chuyện.
 
-Sắc mặt Nghiêm Luật tái xanh.
+Khổ Hạ đến từ nơi khác, kiếm thuật không thấp nhưng tính tình ôn hòa. Hơn nữa danh tiếng của hắn và đám thiên tài trẻ tuổi này tại Kiếm Khí Trường Thành thật sự rất bình thường. Hắn tự nhiên không nhằm vào thiếu niên áo trắng ngồi xa xa xem bọn họ luyện kiếm.
 
-Thôi Đông Sơn trừng mắt, "Lời nói mà thôi, nhẹ nhàng, khí lượng người đọc sách ở đâu? Vì sao phải động sát tâm đối với ta? Hơn nữa không thẹn với lương tâm, tự nhận giết ta tuyệt đối có lý, ngươi làm sao làm được? Ngươi không sợ ta nhát gan, trực tiếp dọa chết ngươi? Thực không sợ bị đại sư bá của ta băm ngươi thành thịt nát à? Hay là nói, bởi vì nhìn không ra ta tu vi cao thấp, lại kiêng kị tiên sinh cảnh giới tu sĩ nhà ta cao hơn thiên ngoại, Cộng thêm chính ngươi lại là phế vật, cho nên mới nhẫn nhịn, nghĩ quân tử báo thù mười năm không muộn? Ngươi nghĩ đi, dựa theo đạo lý này, lại dựa theo quy củ của các ngươi, ngươi cùng Đại sư bá trong miệng các ngươi, chẳng phải là một loại người? Chẳng qua nghiêm luật của ngươi là tiểu phế vật lão cẩu thối dạy dỗ ra, cho nên kiếm thuật ở hố phân, kiếm thuật của Đại sư bá nhà ta ở trên trời, chỉ một khác biệt nho nhỏ như vậy mà thôi."
+Thiếu niên chỉ nhìn vài lần rồi tự đọc sách. Khổ Hạ liếc qua, thấy đó là một bộ kỳ phổ tên 《Khoái Tai Đình Phổ》, lưu truyền rất rộng ở Trung Thổ Thần Châu, nhất là vương triều Thiệu Nguyên, chuyên giải những thế cờ sống chết.
 
-Nghiêm Luật nghiến răng nghiến lợi, hai tay nắm lại, cuối cùng lại mỉm cười.
+Trong đó có một câu rất được tôn sùng: “Ta đặt quân, cần xét nước ứng phó mạnh nhất của đối phương. Lấy nước cờ mạnh chờ nước cờ mạnh, rồi lại dùng nước cờ mạnh để thắng, chẳng phải vui sao?”
 
-Thôi Đông Sơn buông quân cờ cùng sách dạy đánh cờ, hít sâu một hơi, làm một tư thế dồn khí đan điền, tươi cười sáng lạn nói: "Nhìn xem, đạo lý của các ngươi, ta cũng biết, quả nhiên giảng đạo lý của các ngươi, đơn giản hơn chút, cũng thư thái chút."
+Khổ Hạ mỉm cười. Tu vi người này có lẽ không thấp, nhưng che giấu rất tốt, ngay cả hắn cũng khó nhìn thấu. Hẳn không phải tu sĩ Quan Hải hay Long Môn cảnh; còn là địa tiên Kim Đan hay Nguyên Anh thì khó nói.
 
-Thôi Đông Sơn khoát tay, vẻ mặt chán ghét nói: "Nghiêm gia chó nhỏ mau lui ra, nhanh về nhà đi, l**m mông lão cẩu nhà ngươi đi, lão tổ nhà ngươi đạo hạnh cao, trên mông chút cơm thừa canh cặn, là có thể cho ngươi ăn no. Còn chạy tới Kiếm Khí Trường Thành làm cái gì, theo sau Lâm Quân Bích vẫy đuôi à? Luyện kiếm luyện kiếm luyện chùy nhi kiếm ngươi. Cũng không nghĩ Lâm đại công tử chúng ta là ai, đạo đức tốt, người trong thần tiên..."
+Chẳng lẽ hắn muốn dùng cờ để gây sự? “Thiếu niên” không rõ tuổi thật này có lẽ tìm nhầm chỗ rồi?
 
-Nghiêm luật sắp tế ra phi kiếm.
+Ngoài truyền thụ kiếm thuật, Khổ Hạ cũng để các tài năng trẻ của Thiệu Nguyên tự tu hành, tìm cơ duyên cho mình. Thiếu niên thuộc một mạch Văn Thánh kia rất kiên nhẫn, ngồi đọc kỳ phổ, còn lấy bàn cờ ra tự mình giải thế cờ.
 
-Lâm Quân Bích vừa lúc đứng lên, "Được rồi, Thôi Đông Sơn, ta chơi cờ với ngươi là được, chút ngôn ngữ giao phong ấy, không nói cũng được."
+Đến lúc nghỉ, các kiếm tu trẻ tuổi đều như vô tình vòng tránh hắn. Bọn họ không sợ hắn, cũng không sợ tiên sinh Trần Bình An của hắn, mà sợ đại sư huynh của Trần Bình An.
 
-Thôi Đông Sơn một tay bóp mũi, một tay hô: "Lâm công tử mau mau ngồi xuống, ta chỉ có thể dựa vào tiên khí của ngươi, đến giúp đỡ xua tan những mùi nước tiểu này."
+Chuyện Tả Hữu xuất kiếm, trên đầu thành bọn họ ngầm hiểu không nhắc tới nửa chữ, nhưng ở Tôn phủ của kiếm tiên Tôn Cự Nguyên lại nói không ít.
 
-Nghiêm Luật vẫn muốn xuất kiếm, chỉ là lại bị Khổ Hạ Kiếm Tiên dùng ngôn ngữ tâm âm ngăn cản: "Trái phải sẽ không vì trái phải mình xuất kiếm, lại sẽ vì Văn Thánh nhất mạch xuất kiếm, hơn nữa tuyệt đối mặc kệ ngươi là ai, là cảnh giới gì."
+- Đại kiếm tiên Nhạc Thanh chỉ tùy tiện nói vài câu về hương hỏa của một mạch Văn Thánh thì đã sao? Tả Hữu phải phân sinh tử với người ta à? Kiếm thuật cao hơn một chút là có lý? Không hổ là cao đồ của Văn Thánh, kiếm thuật thật cao, đạo lý thật lớn.
 
-Sắc mặt Nghiêm Luật trắng bệch, nhảy xuống đầu tường, trở về bồ đoàn bên kia.
+- Nhạc Thanh chiến công hiển hách ở Kiếm Khí Trường Thành, trải qua bao nhiêu đại chiến, giết bao nhiêu yêu vật? Tả Hữu mới tham gia một trận. Nếu Nhạc Thanh trọng thương, thậm chí bị đánh chết, chẳng lẽ Man Hoang thiên hạ phải tặng Tả Hữu một tấm biển vàng cảm tạ?
 
-Khi lướt qua Lâm Quân Bích, Lâm Quân Bích vỗ vỗ vai nghiêm khắc, mỉm cười nói: "Có ta, kiếm thuật của ta không được, kỳ thuật vẫn tạm được, đúng không?"
+- Vì chuyện lông gà vỏ tỏi mà đòi chém giết. Nhạc Thanh nói sai sao? Hương hỏa một mạch Văn Thánh điêu linh chẳng phải tự chuốc lấy? May mà học vấn của họ bị cấm, năm xưa Thiệu Nguyên chúng ta tiêu hủy nhanh nhất, thật là vạn hạnh.
 
-Nghiêm Luật chịu hết ủy khuất cùng khuất khuất nhục gật đầu thật mạnh.
+- Nếu Hạo Nhiên Thiên Hạ để thứ học vấn ấy làm chủ thì vui rồi. Bụng dạ hẹp hòi, hưng sư động chúng; may đây là Kiếm Khí Trường Thành chật hẹp, nếu còn ở Hạo Nhiên Thiên Hạ thì trời biết bọn họ dựa vào kiếm thuật gây ra tai họa gì.
 
-Lâm Quân Bích phất hai tay áo, nhẹ nhàng ngồi đối diện bàn cờ.
+Đám người trẻ tuổi lòng đầy căm phẫn, không nhận ra Khổ Hạ kiếm tiên ngồi cạnh Tôn Cự Nguyên, gương mặt vốn đã khổ sở càng thêm khó coi.
 
-Thôi Đông Sơn nhẹ nhàng xoa xoa tay, vẻ mặt kinh ngạc lại cực kỳ hâm mộ nói: "Lời nói cử chỉ của Lâm công tử, tiên khí mờ mịt như thế, nhất định là từ trong bụng mẹ mang ra nhỉ? Bằng không sao có thể làm được nước chảy mây trôi, tiên khí mênh mông như thế? Tuyệt đối không có khả năng, tuyệt đối là một loại thiên phú thần thông vô hình!"
+Tôn Cự Nguyên mặc áo rộng tay dài, ngồi trên hành lang, cầm chén rượu “Tửu Tuyền”, cười hỏi:
 
-Lâm Quân Bích cười nói: "Ta nói rồi, lời nói tranh phong không có gì thú vị, chơi cờ là được. Nếu như ngươi cứ dây dưa vô lại như vậy, sẽ không chơi cờ với ngươi nữa."
+- Khổ Hạ, ngươi thấy bọn họ thật lòng nghĩ vậy, hay cố ý giả ngu nói bừa?
 
-Thôi Đông Sơn ngồi nghiêm chỉnh, "Đánh cuộc cái gì?"
+Khổ Hạ không trả lời. Cả hai đáp án đều chẳng tốt đẹp gì.
 
-Lâm Quân Bích lắc đầu nói: "Không cược, trên bàn cờ chỉ phân thắng bại."
+Tôn Cự Nguyên dường như còn cam chịu hơn hắn, ngay cả tức giận cũng lười, chỉ mỉm cười:
 
-Thôi Đông Sơn cũng lắc đầu, "Chơi cờ không có phần thưởng, có ý tứ sao? Ta chính là chạy tới kiếm tiền..."
+- Một đám ô hợp, ồn ào quấy rầy người ta.
 
-Nói tới đây, Thôi Đông Sơn quay đầu, thiếu niên lang áo trắng vừa mới có chút phong phạm kỳ thủ, dùng sức ngoắc tay cười nói: "Úc tỷ tỷ, bên này bên này, ta muốn chơi cờ với Lâm công tử, xem ta thắng hắn như thế nào!"
+Khổ Hạ nhẹ nhõm thở ra. Tốt xấu gì hắn vẫn có thể ở lại Tôn phủ. Nhưng những lời tiếp theo khiến hắn chỉ biết bất đắc dĩ.
 
-Lâm Quân Bích cũng ngẩng đầu, chỉ là so với Thôi Đông Sơn miệng không che đậy, Lâm Quân Bích cũng là thần tiên khách tuấn mỹ, lại là phong độ nhẹ nhàng, hướng Úc Dận Phu kia bất đắc dĩ cười.
+- Ở Hạo Nhiên Thiên Hạ, đồ không thể ăn bừa, lời có thể nói bậy. Ở đây chúng ta vừa khéo ngược lại: đồ có thể ăn bừa, lời không thể nói bậy. Ta nói hết ở đây, sau này có chuyện đừng tìm ta cầu tình. Tôn Cự Nguyên ta chỉ là kiếm tu Ngọc Phác cảnh nhỏ bé, chịu không nổi mấy kiếm của người ta; bị chém chết cũng uổng mạng, chẳng được lợi gì, cần gì phải thế?
 
-Úc Phu mặt không biểu cảm.
+- Ta lấy làm lạ, Thiệu Nguyên vương triều vốn có không ít văn khí, đám nhóc này hẳn đã đọc không ít sách, sao đạo lý trong sách lại không vào bụng được chút nào? Ăn sơn trân hải vị, thải phân vào nhà xí tốt xấu còn có chút tác dụng. Nhưng ăn đạo lý rồi cũng thải ra phân, miệng mình thối, miệng người khác thối, chẳng lẽ chúng không ngửi thấy?
 
-Chu Mai buồn cười, thân mật gọi Úc Tỳ Phu là "ở suối ở suối", sau đó ai thán nói: "Quả nhiên là một kẻ ngốc."
+- Ta nói trước, ở Tôn phủ của ta thì thôi, dù sao thanh danh Tôn phủ đã bị các ngươi làm thối khắp đường phố. Nếu ra ngoài còn ồn ào như vậy, Tôn phủ sẽ không giúp nhặt xác.
 
-Úc Phu trăm mối cảm xúc ngổn ngang trong lòng.
+Khổ Hạ vẫn nhớ ánh mắt lạnh lùng cuối cùng của Tôn Cự Nguyên, cùng câu nói:
 
-Quả nhiên, đối phương đoán chắc Chu Mai sẽ nói với mình việc này, cũng coi như đoán chắc mình sẽ xuất hiện, mà nữ nhân Úc gia của mình xuất hiện, tự nhiên sẽ k*ch th*ch một tia lòng hiếu thắng của loại người như Lâm Quân Bích, đối với người tu đạo mà nói, một tia ý niệm trong đầu, cũng không phải là việc nhỏ.
+- Kiếm Khí Trường Thành chúng ta là nơi thâm sơn cùng cốc, người đọc sách biết chữ hiếm lắm. Ra tay không biết nặng nhẹ, chết không toàn thây thì khó mà chắp vá.
 
-Vẫn như cũ đều ở trong tính kế của Thôi Đông Sơn này.
+Khổ Hạ kiếm tiên vừa cho nghỉ nửa canh giờ, Chu Mai đã lập tức chạy đi tìm Úc Thù Phu, định báo rằng Thôi Đông Sơn tới đây, trông là biết muốn gây chuyện.
 
-Úc Dận Phu không đến gần đánh cờ, ngồi xếp bằng, bắt đầu gặm bánh nướng áp chảo, Chu Mai định tới bàn cờ xem náo nhiệt, lại bị Úc Dận Phu ngăn lại cùng nói chuyện phiếm.
+Kim Chân Mộng vẫn một mình ngồi trên bồ đoàn, lặng lẽ tìm kiếm kiếm khí trong kiếm khí. Lâm Quân Bích ngồi giải đáp thắc mắc cho mấy kiếm tu.
 
-Thôi Đông Sơn nhìn về phía bóng lưng của Úc Phu, nhẹ giọng cảm khái nói: "Úc tỷ tỷ này của ta, nếu có thể nhìn ta thêm một cái là được rồi, có thể giúp ta kỳ lực tăng vọt, phần thắng càng nhiều."
+Chỉ có Nghiêm Luật đứng dậy đi về phía Thôi Đông Sơn. Hắn nhảy lên đầu tường, nhìn ván cờ, cười hỏi:
 
-Lâm Quân Bích nín thở ngưng thần không nói lời nào.
+- Đây là thế cờ sống chết trong 《Khoái Tai Đình Phổ》của Khê Lư tiên sinh?
 
-Thôi Đông Sơn quay đầu, "Cược nhỏ vui vẻ, một đồng tiền."
+Thôi Đông Sơn ngẩng đầu liếc hắn, không nói gì, lại cúi xuống tiếp tục giải cờ.
 
-Lâm Quân Bích hỏi: "Đồng tiền?"
+Nghiêm Luật cười nói:
 
-"Bằng không? Một đồng Tuyết Hoa tiền, còn tính là đánh bạc nhỏ?"
+- Ngươi ở đây muốn đánh cờ với ai? Muốn thỉnh giáo Quân Bích? Ta khuyên ngươi bỏ ý định ấy đi, Quân Bích sẽ không tới đâu.
 
-Thôi Đông Sơn chậc chậc nói: "Lâm công tử thật có tiền."
+Thôi Đông Sơn không ngẩng đầu:
 
-Lâm Quân Bích cười nói: "Ta đi đâu tìm một đồng tiền cho ngươi, đúng rồi, nghĩ đến thua cũng không nhiều, thắng càng lớn, dù sao thắng một đồng tiền của ta, còn có thể nói là thắng được một đồng tiền Cốc Vũ, tương lai càng có thể khiến khán giả nhớ kỹ."
+- Tưởng Quan Trừng, nếu ngươi muốn bám lấy quan hệ với ta để trở mặt với đại sư bá của ta, ta cũng khuyên ngươi mau cút đi.
 
-Thôi Đông Sơn cả kinh nói: "Tâm tư tuyệt diệu thần tiên khó dò này của ta, đã giấu tốt như thế, Lâm công tử cũng đoán được?! Đồng tiền trong túi ta, chẳng phải là phải có phiêu lưu lớn lao bỏ nhà ra đi tái giá người khác?!"
+Tưởng Quan Trừng? Nghiêm Luật không nhịn được bật cười.
 
-Lâm Quân Bích không thể không thừa nhận, mình cũng bị người trước mắt làm cho ghê tởm. Đương nhiên so với nghiêm luật đã định trước đã trở thành một trò cười lớn, vẫn tốt hơn ngàn vạn. Hôm nay đối thoại, về sau ở vương triều Thiệu Nguyên, sẽ có không ít người nghe nói. Nghiêm Luật từ nay về sau ở Kiếm Khí Trường Thành luyện kiếm, còn có thu hoạch hay không, rất khó nói, người tu đạo, trong lòng có khúc mắc quét không xong, lại liên quan đến danh dự gia tộc càng khó giải quyết hơn, ít nhất cũng sẽ làm hại Nghiêm Luật so với thu hoạch vốn nên tới tay, giảm đi vài phần.
+Thôi Đông Sơn ngẩng đầu:
 
-Lâm Quân Bích nói: "Nói chắc rồi, thắng thua đều là một đồng tiền. Đoán trước?"
+- Sao, đệ tử một mạch Á Thánh như ngươi muốn đấu văn với ta trên bàn cờ à?
 
-Thôi Đông Sơn hỏi: "Lâm công tử kỳ thuật trác tuyệt, không vui vẻ để cho ta đánh ba quân? Không muốn mang theo một đồng tiền đại thắng mà về à?"
+Nghiêm Luật lắc đầu, nụ cười điềm đạm:
 
-Lâm Quân Bích đã đưa tay ra bình cờ, tay nắm quân cờ, bất đắc dĩ nói: "Có thể nói chút quy củ hay không, ngươi và ta người trên núi, nhưng chuyện đánh cờ đoán trước, vẫn là phải nói một chút quy củ dưới núi chứ?"
+- Ngươi nhận lầm người rồi. Ta tuy không thuộc một mạch Á Thánh, nhưng cũng biết môn sinh đệ tử của họ tuân thủ quy củ, cẩn tuân lời thánh hiền, chưa từng tranh giành ý khí vô vị. Đạo lý ở trong sách, trong lòng, không ở trên nắm đấm hay mũi kiếm, dĩ nhiên cũng không ở trên bàn cờ. Ta còn biết đạo lý này, huống chi hàng vạn học sinh của một mạch Á Thánh. Ngươi nói đúng không?
 
-Bởi vì thiếu niên đối diện đã sớm đặt mông lên, mắt trợn trừng, vểnh tai, Lâm Quân Bích cũng không phải không có biện pháp che lấp tiếng quân cờ, chỉ là tu vi đối phương cao thấp không biết, một khi mình làm như thế, đối phương một khi là cảnh giới Địa Tiên, kỳ thật vẫn là mình thua thiệt. Nhưng đánh cờ là chuyện của song phương, Lâm Quân Bích cũng không thể để cho Khổ Hạ Kiếm Tiên hỗ trợ nhìn chằm chằm.
+Thôi Đông Sơn nghi hoặc:
 
-Thôi Đông Sơn ngồi trở lại tại chỗ, gật gật đầu, mệt mỏi nói: "Coi như ngươi thắng tiên thủ. Lâm công tử kỳ thuật sâu cạn tạm thời khó mà nói, kỳ thuật ngoài bàn cờ, thật sự là rất lợi hại. So với Nghiêm Cẩu Chân thiếu chút nữa đã muốn dùng đạo lý của mình đập nát mặt mình kia, là mạnh hơn rất nhiều rất nhiều."
+- Ngươi tên Nghiêm Luật, không phải Tưởng Quan Trừng có mộ tổ bốc khói xanh, hai vị trưởng bối từng làm quân tử thư viện? Ngươi là con cháu Nghiêm gia ở Trung Thổ?
 
-Lâm Quân Bích buông tay ra, một lần nữa nắm lên một quân cờ.
+Nghiêm Luật sa sầm mặt:
 
-Lợi hại nhất chính là Lâm Quân Bích vốn đang ở thế yếu, chính vì hắn ta đã giữ quy củ trước nên mới có thể ép đối phương dù là tu sĩ thượng ngũ cảnh cũng phải tuân thủ quy củ, chưa chắc thiên hạ đã thế sự đã như vậy, nhưng cuối cùng vẫn phải ở gần bàn cờ này.
+- Xin ngươi nói năng cẩn thận!
 
-Tưởng Quan Trừng những kiếm tu trẻ tuổi đứng xa xa quan chiến không tới gần, người người bội phục không thôi.
+Thôi Đông Sơn phất tay, một tay cầm quân cờ, tay kia cầm sách:
 
-Đoán chuyện trước, Thôi Đông Sơn lấy ra một đồng Tiểu Thử tiền, tung xuống đất, nhìn mặt sau, sau đó vận khí không tệ, đoán tiên phong.
+- Vậy không nói đến Tưởng Quan Trừng mà ngoài miệng ngươi để ý, trong lòng chẳng hề để ý nữa. Chỉ nói nhà ngươi thôi. Lão tổ nhà ngươi là Nghiêm Hi, kẻ mỗi lần Thanh Sơn thần tửu yến đều không được mời, vẫn dày mặt đi uống chực, nổi danh là Nghiêm đại cẩu ở Trung Thổ Thần Châu ấy à?
 
-Úc Tăng Phu nhìn thấy cảnh này thì xoa đầu, đau đầu.
+- Mỗi lần chỉ được ngồi cuối bàn, chẳng ai thèm để ý, lão thần tiên vẫn liều mạng mời rượu. Rời Trúc Hải động thiên lại bày vẻ ta chẳng những uống Thanh Sơn thần, còn từng uống với người này người nọ. May có kẻ không biết điều lỡ miệng nói toạc ra, bằng không danh hiệu Nghiêm đại cẩu thối thật khó truyền đi. Nghiêm công tử thấy đúng không?
 
-Song phương trước sau hạ cờ.
+Sắc mặt Nghiêm Luật tái xanh. Thôi Đông Sơn trừng mắt:
 
-Lâm Quân Bích thần sắc tự nhiên, người này lấy một quyển sách cổ có tên tuổi cực ít trong thế giới Tiểu Đào Hoa Tuyền Phổ làm mẫu trước.
+- Chỉ là lời nói nhẹ nhàng thôi, khí lượng người đọc sách của ngươi đâu? Sao lại động sát tâm với ta, còn tự thấy giết ta rất có lý? Không sợ ta nhát gan bị ngươi dọa chết à? Hay không sợ đại sư bá của ta băm ngươi thành thịt vụn?
 
-Xảo diệu ở chỗ có thể tốc chiến tốc thắng, tinh túy ở trên mười chữ "Lấy cực có quy củ, xuống vô lý tiên thủ", chẳng qua không chịu nổi nhất danh thủ quốc gia thoáng cân nhắc cân nhắc, nhất là Lâm Quân Bích sớm đã xem qua quyển sách dạy đánh cờ này, như vậy trên bàn cờ rốt cuộc ai mới là tiên thủ? Rất rõ ràng.
+- Hay bởi ngươi không nhìn thấu tu vi của ta, lại kiêng kỵ tiên sinh nhà ta, thêm việc bản thân là phế vật, nên đành nhẫn nhịn, nghĩ quân tử báo thù mười năm chưa muộn? Theo đạo lý và quy củ của các ngươi, chẳng phải ngươi và đại sư bá nhà ta là cùng một loại người?
 
-Lâm Quân Bích hạ cờ không nhanh không chậm, đối phương vẫn hạ cờ như bay, giống như nắm chắc thắng lợi trong tay.
+- Chỉ khác một chút: ngươi là tiểu phế vật do lão chó thối dạy ra, kiếm thuật ở dưới hố phân; kiếm thuật của đại sư bá nhà ta lại ở trên trời.
 
-Lâm Quân Bích cố ý ẩn giấu trong mấy lần mấu chốt.
+Nghiêm Luật nghiến răng, hai tay nắm chặt, cuối cùng lại nở nụ cười.
 
-Vẫn hạ tới hơn hai trăm ba mươi chiêu, lúc này mới thua.
+Thôi Đông Sơn đặt cờ và sách xuống, hít sâu, làm tư thế vận khí đan điền, cười rạng rỡ:
 
-Một đồng tiền mà thôi.
+- Thấy chưa, đạo lý của các ngươi ta cũng biết. Quả nhiên giảng đạo lý kiểu các ngươi đơn giản hơn, cũng thoải mái hơn.
 
-Huống chi thật sự cho rằng mình thắng cờ, sẽ khiến loại người nghiêm khắc này cảm động đến rơi nước mắt?
+Hắn phất tay, vẻ mặt chán ghét:
 
-Vậy thì không phải là nghiêm luật xấu, mà là Lâm Quân Bích ngu xuẩn.
+- Chó con Nghiêm gia mau lui ra, về liếm mông lão chó nhà ngươi đi. Đạo hạnh lão tổ ngươi cao, chút cơm thừa canh cặn trên mông cũng đủ cho ngươi ăn no. Chạy đến Kiếm Khí Trường Thành làm gì, theo sau Lâm Quân Bích vẫy đuôi à? Luyện kiếm cái rắm! Cũng không nghĩ xem Lâm đại công tử là ai, đạo đức tốt, là người trong thần tiên...
 
-Danh dự Nghiêm gia to như vậy từ khi nào lại cần một thiếu niên của vương triều Thiệu Nguyên tới cứu?
+Nghiêm Luật sắp tế ra phi kiếm thì Lâm Quân Bích đứng dậy:
 
-Lâm Quân Bích chỉ thua, hơn nữa thua kém một chút, lấy cờ thua của mình, tận tâm hết sức lại tiếc nuối bị thua, nghiêm luật mới có thể chân chính cảm ơn vài phần, đương nhiên cũng sẽ không. Nghiêm Luật là người như thế, nói cho cùng, hư danh chính là hư danh, chỉ có thật sự thiết thân lợi ích, mới có thể khiến hắn chân chính động tâm, hơn nữa nguyện ý nhớ kỹ cùng Lâm Quân Bích kết minh, là có lời.
+- Đủ rồi, Thôi Đông Sơn. Ta chơi cờ với ngươi là được, không cần tranh cãi bằng lời nữa.
 
-Lâm Quân Bích sau khi ném quân cờ nhận thua, cười nói: "Một đồng tiền, ta bây giờ trên người thật đúng là không có, yên tâm, ta đến thành trì bên kia, tự mình cùng người ta mượn đồng tiền này, dù sao đợi đến lúc mượn được thì thôi, đến lúc đó ta đưa tiền tới cửa, vẫn có thể nhờ người hỗ trợ, đều do người thắng quyết định."
+Thôi Đông Sơn một tay bịt mũi, tay kia vẫy gọi:
 
-Thôi Đông Sơn nhẹ nhàng thở ra một hơi, nhìn ván cờ hiểm trở thắng bại trong một lát, sau đó lập tức ngẩng đầu không nhìn nữa, cười nói: "Khó trách khó trách, Lâm công tử khẳng định là vụng trộm xem《 Hoa Tuyền Phổ 》, ta đã nói mà, ta bắt đầu trăm lần thất bại của thần tiên này, cho tới bây giờ sẽ chỉ làm đối thủ vừa tới trung bàn đã nhận thua."
+- Lâm công tử mau ngồi xuống, ta phải nhờ tiên khí của ngươi xua bớt mùi nước tiểu này.
 
-Lâm Quân Bích cười cười, không để ý lắm. Được lợi còn khoe mẽ, không gì hơn cái này.
+Nghiêm Luật vẫn muốn xuất kiếm, nhưng Khổ Hạ kiếm tiên truyền tiếng lòng ngăn lại:
 
-Thôi Đông Sơn nghĩ nghĩ, "Lâm công tử có thể tự mình vay tiền hay không, ta chung quy không thể đi theo phía sau mông Lâm công tử, ta chung quy chưa từng học được tinh túy môn phong Nghiêm gia, nhưng mà Lâm công tử có phải tự mình đưa tiền hay không, ta thật ra có ý tưởng, nếu ván thứ hai ta thắng, phần thưởng thuộc về ta, ta sẽ phá lệ lấy ra một chút phong phạm danh thủ quốc gia, Lâm công tử có thể không cần tự mình đăng môn, để cho Úc tỷ tỷ đưa tiền là được. Nếu là Lâm công tử thắng... Sao có thể, ta người này chơi cờ, bản lãnh áp đáy hòm đó là tuyệt đối không có, dù sao toàn bộ kỳ chiêu kỳ thuật của ta, đều là sức cờ áp đáy hòm của người khác, tay thần tiên của người khác, ở trong mắt ta khắp nơi là vô lý..."
+- Tả Hữu sẽ không vì bản thân mà xuất kiếm, nhưng sẽ vì một mạch Văn Thánh mà xuất kiếm. Hắn tuyệt đối chẳng quan tâm ngươi là ai, cảnh giới nào.
 
-Lâm Quân Bích thu hồi quân cờ, muốn đứng lên.
+Sắc mặt Nghiêm Luật trắng bệch, nhảy xuống đầu tường trở về bồ đoàn. Khi lướt qua, Lâm Quân Bích vỗ vai hắn, mỉm cười:
 
-Sau đó liếc mắt, Lâm Quân Bích đột nhiên phát hiện chẳng biết lúc nào, quyển Khoái Tai Kỳ Phổ kia đã bị thiếu niên áo trắng đặt ở trên mông.
+- Có ta đây. Kiếm thuật của ta không được, kỳ thuật vẫn tạm ổn, đúng không?
 
-Lâm Quân Bích vẫn không có thần sắc biến hóa gì.
+Nghiêm Luật chịu đủ ấm ức và nhục nhã, nặng nề gật đầu. Lâm Quân Bích phất tay áo, nhẹ nhàng ngồi xuống đối diện bàn cờ.
 
-Người sáng tác phổ này là quốc thủ đứng thứ hai của vương triều Thiệu Nguyên, người đứng đầu đương nhiên là người truyền đạo của Lâm Quân Bích, quốc sư của vương triều Thiệu Nguyên.
+Thôi Đông Sơn xoa tay, vẻ mặt vừa kinh ngạc vừa hâm mộ:
 
-Nhưng vị danh thủ quốc gia này lại luận bàn rất nhiều kỳ thuật với Lâm Quân Bích, cho nên vị Khê Lư tiên sinh này miễn cưỡng xem như nửa sư nửa hữu trên kỳ đạo của Lâm Quân Bích.
+- Lời nói cử chỉ của Lâm công tử tiên khí mờ mịt như vậy, nhất định đã mang từ trong bụng mẹ ra? Bằng không sao có thể tự nhiên như mây trôi nước chảy? Đây tuyệt đối là một loại thiên phú thần thông vô hình!
 
-Thôi Đông Sơn thu lại quân cờ trong hũ cờ của mình, đầu vai cong vẹo, n*ng m*ng lên, rút ra bản sách dạy đánh cờ kia, nhẹ giọng cười nói: "Nhát sống bán chết đề, thật sự là cười chết ta, rõ ràng chính là đề sống dở chết dở mà, nhìn nhiều, là thật sẽ đánh cờ sống dở chết dở, vị Khê Lư tiên sinh này của chúng ta, dụng tâm thâm thúy lương khổ a, không tiếc tự hủy danh dự, cũng phải để cho kỳ thủ thế gian nhìn cái gì gọi là ví dụ phản diện, đáng kính đáng buồn, nhưng ca đáng khóc, Lâm công tử, lát nữa ngươi nhất định phải giúp ta giới thiệu, quốc thủ đức độ như vậy, trước kia không có, về sau nhắm chừng cũng sẽ không có."
+Lâm Quân Bích cười:
 
-Lâm Quân Bích giơ tay lên, ý bảo "người trong nhà" ở phía xa xa cũng đừng nói gì về nhà mình nữa.
+- Ta đã nói tranh cãi bằng lời không thú vị, cứ chơi cờ đi. Nếu ngươi tiếp tục dây dưa vô lại, ta sẽ không chơi nữa.
 
-Một khi mở miệng, thật sự ghê tởm sẽ không là Thôi Đông Sơn, sẽ chỉ là Lâm Quân Bích hắn, đương nhiên những người đó, nhắm chừng có một nửa là thực tức giận, thay hắn cùng Khê Lư tiên sinh bênh vực kẻ yếu, nhưng còn thừa lại một nửa, chính là vì mục đích này mà đến, Nguyễn Cung chắp lửa thành công, sau đó sẽ có thể xem náo nhiệt, sống chết mặc bây.
+Thôi Đông Sơn ngồi ngay ngắn:
 
-Lâm Quân Bích căn bản không cho bọn họ cơ hội này.
+- Cược gì?
 
-Chính mình ngăn cản, còn dám mở miệng, tự nhiên là đầu óc quá ngu xuẩn, hẳn là sẽ không có.
+- Không cược, trên bàn cờ chỉ phân thắng bại.
 
-Quả nhiên, không có ai nói chuyện.
+- Chơi cờ không có phần thưởng thì thú vị gì? Ta đến để kiếm tiền mà...
 
-Thôi Đông Sơn đem bản sách dạy đánh cờ kia tiện tay ném ra, ném ra ngoài đầu tường, tự mình gật đầu nói: "Nếu bị các súc sinh Man Hoang thiên hạ nhặt đi, tất nhiên vừa thấy liền hiểu, một chút sẽ hiểu, từ nay về sau, coi như ai cũng đi tìm chết, Kiếm Khí Trường Thành không lo nữa, Hạo Nhiên Thiên Hạ không lo nữa."
+Nói đến đây, hắn quay đầu, ra sức vẫy tay:
 
-Lâm Quân Bích ngồi trở lại chỗ cũ, cười nói: "Lần này ngươi thắng trước, ta và ngươi lại đánh tiếp ván, cược cái gì?"
+- Úc tỷ tỷ, bên này! Ta muốn chơi cờ với Lâm công tử, xem ta thắng hắn thế nào!
 
-Thôi Đông Sơn cười nói: "Lần này hai anh em chúng ta cược lớn chút, một đồng Tuyết Hoa tiền! Ngươi ta đều tự ra một đề tài sống chết, như thế nào? Thẳng đến lúc ai không giải được ai thua, đương nhiên, ta là người thắng cờ, thì không cần đoán trước, trực tiếp nhường trước, ngươi ra đề trước, ta giải chết sống, chỉ cần không giải được, ta sẽ trực tiếp nghĩ quẩn một chút, nhảy xuống đầu tường, liều mạng, cũng phải từ trong tay súc sinh đại yêu phụng như chí bảo, chỉ cảm thấy thì ra chơi cờ đơn giản như thế, đoạt lại bộ sách dạy đánh cờ giá trị liên thành kia. Ta thắng rồi, Lâm công tử liền ngoan ngoãn tặng ta một đồng Tuyết Hoa tiền nữa."
+Lâm Quân Bích cũng ngẩng đầu, bất đắc dĩ cười với Úc Thù Phu, phong độ nhẹ nhàng. Nàng không đổi sắc mặt. Chu Mai buồn cười, thân mật gọi nàng “Tại Khê”, rồi than:
 
-Lâm Quân Bích lắc đầu nói: "Không hiểu sống chết, vẫn đánh cờ như cũ."
+- Quả nhiên là một kẻ ngốc.
 
-Hiển nhiên đối phương đã có chuẩn bị mà đến, không nên bị dắt mũi đi.
+Trong lòng Úc Thù Phu trăm mối ngổn ngang. Đối phương đã đoán chắc Chu Mai sẽ báo tin và nàng sẽ tới. Một nữ tử Úc gia như nàng xuất hiện tự nhiên sẽ kích thích chút hiếu thắng của Lâm Quân Bích. Với người tu đạo, một ý niệm nhỏ cũng chẳng phải việc nhỏ. Tất cả vẫn nằm trong tính toán của Thôi Đông Sơn.
 
-Thôi Đông Sơn vẻ mặt kinh ngạc, tựa như có chút bất ngờ.
+Nàng không đến gần xem cờ, ngồi xếp bằng gặm bánh. Chu Mai muốn qua xem náo nhiệt, lại bị nàng giữ lại nói chuyện.
 
-Lâm Quân Bích không dám xem thường, kỳ thuật của đối phương tuyệt đối không phải là loại nghiêm luật có thể so sánh, kỳ lực của người này tuyệt đối không thấp hơn biên cảnh của sư huynh. Về phần kỳ lực cao nhất của đối phương rốt cuộc ở nơi nào, tạm thời khó mà nói, cần mình xách cổ áo đối phương lên nhấc lên một chút.
+Thôi Đông Sơn nhìn bóng lưng nàng, khẽ cảm khái:
 
-Lâm Quân Bích cũng lười nhìn sắc mặt của đối phương, vươn một tay ra: "Lần này đổi lại là ngươi, ta đoán trước."
+- Úc tỷ tỷ chịu nhìn ta thêm một cái thì tốt rồi, có thể giúp kỳ lực ta tăng vọt, phần thắng nhiều hơn.
 
-Một ván nữa, nhìn sâu cạn của đối phương nhiều hơn một chút.
+Lâm Quân Bích nín thở, tập trung không nói. Thôi Đông Sơn quay đầu:
 
-Dù sao lại bị người này kéo lên tiên sinh Khê Lư, cùng với  Khoái Tai Đình Phổ  đã nổi tiếng lâu.
+- Cược nhỏ cho vui, một đồng tiền.
 
-Chỉ có điều thắng thua trên bàn cờ vẫn rất là kém, mình còn không quan tâm thanh danh thắng thua, chẳng lẽ thua, Khê Lư tiên sinh liền không phải là quốc thủ nhất lưu của Trung Thổ Thần Châu, chẳng lẽ Khoái Tai Đình Kỳ Phổ sẽ bị đuổi ra khỏi danh phổ thiên hạ?
+- Đồng tiền?
 
-Ván cờ thứ hai.
+- Bằng không? Một đồng tiền tuyết hoa còn tính là cược nhỏ sao? Lâm công tử thật có tiền.
 
-Lâm Quân Bích thi rất nhiều.
+Lâm Quân Bích cười:
 
-Thiếu niên áo trắng đối phương, thi lâu hơn, rốt cuộc không còn cố ý vò đầu bứt tai, hoặc là thỉnh thoảng cố làm khó, khẽ nhíu mày.
+- Ta đi đâu tìm cho ngươi một đồng tiền? Nhưng nghĩ lại, thua cũng chẳng nhiều, thắng lại càng tốt. Dù sao thắng một đồng của ta, sau này ngươi có thể nói thắng được một đồng tiền cốc vũ, người xem cũng sẽ nhớ kỹ hơn.
 
-Thắng thua vẫn như trước chỉ ở một đường.
+Thôi Đông Sơn kinh ngạc:
 
-Lần này đến phiên Lâm Quân Bích chăm chú nhìn bàn cờ hồi lâu.
+- Tâm tư tuyệt diệu thần tiên khó dò của ta đã giấu kỹ như thế mà công tử cũng đoán được? Đồng tiền trong túi ta chẳng phải gặp nguy cơ bỏ nhà đi gả cho người khác rồi sao?
 
-Ba chiêu cuối cùng của đối thủ đều là diệu thủ.
+Lâm Quân Bích không thể không thừa nhận mình cũng bị hắn làm cho ghê tởm. Nhưng vẫn tốt hơn Nghiêm Luật đã định trở thành trò cười. Chuyện hôm nay rồi sẽ truyền đến Thiệu Nguyên. Trong lòng Nghiêm Luật vướng mắc khó xóa, lại liên quan danh dự gia tộc, sau này luyện kiếm ở Kiếm Khí Trường Thành, thu hoạch chắc chắn giảm đi mấy phần.
 
-Kỳ lực tăng vọt, kỳ phong đại biến, kỳ lý điên đảo.
+Lâm Quân Bích nói:
 
-Lúc này mới khiến Lâm Quân Bích không kịp trở tay, đành phải sau một trận thi đấu dài nhất của hai bên, lại ném quân cờ nhận thua.
+- Nói chắc rồi, thắng thua đều là một đồng tiền. Đoán quân để tranh đi trước?
 
-Thiếu niên áo trắng kia vẻ mặt có chút cổ quái, "Có phải ngươi nghiên cứu rất sâu đối với ván thứ sáu Thải Vân phổ hay không, đã có kế sách ứng đối, cho dù thắng thua vẫn khó nói, nhưng mà chống đỡ được tình thế ván cờ, dù sao vẫn có cơ hội, vì sao không hạ? Giấu dốt nát, tự mình buồn bực chết, cũng gọi là giấu dốt? Lâm công tử, ngươi đánh cờ như vậy, tương đương đưa tiền, ta sẽ thật sự kêu ngươi đánh tiếp ván nữa đó."
+- Kỳ thuật công tử cao như vậy, không vui lòng chấp ta ba quân? Không muốn mang một đồng tiền đại thắng trở về à?
 
-Lâm Quân Bích thở dài, "Ngươi thật sự không biết, hay là giả ngu giả si?"
+Lâm Quân Bích đã nắm quân cờ trong tay, bất đắc dĩ nói:
 
-Đối phương bỗng nhiên cười to, nhưng lại dùng tiếng lòng nói: "Đương nhiên biết, Lâm công tử ngươi là muốn thông qua hai ván cờ thua, khiến ta cảm thấy ngươi đánh cờ đúng theo kiểu định, sau đó chờ ta mở miệng nói ván thứ ba, đặt cược nặng, thắng ta một tên táng gia bại sản đúng không? Lâm công tử, các ngươi những đại danh thủ đánh cờ này, tâm có thể hắc, hôm nay ta xem như đã lĩnh giáo."
+- Có thể giữ chút quy củ không? Dù là người trên núi, chuyện đoán quân đi trước cũng phải theo quy củ dưới núi chứ?
 
-Lâm Quân Bích mở miệng cười nói: "Ván thứ ba, một đồng Tiểu Thử tiền. Ta sẽ dốc sức chơi cờ."
+Thiếu niên đối diện đã sớm nhích mông tới gần, trừng mắt vểnh tai. Lâm Quân Bích có cách che giấu tiếng quân cờ, nhưng không biết tu vi đối phương; nếu hắn là địa tiên, mình làm vậy chỉ chuốc thiệt. Mà chơi cờ là chuyện của hai người, không thể nhờ Khổ Hạ kiếm tiên giúp nhìn chằm chằm.
 
-Thôi Đông Sơn nắm nắm tay nhẹ nhàng vung lên, lắc đầu nói: "Úc tỷ tỷ mua cây quạt của ta tiền Tiểu Thử này, cũng không thể thua ngươi. Tiền Tiểu Thử khác, tùy ngươi chọn, dù sao trong túi ta cũng không có."
+Thôi Đông Sơn ngồi lại chỗ cũ, mệt mỏi nói:
 
-Thôi Đông Sơn quay đầu hô: "Úc tỷ tỷ, tỷ yên tâm, ta cho dù thua tới đáy, cũng sẽ để lại đồng tiền Tiểu Thử tỷ đệ tình thâm nghĩa trọng này!"
+- Cứ coi như ngươi thắng quyền đi trước. Kỳ thuật Lâm công tử sâu cạn chưa biết, bản lĩnh ngoài bàn cờ thì thật lợi hại, mạnh hơn Nghiêm Cẩu suýt dùng đạo lý của mình đập nát mặt mình rất nhiều.
 
-Úc Dận Phu ngoảnh mặt làm ngơ.
+Lâm Quân Bích buông tay, nắm lại quân cờ. Chỗ lợi hại của hắn là vốn ở thế yếu, nhưng nhờ giữ quy củ trước, hắn có thể buộc đối phương dù là tu sĩ thượng ngũ cảnh cũng phải tuân theo. Thiên hạ chưa chắc nơi nào cũng như vậy, nhưng bên bàn cờ này thì phải thế.
 
-Chu Mai lẩm bẩm: "Trong miệng chó không mọc được ngà voi."
+Tưởng Quan Trừng và các kiếm tu trẻ tuổi đứng xa quan chiến, ai nấy đều bội phục.
 
-Thôi Đông Sơn cười ha ha nói: "Tiểu cô nương, nói to chút, Văn Thánh nhất mạch chúng ta, bị mắng chửi ở trước mặt, chưa từng so đo, có đạo lý, còn muốn giơ ngón cái, nói ngươi mắng hay lắm. Nhưng mắng chửi sau lưng, cũng được, đừng để chúng ta nghe thấy được. Bằng không lật sách như đớp cứt, ăn cơm lại phun phân, là phải bị trời đánh ngũ lôi đánh."
+Trước khi đoán quân, Thôi Đông Sơn lấy một đồng tiền tiểu thử ném xuống đất, nhìn mặt sau, sau đó vận may không tệ, đoán được quyền đi trước. Úc Thù Phu thấy vậy ôm đầu, đau đầu không thôi.
 
-Chu Mai hơi bối rối, ngồi cách Úc Phu gần hơn một chút.
+Hai bên lần lượt hạ cờ. Lâm Quân Bích thần sắc tự nhiên. Đối phương dùng khai cuộc của một bộ sách cổ ít người biết tên là 《Tiểu Đào Hoa Tuyền Phổ》.
 
-Lâm Quân Bích cười nói: "Tùy tiện một đồng Tiểu Thử tiền cũng được."
+Chỗ khéo léo của cách này là tốc chiến tốc thắng, lấy quy củ nghiêm ngặt để giành tiên thủ bằng nước cờ tưởng như vô lý. Nhưng nó không chịu nổi một quốc thủ cân nhắc, nhất là Lâm Quân Bích đã xem qua kỳ phổ. Rốt cuộc ai mới chiếm tiên thủ trên bàn cờ, đáp án rất rõ.
 
-Thôi Đông Sơn đột nhiên nói: "Thêm một chút phần thưởng thêm vào, nếu là ta thắng, ngươi lại mang bản áng mây màu kia tặng cho ta."
+Lâm Quân Bích hạ cờ không nhanh không chậm, đối phương vẫn đi như bay, tựa hồ nắm chắc phần thắng. Hắn cố ý giấu sức ở mấy chỗ then chốt, đánh đến hơn hai trăm ba mươi nước mới chịu thua.
 
-Lâm Quân Bích gật đầu nói: "Có thể."
+Chỉ là một đồng tiền thôi. Hơn nữa, thật sự thắng cờ thì loại người như Nghiêm Luật sẽ cảm động đến rơi nước mắt sao? Nếu nghĩ vậy, kẻ ngu xuẩn là Lâm Quân Bích. Danh dự Nghiêm gia lớn như vậy, từ bao giờ cần một thiếu niên Thiệu Nguyên cứu vãn?
 
-Ván thứ ba.
+Hắn tận tâm đánh đến cuối rồi tiếc nuối thua sát nút, Nghiêm Luật mới có thể cảm kích vài phần. Nhưng nói cho cùng hư danh vẫn là hư danh, chỉ lợi ích thiết thân mới khiến Nghiêm Luật thật sự động lòng và ghi nhớ việc kết minh với Lâm Quân Bích có lợi.
 
-Lâm Quân Bích đi trước.
+Ném quân nhận thua xong, Lâm Quân Bích cười nói:
 
-Kết quả tiên thủ liền đại ưu, khoảng cách trung bàn tức thắng cục chỉ kém một chút, Lâm Quân Bích thiếu chút nữa bị đối phương đánh ra vô vô thắng vô tam kiếp tuần hoàn, Lâm Quân Bích tuy rằng thủy chung thần sắc tự nhiên, nhưng là trong lòng rốt cục nổi lên một cỗ căm tức.
+- Trên người ta bây giờ thật không có một đồng tiền. Ta sẽ vào thành tự mình mượn, khi mượn được thì đem tới cửa hoặc nhờ người đưa, đều do người thắng quyết định.
 
-Hai bên đánh xuống đến gần bốn trăm tay!
+Thôi Đông Sơn nhẹ nhõm thở ra, nhìn ván cờ thắng bại chỉ trong gang tấc rồi lập tức ngẩng đầu:
 
-Đối với hai bên mà nói, đây là một hồi thu quan kinh người.
+- Khó trách! Lâm công tử hẳn đã lén xem 《Hoa Tuyền Phổ》. Ta đã bảo mà, nước khai cuộc thần tiên trăm trận trăm thắng của ta từ trước đến nay chỉ khiến đối thủ nhận thua ngay giữa ván.
 
-Đúng rồi hai người đánh cờ, đã không có ai có thể nhìn ra xu thế thắng bại chuẩn xác.
+Lâm Quân Bích mỉm cười, không để tâm. Được lợi còn khoe mẽ, chính là như thế.
 
-Sau một lần Lâm Quân Bích hạ cờ, hắn nhẹ nhàng thở ra.
+Thôi Đông Sơn nghĩ một lát:
 
-Thôi Đông Sơn vẻ mặt ngưng trọng hẳn lên, cầm quân cờ, thân thể nghiêng về phía trước, vươn tay cầm quân cờ thật dài, một tay còn lại bọc lấy cổ tay áo, miễn cho đánh loạn quân cờ, lúc sắp hạ cờ, trong lòng Lâm Quân Bích đại định, thắng!
+- Công tử có tự đi mượn tiền hay không, ta không thể theo sau nhìn chằm chằm. Dù sao ta chưa học được tinh túy môn phong Nghiêm gia. Nhưng chuyện tự đưa tiền tới hay không, ta có một ý. Nếu ván thứ hai ta thắng, phần thưởng thuộc về ta, ta sẽ phá lệ tỏ chút phong phạm quốc thủ: công tử không cần tự đến, để Úc tỷ tỷ đưa tiền là được.
 
-Thôi Đông Sơn đột nhiên vung tay, lắc lắc đầu vai đối với Lâm Quân Bích hơi kinh ngạc, "Ha ha, có tức hay không? Có tức hay không? Ta không đi xuống đây nữa. Ai u u, ta đúng là tiểu quỷ cơ linh mà, đầu óc ta lớn thật, nhưng mà tặc linh quang đó."
+- Nếu công tử thắng... Sao có thể? Bản lĩnh giấu đáy hòm của ta là tuyệt đối không có. Kỳ chiêu kỳ thuật của ta đều là sức cờ giấu đáy hòm của người khác; nước cờ thần tiên của người khác, trong mắt ta chỗ nào cũng vô lý...
 
-Cái này đại khái tương đương với đại sư tỷ phụ thể.
+Lâm Quân Bích thu quân, định đứng dậy. Liếc mắt một cái, hắn chợt phát hiện chẳng biết từ bao giờ thiếu niên áo trắng đã đặt quyển 《Khoái Tai Đình Phổ》 dưới mông.
 
-Chu Mai ở bên trong, cho dù là Kim Chân Mộng không quá ưa thích đánh cờ kia, cơ hồ tất cả mọi người ngây ra như phỗng.
+Thần sắc hắn vẫn không thay đổi. Người viết kỳ phổ là quốc thủ thứ hai của Thiệu Nguyên; người đứng đầu dĩ nhiên là quốc sư, người truyền đạo cho Lâm Quân Bích. Nhưng vị Khê Lư tiên sinh này từng luận bàn kỳ thuật nhiều lần với hắn, miễn cưỡng coi là nửa thầy nửa bạn trên kỳ đạo.
 
-Thôi Đông Sơn cân nhắc một lát, vẫn như cũ là xoay người kẹp quân cờ, chẳng qua quân cờ rơi ở chỗ khác bàn cờ, sau đó ngồi trở lại tại chỗ, hai tay lồng trong tay áo, "Không xuống, không xuống nữa, có thể thắng liên tiếp ba ván của Thiệu Nguyên Vương Triều Lâm Quân Bích, đã hài lòng lắm rồi."
+Thôi Đông Sơn thu quân vào bình, nghiêng vai nhấc mông rút kỳ phổ ra, cười khẽ:
 
-Thiếu niên áo trắng ngẩng đầu nhìn trời, "Hôm nay trăng tròn lại tròn a."
+- Đề sống chết à? Thật khiến ta cười chết. Rõ ràng là đề sống dở chết dở, xem nhiều thật sự sẽ đánh cờ sống dở chết dở. Khê Lư tiên sinh dụng tâm sâu xa, không tiếc tự hủy danh dự để kỳ thủ thiên hạ thấy thế nào là ví dụ phản diện. Đáng kính đáng buồn, có thể ca ngợi, có thể rơi lệ. Lát nữa Lâm công tử nhất định phải giới thiệu cho ta; quốc thủ đức độ như vậy trước kia chưa từng có, sau này e cũng không có.
 
-Ừm, ban ngày ban mặt, nào có ánh trăng để xem, thiếu niên là nhớ tới vị Chu Trừng tỷ tỷ kia.
+Lâm Quân Bích giơ tay ra hiệu cho người bên mình ở xa đừng lên tiếng. Một khi mở miệng, kẻ bị làm cho khó chịu sẽ chỉ là hắn. Trong số đó có lẽ một nửa thật sự tức giận, muốn bênh vực hắn và Khê Lư tiên sinh; nửa còn lại chỉ chờ châm thêm lửa để xem náo nhiệt.
 
-Lâm Quân Bích cười nói: "Là ta thua. Một đồng tiền, một đồng Tuyết Hoa tiền, một đồng Tiểu Thử tiền, lát nữa ta cùng nhau hai tay dâng lên."
+Hắn không cho họ cơ hội ấy. Đã bị hắn ngăn mà còn nói thì quá ngu xuẩn. Quả nhiên không ai mở miệng.
 
-Thôi Đông Sơn đột nhiên cười lạnh nói: "Ui, nghe khẩu khí, nhìn thắng bại rất lạnh nhạt sao? Sao, là cảm thấy lão tử cùng ngươi hạ bốn trăm thủ, thực cho rằng chúng ta lực lượng ngang nhau? Đùa ngươi chơi, nhìn không ra chứ? Có tin phần thưởng gì chúng ta cũng không đặt cược ván thứ tư hay không, chỉ cược ta ở trong vòng tám mươi chiêu, có thể đủ để hạ thắng một con ếch ngồi dưới đáy giếng diễu võ dương oai của Thiệu Nguyên Vương Triều hay không?!"
+Thôi Đông Sơn tiện tay ném kỳ phổ ra khỏi đầu tường, tự gật đầu:
 
-Lâm Quân Bích cười nói: "Ồ?"
+- Nếu đám súc sinh Man Hoang thiên hạ nhặt được, nhất định vừa nhìn đã hiểu. Từ nay chúng cứ tìm đường chết, Kiếm Khí Trường Thành và Hạo Nhiên Thiên Hạ đều không còn lo nữa.
 
-Thôi Đông Sơn lại cợt nhả, "Ngươi thật sự tin à? Ta thắng cờ, vẫn là ba ván, tiền kiếm không nhiều, còn không cho ta nói chút lời mạnh miệng đã nghiền a?"
+Lâm Quân Bích ngồi lại, cười nói:
 
-Thôi Đông Sơn thu liễm ý cười, nhìn về phía ván cờ phức tạp rậm rạp, chậc chậc nói: "Hai huynh đệ chúng ta tốt, cùng nhau đánh ra một ván cờ thần tiên như vậy, khoái tai đình con mẹ nó sắp nổ tung rồi nhỉ, bởi vì thật sự là quá nhanh!"
+- Ván trước ngươi thắng. Chúng ta đánh tiếp, cược gì?
 
-Kỳ thực lúc này, không ai dám khinh thường kỳ thuật của người này nữa.
+- Lần này hai huynh đệ cược lớn chút, một đồng tiền tuyết hoa! Mỗi người ra một đề sống chết, ai không giải được thì thua. Ta thắng ván trước, không cần đoán quân, nhường ngươi ra đề trước. Nếu không giải được, ta sẽ nhảy xuống đầu tường liều mạng đoạt lại bộ kỳ phổ vô giá kia từ tay đại yêu đang nâng niu như bảo vật, tưởng rằng chơi cờ vốn đơn giản như vậy. Nếu ta thắng, công tử ngoan ngoãn đưa ta một đồng tiền tuyết hoa.
 
-Nghiêm luật càng như vậy.
+Lâm Quân Bích lắc đầu:
 
-Ngoại trừ biên cảnh, hắn có kỳ lực, tương đối gần với Lâm Quân Bích nhất, cho nên càng biết được kỳ lực của thiếu niên áo trắng kia cao đến mức nào.
+- Không giải đề, vẫn đánh cờ.
 
-Cho nên hắn bắt đầu từ thuần túy ghi hận, biến thành có sợ hãi. Cừu hận như trước, thậm chí là càng thêm cừu hận, nhưng ở sâu trong nội tâm, không tự chủ được, nhiều hơn một phần sợ hãi.
+Đối phương rõ ràng có chuẩn bị, không thể để hắn dắt mũi. Thôi Đông Sơn lộ vẻ kinh ngạc, dường như bất ngờ.
 
-Thôi Đông Sơn phất tay với vị Lâm công tử đang ngồi hầm cầu không thèm ỉa kia, ánh mắt chân thành nói: "Tiền quay về tặng cho ta, có phải là ngươi tặng hay không không quan trọng. Lâm công tử, ta muốn thu thập ván cờ, sao nào? Còn phải giúp đỡ. Ngươi đã giúp ba người rồi, ta thấy thôi đi. Ngươi còn như vậy, lương tâm ta bất an, thiên ý bất hòa, khiến cho ta không thể làm bằng hữu với loại người rộng lượng như ngươi, ta trằn trọc đêm qua không thể chợp mắt."
+Lâm Quân Bích không dám xem thường. Kỳ lực của người này tuyệt đối không phải Nghiêm Luật có thể so sánh, ít nhất cũng không kém sư huynh Biên Cảnh của hắn. Cao đến mức nào thì tạm thời chưa rõ, phải tự mình thử thêm.
 
-Lâm Quân Bích thở dài.
+Hắn đưa tay ra:
 
-Nếu đã hạ ván thứ ba, đặt ở trong toàn bộ lịch sử vương triều Thiệu Nguyên, có lẽ đủ để có thể xưng là danh cục, cho nên kết quả còn có thể tiếp nhận.
+- Lần này đổi lại, ta đoán quân.
 
-Thôi Đông Sơn vừa thu thập quân cờ, không có phong phạm, tùy tiện ném quân cờ vào bình cờ, vang lên thanh thúy, vừa lẩm bẩm: "Liên miên thắng ba trận, thoải mái, thật sự là thoải mái. Chẳng qua, dựa vào kỳ lực cách xa, nghiền áp đối thủ, thực không thú vị, nếu là hai bên kỳ lực không kém, thắng thua xem vận khí, vận khí ở ta, lại thắng cờ, đó mới là thích ý nhất. Nhắm chừng Lâm công tử đời này trên bàn cờ quá mức trôi chảy, lại quen lấy lực áp người, là không thể lãnh hội loại tâm tình này của ta. Tiếc thay tiếc thay."
+Dù đối phương lôi Khê Lư tiên sinh và 《Khoái Tai Đình Phổ》 ra nói, thắng thua trên bàn cờ cũng chẳng thay đổi được gì. Chẳng lẽ hắn thua thì Khê Lư tiên sinh không còn là quốc thủ nhất lưu Trung Thổ, kỳ phổ cũng bị loại khỏi hàng danh phổ thiên hạ?
 
-Thôi Đông Sơn đột nhiên cười hỏi: "Như thế nào, cảm thấy ta kỳ lực rất cao, hoặc là cảm thấy vận khí ở ta, hai lời đều có giả? Kỳ lực cao hay không, ta trong lòng biết rõ ràng tốt rồi. Nhưng ta vận khí không tốt, Lâm đại công tử ngươi phải nhận. Vậy chúng ta lại đánh một ván, đổi một biện pháp, như thế nào? So không hoàn toàn là kỳ lực, mà còn vận khí, có dám hay không? Thậm chí có thể nói, chúng ta so, chỉ là vận khí, loại kỳ này, Lâm công tử có thể đời này cũng không có cơ hội đánh tiếp. Bởi vì chỉ xem vận khí, cho nên chúng ta không cược tiền, cái gì cũng không cược."
+Ván thứ hai, Lâm Quân Bích suy nghĩ rất nhiều. Thiếu niên áo trắng còn suy nghĩ lâu hơn, rốt cuộc không cố ý vò đầu bứt tai hay giả bộ gặp khó nữa, chỉ khẽ nhíu mày.
 
-Lâm Quân Bích hỏi: "Chỉ giáo cho?"
+Thắng thua vẫn cách nhau một đường. Lần này Lâm Quân Bích chăm chú nhìn bàn cờ hồi lâu. Ba nước cuối của đối phương đều là diệu thủ: kỳ lực tăng vọt, kỳ phong thay đổi, kỳ lý đảo ngược. Hắn không kịp trở tay, sau một hồi suy tính rất lâu đành ném quân nhận thua.
 
-Thôi Đông Sơn cười nói: "Ngươi tới quyết định cược ván cờ này thắng hay thua. Là thua hay là thắng, ngươi trước đó đã nói với Khổ Hạ kiếm tiên. Chỉ cần kết cục trên bàn cờ đúng như ngươi nói, vô luận ta ở trên ván cờ là thắng hay thua, đều là ngươi thắng. Chúng ta đánh cược chính là vận khí của ai tốt hơn, có dám hay không?!"
+Thiếu niên áo trắng có vẻ kỳ quái:
 
-Lâm Quân Bích bật cười khanh khách.
+- Có phải ngươi nghiên cứu rất sâu ván thứ sáu của Thải Vân phổ, đã có cách ứng phó? Tuy thắng thua khó nói, nhưng chống đỡ được thế cờ vẫn có cơ hội. Sao không đánh? Giấu dốt đến mức tự làm mình chết ngạt cũng gọi là giấu dốt à? Công tử đánh cờ như vậy chẳng khác nào đưa tiền, ta thật sự sẽ gọi ngươi đánh thêm ván nữa đấy.
 
-Thôi Đông Sơn cười nói: "Kỳ thuật kiếm thuật cũng không đi nói, chỉ nói nhân phẩm Khổ Hạ kiếm tiên, đổ phẩm của Lâm công tử, ta vẫn tin tưởng."
+Lâm Quân Bích thở dài:
 
-Lâm Quân Bích lắc đầu nói: "Vãn cờ này, ta không đánh."
+- Ngươi thật sự không biết hay giả ngu?
 
-Thôi Đông Sơn thế mà gật đầu nói: "Quả thật, bởi vì còn chưa đủ thú vị, cho nên ta thêm một câu nói nữa, bản《Thải Vân phổ》 ván thứ ba của ngươi lật rất nhiều lần, cờ chí trung bàn, được rồi, thật ra chỉ là ván thứ 56 mà thôi, liền có người đầu quân nhận thua, không bằng chúng ta giúp đỡ song phương đánh xong? Sau đó vẫn như cũ ngươi tới quyết định thắng thua ở ngoài bàn cờ. Thắng thua trên bàn cờ, quan trọng sao? Căn bản không quan trọng. Ngươi giúp thành chủ Bạch Đế thành, ta tới giúp người đánh cờ với hắn. Thế nào? Ngươi nhìn Khổ Hạ Kiếm Tiên một cái, đều gấp không thể nhịn nổi, đường đường Kiếm Tiên, vất vả hộ đạo, nghĩ đến mức Lâm công tử có thể hòa giải ván nào."
+Đối phương bật cười, dùng tiếng lòng nói:
 
-Lâm Quân Bích không phản bác được.
+- Đương nhiên biết. Ngươi muốn dùng hai ván thua làm ta tưởng kỳ lực ngươi chỉ đến thế, đợi ta đề nghị ván thứ ba thì đặt cược lớn, thắng cho ta táng gia bại sản, đúng không? Danh thủ các ngươi thật đen lòng, hôm nay ta xem như được lĩnh giáo.
 
-Người này, là kẻ điên.
+Lâm Quân Bích cười:
 
-Thải Vân phổ, sở dĩ có thể được tất cả kỳ thủ thế gian coi là "Ta ở nhân gian xem mây màu, cao cao tại thượng không thể với tới", chính là người thắng cờ vô địch, đáng sợ hơn, ở chỗ người thua cờ kia, chỉ cần đứng dậy rời khỏi bàn cờ kia, rời khỏi Bạch Đế thành, cũng là Vân Hạ thành ta vô địch.
+- Ván thứ ba, một đồng tiền tiểu thử. Ta sẽ dốc sức chơi.
 
-Về phần kế tiếp Thải Vân trận thứ ba, vô số kỳ thủ đều từng nghiên cứu cực kỳ thâm thuý, ngay cả sư phụ của Lâm Quân Bích cũng không ngoại lệ, chỉ nói Thôi Sàm kia không sớm một bước, không sớm một bước ném quân cờ nhận thua, vừa lúc nói rõ người này, thật sự xứng đáng với danh hiệu kỳ đạo thứ hai thế gian.
+Thôi Đông Sơn nắm tay vung nhẹ, lắc đầu:
 
-Cho nên Lâm Quân Bích lắc đầu nói: "Loại cờ này, ta không đánh. Ta và ngươi thân là kỳ thủ, đối mặt với quân cờ trên bàn cờ này, cũng đừng vũ nhục chúng nữa."
+- Đồng tiền Úc tỷ tỷ mua quạt của ta không thể thua cho ngươi. Tiền tiểu thử khác tùy ngươi chọn, dù sao trong túi ta cũng không có.
 
-Thôi Đông Sơn cười lạnh nói: "Ngươi có tư cách vũ nhục Thải Vân phổ này? Lâm Quân Bích, kỳ thuật của ngươi cao đến mức này? Mới năm mươi sáu chiêu, Thải Vân Cục đánh cờ song phương, cảnh giới đủ, mới có thể nhìn thấy kết cục, còn lại toàn bộ kỳ thủ dưới áng mây, thật sự biết suy nghĩ trong lòng hai bên? Đổi thành ngươi ta đến chơi cờ, trung bàn hai vị kia kết thúc ván cờ, ngươi thật có bản lãnh giữ gìn ưu thế thành chủ Bạch Đế thành? Ai cho ngươi lòng tin, dựa vào thua liên tiếp ba trận sao?!"
+Hắn quay đầu hô:
 
-Lâm Quân Bích trầm giọng nói: "Không thể thắng bại ở bên ngoài bàn cờ ngôn ngữ của Khổ Hạ kiếm tiên, ta đánh với ngươi tàn cuộc này!"
+- Úc tỷ tỷ yên tâm, dù thua sạch, ta vẫn giữ đồng tiền tình nghĩa tỷ đệ sâu nặng này!
 
-Thôi Đông Sơn cười nói: "Được, vậy thêm một phần thưởng, ta thắng, ván tiếp theo, ngươi phải nói trước với Khổ Hạ kiếm tiên."
+Úc Thù Phu làm ngơ. Chu Mai lẩm bẩm:
 
-Lâm Quân Bích nói: "Chờ ngươi thắng bộ Thải Vân Phổ này rồi nói sau."
+- Miệng chó không mọc được ngà voi.
 
-Thôi Đông Sơn cười nói: "May mắn may mắn, Lâm công tử chưa nói"mhắng ta lại nói", bằng không cho dù là người ngưỡng mộ phong thái thần tiên của Lâm công tử như vậy, cũng phải phun một ngụm nước bọt ở trên bàn cờ."
+Thôi Đông Sơn cười lớn:
 
-Kiếm tiên khổ hạ ưu sầu không thôi.
+- Tiểu cô nương, nói to chút! Một mạch Văn Thánh chúng ta bị mắng trước mặt chưa từng so đo; mắng có lý còn giơ ngón cái khen hay. Nhưng mắng sau lưng cũng được, đừng để chúng ta nghe thấy. Bằng không lật sách như đớp cứt, ăn cơm lại phun phân, sẽ bị trời đánh ngũ lôi oanh đỉnh.
 
-Những kiếm tu trẻ tuổi còn lại, cho dù là Kim Chân Mộng, đều tràn ngập chờ mong đối với ván này.
+Chu Mai hơi bối rối, ngồi sát Úc Thù Phu hơn. Lâm Quân Bích nói:
 
-Thôi Đông Sơn đột nhiên quay đầu nói: "Người không liên quan, không có tư cách xem ván cờ này, đương nhiên, thực muốn xem cũng được, không nhiều, mỗi người một đồng Cốc Vũ tiền. Đều rộng lượng chút, lấy ra đây."
+- Đồng tiền tiểu thử nào cũng được.
 
-Chu Mai giơ tay lên nói: "Ta muốn xem, tiền Cốc Vũ này của Úc tỷ tỷ, ta sẽ hỗ trợ."
+Thôi Đông Sơn chợt nói:
 
-Thôi Đông Sơn lập tức thay đổi sắc mặt, thẳng lưng, một thân chính khí nói: "Đùa cái gì vậy, bằng hữu của Úc tỷ tỷ chính là bằng hữu của Đông Sơn ta, nói chuyện tiền bạc? Dám đánh mặt ta sao? Ta là loại kỳ thủ chơi cờ ven đường kiếm tiền sao?"
+- Thêm một phần thưởng nữa. Nếu ta thắng, ngươi tặng ta bản Thải Vân phổ kia.
 
-Không ít người trong Tưởng Quan Trừng thật sự nguyện ý bỏ ra số tiền này, nhưng Kiếm Tiên Khổ Hạ bắt đầu đuổi người, đồng thời không có bất kỳ đường sống nào để thương lượng.
+Lâm Quân Bích gật đầu đồng ý.
 
-Cho nên trên đầu thành chỉ để lại Úc Thỉ Phu và viên bi có chỗ dựa của Úc Khánh Phu.
+Ván thứ ba, hắn đi trước, lập tức chiếm ưu thế lớn, chỉ thiếu một chút là thắng giữa ván. Nhưng đối phương suýt đưa ván cờ vào thế tam kiếp tuần hoàn bất phân thắng bại. Lâm Quân Bích ngoài mặt vẫn bình thản, trong lòng cuối cùng nổi giận.
 
-Hai bên đều đặt quân cờ lên bàn cờ, nhìn như đánh cờ quay lại, kì thực là ở ngoài ván thứ ba Thải Vân phổ lại tái sinh một ván.
+Hai người đánh gần bốn trăm nước, hồi thu quan vô cùng kinh người. Không còn ai nhìn ra chính xác xu thế thắng thua.
 
-Nửa canh giờ qua đi, Lâm Quân Bích không ngừng thi lâu, không hiểu sao lại trúng đao ở góc trên bên phải. Trên bàn cờ chỉ đánh ra ba mươi sáu người mới, sắc mặt Lâm Quân Bích liền trắng bệch, chậm chạp không chịu thua.
+Sau một nước cờ, Lâm Quân Bích nhẹ nhõm thở ra. Thôi Đông Sơn trở nên ngưng trọng, cầm quân nghiêng người về phía trước, tay kia giữ cổ tay áo khỏi làm xáo trộn bàn cờ. Lúc hắn sắp hạ quân, Lâm Quân Bích yên lòng: thắng rồi!
 
-Thôi Đông Sơn lạnh nhạt nói: "Dựa theo ước định, lại một ván nữa, là ván thứ hai đếm ngược từ dưới lên trên thời kỳ thu quan, ván cờ số hai, cơ sở còn lại quá ít, bất ngờ quá quá nhỏ quá nhỏ, ngươi vẫn như cũ là thành chủ thành Bạch Đế hạ cờ. Nhớ kỹ, trước tiên nói với Khổ Hạ kiếm tiên thắng bại bên ngoài bàn cờ. Cũng chỉ là tranh vận khí, thắng thua trên bàn cờ, đừng quá mức để ý. Nếu vẫn là ta thắng, vậy ta sẽ phải sư tử ngoạm, cầu ngươi cùng ta đánh ván tiếp."
+Thôi Đông Sơn bỗng vung tay, nhún vai trước ánh mắt kinh ngạc của đối phương:
 
-Lâm Quân Bích nói với Khổ Hạ Kiếm Tiên ngoài bàn cờ ai thắng ai thua.
+- Ha ha, tức không? Ta không đi nước này nữa! Ôi chao, ta đúng là tiểu quỷ lanh lợi, đầu óc thật sáng suốt!
 
-Sau đó hai bên lại thu quân cờ, lại sắp xếp quân cờ.
+Đại khái giống như đại sư tỷ nhập vào người.
 
-So với ván cờ trước, lần này quân cờ trên bàn cờ đông đảo.
+Chu Mai và gần như tất cả mọi người, kể cả Kim Chân Mộng vốn không thích cờ, đều ngây ra. Thôi Đông Sơn cân nhắc một lúc, vẫn nghiêng người hạ quân nhưng đặt xuống chỗ khác, rồi ngồi lại, lồng hai tay vào tay áo:
 
-Sau ngắn ngủn một nén nhang, thiếu niên áo trắng liền cười nói: "Yên tâm, ván tiếp theo, đổi lại là ta nói trước với Khổ Hạ kiếm tiên thắng bại, chuyện ta và ngươi đánh cờ, vận khí, nếu lần sau ở ta, vận may quá vượng, vậy ta quỳ cầu một thua, chủ động đổi mới phương vị vận khí, lần này nếu vẫn là ta thắng, vậy thì sao, ngược lại nói rõ hôm nay ta thật sự vận khí quá tốt, có quan hệ nửa đồng tiền với kỳ thuật của Lâm công tử sao? Không có, không có."
+- Không đánh nữa. Thắng liên tiếp ba ván của Lâm Quân Bích vương triều Thiệu Nguyên, ta đã hài lòng rồi.
 
-Trán Lâm Quân Bích chảy ra mồ hôi, đờ đẫn không nói gì. Không muốn ném quân cờ nhận thua, cũng không nói gì, giống như chỉ muốn nhìn ván cờ nhiều hơn, muốn biết rốt cuộc là thua như thế nào.
+Hắn ngẩng đầu nhìn trời:
 
-Thiếu niên áo trắng kia ngoài miệng nói lời khách khí, nhưng vẻ mặt lại châm biếm.
+- Trăng hôm nay tròn thật tròn.
 
-Úc Dận Phu thở dài, kéo Chu Mai rời khỏi nơi này.
+Giữa ban ngày làm gì có trăng, thiếu niên chỉ nhớ tới vị Chu Trừng tỷ tỷ kia thôi.
 
-Quả nhiên lại bị Thôi Đông Sơn kia nói trúng.
+Lâm Quân Bích cười nói:
 
-Thật ra "cược vận" lúc trước của nàng đã được coi là tốt rồi.
+- Ta thua. Một đồng tiền, một đồng tiền tuyết hoa, một đồng tiền tiểu thử, lát nữa ta sẽ hai tay dâng lên.
 
-Thiếu nữ Chu Mai cũng biết nặng nhẹ, yên lặng theo Úc Phu rời khỏi nơi thị phi này.
+Thôi Đông Sơn bỗng cười lạnh:
 
-Khổ Hạ Kiếm Tiên đang muốn mở miệng nói chuyện.
+- Nghe giọng điệu, ngươi xem thắng thua rất nhẹ? Đánh gần bốn trăm nước, thật tưởng chúng ta ngang sức à? Ta đùa ngươi thôi, nhìn không ra sao? Có tin ván thứ tư không cược gì khác, chỉ cược ta có thể thắng con ếch ngồi đáy giếng Thiệu Nguyên trong tám mươi nước không?
 
-Thôi Đông Sơn hai ngón tay kẹp một quân cờ, nhẹ nhàng chuyển động, đầu cũng không ngẩng lên, "Xem cờ không nói, giảng chút quy củ được không? Đường đường trung thổ kiếm tiên, lại là sư điệt Chu Thần Chi, quốc sư thân mang Thiệu Nguyên vương triều nhờ vả, chính là giúp đỡ vãn bối hộ đạo như vậy? Ta và Lâm công tử là bằng hữu vừa gặp đã thân, cho nên ta khắp nơi dễ nói chuyện, nhưng nếu Khổ Hạ kiếm tiên ỷ vào kiếm thuật cùng thân phận của mình, vậy ta phải gọi viện binh. Đạo lý thô thiển như vậy, hiểu không? Không hiểu, có người kiếm thuật cao, ta có thể cầu tình, để hắn dạy ngươi."
+- Ồ?
 
-Khổ Hạ kiếm tiên từ do dự biến thành kiên định, mặc kệ thiếu niên áo trắng kia nói gì, Khổ Hạ kiếm tiên trầm giọng nói: "Lâm Quân Bích, có thể đứng dậy rồi."
+Thôi Đông Sơn lại cười hì hì:
 
-Lâm Quân Bích do dự, hai tay nắm chặt.
+- Ngươi tin thật à? Ta thắng ba ván, kiếm không được bao nhiêu tiền, còn không cho ta mạnh miệng cho đã sao?
 
-Thôi Đông Sơn cầm lên một quân cờ, nhẹ nhàng đặt ở trên bàn cờ, tùy tay quét một cái, trượt tới bên cạnh bàn cờ của Lâm Quân Bích, quân cờ nho nhỏ, vừa vặn một nửa ở bàn cờ, một nửa lơ lửng trên không.
+Hắn thu nụ cười, nhìn ván cờ dày đặc:
 
-Thôi Đông Sơn mỉm cười nói: "Đứng dậy? Có thể. Ném quân nhận thua một nửa."
+- Hai huynh đệ chúng ta cùng đánh ra một ván thần tiên thế này, Khoái Tai đình mẹ nó sắp nổ tung rồi, vì thật sự quá khoái!
 
-Khổ Hạ Kiếm Tiên cả giận nói: "Thằng nhãi ngươi được một tấc lại muốn tiến một thước! Ngươi dám phá hỏng đạo tâm của Lâm Quân Bích?!"
+Lúc này không ai dám khinh thường kỳ thuật của hắn nữa, nhất là Nghiêm Luật. Ngoại trừ Biên Cảnh, kỳ lực hắn gần Lâm Quân Bích nhất, nên càng hiểu thiếu niên áo trắng cao đến mức nào. Từ thuần túy ghi hận, hắn bắt đầu thêm sợ hãi. Thù hận chẳng giảm, thậm chí còn sâu hơn, nhưng trong lòng không tự chủ được sinh ra một phần e sợ.
 
-Thôi Đông Sơn hai tay áo choàng, cười ha ha nói: "Người tu đạo, thiên chi kiêu tử, bị nhàn hạ đạo tâm xấu như đánh cờ, so với nghiêm luật kia càng lợi hại hơn, lần này là thật muốn cười chết ta rồi."
+Thôi Đông Sơn phất tay với Lâm Quân Bích đang ngồi lì, chân thành nói:
 
-Thôi Đông Sơn ngẩng đầu, nhìn phía vị Khổ Hạ kiếm tiên nổi giận đùng đùng kia, cười tủm tỉm hỏi: "Chết cười ta, là có thể giúp Lâm Quân Bích thắng cờ à?"
+- Tiền sau này đưa ta, ai đưa không quan trọng. Ta muốn thu bàn cờ, sao ngươi còn giúp? Ngươi đã giúp ba lần rồi, thôi đi. Ngươi cứ thế, lương tâm ta bất an, thiên ý bất hòa, khiến ta không thể làm bằng hữu với người rộng lượng như ngươi, đêm qua trằn trọc không ngủ được.
 
-Lâm Quân Bích run giọng nói: "Chưa đánh cờ đã nhận thua, vậy mà chỉ thua một nửa?"
+Lâm Quân Bích thở dài. Ván thứ ba đặt trong lịch sử Thiệu Nguyên có lẽ đủ gọi là danh cục, kết quả này vẫn có thể chấp nhận.
 
-Thôi Đông Sơn gật đầu nói: "Đương nhiên. Chẳng qua có điều kiện nhỏ, ngươi phải cam đoan đời này không bao giờ đụng tới quân cờ bàn cờ nữa."
+Thôi Đông Sơn tùy tiện ném quân vào bình, phát ra tiếng lanh lảnh, vừa thu vừa lẩm bẩm:
 
-Lâm Quân Bích mồ hôi đầm đìa.
+- Thắng liền ba ván, thật thoải mái. Nhưng dựa vào kỳ lực cách biệt nghiền ép đối thủ thì không thú vị. Hai bên sức cờ ngang nhau, thắng thua xem vận khí, vận khí thuộc về ta rồi lại thắng mới thích ý. Có lẽ cả đời Lâm công tử chơi cờ quá thuận, quen lấy sức ép người, không hiểu tâm tình này. Đáng tiếc, đáng tiếc.
 
-Thôi Đông Sơn ngáp một cái, cũng không thúc giục Lâm Quân Bích quyết định, cũng chỉ là tỏ ra có chút nhàm chán.
+Hắn chợt cười hỏi:
 
-Thế nhân chỉ biết Thải Vân phổ là Thải Vân phổ.
+- Ngươi thấy kỳ lực ta rất cao, hay cho rằng lời nói vận may thuộc về ta đều là giả? Kỳ lực cao hay không, ta tự biết là được. Nhưng vận may của ta tốt, Lâm đại công tử phải nhận. Chúng ta đánh thêm một ván, đổi cách chơi, có dám không?
 
-Căn bản không biết hai bên đánh cờ trong Thải Vân Cục, ngồi đối diện nhau, lại ở ngoài bàn cờ, lại có lục đục sâu không thấy đáy nào đó.
+- Ván này không hoàn toàn so kỳ lực mà còn so vận khí, thậm chí có thể nói chỉ so vận khí. Cả đời công tử có lẽ không còn cơ hội chơi lần nữa. Vì chỉ xem vận khí nên không cược tiền, không cược gì cả.
 
-Đó mới gọi là chơi cờ thật sự.
+- Nói thế nào?
 
-Những thằng nhãi con học được chút da lông từ Thải Vân phổ như ngươi, xứng xưng kỳ thủ quốc thủ?
+- Ngươi quyết định trước ván này ngươi thắng hay thua, nói với Khổ Hạ kiếm tiên. Chỉ cần kết cục trên bàn đúng như lời ngươi, bất kể ta thắng hay thua, đều tính ngươi thắng. Chúng ta cược vận khí ai tốt hơn. Dám không?
 
-Thôi Đông Sơn như là đang nói chuyện phiếm với người quen, chậm rãi nói: "Tiên sinh nhà ta sáng tác, Thiệu Nguyên vương triều các ngươi ngoại trừ thư phòng tiên sinh nhà ngươi dám đặt, hôm nay đế vương tương môn đình, thư tịch trường tư phố phường, còn lại mấy quyển? Hai quyển? Một quyển không có? Cái này cũng không tính là gì, việc nhỏ, nguyện đổ thua, xuống tay không hối hận. Chỉ là ta hình như còn nhớ một chuyện nhỏ, năm đó vạn dặm xa xôi chạy ra ngoài văn miếu, động thủ đập vỡ pho tượng thần rách nát ven đường, trong đó còn có Thiệu Nguyên vương triều người đọc sách các ngươi nhỉ? Nghe nói sau khi về quê, con đường làm quan trôi chảy, một bước lên mây xanh? Về sau người nọ chẳng những là kỳ hữu, còn là bạn vong niên tay nói chuyện vui vẻ kia? Ồ đúng rồi, chính là chủ nhân bộ sách chơi cờ kia dưới bộ rễ thành kia, Khê Lư tiên sinh đại danh đỉnh đỉnh."
+Lâm Quân Bích bật cười. Thôi Đông Sơn nói:
 
-Khổ Hạ Kiếm Tiên trong lòng khẽ động, mới vừa rồi vẫn muốn nói chuyện, khuyên can Lâm Quân Bích, chỉ là hiện tại đã chết sống không mở miệng được.
+- Không bàn kỳ thuật, kiếm thuật, chỉ nói nhân phẩm Khổ Hạ kiếm tiên và phẩm hạnh đánh cược của công tử, ta vẫn tin được.
 
-Ngọc Phác Cảnh kiếm tu Mễ Dụ, là kiếm tu bản thổ của Kiếm Khí Trường Thành, lúc ấy gặp gỡ người nọ, vẫn không dám động đậy.
+- Ván này ta không đánh.
 
-Như vậy giờ phút này, mùa hè Khổ cũng giống như vậy.
+Thôi Đông Sơn gật đầu:
 
-Chỉ là Lâm Quân Bích lập tức thất hồn lạc phách, huống hồ cảnh giới thật sự vẫn còn quá thấp, chưa chắc đã biết rõ tình cảnh lúng túng của mình lúc này.
+- Đúng, vì chưa đủ thú vị. Ta thêm một điều: ván thứ ba trong bản Thải Vân phổ ngươi lật xem nhiều lần, đến giữa ván, thật ra mới chỉ nước thứ năm mươi sáu đã có người ném quân nhận thua. Hay là chúng ta thay hai người họ đánh tiếp? Sau đó vẫn để ngươi quyết định thắng thua ngoài bàn cờ.
 
-Thôi Đông Sơn cười nhạo nói với Lâm Quân Bích kia: "Khán thưởng? Kế tiếp ta thắng ngươi một ván, sẽ khiến ngươi không thể không tiếp tục ván nữa, cho dù nhiều lần chỉ thu thêm của ngươi một đồng Tiểu Thử tiền, ta cũng có thể khiến ngươi thua mất toàn bộ tương lai tu đạo, thậm chí là nửa vương triều Thiệu Nguyên, ta muốn xuống tới ngươi hận không thể đi đầu thai ngay bây giờ, kiếp sau không bao giờ đụng cờ nữa! Ngươi cho rằng đánh cờ với ta, là ngươi không muốn chơi cờ thì không muốn đánh? Hả?"
+- Thắng thua trên bàn quan trọng sao? Căn bản không quan trọng. Ngươi giúp thành chủ Bạch Đế thành, ta giúp đối thủ của hắn. Thế nào? Ngươi nhìn Khổ Hạ kiếm tiên xem, ông ấy nóng lòng không chờ nổi, vất vả hộ đạo, hẳn muốn xem Lâm công tử có thể ứng phó đến đâu.
 
-"Ngươi đến cùng có biết hay không, ngươi là đang cùng ai đánh cờ?!"
+Lâm Quân Bích không phản bác được. Người này là kẻ điên.
 
-Thôi Đông Sơn phất tay áo, nheo mắt nói: "Nhớ kỹ, ta là Đông Sơn a."
+Thải Vân phổ được kỳ thủ thiên hạ coi như mây màu nơi nhân gian, cao không thể với tới, không chỉ vì người thắng vô địch. Đáng sợ hơn là người thua kia, chỉ cần đứng dậy rời bàn cờ, rời Bạch Đế thành, cũng vô địch dưới tầng mây[?].
 
-Tào Tình Lãng ở hành lang gặp Bùi Tiền.
+Vô số kỳ thủ từng nghiên cứu rất sâu phần tiếp theo của ván thứ ba, sư phụ Lâm Quân Bích cũng không ngoại lệ. Ông chỉ nói Thôi Sàm ném quân nhận thua không sớm không muộn, vừa khéo chứng tỏ người này xứng đáng với danh hiệu kỳ đạo thứ hai thiên hạ.
 
-Bùi Tiền muốn nói lại thôi.
+Lâm Quân Bích lắc đầu:
 
-Tào Tình Lãng chỉ chỉ ngực, sau đó khoát tay áo, không nói gì, chỉ là mỉm cười.
+- Loại cờ này ta không đánh. Ngươi và ta là kỳ thủ, đối mặt với những quân cờ ấy, đừng làm nhục chúng.
 
-Bùi Tiền im lặng không lên tiếng.
+Thôi Đông Sơn cười lạnh:
 
-Tào Tình Lãng cười hỏi: "Ta có khắc đao, lát nữa tặng ngươi một con dấu?"
+- Ngươi có tư cách làm nhục Thải Vân phổ? Kỳ thuật của ngươi cao đến thế à? Mới năm mươi sáu nước, chỉ hai người đánh cờ cảnh giới đủ cao mới thấy được kết cục. Những kỳ thủ dưới tầng mây thật sự biết hai người họ nghĩ gì sao?
 
-Bùi Tiền thở phì phì rời đi.
+- Đổi thành ngươi và ta, đến chỗ hai vị kia kết thúc ván cờ, ngươi thật có bản lĩnh giữ ưu thế cho thành chủ Bạch Đế thành? Ai cho ngươi lòng tin ấy, dựa vào ba ván thua liên tiếp sao?!
 
-Tào Tình Lãng gãi gãi đầu, vì đợi mình xuất hiện, ôm cây đợi thỏ rất lâu nhỉ.
+Lâm Quân Bích trầm giọng:
 
-Hôm nay, một thiếu niên áo trắng lén lút gõ cửa Ninh phủ, Nạp Lan Dạ Hành cười ha hả nói: "Đông Sơn lão đệ, có chuyện gì vậy? Có là trộm cũng không cần gõ cửa chứ."
+- Không cược thắng bại ngoài bàn cờ với Khổ Hạ kiếm tiên. Ta đánh tàn cuộc này với ngươi!
 
-Thôi Đông Sơn ảo não nói: "Nạp Lan lão ca, tiểu đệ hôm nay đi đầu tường vất vả cả buổi, mới kiếm được chút tiền nhỏ, tức chết ta rồi, không còn mặt mũi gặp tiên sinh nữa."
+- Được, thêm một phần thưởng. Nếu ta thắng, ván tiếp theo ngươi phải nói trước với Khổ Hạ kiếm tiên.
 
-Nạp Lan Dạ Hành có chút đáng thương cho người bị kiếm tiền, mặc dù không biết là ai xui xẻo như vậy.
+- Đợi ngươi thắng ván này rồi nói.
 
-Ngay khi đêm nay Nạp Lan Dạ dự định đóng cửa, liền mỗi người một ngả với tiểu vương bát đản này, Thôi Đông Sơn đột nhiên cười nói: "Đi, vào trong phòng lão ca uống rượu đi."
+Thôi Đông Sơn cười:
 
-Nạp Lan Dạ Hành đương nhiên không vui, chỉ nhìn ánh mắt thiếu niên áo trắng rồi gật đầu.
+- May quá, công tử không nói “thắng ta rồi hãy nói”. Bằng không người ngưỡng mộ phong thái thần tiên của công tử như ta cũng phải nhổ một ngụm nước bọt lên bàn cờ.
 
-Đến bên kia, Thôi Đông Sơn lấy ra hai bầu rượu, Nạp Lan Dạ Hành lại rất hy vọng là uống rượu mình vất vả giấu kỹ bên này.
+Khổ Hạ kiếm tiên lo lắng không thôi. Những kiếm tu trẻ tuổi còn lại, kể cả Kim Chân Mộng, đều rất chờ mong ván cờ này.
 
-Nhưng cuộc nói chuyện kế tiếp lại khiến cho Nạp Lan Dạ Hành dần dần không còn chút tâm tư nào nữa.
+Thôi Đông Sơn đột nhiên quay đầu:
 
-Bởi vì chuyện đối phương nói, đối với vị kiếm tu Ngọc Phác cảnh đã hạ cảnh giới như hắn mà nói, thực sự quá lớn.
+- Người không liên quan không có tư cách xem. Thật sự muốn xem cũng được, mỗi người một đồng tiền cốc vũ, không nhiều. Rộng lượng chút, lấy ra đi.
 
-Đạo lý rất đơn giản, theo như lời đối phương, con đường đại đạo mà Nạp Lan Dạ đi sẽ đi như thế nào.
+Chu Mai giơ tay:
 
-Cái này còn tính là gì.
+- Ta muốn xem. Tiền của Úc tỷ tỷ, ta cũng trả giúp.
 
-Rất nhanh liền có tiếng đập cửa vang lên.
+Thôi Đông Sơn lập tức đổi sắc mặt, ngồi thẳng lưng, đầy vẻ chính khí:
 
-Bạch ma ma rất nhanh rời đi.
+- Đùa gì thế? Bằng hữu của Úc tỷ tỷ chính là bằng hữu của Đông Sơn ta, nói chuyện tiền bạc chẳng phải đánh vào mặt ta sao? Ta là loại kỳ thủ ngồi ven đường chơi cờ kiếm tiền à?
 
-Là kiếm tu Kim Đan đã không còn là đệ tử không ký danh của Nạp Lan Dạ Hành, Thôi Sàm.
+Không ít người trong đám Tưởng Quan Trừng thật sự sẵn lòng trả, nhưng Khổ Hạ kiếm tiên bắt đầu đuổi người, không cho thương lượng. Cuối cùng trên đầu thành chỉ còn Úc Thù Phu và Chu Mai có nàng làm chỗ dựa.
 
-Thôi Sàm sau khi đóng cửa lại, ôm quyền chắp tay, không ngẩng đầu, cũng không nói chuyện.
+Hai người đặt quân lên bàn, trông như đánh lại ván cũ, thật ra là từ ván thứ ba của Thải Vân phổ sinh ra một ván mới.
 
-Nạp Lan Dạ Hành muốn đứng dậy rời khỏi, lại bị Thôi Đông Sơn cười ha ha ngăn lại.
+Nửa canh giờ trôi qua, Lâm Quân Bích liên tục suy tính, không hiểu sao góc trên bên phải lại trúng một đao. Trên bàn chỉ thêm ba mươi sáu nước, sắc mặt hắn đã trắng bệch, chần chừ không chịu nhận thua.
 
-Sau đó Thôi Đông Sơn quay đầu hỏi: "Là muốn phá cảnh nữa, sau đó chết thì chết thôi, hay là theo ta đi Hạo Nhiên Thiên Hạ, kéo dài hơi tàn? Hôm nay có lẽ ngày mai không sao cả, sẽ chỉ cảm thấy may mắn, nhưng ta có thể khẳng định, tương lai một ngày nào đó, Thôi Sàm ngươi sẽ đau lòng."
+Thôi Đông Sơn thản nhiên:
 
-Thôi Sàm từ đầu tới cuối cúi đầu ôm quyền, "Thôi Sàm nguyện ý đi theo tiên sinh đi hướng Bảo Bình châu. Ngày mai hối hận, ngày mai nói sau."
+- Theo ước định, thêm một ván nữa. Lần này lấy ván thứ hai, ở cuối giai đoạn thu quan. Cơ hội xoay chuyển quá ít, bất ngờ cũng quá nhỏ. Ngươi vẫn cầm quân của thành chủ Bạch Đế thành. Nhớ nói trước với Khổ Hạ kiếm tiên về thắng thua ngoài bàn cờ. Chỉ tranh vận khí thôi, đừng quá để ý thắng bại trên bàn.
 
-Thôi Đông Sơn cười nói: "Có thể. Ta đáp ứng. Nhưng ta muốn nghe lý do một chút, yên tâm, vô luận như thế nào, ta có đồng ý hay không, cũng sẽ không thay đổi sự an ổn về sau của ngươi."
+- Nếu ta vẫn thắng, ta sẽ phải sư tử há miệng, cầu ngươi đánh thêm một ván nữa.
 
-Thôi Sàm trầm mặc một lát, "Thôi Sàm ta dựa vào cái gì phải chết ở chỗ này?"
+Lâm Quân Bích nói với Khổ Hạ kiếm tiên ai thắng ai thua ngoài bàn cờ. Sau đó hai người thu quân, sắp lại bàn. So với ván trước, lần này quân cờ nhiều hơn.
 
-Nạp Lan Dạ Hành thở dài, không giận tím mặt như lần trước, thiếu chút nữa không nhịn được muốn một tát đập chết Thôi Giác.
+Chỉ sau một nén nhang, thiếu niên áo trắng đã cười nói:
 
-Thôi Đông Sơn gật đầu nói: "Hỏi hay lắm. Về sau đến tha hương, nhàn rỗi, hoặc là tuổi già, không ngại tự mình đến trả lời câu hỏi này. Đi đi, mấy năm nay vất vả cho ngươi rồi."
+- Yên tâm, ván tiếp theo đến lượt ta nói trước với Khổ Hạ kiếm tiên. Nếu vận may đánh cờ của ta tiếp tục quá tốt, ta sẽ quỳ cầu một trận thua, chủ động đổi vị trí vận khí. Nếu lần này ta vẫn thắng, cũng chỉ chứng tỏ hôm nay vận may của ta quá tốt, có liên quan nửa đồng tiền đến kỳ thuật của Lâm công tử sao? Không hề.
 
-Thôi Sàm lại chưa lập tức rời khỏi, mà là quỳ ở trên mặt đất, mặt hướng về phía đêm đi Nạp Lan Hành dập ba cái, "Sư phụ không nhận đệ tử, đệ tử lại nhận vị sư phụ thứ hai trên đường mình tu đạo! Thôi Sàm lần này đi, không quay đầu lại nữa, sư phụ bảo trọng!"
+Trán Lâm Quân Bích đầy mồ hôi, ngơ ngác không nói. Hắn không muốn ném quân nhận thua, chỉ nhìn chằm chằm bàn cờ, như muốn hiểu rốt cuộc mình thua thế nào.
 
-Dạ Hành Nạp Lan nâng lên bát trắng, uống một ngụm rượu, gật đầu nói: "Nếu đã lựa chọn đi tới Hạo Nhiên Thiên Hạ, vậy dứt khoát hoặc là không làm, đã làm thì phải làm đến cùng, đừng tùy tùy tiện tiện chết đi, sống lâu hơn hắn mấy trăm mấy ngàn năm."
+Thiếu niên ngoài miệng khách khí, vẻ mặt lại đầy châm biếm. Úc Thù Phu thở dài, kéo Chu Mai rời đi. Quả nhiên Thôi Đông Sơn nói trúng: lần cược vận khí trước đó của nàng đã coi như may mắn. Chu Mai cũng biết nặng nhẹ, im lặng theo nàng rời khỏi nơi thị phi.
 
-Thôi Sàm rời khỏi nơi đây, quay về chỗ ở của mình.
+Khổ Hạ kiếm tiên định mở miệng. Thôi Đông Sơn kẹp một quân cờ giữa hai ngón tay xoay nhẹ, không ngẩng đầu:
 
-Thôi Đông Sơn đã uống rượu, cũng rất nhanh rời khỏi phòng.
+- Xem cờ không nói, giữ chút quy củ được không? Đường đường kiếm tiên Trung Thổ, sư điệt của Chu Thần Chi, được quốc sư Thiệu Nguyên gửi gắm, lại hộ đạo cho vãn bối như thế?
 
-Chỉ để lại một lão nhân không con cái dưới gối, cũng không có đồ đệ, một mình uống rượu, trên bàn hình như ngay cả một đĩa đồ ăn và rượu cũng không có.
+- Ta và Lâm công tử vừa gặp đã thân nên chuyện gì cũng dễ nói. Nhưng nếu kiếm tiên ỷ vào kiếm thuật và thân phận, ta phải gọi viện binh. Đạo lý đơn giản vậy hiểu không? Không hiểu thì có người kiếm thuật cao, ta có thể nhờ hắn dạy ngươi.
 
-Vào hoàng hôn ngày hôm nay, Tề Cảnh Long mang theo đệ tử đầu bạc cùng nhau đăng môn bái phỏng Ninh phủ.
+Khổ Hạ từ do dự chuyển sang kiên quyết. Mặc kệ thiếu niên nói gì, hắn trầm giọng:
 
-Bạch Thủ lấy khí phách khẳng khái chịu chết ra.
+- Lâm Quân Bích, có thể đứng dậy rồi.
 
-Chỉ là niềm vui ngoài ý muốn! Đầu tiên là Bùi Tiền nghe nói luyện quyền với một vị lão ma ma Ninh phủ, lúc này đang nằm ở trên giường bệnh.
+Lâm Quân Bích do dự, hai tay nắm chặt. Thôi Đông Sơn đặt một quân cờ lên bàn, tiện tay đẩy tới mép phía hắn. Quân cờ nhỏ vừa khéo một nửa nằm trên bàn, một nửa lơ lửng.
 
-Nhưng mà hận không thể khua chiêng gõ trống cao hứng xong, bạc đầu lại nhịn không được bắt đầu lo lắng, Bùi Tiền kia rốt cuộc là nhà của tiểu cô nương, thiếu niên liền hỏi đường, đi tới chỗ Bùi Tiền dạo chơi, đương nhiên không dám gõ cửa, chỉ tản bộ ở bên ngoài.
+- Đứng dậy? Được. Ném quân nhận thua một nửa.
 
-Về phần sư phụ của thiếu niên, đã đi tới chỗ ở của huynh đệ tốt Trần Bình An.
+Khổ Hạ giận dữ:
 
-Trong phòng lại có ba người.
+- Tiểu tử được voi đòi tiên! Ngươi dám phá hỏng đạo tâm của Lâm Quân Bích?!
 
-Trần Bình An, Thôi Đông Sơn, Tề Cảnh Long.
+Thôi Đông Sơn lồng tay áo, cười lớn:
 
-Mỗi người móc ra một quyển sách.
+- Người tu đạo, thiên chi kiêu tử, bị chuyện nhàn hạ như đánh cờ phá hỏng đạo tâm? Còn lợi hại hơn Nghiêm Luật kia, lần này thật khiến ta cười chết.
 
-Tin tức trên quyển sách này của Trần Bình An là hỗn tạp nhất.
+Hắn ngẩng đầu nhìn kiếm tiên đang nổi giận:
 
-Quyển sách của Thôi Đông Sơn dày nhất, nguồn gốc nội dung, đều là gián điệp tử sĩ Đại Ly Tú Hổ xếp vào ở Kiếm Khí Trường Thành cùng Đảo Huyền sơn, nhân số không nhiều, nhưng mà mỗi người đều có tác dụng.
+- Cười chết ta thì giúp Lâm Quân Bích thắng cờ được sao?
 
-Đã có người mới lấy được, phần lớn còn là đến từ hồ sơ cơ mật tối cao của Đại Ly.
+Lâm Quân Bích run giọng:
 
-Đương nhiên Thôi Đông Sơn trước đó không lâu bản thân cũng đại khái đi khắp thành trì, cũng không phải thật sự muốn dựa vào bản thân tìm được càng nhiều dấu vết để lại, Thôi Đông Sơn từ trước tới nay không phải thần tiên gì, thấy mầm biết cây, điều kiện tiên quyết là "thấy". Chung quy thời gian quá ngắn, còn có thân phận con em nhất mạch Văn Thánh, sẽ tương đối phiền toái. Bằng không Thôi Đông Sơn có thể nắm giữ được càng thêm tiếp cận chân tướng, thậm chí trực tiếp chính là rất nhiều chi tiết của chân tướng.
+- Chưa đánh đã nhận thua mà chỉ thua một nửa?
 
-Tề Cảnh Long thông qua tông chủ, đệ tử Thái Huy Kiếm Tông, nói bóng nói gió mà đến.
+- Đương nhiên. Chỉ có một điều kiện nhỏ: ngươi phải cam đoan đời này không chạm vào bàn cờ quân cờ nữa.
 
-Thôi Đông Sơn vung tay áo, chỗ cao hơn so với hai cái bàn, bỗng dưng xuất hiện một bức tuyên chỉ tuyết trắng. Thôi Đông Sơn tâm niệm khẽ động, trên giấy tuyên chỉ, phủ đệ lớn nhỏ, ngõ phố lớn nhỏ trong thành trì, lần lượt nổi lên từ đất bằng.
+Lâm Quân Bích mồ hôi đầm đìa. Thôi Đông Sơn ngáp, không thúc giục, chỉ tỏ vẻ có chút nhàm chán.
 
-Sau đó Thôi Đông Sơn phân biệt giao cho tiên sinh cùng Tề Cảnh Long mỗi người ba cây bút, người giấy tuyên thành kia không có gì đáng ngại, tự khôi phục, nhưng mà lại có thể đặt bút thành chữ.
+Người đời chỉ biết Thải Vân phổ là Thải Vân phổ. Họ không biết hai người ngồi đối diện trong Thải Vân cục còn đấu trí sâu không thấy đáy bên ngoài bàn cờ. Đó mới gọi là thật sự chơi cờ.
 
-Nét chữ khác nhau, màu đen, trắng, xám.
+Đám nhóc chỉ học được chút da lông từ Thải Vân phổ như ngươi cũng xứng gọi là kỳ thủ quốc thủ?
 
-Ba người đều không nói lời nào, mỗi người viết xuống từng cái tên.
+Thôi Đông Sơn chậm rãi nói như chuyện phiếm với người quen:
 
-Nếu là tên tương đồng lại có màu sắc khác nhau, Thôi Đông Sơn sẽ lấy bút son chỉ có trong tay, mang cái tên kia vẽ vòng tròn.
+- Sách do tiên sinh nhà ta viết, ở Thiệu Nguyên ngoài thư phòng tiên sinh ngươi còn dám đặt, trong nhà đế vương tướng lĩnh, trường tư và phố phường còn mấy quyển? Hai quyển? Hay một quyển cũng không? Đó không tính là gì, chuyện nhỏ; đã nguyện đánh cược thì phải chịu thua, hạ quân không hối hận.
 
-Trên bàn đặt ba quyển sách, có người ngừng bút, có thể tự lật xem hai quyển còn lại.
+- Nhưng ta nhớ một chuyện nhỏ. Năm ấy có kẻ đi vạn dặm tới ngoài văn miếu, đập nát tượng thần rách nát bên đường, trong đó có người đọc sách Thiệu Nguyên nhỉ? Nghe nói về quê xong đường quan thuận lợi, một bước lên mây xanh?
 
-Trong hoàng hôn hôm nay, Tề Cảnh Long và Bạch Thủ rời khỏi Ninh phủ, quay về phủ đệ kho giáp của Thái Huy Kiếm Tông, Trần Bình An chỉ dẫn Thôi Đông Sơn đi hướng quán rượu bên kia.
+- Sau này người ấy không chỉ là kỳ hữu mà còn là bằng hữu vong niên cùng ngươi vui vẻ đàm đạo? À phải rồi, chính là chủ nhân bộ kỳ phổ dưới mông ta, Khê Lư tiên sinh đại danh đỉnh đỉnh.
 
-Lại không phải thật sự qua bên đó, đi đường vòng, Trần Bình An bảo Thôi Đông Sơn giúp chú ý bốn phía, cuối cùng đi tới một tòa nhà ngõ hẹp, chưa thể nói hàn huyên, nhưng cũng tuyệt đối vô duyên với hào hoa xa xỉ.
+Khổ Hạ chấn động trong lòng. Vừa rồi hắn muốn mở miệng khuyên can Lâm Quân Bích, nhưng bây giờ sống chết cũng không nói nổi.
 
-Thôi Đông Sơn chưa đi vào, thì đứng ở bên ngoài, đợi sau khi tiên sinh vào cửa, Thôi Đông Sơn đã đi chỗ góc ngõ hẻm, ở bên kia chán đến chết ngồi xổm.
+Mễ Dụ, kiếm tu Ngọc Phác cảnh bản thổ Kiếm Khí Trường Thành, khi ấy gặp người kia còn không dám động đậy. Lúc này Khổ Hạ cũng vậy. Chỉ có Lâm Quân Bích thất hồn lạc phách, cảnh giới lại quá thấp, chưa chắc biết rõ tình cảnh của mình.
 
-Chỉ có Bùi Tiền còn không rõ ràng lắm, trận đi xa này, đến Kiếm Khí Trường Thành, những đệ tử học sinh này của bọn họ sẽ không ở lại lâu dài.
+Thôi Đông Sơn cười nhạo:
 
-Tiên sinh của hắn, chẳng qua chính là hy vọng mấy người bọn họ, có thể tận mắt nhìn một chút Kiếm Khí Trường Thành rốt cuộc là một nơi như thế nào, nhìn xem phong cảnh bao la về sau nhất định không cách nào nhìn thấy nữa.
+- Phần thưởng? Tiếp theo ta thắng ngươi một ván sẽ khiến ngươi không thể không đánh ván nữa. Dù mỗi lần chỉ thu thêm một đồng tiền tiểu thử, ta cũng có thể khiến ngươi thua sạch tương lai tu đạo, thậm chí thua cả nửa vương triều Thiệu Nguyên.
 
-Đào Văn ngồi trở lại bàn, hỏi: "Sao lại tới đây? Không sợ sau này ta không thể làm nhà cái sao?"
+- Ta sẽ đánh đến khi ngươi hận không thể lập tức đi đầu thai, kiếp sau không bao giờ chạm cờ nữa! Ngươi tưởng chơi cờ với ta, muốn dừng là dừng được sao? Ngươi rốt cuộc có biết mình đang đánh cờ với ai không?!
 
-Trần Bình An cười nói: "Cái này hư hư thật thật, chiêu số nhiều hơn, đám con bạc kỹ năng đánh bạc không tinh, đừng có chơi chiêu số với ta."
+Thôi Đông Sơn phất tay áo, nheo mắt:
 
-Đào Văn nói: "Trần Bình An, đừng quên chuyện ngươi đã đáp ứng ta. Đối với ngươi mà nói, có lẽ là việc nhỏ, đối với ta mà nói, cũng không tính là chuyện lớn, nhưng cũng không nhỏ."
+- Nhớ kỹ, ta là Đông Sơn mà.
 
-Trần Bình An gật đầu nói: "Chuyện ta đáp ứng mình, rất nhiều chuyện chưa chắc làm được. Nhưng mà chuyện đáp ứng người khác, ta bình thường đều sẽ làm được."
+Tào Tình Lãng gặp Bùi Tiền ở hành lang. Nàng muốn nói lại thôi. Hắn chỉ vào ngực mình rồi khoát tay, không nói gì, chỉ mỉm cười. Bùi Tiền im lặng.
 
-Đào Văn gật đầu, người trẻ tuổi này lần đầu tiên tìm mình làm nhà cái, chính miệng nói, sẽ không kiếm một đồng Tuyết Hoa tiền ở Kiếm Khí Trường Thành.
+Tào Tình Lãng cười hỏi:
 
-Đào Văn trêu ghẹo: "Lời này là Nhị chưởng quầy nói, hay là võ phu thuần túy Trần Bình An nói?"
+- Ta có dao khắc, lát nữa tặng ngươi một con dấu nhé?
 
-Trần Bình An cười nói: "Là kiếm khách Trần Bình An nói."
+Bùi Tiền tức tối bỏ đi. Tào Tình Lãng gãi đầu, nàng hẳn đã ôm cây đợi thỏ ở đây rất lâu để chờ hắn xuất hiện.
 
-Đào Văn trầm mặc hồi lâu, Trần Bình An cười xách ra hai bình Trúc Hải Động Thiên tửu, đương nhiên là loại rẻ nhất.
+Hôm ấy, thiếu niên áo trắng lén lút gõ cửa Ninh phủ. Nạp Lan Dạ Hành cười ha hả:
 
-Đào Văn không cần thi triển thuật pháp Càn Khôn, chỉ đứng dậy cầm hai cái bát rượu tới, đương nhiên so với tiệm rượu bên kia lớn hơn không ít.
+- Đông Sơn lão đệ, có chuyện gì? Làm trộm cũng không cần gõ cửa chứ.
 
-Đào Văn uống ngụm rượu, sau khi rót chén thứ hai thì nói: "Trần Bình An, đừng học theo ta."
+Thôi Đông Sơn ảo não:
 
-Trần Bình An lắc đầu nói: "Sẽ không."
+- Nạp Lan lão ca, hôm nay tiểu đệ vất vả cả buổi trên đầu tường mới kiếm được chút tiền nhỏ. Tức chết ta rồi, không còn mặt mũi gặp tiên sinh nữa.
 
-Đào Văn gật gật đầu, "Vậy chỉ còn lại một việc, đừng chết. Đừng quên, nơi này là Kiếm Khí Trường Thành, không phải Hạo Nhiên Thiên Hạ, nơi này không phải quê hương của ngươi."
+Nạp Lan Dạ Hành hơi thương người bị hắn kiếm tiền, tuy không biết ai xui xẻo như vậy. Lão định đóng cửa, ai đi đường nấy với tên tiểu vương bát đản, nhưng Thôi Đông Sơn bỗng cười:
 
-Trần Bình An nói: "Ta sẽ tranh thủ."
+- Đi, vào phòng lão ca uống rượu.
 
-Đào Văn giơ bát rượu lên, Trần Bình An cũng rót chén, nhẹ nhàng cụng, mỗi người uống rượu.
+Nạp Lan Dạ Hành vốn không vui, nhưng nhìn ánh mắt hắn rồi gật đầu. Vào phòng, Thôi Đông Sơn lấy ra hai bầu rượu, lão lại mong được uống số rượu mình vất vả giấu kỹ hơn.
 
-Đào Văn hỏi: "Hạo Nhiên Thiên Hạ, người như ngươi, nhiều không?"
+Nhưng cuộc nói chuyện tiếp theo khiến lão dần không còn tâm tư ấy. Chuyện đối phương nói quá lớn đối với kiếm tu Ngọc Phác cảnh đã rơi cảnh giới như lão: con đường đại đạo sau này của Nạp Lan Dạ Hành sẽ đi thế nào.
 
-Trần Bình An cẩn thận suy nghĩ, lắc đầu nói: "Người giống như ta, không phải rất nhiều. Nhưng mà người tốt hơn so với ta, người xấu hơn ta, đều rất nhiều."
+Nhưng như vậy còn chưa hết. Chẳng mấy chốc có tiếng gõ cửa, Bạch ma ma nhanh chóng rời đi. Người tới là kiếm tu Kim Đan Thôi Sàm, nay không còn là đệ tử ký danh của Nạp Lan Dạ Hành.
 
-Sau đó Trần Bình An hỏi: "Thực không đi xem?"
+Thôi Sàm đóng cửa, ôm quyền cúi đầu, không nói gì. Nạp Lan Dạ Hành muốn đứng dậy rời đi, Thôi Đông Sơn cười ngăn lại, rồi quay sang hỏi:
 
-Đào Văn cười cười.
+- Ngươi muốn phá cảnh lần nữa, chết thì chết, hay theo ta tới Hạo Nhiên Thiên Hạ kéo dài hơi tàn? Hôm nay, có lẽ ngày mai ngươi chỉ thấy may mắn, nhưng ta có thể khẳng định một ngày nào đó ngươi sẽ đau lòng.
 
-Vấn đề này, hỏi có chút dư thừa. Không giống như là Nhị chưởng quỹ đang suy nghĩ chu toàn, đào hố liên hoàn kia.
+Thôi Sàm từ đầu tới cuối cúi đầu ôm quyền:
 
-Sau đó yên lặng uống rượu mà thôi.
+- Ta nguyện theo tiên sinh đến Bảo Bình Châu. Ngày mai hối hận thì ngày mai tính.
 
-Đợi khi xấp xỉ đều là một bát rượu cuối cùng, Trần Bình An nâng bát rượu, chỉ là lại buông xuống, từ trong tay áo lấy ra một đôi con dấu, nhẹ nhàng đặt lên bàn, cười nói: "Không biết Đào thúc thúc có nguyện ý nhận vật nhỏ này hay không."
+- Được, ta đồng ý. Nhưng ta muốn nghe lý do. Yên tâm, bất kể lý do thế nào, sự an ổn về sau của ngươi cũng không thay đổi[?].
 
-Đào Văn lắc đầu, "Ta không tiện uống một ngụm này, chữ mỏi chữ nghĩa là chuyện của người đọc sách các ngươi, ta là một kiếm tu, coi như xong, đặt ở nhà, lại không cần, ăn tro bụi làm gì? Ngươi vẫn là cầm đi kiếm tiền trả tiền đi, so với ở lại bên ta có ý nghĩa hơn."
+Thôi Sàm im lặng một lát:
 
-Trần Bình An liền thu hồi con dấu, một lần nữa giơ lên bát rượu, "Người bán rượu thường thường ít uống rượu, người mua rượu tửu lượng nát bét, tửu phẩm không quá cứng, vì sao mua rượu, có phải lý này hay không, Đào thúc thúc?"
+- Dựa vào cái gì ta phải chết ở đây?
 
-Đào Văn cười nói: "Ta không giảng đạo lý với người đọc sách. Ngươi uống của ngươi, ta uống của ta, trên bàn rượu mời rượu người ta, hại nhân phẩm."
+Nạp Lan Dạ Hành thở dài. Lần này lão không giận dữ như trước, khi suýt không nhịn được một tát đánh chết hắn.
 
-Mỗi người uống cạn chén rượu cuối cùng.
+Thôi Đông Sơn gật đầu:
 
-Trần Bình An đứng lên, cười ôm quyền, "Lần tới uống rượu, không biết từ khi nào."
+- Hỏi hay lắm. Sau này đến tha hương, khi nhàn rỗi hoặc về già, không ngại tự trả lời câu hỏi ấy. Đi đi, mấy năm nay vất vả cho ngươi rồi.
 
-Đào Văn phất tay, "Uống rượu với ta thì chán nhất, được công nhận, không uống cũng được. Ta không tiễn."
+Thôi Sàm không lập tức rời đi, mà quỳ xuống đất, hướng về Nạp Lan Dạ Hành dập đầu ba cái:
 
-Trần Bình An rời khỏi tòa nhà, một mình đi trong ngõ nhỏ.
+- Sư phụ không nhận đệ tử, nhưng đệ tử nhận người là vị sư phụ thứ hai trên đường tu đạo! Thôi Sàm lần này đi sẽ không quay đầu nữa, sư phụ bảo trọng!
 
-Hai tay nắm chặt.
+Nạp Lan Dạ Hành nâng bát trắng uống một ngụm, gật đầu:
 
-Hai con dấu.
+- Đã chọn tới Hạo Nhiên Thiên Hạ thì hoặc không làm, đã làm phải làm đến cùng. Đừng tùy tiện chết đi, sống lâu hơn hắn mấy trăm mấy ngàn năm.
 
-"Cầu say a, chớ say."
+Thôi Sàm rời khỏi, trở về chỗ ở. Thôi Đông Sơn uống rượu xong cũng nhanh chóng ra khỏi phòng.
 
-"Hoa cỏ hành tây."
+Chỉ để lại một lão nhân không con cái, cũng không có đồ đệ, một mình uống rượu. Trên bàn dường như ngay cả một đĩa thức ăn nhắm rượu cũng không có.
 
-Trần Bình An đi tới đi lui, đột nhiên vẻ mặt hoảng hốt, giống như đi ở ngõ Nê Bình quê nhà.
+Hoàng hôn hôm ấy, Tề Cảnh Long dẫn đệ tử Bạch Thủ tới bái phỏng Ninh phủ. Thiếu niên bày ra khí phách khẳng khái chịu chết.
 
-Đào Văn ở nhân gian, là nhớ vợ con như thế nào.
+Nào ngờ lại có niềm vui ngoài ý muốn: nghe nói Bùi Tiền luyện quyền với một vị lão ma ma trong phủ, bây giờ đang nằm trên giường bệnh.
 
-Cha mẹ mình không ở nhân gian, có thể cũng nhớ mong tiểu Bình An như vậy hay không.
+Nhưng sau khi vui mừng đến mức hận không thể khua chiêng gõ trống, Bạch Thủ lại không nhịn được lo lắng. Dù sao Bùi Tiền cũng là một tiểu cô nương, hắn bèn hỏi đường tới chỗ nàng, dĩ nhiên không dám gõ cửa, chỉ đi qua đi lại bên ngoài.
 
-Trần Bình An dừng bước, suy nghĩ xuất thần, sau đó tiếp tục đi về phía trước.
+Sư phụ hắn thì đến nơi ở của huynh đệ tốt Trần Bình An.
 
-Một lát sau, Đào Văn đột nhiên xuất hiện ở cửa, cười hỏi: "Con dấu ta vẫn không cần, nhưng muốn biết, con dấu hai bên kia khắc cái gì."
+Trong phòng có ba người: Trần Bình An, Thôi Đông Sơn và Tề Cảnh Long. Mỗi người lấy ra một quyển sách.
 
-Trần Bình An không xoay người, lắc đầu, "Đào thúc thúc, không có gì, chỉ là chút văn tự rập khuôn sao chép từ trên sách mà thôi."
+Tin tức trong quyển của Trần Bình An hỗn tạp nhất. Quyển của Thôi Đông Sơn dày nhất, nội dung đến từ các gián điệp tử sĩ do Tú Hổ Đại Ly bố trí ở Kiếm Khí Trường Thành và Đảo Huyền sơn. Người không nhiều, nhưng ai cũng có tác dụng. Có tin mới thu được, phần lớn lại đến từ hồ sơ cơ mật tối cao của Đại Ly.
 
-Đào Văn cười nói: "Ngươi là người đọc sách."
+Trước đó Thôi Đông Sơn cũng tự mình đi khắp thành, nhưng không thật sự trông cậy tìm được nhiều dấu vết hơn. Hắn chưa bao giờ là thần tiên, muốn thấy mầm biết cây thì trước tiên phải “thấy”. Thời gian quá ngắn, thân phận con cháu một mạch Văn Thánh cũng khiến việc này phiền toái. Bằng không hắn đã có thể nắm được những điều gần chân tướng hơn, thậm chí rất nhiều chi tiết của chân tướng.
 
-Người trẻ tuổi đầu Biệt Ngọc Trâm mặc áo xanh kia, cũng không có gì nhiều.
+Tề Cảnh Long thì thông qua tông chủ và đệ tử Thái Huy Kiếm Tông mà bóng gió dò hỏi tin tức.
 
-Cái này rất không giống Nhị chưởng quỹ.
+Thôi Đông Sơn phất tay áo, một tờ giấy tuyên trắng như tuyết xuất hiện phía trên hai chiếc bàn. Hắn vừa động ý niệm, phủ đệ, đường phố ngõ hẻm lớn nhỏ trong thành lần lượt hiện lên trên giấy.
 
-Đào Văn nghiêng người dựa vào cửa, đứng ở bên kia, nhìn về phía tòa nhà trống trải.
+Hắn đưa bút cho tiên sinh và Tề Cảnh Long. Những hình nổi trên giấy bị chạm vào có thể tự khôi phục, nhưng vẫn có thể viết chữ lên đó[?]. Ba người dùng nét chữ màu đen, trắng và xám, không ai nói gì, mỗi người viết xuống từng cái tên.
 
-Văn tự trên sách cay mắt người, rượu trong chén cay bụng.
+Nếu cùng một tên xuất hiện bằng những màu khác nhau, Thôi Đông Sơn dùng cây bút son trong tay khoanh lại. Trên bàn đặt ba quyển sách; ai dừng bút có thể tự lật xem hai quyển còn lại.
 
-Hình như quả thật đều có thể khiến người ta ch** n**c mắt.
+Đến chiều tối, Tề Cảnh Long và Bạch Thủ rời Ninh phủ, trở về phủ đệ của Thái Huy Kiếm Tông. Trần Bình An dẫn Thôi Đông Sơn đi về phía quán rượu, nhưng không thật sự tới đó. Hắn đi đường vòng, bảo Đông Sơn chú ý bốn phía, cuối cùng đến một căn nhà trong ngõ hẹp. Căn nhà chưa đến nỗi nghèo nàn, nhưng tuyệt đối không dính dáng gì đến hai chữ xa hoa.
 
-Như vậy cũng có thể nói qua.
+Thôi Đông Sơn không vào. Đợi tiên sinh bước qua cửa, hắn đến góc ngõ ngồi xổm, chán đến chết.
 
-Bóng lưng của người trẻ tuổi kia, ở ngõ nhỏ dần dần đi xa.
+Chỉ có Bùi Tiền còn chưa rõ: chuyến đi xa đến Kiếm Khí Trường Thành này, những đệ tử học sinh như bọn họ sẽ không ở lại lâu.
 
-Đào Văn kiếm tiên ngồi ở ngưỡng cửa, mặt hướng về cái bàn trong phòng xa xa, lẩm bẩm nói: "Lần đó là cha đi muộn, lại để hai mẹ con các con đợi nhiều năm như vậy. Hành thái, hành thái, không đau, không đau. Cha ở bên này, luôn rất tốt, có thể ăn mặt trời xuân, cũng có thể uống rượu với người tốt, các con chớ đau lòng..."
+Tiên sinh chỉ mong mấy người họ tận mắt nhìn xem Kiếm Khí Trường Thành là nơi như thế nào, nhìn phong cảnh rộng lớn mà sau này nhất định không còn thấy được nữa.
+
+Đào Văn trở lại ngồi bên bàn, hỏi:
+
+- Sao lại tới đây? Không sợ sau này ta không làm nhà cái được nữa à?
+
+Trần Bình An cười:
+
+- Hư hư thật thật, chiêu trò nhiều lắm. Đám con bạc không tinh thông chuyện cá cược ấy đừng hòng giở trò với ta.
+
+- Trần Bình An, đừng quên chuyện ngươi đã hứa. Với ngươi có lẽ là việc nhỏ, với ta cũng không phải chuyện lớn, nhưng không nhỏ.
+
+- Chuyện ta hứa với mình, nhiều việc chưa chắc làm được. Nhưng chuyện hứa với người khác, bình thường ta đều sẽ làm.
+
+Đào Văn gật đầu. Lần đầu người trẻ tuổi tìm hắn làm nhà cái, đã chính miệng nói sẽ không kiếm một đồng tiền tuyết hoa ở Kiếm Khí Trường Thành.
+
+Hắn trêu:
+
+- Lời này là Nhị chưởng quỹ nói, hay võ phu thuần túy Trần Bình An nói?
+
+- Là kiếm khách Trần Bình An nói.
+
+Đào Văn im lặng hồi lâu. Trần Bình An cười xách ra hai bình rượu Trúc Hải Động Thiên, dĩ nhiên là loại rẻ nhất. Đào Văn không cần dùng thuật Càn Khôn, chỉ đứng dậy lấy hai bát rượu tới, đương nhiên lớn hơn bát ở quán rượu không ít.
+
+Hắn uống một ngụm, rót bát thứ hai rồi nói:
+
+- Trần Bình An, đừng học theo ta.
+
+- Sẽ không.
+
+Đào Văn gật đầu:
+
+- Vậy chỉ còn một việc: đừng chết. Đừng quên đây là Kiếm Khí Trường Thành, không phải Hạo Nhiên Thiên Hạ, càng không phải quê hương ngươi.
+
+- Ta sẽ cố gắng.
+
+Đào Văn nâng bát, Trần Bình An cũng rót rượu nâng lên. Hai người nhẹ nhàng cụng bát, mỗi người uống một ngụm.
+
+- Ở Hạo Nhiên Thiên Hạ, người như ngươi nhiều không?
+
+Trần Bình An suy nghĩ cẩn thận rồi lắc đầu:
+
+- Người giống ta không nhiều lắm. Nhưng người tốt hơn ta và người xấu hơn ta đều rất nhiều.
+
+Một lát sau hắn hỏi:
+
+- Thật sự không đi xem sao?
+
+Đào Văn mỉm cười. Câu hỏi này hơi thừa, không giống Nhị chưởng quỹ suy nghĩ chu toàn, đào hố liên hoàn kia. Sau đó hai người chỉ yên lặng uống rượu.
+
+Đến gần bát cuối, Trần Bình An nâng bát rồi lại đặt xuống, lấy từ trong tay áo một đôi con dấu, nhẹ nhàng đặt lên bàn:
+
+- Không biết Đào thúc thúc có nguyện nhận chút đồ nhỏ này không?
+
+Đào Văn lắc đầu:
+
+- Ta không tiện nhận[?]. Chữ nghĩa là chuyện của người đọc sách các ngươi, ta là kiếm tu, thôi bỏ đi. Để ở nhà không dùng, bám bụi làm gì? Ngươi cầm đi bán lấy tiền còn có ý nghĩa hơn.
+
+Trần Bình An thu dấu, lại nâng bát:
+
+- Người bán rượu thường ít uống rượu, người mua thì tửu lượng kém, tửu phẩm cũng chẳng ra sao. Vậy vì sao còn mua rượu, có phải đạo lý này không, Đào thúc thúc?[?]
+
+Đào Văn cười:
+
+- Ta không giảng đạo lý với người đọc sách. Ngươi uống của ngươi, ta uống của ta. Trên bàn rượu mà khuyên người khác uống, hại nhân phẩm.
+
+Mỗi người uống cạn bát cuối. Trần Bình An đứng dậy, cười ôm quyền:
+
+- Lần tới uống rượu, không biết là lúc nào.
+
+Đào Văn phất tay:
+
+- Uống với ta là chán nhất, ai cũng công nhận, không uống cũng được. Ta không tiễn.
+
+Trần Bình An rời nhà, một mình đi trong ngõ nhỏ. Hai tay hắn nắm chặt hai con dấu.
+
+“Cầu say a, chớ say.”
+
+“Hoa cỏ hành tây.”[?]
+
+Đi một hồi, hắn bỗng hoảng hốt, như đang bước trên ngõ Nê Bình quê nhà. Đào Văn còn ở nhân gian, nhớ vợ con biết bao. Cha mẹ mình không còn ở nhân gian, có phải cũng nhớ mong tiểu Bình An như vậy không?
+
+Hắn dừng bước, suy nghĩ xuất thần, rồi tiếp tục đi. Một lát sau, Đào Văn đột nhiên xuất hiện ở cửa, cười hỏi:
+
+- Con dấu ta vẫn không nhận, nhưng muốn biết hai con dấu khắc chữ gì.
+
+Trần Bình An không quay đầu, lắc đầu:
+
+- Đào thúc thúc, không có gì, chỉ là chút chữ sao chép từ sách mà thôi.
+
+Đào Văn cười:
+
+- Ngươi là người đọc sách.
+
+Người trẻ tuổi áo xanh cài trâm ngọc trên đầu không nói thêm gì. Thật không giống Nhị chưởng quỹ.
+
+Đào Văn nghiêng người dựa cửa, nhìn căn nhà trống trải. Chữ trong sách cay mắt, rượu trong bát cay bụng. Dường như cả hai thật sự đều có thể khiến người ta chảy nước mắt. Nói như vậy cũng có lý.
+
+Bóng lưng người trẻ tuổi dần đi xa trong ngõ nhỏ. Đào Văn kiếm tiên ngồi xuống ngưỡng cửa, hướng về chiếc bàn trong phòng xa xa, lẩm bẩm:
+
+- Lần ấy cha đến muộn, lại để hai mẹ con các con chờ nhiều năm như vậy. Hành thái, hành thái, không đau, không đau[?]. Cha ở bên này vẫn luôn rất tốt, có thể ăn món xuân, cũng có thể uống rượu với người tốt. Các con đừng đau lòng...
