@@ -1,297 +1,293 @@
 # Chương 680: Ai có thể xứng với Ninh Diêu (Trữ Diêu)
 
-Trong lịch sử toàn bộ giai đoạn đầu của Kiếm Khí Trường Thành công thủ, cảnh tượng như thế nào, Bạch Luyện Sương nói hai chữ, cực kỳ tinh chuẩn, chịu chết.
+Cảnh tượng giai đoạn đầu những trận công thủ trong lịch sử Kiếm Khí Trường Thành thế nào? Bạch Luyện Sương dùng hai chữ để nói, cực kỳ chuẩn xác: chịu chết.
 
-Trên đầu thành, kiếm tiên và kiếm tu cùng nhau tế ra phi kiếm, phô thiên cái địa, kiếm khí như thủy triều mãnh liệt, dũng mãnh lao về phía nam, nơi đi qua đều là bột mịn.
+Trên đầu thành, kiếm tiên và kiếm tu cùng tế ra phi kiếm, che trời lấp đất. Kiếm khí như thủy triều cuồn cuộn tràn về phía nam, nơi đi qua đều hóa thành bột mịn.
 
-Trên chiến trường Yêu tộc chen chúc hướng Kiếm Khí Trường Thành, giống như bị cắt cỏ, từng gốc từng gốc ngã xuống đất không dậy nổi.
+Yêu tộc chen chúc trên chiến trường, lao về Kiếm Khí Trường Thành, giống như cỏ bị cắt, từng lớp ngã xuống không dậy nổi.
 
-Man Hoang thiên hạ có ba vầng trăng, đầu tường nơi này ánh trăng nhiều nhất.
+Man Hoang Thiên Hạ có ba vầng trăng, ánh trăng trên đầu tường nơi này là nhiều nhất. Nhưng kiếm tu trên thành đông như mây, phi kiếm vừa ra đã khiến đêm khuya sáng như ban ngày, cả ánh trăng cũng phải ảm đạm.
 
-Trên đầu thành kiếm tu như mây, phi kiếm vừa ra, đêm khuya sáng như ban ngày, đủ để cho ánh trăng ảm đạm phai mờ.
+Đám yêu tộc dày đặc muốn ngược dòng mà lên, hình thành cục diện kiến bu đầy thành thì còn sớm, rất sớm.
 
-Yêu tộc rậm rạp chằng chịt, chảy ngược dòng nước, muốn hình thành cục diện kiến phụ công thành, thì còn sớm, rất sớm.
+Chúng chỉ có thể dùng vô số tính mạng tiêu hao linh khí của kiếm tu để đổi lấy cơ hội tiếp cận Kiếm Khí Trường Thành. Mỗi khi chiến trường tiến thêm một đoạn về phía bắc, chúng đều phải trả giá cực lớn.
 
-Chỉ có thể dựa vào vô số tính mạng để tiêu hao linh khí của kiếm tu, đổi lấy cơ hội tiếp cận Kiếm Khí Trường Thành, chiến trường cứ mỗi khi đẩy về phía bắc, đều cần trả giá thật lớn.
+Một nhóm đại yêu hiện ra chân thân, dưới sự dẫn dắt của đại yêu Phi Thăng cảnh Trọng Quang, nhổ từng ngọn núi ở Man Hoang Thiên Hạ, khiêng tới chiến trường phía nam rồi dốc sức ném về phía Kiếm Khí Trường Thành.
 
-Có một nhóm đại yêu hiện ra chân thân, ở dưới đại yêu Phi Thăng cảnh trọng quang dẫn dắt, phụ trách mang từng ngọn núi từ Man Hoang thiên hạ rút ra khỏi mặt đất, khiêng đến chiến trường phía nam, sau đó dốc sức đánh về phía Kiếm Khí Trường Thành.
+Đại kiếm tiên Nhạc Thanh, một trong mười người dự khuyết của hàng ngũ đỉnh cao, đeo hai thanh kiếm sau lưng: một thanh Hùng Trấn Ngũ Nhạc và một thanh trường kiếm chế thức của kiếm phường. Cả hai đều chưa ra khỏi vỏ. Hắn tế ra hai phi kiếm bản mạng, trong đó một thanh hóa thành dòng suối trăm trượng như thác đổ, đánh rơi từng ngọn núi đang gào thét lao tới.
 
-Đại kiếm tiên Nhạc Thanh được vinh dự là mười người dự khuyết đỉnh phong, lưng đeo bội kiếm hai thanh, một thanh hùng trấn Ngũ Nhạc, một thanh trường kiếm chế thức Kiếm phường, đều chưa ra khỏi vỏ, phía trên tế ra hai thanh phi kiếm bản mạng, trong đó thanh suối trăm trượng như thác nước đổ xuống, đem từng ngọn núi gào thét ném về phía đầu tường đánh rơi xuống mặt đất, đại địa chấn động, đập chết vô số Yêu tộc, lại có phi kiếm Vân Tước trên trời, kiếm khí như một trận mưa to rơi xuống chiến trường.
+Núi rơi xuống đất, đại địa chấn động, vô số yêu tộc bị đè chết. Thanh phi kiếm Vân Tước còn lại ở trên trời, kiếm khí rơi xuống chiến trường như mưa lớn.
 
-Tông chủ Bắc Câu Lô Châu Thái Huy Kiếm Tông Hàn Hòe Tử, phi kiếm chỉ vào, không cùng với những Yêu tộc chịu chết trên chiến trường kia, phối hợp với Nhạc Thanh, cùng nhau đánh rơi những ngọn núi đập xuống đầu tường.
+Tông chủ Thái Huy Kiếm Tông ở Bắc Câu Lô Châu là Hàn Hòe Tử không để phi kiếm nhắm vào đám yêu tộc chịu chết, mà phối hợp với Nhạc Thanh đánh rơi những ngọn núi ném về đầu tường.
 
-Thủ tịch Yến gia cung phụng, kiếm tu Tiên Nhân cảnh Lý lui mật, cũng có hai thanh bản mạng phi kiếm, một thanh bạch giao, một thanh hắc ngô, sau khi tế ra phi kiếm như hai con giao long trăm trượng, tùy ý quay cuồng trên mặt đất, xoắn giết Yêu tộc.
+Thủ tịch cung phụng Yến gia, kiếm tu Tiên Nhân cảnh Lý Thối Mật, cũng có hai phi kiếm bản mạng, một thanh Bạch Giao, một thanh Hắc Ngô. Sau khi tế ra, chúng hóa thành hai con giao long dài trăm trượng, tùy ý cuồn cuộn trên mặt đất, xoắn giết yêu tộc.
 
-Bản mệnh phi kiếm "Ngao ngư" của Miễ Kính Tiên Nhân cảnh, rời khỏi đầu tường, liền trực tiếp chui vào đại địa, ở trên chiến trường xé rách ra từng khe rãnh, phụ trách cản trở Yêu tộc đẩy mạnh thế tiến công.
+Phi kiếm bản mạng Ngao Ngư của Mễ Hỗ[?] Tiên Nhân cảnh vừa rời đầu tường đã chui vào lòng đất, xé ra từng khe rãnh trên chiến trường, cản trở thế tiến công của yêu tộc.
 
-Mễ Dụ tế ra phi kiếm "Hà Mãn Thiên", liên thủ với huynh trưởng Mễ Dụ, sinh ra hà quang kiếm khí đậm đặc như nước giữa khe rãnh, phòng ngừa đại yêu địch quân lấp đầy khe rãnh, đồng thời nghiền sát tất cả Yêu tộc rơi vào trong khe rãnh.
+Mễ Dụ tế ra phi kiếm Hà Mãn Thiên, liên thủ với huynh trưởng Mễ Hỗ, tạo ra ánh kiếm dày đặc như nước trong những khe rãnh, ngăn đại yêu lấp chúng lại, đồng thời nghiền nát mọi yêu tộc rơi xuống.
 
-Lại có kiếm tiên Nam Bà Sa châu Nguyên Thanh Thục tế ra phi kiếm "Sương Tuyết", giúp kiếm tiên Mễ gia huynh đệ vững vàng khe rãnh, kiếm khí tràn trề, rất nhiều hơn mười yêu tộc lớn nhỏ ở bên cạnh khe rãnh, như đặt mình trong trời sương tuyết lạnh lẽo thấu xương, mặt đất đọng tuyết sâu dày, bông tuyết đầy trời mảnh vụn, Yêu tộc lấy thân thể thực sự cứng cỏi trứ danh hậu thế, hai chân đều là bị kiếm khí làm tan rã máu thịt, xương trắng tr*n tr**, thân thể cũng là máu thịt be bét.
+Kiếm tiên Nguyên Thanh Thục của Nam Bà Sa châu tế ra phi kiếm Sương Tuyết, giúp hai huynh đệ Mễ gia giữ vững các khe rãnh. Kiếm khí tràn trề, yêu tộc ở gần đó như rơi vào trời đông giá rét. Tuyết sâu phủ đất, bông tuyết bay đầy trời. Yêu tộc vốn nổi tiếng có thân thể cứng cỏi, vậy mà máu thịt hai chân bị kiếm khí làm tan rã, xương trắng lộ ra, thân mình cũng be bét máu thịt.
 
-Kiếm Tiên Ngô Thừa Bái đã đình trệ ở bình cảnh Ngọc Phác cảnh nhiều năm, ngồi xếp bằng ở đầu tường. Phi kiếm bản mạng"Cam Lộ" là một thanh phi kiếm cực kỳ kỳ quái ở Kiếm Khí Trường Thành. Phi kiếm Cam Lộ cũng không theo định thức, rơi vào trong đầm sâu máu tươi trên chiến trường. Ngô Thừa Bái nín thở ngưng thần, không xuất kiếm với Yêu tộc mà bắt đầu tĩnh tâm luyện kiếm.
+Kiếm tiên Ngô Thừa Bái đã mắc kẹt ở bình cảnh Ngọc Phác cảnh nhiều năm ngồi xếp bằng trên đầu tường. Phi kiếm bản mạng Cam Lộ của hắn là một thanh phi kiếm hết sức kỳ lạ ở Kiếm Khí Trường Thành. Nó không theo kiếm trận thông thường mà rơi vào một vũng máu sâu trên chiến trường. Ngô Thừa Bái nín thở ngưng thần, không xuất kiếm với yêu tộc, chỉ yên lòng luyện kiếm.
 
-Nữ tử kiếm tiên Chu Trừng tuy rằng cảnh giới không cao, nhưng mà thân mang khí vận độc đáo, làm người còn sót lại cuối cùng của nhất mạch nàng, ở trong năm tháng tu hành dài lâu trên đầu tường, có thể đạt được kiếm ý của lịch đại tổ sư, rèn luyện thành phi kiếm bản mạng, cuối cùng đúc, ôn dưỡng ra một cây phi kiếm bản mạng "Thất thải", kiếm quang bảy màu, tựa như một người có được bảy thanh phi kiếm bản mạng.
+Nữ tử kiếm tiên Chu Trừng tuy cảnh giới không cao nhưng mang khí vận đặc biệt. Là người cuối cùng còn lại của nhất mạch, trong năm tháng dài tu hành trên đầu tường, nàng thu được kiếm ý của các đời tổ sư, rèn luyện thành phi kiếm bản mạng. Cuối cùng nàng đúc và ôn dưỡng ra phi kiếm Thất Thải, kiếm quang bảy màu, tựa như một người có tới bảy thanh phi kiếm bản mạng.
 
-Nằm trong hàng ngũ đỉnh phong thập đại kiếm tiên Nạp Lan Thiêu Vi và Lục Chi, hai người vẫn chưa xuất kiếm, hai người dẫn theo hơn mười vị kiếm tiên thượng ngũ cảnh phi kiếm cực nhanh, chỉ tuần tra chiến trường, chuyên môn nhằm vào những đại yêu ẩn nấp trong đại quân Yêu tộc, nếu có Yêu tộc tới gần đầu tường, cũng sẽ xuất kiếm chém giết, tuyệt đối không để Yêu tộc dễ dàng đẩy tới phía dưới đầu tường.
+Nạp Lan Thiêu Vi và Lục Chi, hai người nằm trong mười đại kiếm tiên đỉnh cao, vẫn chưa xuất kiếm. Họ dẫn theo hơn mười kiếm tiên thượng ngũ cảnh có phi kiếm cực nhanh tuần tra chiến trường, chuyên tìm đại yêu ẩn trong đại quân. Nếu có yêu tộc tới gần đầu tường, họ cũng sẽ xuất kiếm chém giết, tuyệt không để chúng dễ dàng tiến tới chân thành.
 
-Trên đầu tường Kiếm Khí Trường Thành, kiếm tu đều làm việc của mình.
+Trên đầu tường Kiếm Khí Trường Thành, mỗi kiếm tu đều làm việc của mình.
 
-Kiếm tu thượng ngũ cảnh, phi kiếm là đầu thủy triều kiếm khí đi đầu, rời đầu tường xa nhất, đối địch giết địch nhiều nhất, tự nhiên hao tổn linh khí nhất, cũng là hung hiểm nhất.
+Phi kiếm của kiếm tu thượng ngũ cảnh dẫn đầu thủy triều kiếm khí, rời đầu tường xa nhất, giết nhiều địch nhất, tất nhiên cũng hao tổn linh khí nhiều nhất và hung hiểm nhất.
 
-Hai cảnh giới Địa Tiên kiếm tu Nguyên Anh, Kim Đan theo sát phía sau, cũng không yêu cầu những kiếm tu này một mặt cầu xa giết yêu, chỉ cần vững chắc trận hình thành kiếm khí giang hà. Nếu có dư lực, sẽ tìm cơ hội chém giết những tu sĩ Yêu tộc mặc pháp bào, áo giáp phù lục kia, nhất là đám trận sư bí mật hộ tống này, vừa phát hiện dấu hiệu, nhất định phải bất kể giá nào, cũng phải chém giết tại chỗ.
+Kiếm tu Địa Tiên hai cảnh Nguyên Anh, Kim Đan theo sát phía sau. Bọn họ không cần một mực cầu xa giết yêu, chỉ cần giữ vững dòng sông kiếm khí kết thành trận hình. Nếu còn dư lực, họ sẽ tìm cơ hội chém giết tu sĩ yêu tộc mặc pháp bào, giáp trụ phù lục, nhất là những trận sư âm thầm được hộ tống. Vừa phát hiện dấu vết, bất kể giá nào cũng phải giết tại chỗ.
 
-Tất cả kiếm tu dưới Kim Đan cảnh, xuất kiếm càng cần cẩn thận, nhiệm vụ hàng đầu, căn bản không phải giết địch, mà là kết trận ở trước đầu tường. Để tránh bị Yêu tộc chuyên môn nhằm vào đả thương bản mạng phi kiếm của bọn họ.
+Kiếm tu dưới Kim Đan cảnh xuất kiếm càng phải cẩn thận. Nhiệm vụ hàng đầu của họ không phải giết địch, mà là kết trận trước đầu tường, tránh để bản mạng phi kiếm bị yêu tộc cố ý nhằm vào.
 
-Ba nhóm kiếm tu, đều có thay phiên, bày ra tư thế hoa hò hét hù dọa người ta, dù sao dọa không chết người, Kiếm Khí Trường Thành mỗi một vị kiếm tu xuất kiếm, vĩnh viễn là theo đuổi kết quả chiến đấu thực sự.
+Ba nhóm kiếm tu đều luân phiên. Họ không phô trương thanh thế để dọa người, bởi dọa không chết được ai. Mỗi lần xuất kiếm, kiếm tu Kiếm Khí Trường Thành luôn theo đuổi chiến quả thực sự.
 
-Dù sao Đại Yêu công thành, không phải chuyện mấy ngày mấy tháng, thường thường sẽ kéo dài mấy năm.
+Đại yêu công thành không phải chuyện vài ngày hay vài tháng, thường kéo dài mấy năm. Ba ngày ba đêm công thành của yêu tộc Man Hoang Thiên Hạ thật ra chỉ là món khai vị.
 
-Yêu tộc trong Man Hoang Thiên Hạ, ba ngày ba đêm công thành, thật sự chỉ là một món ăn khai vị.
+Điều bất ngờ duy nhất trong khoảng thời gian này đến từ Bạch Oánh, kẻ duy nhất trong mười bốn đại yêu lộ diện. Hắn ngồi trên vương tọa xương trắng, từng đứng dậy một lần, thi triển thần thông Bạch Cốt Quan.
 
-Điều bất ngờ duy nhất trong thời gian này, là một trong mười bốn đại yêu duy nhất xuất đầu lộ diện, Bạch Oánh ngồi trên ngai vàng xương khô, giống như một kẻ nguy nga, hắn từng đứng dậy một lần, thi triển thần thông Bạch Cốt Quan. Trên chiến trường đổ máu ngàn dặm, trong nháy mắt liền có mấy ngàn thi hài xương trắng của tu sĩ Yêu tộc đứng lên, chỉ là không biết vì sao, cũng không công thành, cũng không lùi bước, cứ như vậy đứng thẳng trên chiến trường, mặc cho kiếm khí đánh nát toàn bộ, hoàn toàn mất đi một chút giá trị lợi dụng cuối cùng.
+Trên chiến trường máu chảy ngàn dặm, mấy ngàn bộ xương trắng của tu sĩ yêu tộc lập tức đứng lên. Nhưng chẳng biết vì sao chúng không công thành, cũng không lui bước, cứ đứng như vậy mặc kiếm khí đánh nát, hoàn toàn mất đi chút giá trị lợi dụng cuối cùng.
 
-Bạch Oánh ngồi trở lại vương tọa, vươn một bàn tay ra, hình như là ra hiệu cho đám kiếm tu của Kiếm Khí Trường Thành tiếp tục xuất kiếm.
+Bạch Oánh ngồi lại trên vương tọa, đưa một tay ra, dường như ra hiệu cho kiếm tu Kiếm Khí Trường Thành tiếp tục xuất kiếm.
 
-Bạch Oánh nhìn thoáng qua Ngọc Phác Cảnh Kiếm Tiên Ngô Thừa Bái, đối với thanh phi kiếm bản mạng Cam Lâm cũng rất có hứng thú.
+Hắn liếc Ngô Thừa Bái, vị kiếm tiên Ngọc Phác cảnh, tỏ ra rất hứng thú với phi kiếm bản mạng Cam Lâm[?]. Nhìn ra chiến trường xa hơn, hắn nghĩ nếu sau khi xương trắng dựng lên còn có thể tắm một trận mưa để rèn luyện hồn phách, hẳn sẽ có chút ích lợi cho đại đạo[?]. Ngoài ra, Bạch Oánh không cảm thấy trận chém giết này đáng để nhìn thêm.
 
-Ánh mắt Bạch Oánh nhìn thấy chiến trường phía xa hơn, nếu như tiêu cốt lập qua đi, đồng thời có thể tắm mưa rào, giúp rèn luyện hồn phách, có thể có ích lợi cho đại đạo một chút.
+Ngoại trừ mấy vị đồng liêu trên vương tọa sống đơn độc, không khai chi tán diệp, còn lại mọi thế lực tông môn cùng tất cả phiên thuộc, bao gồm Bạch Cốt sơn trắng muốt của hắn, đều dốc toàn lực xuất động.
 
-Ngoài ra, Bạch Oánh cũng không cảm thấy chém giết như vậy có gì đáng giá để mình nhìn nhiều hơn.
+Nếu có người như vị đạo nhân đại yêu luyện hóa nguyệt phách kia, đứng giữa ba vầng trăng sáng nhìn xuống mặt đất, sẽ thấy trên bản đồ rộng lớn xuất hiện vô số chấm nhỏ như hạt cải, rồi những sợi chỉ mảnh chậm rãi dịch về phía Kiếm Khí Trường Thành. Đó là yêu tộc cuồn cuộn không dứt tiến tới chiến trường.
 
-Trừ mấy vị đồng liêu vương tọa cô độc, không đi khai chi tán diệp, tính cả Bạch Cốt sơn trắng muốt của hắn, các tông môn thế lực còn lại, tính cả toàn bộ phiên thuộc, đều dốc toàn lực xuất động, cho nên Man Hoang thiên hạ hiện nay, nếu có người có thể giống đạo nhân đại yêu luyện hóa nguyệt phách kia, ở giữa ba vầng trăng sáng, quan sát đại địa, là có thể nhìn thấy trên bản đồ rộng lớn, sẽ trước tiên ra một hạt cải, sau đó từng sợi từng sợi nhỏ nhao nhao hướng Kiếm Khí Trường Thành bên này chậm rãi di động, những Yêu tộc kia đều cuồn cuộn không ngừng đi tới chiến trường.
+Mỗi sợi chỉ là mấy vạn, mấy chục vạn yêu tộc, phần nhiều là những con rối chưa mở linh trí bị tu sĩ khống chế. Trong đó cũng có vô số tu sĩ đã bước lên đường tu đạo, yêu tộc hóa hình người, hào kiệt một phương dựng nước theo vương triều Hạo Nhiên Thiên Hạ, yêu vật hung lệ trong núi sâu đầm lớn, kẻ chiếm đất man chướng hay ôm giữ phong thủy bảo địa, cùng các loại sơn thủy thần linh, lệ quỷ oan hồn. Không ai ngoại lệ, ít nhất đều phải đem một nửa gia sản đánh Kiếm Khí Trường Thành.
 
-Mỗi một sợi dây nhỏ, đều là mấy vạn mấy chục vạn Yêu tộc động cái là con rối chưa mở linh trí, bị tu sĩ khống chế khống chế, trong đó cũng có vô số tu sĩ đi lên con đường tu đạo, Yêu tộc hóa thành hình người, còn có đông đảo hào kiệt một phương, học vương triều Hạo Nhiên Thiên Hạ xây dựng ra, yêu vật thâm sơn đầm lầy hung lệ, chiếm cứ vùng đất man chướng, ngồi ôm phong thuỷ bảo địa, các lộ sơn thuỷ thần linh, lệ quỷ oan hồn, không có ngoại lệ, ít nhất đều cần lấy ra một nửa của cải, tấn công Kiếm Khí Trường Thành.
+Nếu không lên được đầu tường, đương nhiên là chịu chết. Nhưng muốn công phá đầu tường thì không thể không có kẻ chịu chết. Càng nhiều sâu kiến vô dụng bỏ mạng, thiên thời địa lợi nhân hòa của Kiếm Khí Trường Thành tưởng như cao không với tới, vững không thể phá càng bị bào mòn.
 
-Nếu như không công được đầu tường, đương nhiên chính là chịu chết.
+Khi cả ba đều mất, ấy chính là lúc Trần Thanh Đô thân tử đạo tiêu, hoàn toàn hồn phi phách tán.
 
-Nhưng muốn công phá đầu tường, thì không thể không chịu chết, chỉ cần hao tổn, chịu chết càng nhiều sâu kiến vô dụng, chết càng nhiều, nhìn như cao không thể với tới, Kiếm Khí Trường Thành kiên cố không thể phá vỡ, sẽ càng ngày càng mất đi thiên thời địa lợi nhân hoà, ba cái đều không có, chính là khoảnh khắc Trần Thanh Đô thân tử đạo tiêu, hoàn toàn hồn phi phách tán kia. Kiếm Khí Trường Thành tự thành một tòa đại thiên địa, Trần Thanh Đô làm sao bảo vệ được phần ưu thế này, Man Hoang Thiên Hạ làm sao lau sạch phần hoàn cảnh xấu này, đây chính là chỗ mấu chốt nhất của công thủ chiến, thậm chí có thể nói là chuyện duy nhất phải làm.
+Kiếm Khí Trường Thành tự thành một tòa đại thiên địa. Trần Thanh Đô bảo vệ ưu thế ấy thế nào, Man Hoang Thiên Hạ xóa bỏ bất lợi ấy ra sao, đó mới là mấu chốt của trận công thủ, thậm chí có thể nói là chuyện duy nhất cần làm.
 
-Cái gì mà Kiếm Tiên xuất kiếm, cái gì mà kiến phụ công thành, đều là đang tranh đoạt cái này.
+Kiếm tiên xuất kiếm hay kiến bu công thành, rốt cuộc đều đang tranh đoạt điều ấy.
 
-Man Hoang thiên hạ chỉ cần xuất ra một nửa nội tình, Kiếm Khí Trường Thành nhất định không thủ được.
+Man Hoang Thiên Hạ chỉ cần đưa ra một nửa nội tình, Kiếm Khí Trường Thành nhất định không giữ được. Không chỉ thế, Hạo Nhiên Thiên Hạ cũng sẽ bị họa tới mấy châu, như Nam Bà Sa châu gần Đảo Huyền sơn nhất, Phù Diêu châu ở tây nam và Đồng Diệp châu ở đông nam.
 
-Chẳng những Kiếm Khí Trường Thành không thủ được, Hạo Nhiên Thiên Hạ cũng sẽ bị hại đến mấy châu, tỷ như Nam Bà Sa châu cách Đảo Huyền sơn gần nhất, Tây Nam Phù Diêu châu, Đông Nam Đồng Diệp châu.
+Vì vậy sau khi lão giả áo xám im lặng vạn năm hiện thân, đại sự đầu tiên là chia Man Hoang Thiên Hạ thành hai mươi địa bàn. Lão yêu cầu mười bốn đại yêu, không ai được ngoại lệ, phải điều động ít nhất một nửa thế lực trong địa bàn đến Kiếm Khí Trường Thành.
 
-Cho nên sau khi lão giả áo xám yên lặng vạn năm một lần nữa hiện thân, làm đại sự đầu tiên, chính là đem một tòa Man Hoang thiên hạ chia làm hai mươi khối địa bàn, muốn mười bốn con đại yêu, ai cũng không thể ngoại lệ, phải điều động ít nhất một nửa thế lực trong đó, đi Kiếm Khí Trường Thành, không hoàn thành chút nhiệm vụ nhỏ này, sẽ không cần thiết sống sót, chiến sự cùng nhau, dẫn đầu đi lên đầu tường, đi lĩnh giáo Trần Thanh Đô kiếm thuật cao thấp, không muốn, liền đi xuống dưới giếng cổ đợi.
+Kẻ không hoàn thành chút nhiệm vụ ấy không cần sống nữa. Khi chiến sự bắt đầu, kẻ đó phải là người đầu tiên lên thành lĩnh giáo kiếm thuật của Trần Thanh Đô. Không muốn thì xuống đáy giếng cổ mà đợi.
 
-Hai mươi khối địa bàn, nếu tu sĩ so sánh mà nói, chỉnh thể cảnh giới không đủ, vậy thì dựa vào số lượng góp vào, càng tốt hơn. Nhưng có một điểm phải làm thành, toàn bộ yêu tộc thượng ngũ cảnh, phải không sót một ai, toàn bộ chạy về phương bắc, bất cứ ai tránh chiến không ra, dám cả gan trốn tránh, trực tiếp làm thịt. Nhưng đối với những tồn tại vất vả giãy dụa đến thượng ngũ cảnh, cũng không thể quá bức bách, chỉ cần nguyện ý xuất chiến, trừ tương lai phong thưởng không thể thiếu nửa điểm., Lúc đầu suất quân xuất chinh, cũng nên được một phần trọng lễ trước, nếu là những tồn tại này chết trận ở Kiếm Khí Trường Thành, không thể nhìn thấy tòa Hạo Nhiên Thiên Hạ kia một cái, như vậy con nối dõi hoặc là đích truyền của bọn họ, có thể cam đoan ở trên bản đồ Man Hoang Thiên Hạ, giống như phong vương liên phiên, có thể chiếm cứ một phương, lớn nhỏ lãnh thổ quốc gia, dựa theo cảnh giới cùng chiến công của đại yêu chết trận để định ra, trong vòng ngàn năm ai cũng không thể xâm phạm chút nào. Nếu là sau khi công phá Kiếm Khí Trường Thành, chẳng những ở quê hương có thể được phong thưởng, hơn nữa bất cứ một vị yêu vật thượng ngũ cảnh nào, cũng có thể ở thiên hạ mới dị thường phong phú kia, trực tiếp khai tông lập phái.
+Trong hai mươi địa bàn, nếu cảnh giới tu sĩ nhìn chung không đủ cao thì lấy số lượng bù vào, càng nhiều càng tốt. Nhưng toàn bộ yêu tộc thượng ngũ cảnh phải không sót một ai chạy về phương bắc. Bất cứ ai tránh chiến đều trực tiếp giết chết.
 
-Phần khế ước do Nguyệt Sơn dẫn đầu này, liên thủ mười bốn Đại Yêu ký kết cùng nhau, bây giờ đã truyền khắp cả tòa Man Hoang thiên hạ.
+Tuy nhiên, với những kẻ vất vả lắm mới bước vào thượng ngũ cảnh cũng không thể ép bức quá mức. Chỉ cần chịu xuất chiến, ngoài phần phong thưởng trong tương lai không thiếu một chút, lúc đầu xuất quân còn được nhận trọng lễ.
 
-Hai mươi khối địa bàn, trong mỗi một khối địa bàn, nếu là cảnh giới tu sĩ đỉnh cao đủ, nhưng mà khiếm khuyết pháp bào, giáp trụ, pháp bảo, lão giả áo xám nói rất trực tiếp, vậy thì làm phiền mười bốn vị xuất chút sức, đừng che giấu của cải, mặc kệ là mình bỏ tiền túi, hay là cho ai mượn, đều đưa ra ngoài, dù sao đến Hạo Nhiên Thiên Hạ, dựa theo sách lược đã định, đều tự cướp đoạt là được, bất kể thủ đoạn, cam đoan ít nhất gấp đôi bù lại, không đủ, đến lúc đó chỉ để ý tìm hắn cùng Thác Nguyệt sơn đòi bồi thường.
+Nếu họ chết trận ở Kiếm Khí Trường Thành, chưa kịp thấy Hạo Nhiên Thiên Hạ, con cháu hoặc đệ tử đích truyền sẽ được bảo đảm phong đất một phương trên bản đồ Man Hoang Thiên Hạ. Lãnh thổ lớn nhỏ tùy cảnh giới và chiến công của người chết mà định, trong ngàn năm không ai được xâm phạm.
 
-Lần công thành này, ngay ngắn trật tự, chia làm tám giai đoạn.
+Sau khi công phá Kiếm Khí Trường Thành, mỗi yêu vật thượng ngũ cảnh không chỉ được phong thưởng ở quê nhà mà còn có thể trực tiếp khai tông lập phái ở tòa thiên hạ mới giàu có ấy.
 
-Bây giờ mới là giai đoạn thứ nhất vừa mới mở màn mà thôi.
+Khế ước do Thác Nguyệt sơn đứng đầu, liên thủ với mười bốn đại yêu ký kết, nay đã truyền khắp Man Hoang Thiên Hạ.
 
-Sau đó những kiếm tiên Kiếm Khí Trường Thành này sẽ không ngừng ngoài ý muốn, tỷ như Man Hoang thiên hạ cũng có võ phu thuần túy mười cảnh, có kiếm thuyền Mặc gia đặt ở trên độ thuyền núi cao, thậm chí sẽ có trên đầu tường, hình ảnh kiếm tu cùng kiếm tu, song phương chỉ lấy kiếm đối kiếm đồ sộ. Man Hoang thiên hạ bên này cũng sẽ tụ tập một nhóm lớn binh gia tu sĩ, thuần một sắc thân khoác giáp hoàn chí bảo, đến lúc đó trên chiến trường, còn có thể bỗng dưng xuất hiện một đống lớn núi cao, là hơn mười vương triều bị dời trống không, sẽ có vô số tu sĩ ở trên từng ngọn núi cao, tiếp theo một hồi pháp bảo mưa to. Hôm nay trên chiến trường bên ta, toàn bộ Yêu tộc cần phải ngước nhìn tòa thành kia cao cao, theo thời gian trôi qua, chiến trường sẽ càng ngày càng cao.
+Trong mỗi địa bàn, nếu tu sĩ đỉnh cao đủ nhiều nhưng thiếu pháp bào, giáp trụ hay pháp bảo, lão giả áo xám nói rất thẳng: phiền mười bốn vị xuất chút sức, đừng giấu của. Dù tự bỏ tiền hay cho mượn, cứ đem ra dùng. Đến Hạo Nhiên Thiên Hạ, theo kế sách đã định, cứ tự mình cướp đoạt bất kể thủ đoạn, bảo đảm bù lại ít nhất gấp đôi. Nếu không đủ thì tìm lão và Thác Nguyệt sơn đòi bồi thường.
 
-Cuối cùng một tòa Kiếm Khí Trường Thành, sẽ trở thành bản đồ trên ý nghĩa thật sự của Man Hoang Thiên Hạ, bên này giảm bên kia tăng, phong thủy luân chuyển, đến lúc đó lại giằng co cùng Hạo Nhiên Thiên Hạ, sẽ thành Yêu tộc tiến có thể công lui có thể thủ.
+Lần công thành này được sắp xếp đâu vào đấy, chia thành tám giai đoạn. Bây giờ giai đoạn thứ nhất mới bắt đầu.
 
-Bạch Oánh bắt đầu uống rượu, nghe nói Hạo Nhiên Thiên Hạ có nhiều tiên gia rượu nhưỡng.
+Sau đó, những kiếm tiên ở Kiếm Khí Trường Thành sẽ liên tục gặp bất ngờ. Man Hoang Thiên Hạ cũng có võ phu thuần túy mười cảnh, có kiếm thuyền Mặc gia đặt trên độ thuyền lớn như núi. Thậm chí trên đầu tường sẽ xuất hiện cảnh tượng kiếm tu hai bên lấy kiếm đối kiếm.
 
-Trên đầu thành những kiếm tiên tâm cao khí ngạo kia, không phải thích dốc sức xuất kiếm giết yêu sao, chỉ để ý thống khoái xuất kiếm, mặc dù vớt lấy chiến công, dù sao đều sẽ bị chiến công căng thẳng mà chết.
+Phía Man Hoang còn tụ tập một nhóm lớn tu sĩ Binh gia, tất cả khoác giáp trụ chí bảo. Trên chiến trường sẽ đột nhiên xuất hiện vô số núi cao, được dời tới từ hơn mười vương triều đã bị vét sạch. Trên từng ngọn núi có vô số tu sĩ, sau đó sẽ trút xuống một trận mưa pháp bảo.
 
-Kỳ thật từ trận chiến mười ba kia bắt đầu, Man Hoang thiên hạ cũng đã bắt đầu bố cục.
+Hôm nay toàn bộ yêu tộc trên chiến trường phải ngước nhìn tòa thành cao vút. Nhưng theo thời gian, chiến trường sẽ càng lúc càng cao.
 
-Ba trận đều lấy thảm bại Man Hoang thiên hạ rút lui cáo kết công thành chiến, đều là Man Hoang thiên hạ dùng để diễn võ mà thôi.
+Cuối cùng Kiếm Khí Trường Thành sẽ thật sự trở thành một phần bản đồ Man Hoang Thiên Hạ. Bên này giảm bên kia tăng, phong thủy luân chuyển, đến khi giằng co với Hạo Nhiên Thiên Hạ, yêu tộc sẽ tiến có thể công, lui có thể thủ.
 
-Kiếm Khí Trường Thành như sinh ra theo thời thế, quật khởi một nhóm lớn thiên tài trẻ tuổi lấy Trữ Diêu dẫn dắt.
+Bạch Oánh bắt đầu uống rượu. Nghe nói Hạo Nhiên Thiên Hạ có rất nhiều rượu ngon của tiên gia.
 
-Thật ra Man Hoang thiên hạ cũng có phần đúng.
+Đám kiếm tiên tâm cao khí ngạo trên đầu thành chẳng phải thích dốc sức xuất kiếm giết yêu sao? Cứ việc thống khoái xuất kiếm, mặc sức vớt chiến công. Dù sao rồi họ cũng sẽ bị chiến công ấy làm cho căng bụng đến chết.
 
-Thiếu niên Ly Chân có được một bộ phận hồn phách của lão hình đồ tối cao, đương nhiên là một trong số đó, chết thì chết, lão tổ cũng không đau lòng, càng không làm cho Bạch Oánh hắn tiếc hận.
+Thật ra từ mười ba trận chiến kia, Man Hoang Thiên Hạ đã bắt đầu bố cục. Ba lần công thành đều lấy thảm bại và rút lui làm kết thúc chẳng qua là để diễn luyện.
 
-Phải biết rằng hiện giờ cũng có Yêu tộc trẻ tuổi Bách Kiếm Tiên kia nói, chỉ lấy tư chất đại đạo tốt xấu, tương lai thành tựu cao thấp để định, không lấy cảnh giới tạm thời nông sâu, chiến lực mạnh yếu phân chia, đệ tử duy nhất của hán tử râu quai nón kia, Bối Ngôi, trong một trăm kiếm tu, xếp hạng bất quá thứ ba.
+Kiếm Khí Trường Thành thuận theo thời thế xuất hiện một nhóm lớn thiên tài trẻ tuổi do Trữ Diêu dẫn đầu. Thật ra Man Hoang Thiên Hạ cũng vậy.
 
-Dựa theo thói quen của Kiếm Khí Trường Thành, trước kia đợi cho đến khi chiến sự đều ở thế yếu, kiếm tiên sẽ cùng nhau rời khỏi đầu tường, mang chiến trường phân cách, xuất hiện ở tiền tuyến nhất, gắt gao ngăn cản thế công kế tiếp của Yêu tộc.
+Thiếu niên Ly Chân có một phần hồn phách của lão Hình Đồ tối cao đương nhiên là một trong số đó. Chết thì đã chết, lão tổ không đau lòng, Bạch Oánh càng chẳng tiếc hận.
 
-Sau đó liền đến phiên kiếm tu Địa tiên cùng Trữ Diêu những người như vậy mới rời khỏi đầu tường, ở trên chiến trường hai bên chém giết, sinh sinh tử tử, đều dựa vào bản lãnh, đều xem thiên mệnh.
+Hiện nay yêu tộc cũng có cách gọi Bách Kiếm Tiên trẻ tuổi, chỉ xếp hạng theo tư chất đại đạo và thành tựu tương lai, không xét cảnh giới hay chiến lực nhất thời. Bối Ngôi, đệ tử duy nhất của hán tử râu quai nón kia, trong một trăm kiếm tu chỉ xếp thứ ba.
 
-Đến lúc đó, kiếm tu hạ ngũ cảnh gầy yếu không chịu nổi sẽ xuất hiện ở trên đầu tường, một khi có đại yêu thành công leo lên đầu tường, cho dù bị kiếm tiên mỏi mệt lưu thủ đầu tường chặn lại, vẫn sẽ hại tới vô số con kiến đáng thương.
+Theo lệ cũ của Kiếm Khí Trường Thành, khi chiến sự dần rơi vào thế yếu, các kiếm tiên sẽ cùng rời đầu tường, chia cắt chiến trường, xuất hiện ở tiền tuyến để ngăn chặn thế công tiếp theo của yêu tộc.
 
-Không ngừng có phi kiếm lược ra đầu tường, vô số đạo kiếm quang kéo ra vô số lưu huỳnh, trong lúc đó không ngừng có kiếm tu thu phi kiếm bản mạng, lui về đầu tường, sau đó những kiếm tu này sẽ rời khỏi tuyến đầu tường thành đầu tiên, đi hướng bên kia đầu tường gần đó ôn dưỡng phi kiếm, nuốt đan dược, hô hấp thổ nạp, một lần nữa tích tụ linh khí, cùng lúc đó, nhóm kiếm tu tiếp theo nhanh chóng bổ sung vị trí, thay nhau ra trận, ngự kiếm ngăn địch.
+Sau đó mới đến lượt kiếm tu Địa Tiên và những người như Trữ Diêu rời thành, chém giết trên chiến trường giữa hai bên. Sống hay chết đều dựa vào bản lĩnh, cũng tùy thiên mệnh.
 
-Đây là nơi Kiếm Khí Trường Thành khiến Man Hoang thiên hạ đau đầu nhất.
+Bấy giờ những kiếm tu hạ ngũ cảnh yếu ớt sẽ lên đầu tường. Một khi có đại yêu thành công leo lên, cho dù bị kiếm tiên mệt mỏi lưu thủ chặn lại, vẫn sẽ có vô số con kiến đáng thương gặp nạn.
 
-Kiếm tu đại khái có thể tọa trấn đầu tường, tiêu hao số lượng đại quân Yêu tộc từng chút từng chút một.
+Phi kiếm không ngừng lướt khỏi đầu tường, vô số kiếm quang để lại những vệt sáng dài. Không ngừng có kiếm tu thu phi kiếm bản mạng, lui khỏi tuyến đầu tới phía sau ôn dưỡng phi kiếm, nuốt đan dược, hô hấp thổ nạp, tích tụ linh khí. Đồng thời nhóm tiếp theo nhanh chóng bổ sung vị trí, thay phiên ngự kiếm ngăn địch.
 
-Yêu tộc cũng từng có Đại yêu quan chiến, tận mắt nhìn thấy bức họa này trôi qua không khỏi thương cảm thổn thức một câu. Tộc ta công thành, như một quái vật khổng lồ cồng kềnh không chịu nổi. Trên chiến trường, ngồi chờ bóc lột, vô cùng thê thảm, vô ích cỡ nào chứ.
+Đó là điều ở Kiếm Khí Trường Thành khiến Man Hoang Thiên Hạ đau đầu nhất. Kiếm tu hoàn toàn có thể tọa trấn trên đầu tường, từng chút một tiêu hao đại quân yêu tộc.
 
-Phía trên Kiếm Khí Trường Thành xuất hiện một vị thiếu niên đồ đen lén lút, sau khi đi lên đầu tường, ở tiệm lâm thời gần Y Phường kiếm phường thiết trí, thiếu niên tựa như cực kỳ sợ chết, lĩnh một món pháp bào mặc ở bên ngoài, bên hông huyền bội một thanh trường kiếm chế thức kiếm phường, sau đó nhanh chân chạy như bay, trong lúc đó có núi cao Man Hoang Thiên Hạ bị kiếm tiên đánh nát, đá vụn bắn tung tóe, Kiếm Khí Trường Thành thật dài, cho dù có kiếm tiên xuất kiếm phá nát hơn phân nửa., Vẫn có con cá lọt lưới kia rơi xuống bên này đầu tường, thanh thế thật lớn, thiếu niên đồ đen vươn hai tay, thay mấy vị kiếm tu trẻ tuổi trung ngũ cảnh tránh né không kịp đỡ tảng đá lớn như căn phòng, thiếu niên đồ đen dáng người thon dài, khuôn mặt bình thường tuy đỡ được tảng đá lớn, nhưng mà nôn ra máu không thôi, không đợi các kiếm tu trẻ tuổi nói một tiếng cảm ơn, thiếu niên liền lau lau vết máu, tiếp tục lảo đảo bỏ chạy.
+Từng có một đại yêu quan chiến, tận mắt thấy cảnh này mà thương cảm thở dài: tộc ta công thành giống như một con quái vật khổng lồ cồng kềnh, chỉ biết ngồi chờ bị xẻ thịt trên chiến trường, vô ích và thê thảm biết bao.
 
-Cuối cùng thiếu niên này rốt cuộc tìm được một nhóm khuôn mặt quen thuộc.
+Trên Kiếm Khí Trường Thành xuất hiện một thiếu niên áo đen lén lút. Sau khi lên thành, hắn đến cửa hàng tạm thời của y phường và kiếm phường nhận một chiếc pháp bào mặc ngoài, bên hông đeo trường kiếm chế thức, trông như cực kỳ sợ chết, rồi nhanh chân chạy đi.
 
-Trước đó, gặp được không ít người quen, ví dụ như kiếm tu Bàng Nguyên Tế bình cảnh Kim Đan, cùng với thiếu nữ Cao Ấu Thanh không ở bên cạnh ca ca Cao Dã Hầu, lại dựa vào bên người Bàng Nguyên Tế xuất kiếm.
+Trên đường, núi cao từ Man Hoang Thiên Hạ bị kiếm tiên đánh nát, đá vụn văng khắp nơi. Kiếm Khí Trường Thành quá dài, dù kiếm tiên đánh nát phần lớn, vẫn có đá lọt lưới rơi tới đầu tường, thanh thế kinh người.
 
-Cũng nhìn thấy một ít ngoài ý muốn, người không quá quen biết đều đứng ở bên cạnh Khổ Hạ Kiếm Tiên tế ra bản mạng phi kiếm, Lâm Quân Bích, Chu Mai, Kim Chân Mộng.
+Thiếu niên áo đen vóc người thon dài, khuôn mặt bình thường, giơ hai tay đỡ một tảng đá lớn bằng gian phòng cho mấy kiếm tu trung ngũ cảnh trẻ tuổi tránh không kịp. Hắn tuy đỡ được nhưng liên tục nôn máu. Không đợi họ cảm tạ, hắn đã lau vết máu, lảo đảo chạy tiếp.
 
-Đám thiên tài kiếm tu trẻ tuổi, nghiêm luật, Tưởng Quan Trừng đến từ Trung Thổ Thần Châu vương triều đã rút lui khỏi Kiếm Khí Trường Thành, sớm thông qua độ thuyền vượt châu lục Đảo Huyền sơn, nghe nói là đi Nam Bà Sa châu du lịch.
+Cuối cùng thiếu niên tìm được một nhóm khuôn mặt quen thuộc.
 
-Khổ Hạ Kiếm Tiên lưu lại, thiếu niên áo đen cũng không kỳ quái, nhưng ba người Lâm Quân Bích lưu lại, chẳng những không trốn ở trong thành trì xa xa quan chiến, còn có lá gan tự mình tham dự trận công thủ này, thiếu niên vẫn cảm thấy vô cùng ngạc nhiên.
+Trước đó hắn gặp không ít người quen, chẳng hạn kiếm tu Bàng Nguyên Tế ở bình cảnh Kim Đan, cùng thiếu nữ Cao Ấu Thanh không ở bên ca ca Cao Dã Hầu mà đứng cạnh Bàng Nguyên Tế xuất kiếm.
 
-Trữ Diêu, núi non, Trần Tam Thu, Đổng Họa Phù, Yến mổ, Phạm Đại Triệt.
+Hắn cũng bất ngờ thấy mấy người không quá quen: Lâm Quân Bích, Chu Mai và Kim Chân Mộng đều đứng bên Khổ Hạ kiếm tiên, tế ra phi kiếm bản mạng.
 
-Sáu người tụ tập một chỗ, đều tự xuất kiếm giết yêu.
+Những thiên tài kiếm tu trẻ tuổi Nghiêm Luật, Tưởng Quan Trừng đến từ các vương triều Trung Thổ Thần Châu đã rời Kiếm Khí Trường Thành, sớm theo độ thuyền vượt châu ở Đảo Huyền sơn đi du lịch Nam Bà Sa châu.
 
-Trấn Nhạc, núi non trùng điệp, đây cũng là một chuyện thú vị trong Kiếm Khí Trường Thành, bởi vì một trong những thanh phi kiếm bản mệnh của Đại Kiếm Tiên Nhạc Thanh có tên là Hùng Trấn Ngũ Nhạc.
+Khổ Hạ kiếm tiên ở lại không khiến thiếu niên áo đen ngạc nhiên. Nhưng ba người Lâm Quân Bích chẳng những ở lại, không trốn trong thành nhìn từ xa, mà còn tự mình tham gia trận công thủ, thật khiến hắn bất ngờ.
 
-Cái đó và bội kiếm "Dưỡng Chúc" của kiếm tiên Ngụy Tấn Bảo Bình châu kia, cùng bội kiếm nửa tiên binh của Tề Thú trùng tên, có hiệu quả như nhau.
+Trữ Diêu, Điệp Chướng, Trần Tam Thu, Đổng Họa Phù, Yến Trác và Phạm Đại Triệt tụ tập một chỗ, ai nấy đều xuất kiếm giết yêu.
 
-Yến mập mạp đeo bội kiếm Tử Điện, đang hùng hùng hổ hổ, mắng to những tên Yêu tộc thối không biết xấu hổ kia, dám dùng thủ đoạn ngầm hại Yến đại gia ta.
+Trấn Nhạc và Điệp Chướng[?] cũng là một chuyện thú vị ở Kiếm Khí Trường Thành, bởi một thanh phi kiếm bản mạng của đại kiếm tiên Nhạc Thanh có tên Hùng Trấn Ngũ Nhạc[?]. Giống như bội kiếm Dưỡng Chúc của kiếm tiên Ngụy Tấn ở Bảo Bình Châu trùng tên với bội kiếm bán tiên binh của Tề Thú.
 
-Đổng Hắc than đem thanh "Hồng trang" có tên cực kỳ son phấn kia hoành kiếm tại đầu gối. Vị con cháu Đổng gia mua đồ không tốn tiền này không mắng đám súc sinh Yêu tộc kia, lúc này đang mắng Yến mập mạp xuất kiếm quá mềm, bay tới bay lui, không khác gì Trần Tam Thu sau khi say rượu. Lời nói của Đổng Họa trước giờ đều thích quét một lượt lớn. Yến Trác liền nói loại đường đi khống chế phi kiếm này của mình, quỹ tích đó gọi là không thể nắm chắc, cũng không phải là xằng bậy, thật ra rất chú ý, chẳng những đối thủ không phát hiện được lộ tuyến, bởi vì ngay cả mình cũng không suy nghĩ thấu đáo, cho nên mới lợi hại nhất.
+Yến mập đeo bội kiếm Tử Điện, đang lớn tiếng mắng đám yêu tộc thối tha không biết xấu hổ, dám dùng thủ đoạn ngầm hại Yến đại gia.
 
-Trần Tam Thu mặc áo trắng, là một pháp bào tổ truyền của Trần thị gia tộc ở Thái Tượng Nhai, vị công tử ca phong độ nhẹ nhàng, bội kiếm vân văn, sớm đã mất đi vỏ kiếm ban đầu, bội kiếm từng là bằng hữu của Tiểu Khúc Khúc, sau khi Tiểu Khúc chết, đã được Trần Tam Thu thu vào trong tay, lần này leo lên đầu tường, mang theo nhiều vỏ kiếm chế thức trường kiếm của Kiếm phường, giấu Vân Văn Tàng Kiếm vào trong đó.
+Đổng Hắc Than đặt ngang trên đầu gối thanh Hồng Trang có cái tên đầy son phấn. Vị con cháu Đổng gia mua đồ không tốn tiền này không mắng yêu tộc, mà đang chê Yến mập xuất kiếm quá mềm, bay tới bay lui chẳng khác Trần Tam Thu say rượu. Đổng Họa Phù nói chuyện xưa nay thích quét luôn một lượt.
 
-Về phần thanh "Vân Văn" ngay từ đầu thuộc về Trần Tam Thu kia, hôm nay tạm cho bạn tốt Phạm Đại Triệt chết sống không có biện pháp phá cảnh tễ thân Kim Đan Khách.
+Yến Trác đáp rằng đường đi của phi kiếm mình khó nắm bắt chứ không phải làm bừa, thật ra rất có chú ý. Không những đối thủ không nhìn thấu lộ tuyến, ngay cả hắn cũng chưa nghĩ rõ, như thế mới lợi hại nhất.
 
-Khống chế phi kiếm ra khỏi thành giết yêu, cũng không phải là chuyện dễ dàng gì.
+Trần Tam Thu mặc áo trắng, là pháp bào tổ truyền của Trần thị ở phố Thái Tượng. Vị công tử phong độ nhẹ nhàng này đeo kiếm Vân Văn, vỏ kiếm ban đầu đã mất từ lâu. Thanh kiếm từng thuộc về bằng hữu Tiểu Khúc Khúc, sau khi Tiểu Khúc chết thì được Trần Tam Thu giữ lấy. Lần này lên đầu tường, hắn mang theo nhiều vỏ trường kiếm chế thức của kiếm phường, giấu Vân Văn vào trong.
 
-Trong Yêu tộc, cũng có không chỉ có khí lực cứng cỏi, còn có hạng người chiến lực không tầm thường, còn có rất nhiều thủ đoạn âm hiểm chuyên phá phi kiếm của kiếm tu, cũng có lượng lớn tử sĩ Yêu tộc, trên thân thể có khắc họa dẫn dụ, phù lục giam giữ phi kiếm của kiếm tu, một khi phi kiếm mắc câu, sẽ không chút do dự tự hủy yêu đan, nổ nát phi kiếm. Những yêu tộc tuyệt đối sẽ không viết hai chữ tử sĩ này, càng sẽ cố ý bị thương, hoặc là làm bộ vô ý, lộ ra một hai sơ hở trí mạng, phi kiếm một khi đụng vào cạm bẫy phù lục trên người chúng nó, bản mạng phi kiếm thậm chí sẽ có kết cục là có đi mà không có về.
+Còn thanh Vân Văn vốn thuộc về hắn từ đầu, nay tạm cho bằng hữu Phạm Đại Triệt mãi không thể phá cảnh bước vào Kim Đan mượn.
 
-Như vậy, kiếm tu còn dám dốc sức xuất kiếm giết yêu? Xuất kiếm còn có tinh thần khí kiếm ý chưa từng có?
+Khống chế phi kiếm ra khỏi thành giết yêu không phải chuyện dễ. Trong yêu tộc không thiếu kẻ thân thể cứng cỏi, chiến lực bất phàm, lại có nhiều thủ đoạn âm hiểm chuyên phá phi kiếm. Vô số tử sĩ yêu tộc khắc phù lục trên người để dụ và giam phi kiếm. Một khi kiếm mắc câu, chúng sẽ không do dự tự hủy yêu đan, nổ nát phi kiếm.
 
-Cái này bản thân đã là cực kỳ khảo nghiệm nhãn lực kiếm tu, càng là một chuyện của Vũ Dư đạo tâm.
+Đám yêu tộc ấy đâu viết hai chữ tử sĩ lên mặt, còn cố ý bị thương hoặc giả vờ vô ý để lộ một hai sơ hở trí mạng. Phi kiếm bản mạng vừa chạm vào bẫy phù lục, thậm chí có thể một đi không trở lại.
 
-Trữ Diêu đeo kiếm cũng bội kiếm, liếc mắt nhìn thiếu niên áo đen kia, có chút bất đắc dĩ, chỉ là vẫn chưa lên tiếng nói chuyện với hắn, đến cũng đã đến, không lẽ còn muốn đuổi hắn rời khỏi đầu tường, huống chi nàng nói, hắn sẽ nghe sao?
+Dưới tình cảnh ấy, kiếm tu còn dám dốc sức xuất kiếm giết yêu không? Mỗi kiếm còn giữ được tinh thần và kiếm ý một đi không trở lại sao? Đây không chỉ thử thách nhãn lực mà còn là chuyện mài giũa đạo tâm.
 
-Cho nên Trữ Diêu xoay người tiếp tục khống chế phi kiếm.
+Trữ Diêu mang kiếm liếc thiếu niên áo đen, có chút bất đắc dĩ, nhưng không lên tiếng. Người đã đến rồi, chẳng lẽ còn đuổi hắn khỏi đầu tường? Huống chi nàng nói thì hắn sẽ nghe sao?
 
-Nàng tự nhiên không chỉ có được một thanh phi kiếm bản mạng, nhưng ngắn ngủn không đến hai mươi năm, liên tiếp ba trận đại chiến, Yêu tộc chỉ từng kiến thức một thanh phi kiếm của Trữ Diêu mà thôi.
+Nàng xoay người tiếp tục khống chế phi kiếm. Nàng đương nhiên không chỉ có một thanh phi kiếm bản mạng, nhưng trong chưa đầy hai mươi năm trải qua ba trận đại chiến, yêu tộc mới chỉ thấy một thanh của nàng.
 
-Trần Bình An biến thành một vị thiếu niên khuôn mặt, nhìn vài lần, liền nhìn ra manh mối.
+Trần Bình An đổi thành khuôn mặt thiếu niên nhìn vài lần liền nhận ra: Phạm Đại Triệt xuất kiếm quá gò bó, không thể hiện được sát lực của kiếm tu ở bình cảnh Long Môn.
 
-Phạm Đại Triệt xuất kiếm quá câu thúc, không nên là sát lực của một vị kiếm tu bình cảnh Long Môn cảnh.
+Không phải tâm tính Phạm Đại Triệt không đủ, cũng không phải nhát gan sợ phiền phức. Chỉ là tình cảnh có phần khó xử. Giết địch trên chiến trường không giống luận bàn ở diễn võ trường Ninh phủ với Yến Trác.
 
-Không phải tâm tính Phạm Đại Triệt không đủ, hoặc là nhát gan sợ phiền phức, mà là tình cảnh tương đối lúng túng, chiến trường giết địch, không phải Ninh phủ luận bàn với Yến gia trên diễn võ trường.
+Hắn rất muốn theo kịp phi kiếm của Điệp Chướng, Trần Tam Thu và những người khác, phối hợp không chê vào đâu được. Nhưng càng cố, từng bước càng sai, cuối cùng ngược lại cần bọn Trần Tam Thu cứu viện.
 
-Phạm Đại Triệt rất muốn đuổi theo đám người Điệp Chướng, Trần Tam Thu xuất kiếm, hy vọng mình có thể cùng những bằng hữu này bản mệnh phi kiếm, phối hợp đến mức không chê vào đâu được, dần dà, chính là vòng vòng đan xen, từng bước sai đi sai, ngược lại cần bọn Trần Tam Thu hỗ trợ cứu viện.
+Trước kia nhìn từ đầu tường, dù kiếm tu Địa Tiên có thị lực tốt nhất cũng chỉ thấy mơ hồ chiến trường xa xôi. Bây giờ ngay cả kiếm tu trung ngũ cảnh chỉ cần tập trung nhìn vào một chỗ đều có thể thấy rõ ràng.
 
-Vốn từ đầu tường bên này nhìn lại, cho dù là một vị kiếm tu Địa tiên thị lực cùng cực, đều sẽ mơ hồ không rõ chiến trường nơi xa, hôm nay lại là kiếm tu trong ngũ cảnh chỉ cần ngưng thần nhìn chăm chú một chỗ, sẽ hiện ra rõ ràng rành mạch.
+Trần Bình An biết đó là công lao của ba vị thánh nhân Nho, Thích, Đạo, một loại thần thông tạo hóa huyền diệu khó giải thích, giúp Kiếm Khí Trường Thành có ưu thế thiên địa áp chế.
 
-Trần Bình An biết đây là công lao của ba vị Nho Thích thánh nhân, là một loại thần thông tạo hóa huyền diệu khó giải thích, giúp Kiếm Khí Trường Thành tạo ra ưu thế trời đất áp thắng.
+Hắn đến cạnh Phạm Đại Triệt đang căng thẳng, ánh mắt khó giấu vẻ ảm đạm. Hắn không bước hẳn lên đầu tường, chỉ thò đầu nhìn chiến trường phía nam, tụ âm thành tuyến, cười khẽ:
 
-Trần Bình An đi tới bên cạnh Phạm Đại Triệt đang sắc mặt căng thẳng nhưng khó nén được ánh mắt ảm đạm, không đi lên đầu tường, chỉ lộ ra một cái đầu, thò đầu ra nhìn về phía chiến trường phía nam, sau đó tụ âm thành tuyến, nhẹ giọng cười nói: "Cũng không phải liên thủ giết đại yêu thượng ngũ cảnh kia, ngươi cứ việc tự mình xuất kiếm là được, đừng để ý tới Đổng Hắc Thán cùng đám Yến mập, chỉ cần phi kiếm của bọn họ bị thương nặng yêu tộc, không kịp mất mạng, ngươi sẽ khống chế phi kiếm, vụng trộm đi lên đâm một kiếm, như vậy chiến công kiếm vô ích không cần ngu ngốc không lấy, đám đại kiếm tiên Kim Đan cảnh này, không biết xấu hổ tranh công lao với một tiểu kiếm tu Long Môn cảnh như ngươi? Còn không nói chút bằng hữu nghĩa khí, đúng không?"
+- Đâu phải cùng nhau giết đại yêu thượng ngũ cảnh, ngươi cứ tự xuất kiếm là được, đừng để ý Đổng Hắc Than với Yến mập. Phi kiếm của họ đánh trọng thương yêu tộc mà nó chưa chết, ngươi cứ lén điều kiếm lên đâm bồi một nhát. Chiến công tự dưng đưa tới, không lấy mới ngốc.
 
-Phi kiếm trùng điệp vẫn thẳng tiến không lùi, kiếm ý thuần túy như người bình thường.
+- Đám đại kiếm tiên Kim Đan cảnh ấy còn không biết xấu hổ tranh công với tiểu kiếm tu Long Môn cảnh như ngươi sao? Chẳng lẽ không nói chút nghĩa khí bằng hữu?
 
-Đổng Họa Phù theo thói quen xuất kiếm truy đuổi điệp chướng, hai người này đều là những kẻ ngoan cố không để ý mông, cho nên Trần Tam Thu và Yến Trác sẽ phối hợp với nhau, cùng nhau vẽ phù. Ngoài ra, đương nhiên cũng cần tự sát, bốn người kề vai chiến đấu ba lần, phối hợp vô cùng thành thạo, sẽ có một bầu không khí giống như tiểu thiên địa.
+Phi kiếm của Điệp Chướng vẫn tiến thẳng không lùi, kiếm ý thuần túy như chính con người nàng[?]. Đổng Họa Phù theo thói quen đuổi theo. Hai người chỉ lo tiến lên không để ý phía sau, nên Trần Tam Thu và Yến Trác phối hợp yểm hộ. Ngoài ra hai người cũng tự giết địch. Bốn người đã ba lần kề vai chiến đấu, phối hợp rất thuần thục, tạo thành khí thế như một tòa tiểu thiên địa.
 
-Mà thanh phi kiếm vô hình của Trữ Diêu chuyên môn phụ trách nhằm vào yêu vật khó dây dưa, bốn người trùng trận giết địch, kỳ thật chính là một loại càn quét cùng thăm dò đối với yêu tộc trên chiến trường, Trữ Diêu chẳng khác gì là một người một kiếm, một mình bọc hậu, cam đoan bốn người còn lại xuất kiếm không lo.
+Phi kiếm vô hình của Trữ Diêu chuyên nhằm vào yêu vật khó đối phó. Bốn người xông trận giết địch, càn quét và thăm dò yêu tộc, còn nàng một người một kiếm bọc hậu, bảo đảm họ yên tâm xuất kiếm.
 
-Cho nên Phạm Đại Triệt hơi dư thừa, Phạm Đại Triệt tự nhận là vướng víu nhất.
+Vì thế Phạm Đại Triệt có phần thừa ra, bản thân hắn cũng cho mình là kẻ vướng víu nhất.
 
-Phạm Đại Triệt lúc trước luyện kiếm ở Ninh phủ, ở giới tử tiểu thiên địa cùng những bằng hữu này, cho dù diễn luyện qua rất nhiều lần, Phạm Đại Triệt cũng không phải là loại kiếm tu chim non chưa từng xuống thành để liều mạng.
+Trước kia luyện kiếm trong tiểu thiên địa giới tử của Ninh phủ, hắn đã diễn luyện cùng bằng hữu rất nhiều lần, cũng không phải chim non chưa từng xuống thành liều mạng. Chỉ là những bằng hữu này quá nổi bật. Cơ hội trên chiến trường thoáng chốc đã qua, hung hiểm và bất ngờ cũng xuất hiện trong nháy mắt. Hắn không theo kịp bốn người Điệp Chướng, dù là ý niệm hay tốc độ phi kiếm.
 
-Nguyên nhân duy nhất là những bằng hữu này quá mức nổi bật, cơ hội trên chiến trường chỉ chớp mắt là qua, hung hiểm và ngoài ý muốn, cũng sẽ xuất hiện trong nháy mắt.
+Nghe giọng nói quen thuộc, Phạm Đại Triệt không quay đầu, cũng không phân tâm khi xuất kiếm. Đó là kiếm tu Kiếm Khí Trường Thành quen chém giết trên chiến trường.
 
-Phạm Đại Triệt không theo kịp bốn người Điệt Chướng, cho dù là ý niệm chuyển động hay tốc độ phi kiếm đều không theo kịp.
+Hắn không do dự hay ngượng ngùng, làm theo lời Trần Bình An. Hắn không còn cố khắp nơi hợp lực giết yêu với bọn Trần Tam Thu, mà tùy cơ ứng biến, đâm bồi những yêu tộc sắp chết.
 
-Sau khi nghe được tiếng nói quen thuộc kia, Phạm Đại Triệt không quay đầu nói chuyện với Trần Bình An, xuất kiếm càng không có phân tâm.
+Trần Bình An từng nói, nhặt đầu người trên chiến trường cũng như nhặt tiền, đều dựa vào bản lĩnh thật sự. Ai dám bảo ta không biết xấu hổ, lão tử sẽ dùng rượu Trúc Hải động thiên ngon nhất Kiếm Khí Trường Thành phun vào mặt ngươi.
 
-Đây là kiếm tu Kiếm Khí Trường Thành quen chiến trường sát phạt.
+Quan chiến một lát, hắn tiếp tục nhắc:
 
-Phạm Đại Triệt không hề do dự hay thẹn thùng, dựa theo lời nói của Trần Bình An xuất kiếm, dựa theo lời nói của vị nhị chưởng quầy này mà làm, không còn ý đồ khắp nơi xuất kiếm hợp lực giết yêu với bọn Trần Tam Thu, chỉ là tùy cơ hành động, bổ sung một phi kiếm cho những Yêu tộc gần chết kia. Trần Bình An đã sớm nói, nhặt đầu người trên chiến trường chính là nhặt tiền, toàn bộ dựa vào bản lãnh thật sự, ai dám nói ta không biết xấu hổ, lão tử sẽ dùng rượu Trúc Hải động thiên tốt nhất của Kiếm Khí Trường Thành phun vào mặt ngươi.
+- Phạm Đại Triệt, bên trái phi kiếm ngươi mười hai trượng, con yêu tộc bị thương nặng kia đang giả chết. Đi, cho nó một kiếm.
 
-Trần Bình An quan chiến một lát, tiếp tục nhắc nhở: "Phạm Đại Triệt, phi kiếm của ngươi ở bên trái mười hai trượng, đầu Yêu tộc bị thương nặng đang giả chết, đi, cho nó một kiếm."
+Một kiếm sắc bén xuyên thủng đầu con yêu tộc đang nằm rạp dưới đất.
 
-Một kiếm sắc bén xuyên thủng đầu lâu của Yêu tộc đang phủ phục dưới mặt đất.
+Trần Bình An đảo mắt nhìn chiến trường:
 
-Trần Bình An nhìn lướt qua chiến trường kia, tiếp tục nói: "Phạm Đại Triệt, ngươi có thể khống chế phi kiếm tạm thời rời khỏi chiến trường điệp chướng bọn họ, không cần cố gắng đuổi theo, đi về phía xa hơn, tất cả thi thể, quản hắn có phải giả chết hay không, đều bổ sung một kiếm, đối với những mặt hàng này xuất kiếm, tương đối an ổn, bởi vì khả năng tử sĩ kia là nhỏ nhất. Đừng tham lớn cầu toàn, chiến công loại vật này, chỉ cần ngươi không thương tổn căn bản phi kiếm, có cái là, có rất nhiều. Ngươi coi như trên chiến trường phía nam là một sân diễn võ mới tinh, muốn đuổi kịp bước chân của bọn Trần Tam Thu, phải ra kiếm nhiều hơn nghĩ, sớm hay muộn ngươi có thể thành công dự phán quỹ tích kiếm của bọn họ, đến lúc đó ngươi sẽ không cảm thấy mình giúp ngược lại."
+- Ngươi có thể cho phi kiếm tạm rời khỏi chỗ Điệp Chướng, không cần cố đuổi theo, đi xa hơn một chút. Mọi thi thể, mặc kệ có giả chết hay không, đều bồi thêm một kiếm. Đối phó loại này tương đối ổn thỏa, vì ít có khả năng là tử sĩ nhất.
 
-"Rút kiếm! Là tử sĩ, để Yến mập mạp đi trêu chọc một chút."
+- Đừng tham lớn cầu toàn. Chiến công ấy mà, chỉ cần không tổn hại căn bản phi kiếm thì sau này còn nhiều. Cứ coi chiến trường phía nam là một diễn võ trường mới. Muốn theo kịp bọn Trần Tam Thu, ngươi phải xuất kiếm nhiều hơn, suy nghĩ nhiều hơn. Sớm muộn ngươi sẽ đoán được quỹ tích kiếm của họ, không còn cảm thấy mình giúp ngược nữa.
 
-"Thấy chưa, con súc sinh này hiển nhiên cũng là người có đầu óc, ở trên người bọn Trần Tam Thu chiếm không được tiện nghi, liền muốn bắt ngươi nhặt quả hồng mềm. Loại thời điểm này, đừng do dự, chạy nha. Đáng tiếc chính là diễn kỹ kém một chút, nào có yêu vật tè ra quần chạy trối chết, ánh mắt kiên định như thế, tay cầm càng ổn? Đối phương thủ ổn thường thường tâm ngoan, ngươi phải cẩn thận nhiều hơn, ngươi hôm nay bản mạng phi kiếm, tính bền dẻo không đủ, lại không phải Kim Đan cảnh, dù sao không phải Trần Tam Thu Yến mập mạp những công tử ca có tiền, đập tiền vô số ở trên phi kiếm, cho nên ngươi xuất kiếm, ngàn vạn lần đừng cầu nhanh cầu chuẩn, không phải một loại người, cũng đừng xuất một loại kiếm, nhận được."
+- Rút kiếm! Là tử sĩ, để Yến mập đi trêu nó một chút.
 
-"Đại Triệt à, ngươi cũng đừng uổng phí cái tên tốt như vậy, tốt xấu gì cũng đại triệt đại ngộ một lần được không, rõ ràng đã là đại yêu Kim Đan cảnh nửa sống nửa chết, nằm ở chỗ đó chờ ngươi một kiếm siêu độ nó, Kim Đan đã bị chồng chất đánh nát, ta bảo ngươi đừng một mực xuất kiếm cầu nhanh, cũng không để ngươi lúc nên nhanh cầu chậm a, nhìn một cái, đoạt công lao cho Yến mập mạp đi."
+- Thấy chưa? Súc sinh này cũng có đầu óc, không kiếm được tiện nghi chỗ bọn Trần Tam Thu thì muốn tìm quả hồng mềm là ngươi. Lúc này đừng do dự, chạy đi! Tiếc là nó diễn hơi kém. Có yêu vật nào tè ra quần bỏ chạy mà ánh mắt kiên định, tay cầm vũ khí vững như vậy không?
 
-"Hướng Đông Bắc, cách đây hai mươi ba trượng, tu sĩ Yêu tộc kia có nhìn thấy không, nó vừa mới bị mất một món pháp bảo, tâm tư do dự, chỉ là bị đại yêu giám quân phía sau chấn nhiếp, không tiện trực tiếp xoay người rút lui, không được làm giả, đại triệt a, thất thần làm gì, chém chết nó đi. Được rồi, lại bị Điệp Chướng cướp đi, Đại Triệt a, con mẹ nó, ngươi có phải thật ra là vụng trộm thích đại chưởng quỹ của chúng ta hay không?"
+- Kẻ giữ tay vững thường lòng dạ độc ác, ngươi phải cẩn thận. Phi kiếm bản mạng của ngươi chưa đủ bền, ngươi lại chưa phải Kim Đan, dù sao không như đám công tử có tiền Trần Tam Thu, Yến mập, đổ vô số tiền vào phi kiếm. Cho nên xuất kiếm đừng một mực cầu nhanh cầu chuẩn, không phải cùng một loại người thì đừng xuất cùng một loại kiếm, nhớ kỹ.
 
-"Đằng co cùng Trần Tam Thu, xem chừng là Nguyên Anh đại yêu thực lực che giấu, ít nhất cũng nên là bình cảnh Kim Đan, da dày thịt béo, nhưng mà món pháp bảo kia quá mức cồng kềnh, có thể đi hỗ trợ một chút, nhớ rõ phi kiếm tận lực dán sát đất, nếu có thể, thì tìm cơ hội chọc hạ bộ nó. Đầu lâu, ngực những chỗ mấu chốt này, đừng đi thử, con súc sinh này rõ ràng chính là hướng về bọn Trần Tam Thu mà đến, trận này, có thể nghiền nát. Đại Triệt à, một kiếm qua đ*ng q**n này rất có phong thái kiếm tiên mà, thấy tốt thì thu, nhanh chóng bỏ chạy, đại yêu theo dõi ngươi, để Đổng Hắc Thán gánh vác lên."
+- Đại Triệt à, đừng phụ cái tên tốt như vậy, ít nhất cũng phải đại triệt đại ngộ một lần chứ? Rõ ràng là đại yêu Kim Đan nửa sống nửa chết nằm chờ ngươi một kiếm siêu độ, Kim Đan đã bị Điệp Chướng đánh nát. Ta bảo ngươi đừng cứ cầu nhanh, đâu bảo lúc nên nhanh lại cầu chậm? Nhìn xem, Yến mập cướp công mất rồi.
 
-Một đầu Yêu tộc thượng ngũ cảnh vốn phụ trách giám sát chiến trường tuần thú, tựa như phát hiện ra sự khác thường của chiến trường này.
+- Hướng đông bắc, cách đây hai mươi ba trượng, thấy tu sĩ yêu tộc kia không? Nó vừa mất một món pháp bảo, trong lòng do dự, chỉ vì bị đại yêu giám quân phía sau uy hiếp nên không dám quay đầu. Không phải giả vờ đâu. Đại Triệt, còn ngẩn người làm gì, chém chết nó! Thôi xong, lại bị Điệp Chướng cướp mất. Đại Triệt, con mẹ nó, có phải ngươi lén thích đại chưởng quầy nhà chúng ta không?
 
-Nó còn là một kiếm tu Yêu tộc Ngọc Phác cảnh, một đạo kiếm quang khí thế như cầu vồng lao thẳng đến đầu tường, nơi kiếm quang chỉ tới chính là Trần Bình An chỉ lộ ra cái đầu.
+- Con đang giằng co với Trần Tam Thu kia xem chừng là đại yêu Nguyên Anh giấu thực lực, ít nhất cũng là bình cảnh Kim Đan, da dày thịt béo. Nhưng pháp bảo của nó quá cồng kềnh, ngươi có thể tới giúp. Nhớ để phi kiếm sát đất, có cơ hội thì chọc hạ bộ nó. Đừng thử đầu hay ngực, súc sinh này rõ ràng nhắm vào bọn Trần Tam Thu, trận này có thể phá được.
 
-Nhưng mà bị trường kiếm sau lưng Trữ Diêu tự ra khỏi vỏ, một kiếm bổ xuống kiếm quang, phi kiếm rơi xuống đất, ở phía dưới đầu tường nện ra một cái hố to đầy bụi đất, kiếm tu Yêu tộc một kiếm vô công, khống chế phi kiếm, chợt lóe rồi biến mất, từ dưới đất bơi đi không chừng, cuối cùng vòng trở về.
+- Đại Triệt, một kiếm luồn dưới đũng quần này rất có phong thái kiếm tiên đấy! Thấy tốt thì thu, mau chạy! Đại yêu đã để mắt tới ngươi, để Đổng Hắc Than gánh lấy.
 
-Thanh trường kiếm kia của Trữ Diêu tự trở vào bao, thần sắc nàng tự nhiên, tiếp tục khống chế thanh phi kiếm bản mạng đi săn Yêu tộc nơi xa.
+Một yêu tộc thượng ngũ cảnh vốn tuần tra giám sát chiến trường dường như phát hiện chỗ khác thường. Nó là kiếm tu yêu tộc Ngọc Phác cảnh, lập tức phóng một luồng kiếm quang như cầu vồng thẳng tới đầu tường, nhắm vào Trần Bình An chỉ lộ mỗi cái đầu.
 
-Trong đoàn người, chỉ có thanh phi kiếm bản mạng của Trữ Diêu, ba ngày ba đêm qua đi, chưa bao giờ quay về đầu tường.
+Nhưng trường kiếm sau lưng Trữ Diêu tự ra khỏi vỏ, chém xuống kiếm quang. Phi kiếm của yêu tộc rơi xuống đất, nện ra một hố lớn bụi bay mù mịt dưới chân thành. Một kiếm không thành, nó khống chế phi kiếm chợt lóe biến mất, luồn dưới đất một hồi rồi vòng trở về.
 
-Trên chiến trường, có loan phượng màu vàng kia, từ Kiếm Khí Trường Thành bên này, vỗ cánh lướt về chiến trường phía nam, phác sát Yêu tộc.
+Trường kiếm của Trữ Diêu tự trở vào vỏ. Nàng thần sắc như thường, tiếp tục khống chế phi kiếm bản mạng săn yêu vật phía xa. Trong nhóm người, chỉ có phi kiếm của nàng suốt ba ngày ba đêm chưa từng trở về đầu tường.
 
-Có phi kiếm bản mạng của kiếm tiên cao khôi, lớn như thuyền, từ trên trời giáng xuống.
+Trên chiến trường, một con loan phượng màu vàng vỗ cánh từ Kiếm Khí Trường Thành lao về phía nam, nhào giết yêu tộc.
 
-Phi kiếm bản mạng "Thất Thải" của Chu Trừng điên cuồng chạy trên mặt đất, nơi đi qua, bắn tung lên vô số tàn chi đoạn hài.
+Có phi kiếm bản mạng của kiếm tiên Cao Khôi lớn như thuyền từ trên trời giáng xuống. Phi kiếm Thất Thải của Chu Trừng chạy như điên trên mặt đất, nơi đi qua tung lên vô số chân tay tàn phế.
 
-Có gia chủ Ninh thị Ninh Liên Vân, sau khi tế ra phi kiếm bản mạng, trên không trung chiến trường bỗng xuất hiện từng mảng biển mây, kiếm khí như mưa, như mưa to, rơi thẳng xuống đất.
+Gia chủ Ninh thị Ninh Liên Vân tế ra phi kiếm bản mạng, từng mảng biển mây bỗng xuất hiện trên không chiến trường, kiếm khí như mưa lớn rơi thẳng xuống đất.
 
-Trong đại quân Man Hoang thiên hạ, cũng có đại yêu kia thi triển thần thông, khống chế quạ đen thành đàn mây đen, lao về phía đầu tường bên kia, rất nhiều phi kiếm kiếm tu tránh né không kịp, xiêu xiêu vẹo vẹo, một ít bản mạng phi kiếm chui vào trong mây đen, trực tiếp nứt vỡ, như bị cối xay nghiền ép thành bột phấn, kiếm tu trên đầu tường liền trở thành từng huyết nhân.
+Trong đại quân Man Hoang Thiên Hạ, có đại yêu thi triển thần thông, điều khiển đàn quạ đen tụ thành mây đen lao về đầu tường. Nhiều phi kiếm tránh không kịp, bay xiêu vẹo. Một số phi kiếm bản mạng chui vào mây đen lập tức vỡ nát như bị cối xay nghiền thành bột, khiến kiếm tu trên đầu tường hóa thành người máu.
 
-Ninh Liên Vân tự nhiên sẽ không để cho Đại Yêu kia đạt được, bằng vào đám mây đen kia quấy phá kiếm trận, tâm ý khẽ động, khống chế một biển mây trong đó.
+Ninh Liên Vân đương nhiên không để đại yêu kia dựa vào mây đen quấy phá kiếm trận. Tâm ý vừa động, lão điều khiển một biển mây va vào đàn quạ đen.
 
-Mây đen của quạ đen như lão kiếm tiên Ninh Liên Vân va chạm vào nhau.
+Một kiếm tiên trẻ tuổi của Nạp Lan gia ít khi xuất kiếm đưa tay đẩy. Trên đầu đại yêu điều khiển đàn quạ xuất hiện một bạch ngọc đài trong suốt, nện thẳng xuống.
 
-Một vị kiếm tiên trẻ tuổi xuất kiếm không nhiều lần của gia tộc Nạp Lan đưa tay đẩy, chỉ thấy đại yêu tế ra đàn Hắc Vân Nha kia rơi xuống một tòa bạch ngọc đài trong suốt, thẳng tắp đập về phía đầu của đại yêu.
+Đại yêu căn bản không chống cự, chỉ lướt về sau bỏ chạy. Đại quân yêu tộc ở đó bị bạch ngọc đài đập trúng, máu tươi văng tung tóe.
 
-Đại yêu kia căn bản không chống cự, chỉ lướt về phía sau rồi bỏ chạy. Đại quân Yêu tộc ở đó đã bị Bạch Ngọc Đài đập xuống đầu, máu tươi văng khắp nơi.
+Không chỉ vậy, đại yêu dường như bị thần thông kỳ lạ của kiếm tiên khóa chặt. Bất kể nó chạy hay đổi hướng thế nào, những bạch ngọc đài chứa kiếm khí vô tận vẫn lần lượt rơi xuống, gây tai họa khắp nơi.
 
-Không chỉ như thế, Đại Yêu dường như bị một loại thần thông cổ quái nào đó của Kiếm Tiên để mắt tới, bất kể nó bỏ chạy thế nào, thay đổi tuyến đường, đều có Bạch Ngọc Đài ẩn chứa kiếm khí vô tận lần lượt rơi xuống, trong lúc nhất thời, tai bay vạ gió.
+Mười tám bạch ngọc đài lần lượt rơi, cuối cùng bao phủ con đại yêu không còn đường trốn. Nó đành hiện chân thân, gắng gượng chống đỡ ngọc đài đè xuống. Khi ngọc đài nứt vỡ nổ tung, chân thân nó bị nện xuống đất, máu thịt nửa người gần như bị mài mòn hết.
 
-Mười tám tòa Bạch Ngọc đài lần lượt rơi xuống, cuối cùng thành công bao phủ con Đại yêu không chỗ trốn kia. Đại yêu đành phải hiện ra chân thân, gắng gượng khiêng tòa Bạch Ngọc đài áp đỉnh kia. Khi Bạch Ngọc đài không ngừng rạn nứt hoàn toàn nổ tung, chân thân Đại yêu cũng bị nện xuống mặt đất, chỉ là nửa thân thể, huyết nhục Đại yêu đều bị mài mòn hầu như không còn, hung hăng nhìn chằm chằm vào kiếm tiên ra tay ở đầu tường bên kia. Nó một lần nữa biến ảo hình người, hừ lạnh một tiếng, lựa chọn tạm thời rời khỏi chiến trường, đi nghỉ ngơi lấy lại sức.
+Nó hung hăng nhìn kiếm tiên trên đầu tường, lại hóa thành hình người, hừ lạnh rồi tạm rời chiến trường dưỡng sức.
 
-Vị kiếm tiên trên đầu tường kia rời khỏi đầu tường phía nam, đi hướng phương bắc nhắm mắt dưỡng thần.
+Vị kiếm tiên kia cũng rời phía nam đầu tường, đi về phía bắc nhắm mắt dưỡng thần. Một kiếm tiên khác từ phía bắc đến thay, tọa trấn một phương.
 
-Một vị kiếm tiên từ bắc nam, thay thế vị trí của người này, phụ trách tọa trấn một phương.
+Chỉ cần đại yêu dám ra tay, bên đầu tường nhất định có kiếm tiên hỏi kiếm đáp lễ. Đại yêu đã từng xuất thủ trên chiến trường, lần sau lộ diện trong phạm vi xuất kiếm, đại kiếm tiên còn phải chủ động hỏi kiếm một lần.
 
-Chỉ cần có đại yêu dám can đảm ra tay, đầu tường bên này nhất định phải có kiếm tiên vấn kiếm hoàn lễ.
+Nếu đại yêu gan lớn không sợ chết đứng gần nhất, Nhạc Thanh, Ninh Liên Vân, Hàn Hòe Tử và Lý Thối Mật đều là đại kiếm tiên không thuộc mười người đứng đầu; bất kể một người hay cùng xuất kiếm, nếu không thể đánh trọng thương đối phương, tất cả đều bị trừ chiến công.
 
-Hơn nữa đại yêu từng ra tay một lần trên chiến trường, lần sau lộ diện, chỉ cần hiện thân trong phạm vi xuất kiếm, đại kiếm tiên còn cần chủ động hỏi kiếm một lần.
+Đó là quy củ của Kiếm Khí Trường Thành, một thiết luật do lão đại kiếm tiên tự đặt ra.
 
-Đại yêu lá gan to, không sợ chết, đứng gần nhất, Nhạc Thanh, Ninh Liên Vân, Hàn Hòe Tử, Lý Thối Mật đều là đại kiếm tiên không nằm trong mười người đứng đầu, bất kể là một người xuất kiếm, hay là cùng xuất kiếm, dù sao sau khi xuất kiếm, nếu không thể làm trọng thương được, vậy thì tất cả mọi người tiêu giảm chiến công.
+Ngoài ra, đại yêu Ngọc Phác cảnh dẫn quân cứ việc ra tay, sẽ không bị đại kiếm tiên trên đầu tường cố ý nhằm vào. Kiếm Khí Trường Thành chết bao nhiêu kiếm tu cũng tự nhận.
 
-Đây là quy củ của Kiếm Khí Trường Thành, lão đại kiếm tiên tự mình ký kết một thiết luật.
+Mỗi kiếm tu ngoài dốc sức xuất kiếm giết yêu, ngăn địch, còn phải học cách tự bảo vệ mình trong chém giết. Một kiếm tiên đã chết chính là chết; một kiếm tu còn sống, dù chưa thành Địa Tiên, vẫn có vô số khả năng.
 
-Trừ cái đó ra, đại quân Yêu tộc đầu lĩnh Ngọc Phác cảnh cứ việc ra tay, cũng sẽ không bị đại kiếm tiên trên đầu tường cố ý nhằm vào, Kiếm Khí Trường Thành bên này chết bao nhiêu kiếm tu, Kiếm Khí Trường Thành đều nhận.
+Nếu không như thế, từng kiếm tiên thiện chiến từ đâu mà có? Chẳng lẽ kiếm tu chỉ biết trốn tránh xuất kiếm, dựa vào tổ tiên kiếm tiên cẩn thận che chở?
 
-Bất cứ một vị kiếm tu nào ngoại trừ dốc sức xuất kiếm, giết yêu ngăn địch, thì nên học được cách tự bảo vệ mình trong quá trình chém giết.
+Cho nên Trần Thanh Đô từng nói với Trữ Diêu: trong lòng lão không có ai không thể chết!
 
-Một Kiếm Tiên đã chết, chính là chết.
+Đó là chân tướng tàn nhẫn mà suốt vạn năm lão đại kiếm tiên chưa từng giấu giếm vãn bối. Chiến sự thảm liệt, chém giết hung hiểm, không đâu là không có.
 
-Một kiếm tu còn sống, dù chưa trở thành Địa Tiên, lại có vô số loại khả năng.
+Ở hai đầu tường thành và trên không Kiếm Khí Trường Thành, nơi ba vị thánh nhân Nho, Thích, Đạo tọa trấn, còn có một chiến trường kín đáo hơn, lặng lẽ mà càng then chốt.
 
-Không như vậy, từng vị thiện chiến kiếm tiên từ đâu mà đến, kiếm tu trốn trốn tránh tránh xuất kiếm, chỉ dựa vào tổ tiên kiếm tiên cẩn thận che chở sao?
+Lão thánh nhân Đạo gia ở nơi cao nhất màn trời liên tục phất chiếc phất trần trắng như tuyết xua mây khói, tựa danh sĩ độc tọa trên đỉnh núi thanh đàm, phất đi bụi bặm, phong lưu lưu truyền muôn đời.
 
-Cho nên Trần Thanh Đô nói với Trữ Diêu câu kia, trong lòng hắn không ai không thể chết!
+Tăng nhân ngồi trên bồ đoàn yên lặng tụng kinh. Khắp nơi nở ra hoa sen vàng, không ngừng bay lên thành một dòng sông vàng, trên đó trôi nổi từng chiếc đèn hoa sen.
 
-Đây chính là chân tướng tàn nhẫn mà lão đại kiếm tiên vạn năm qua chưa bao giờ che giấu cho vãn bối.
+Thánh nhân Nho gia ngồi ngay ngắn, mở sách thánh hiền. Văn tự màu vàng lần lượt bay khỏi trang sách; đọc xong một quyển, trên sách không còn chữ nào, ông lại mở quyển tiếp theo.
 
-Chiến sự thảm liệt, chém giết hung hiểm, không chỗ nào không có.
+Trần Bình An đã rời chỗ Phạm Đại Triệt, từng đến bên Bàng Nguyên Tế, từ xa tế hai phi kiếm Khụ Lôi và Tùng Châm[?] giúp bày thủ thuật che mắt, thấy tốt thì thu. Hắn cũng hiện thân cạnh Cao Dã Hầu, Tư Đồ Úy Úy, giúp chút việc nhỏ.
 
-Mà hai đầu trên tường thành, cùng với không trung Kiếm Khí Trường Thành, nơi Thánh Nhân Nho Thích Đạo Tam Giáo tọa trấn, có chiến trường ẩn nấp càng thêm mấu chốt, lặng yên không một tiếng động, lại đồng thời càng thêm mấu chốt.
+Nơi có kiếm tiên tọa trấn hắn không dừng lại. Nhưng gặp khách quen quán rượu, những kiếm tu trung ngũ cảnh từng uống rượu nhà mình, hắn đều nán lại. Hắn không chỉ tế hai thanh kiếm mô phỏng mà còn dùng Mùng Một và Mười Lăm dứt khoát giết địch.
 
-Vị đạo gia lão thánh nhân tọa trấn chỗ cao nhất màn trời kia, lần lượt vung đuôi kết tuyết trắng trong tay xua tan mây khói, như danh sĩ thanh đàm độc tọa đỉnh núi, phất uế thanh thử, phong lưu thiên cổ kia.
+Tuy vậy hắn tuyệt không ở lâu một chỗ, cũng không đi theo thứ tự trên một đường. Thỉnh thoảng hắn trở lại nơi từng xuất kiếm, rồi một lần đi đã mấy trăm dặm. Cứu được kiếm tu dưới phi kiếm thì cứu, thuận tay giết được yêu thì giết, tuyệt không cậy mạnh, càng không tham công.
 
-Tăng nhân ngồi trên bồ đoàn yên lặng tụng kinh, khắp nơi mở ra hoa sen kim sắc, không ngừng bay lên, hình thành một dòng sông kim sắc, trôi nổi từng chiếc đèn hoa sen.
+Không chỉ như thế, thoắt cái hắn là thiếu niên áo đen thần sắc chất phác, thoắt cái là lão giả gương mặt tiều tụy.
 
-Nho gia thánh nhân ngồi nghiêm chỉnh, mở ra một quyển sách thánh hiền, văn tự màu vàng trên sách, từng chữ từng chữ từ trên sách lược ra, sau khi một quyển sách thánh hiền đọc xong, liền trống không một chữ, thánh nhân liền mở ra một quyển sách thánh hiền tiếp theo.
+Khi Trần Bình An do dự, cân nhắc có nên đắp tấm da mặt cô gái trong tay lên mặt hay không, một vị kiếm tiên phụ trách hộ trận thật sự không nhìn nổi nữa, lấy tiếng lòng cười mắng:
 
-Trần Bình An đã rời khỏi chiến trường bên cạnh Phạm Đại Triệt, từng xuất hiện bên Bàng Nguyên Tế, từ xa tế ra hai phi kiếm Khụ Lôi, Tùng Châm, hỗ trợ bố trí thủ thuật che mắt, thấy tốt thì thu mà thôi. Cũng ở bên Cao Dã Hầu, Tư Đồ Úy Úy hiện thân, giúp chút việc nhỏ. Kiếm Tiên tọa trấn chỗ này, không dừng lại, nhưng khách quen quán rượu nhà mình, kiếm tu trung ngũ cảnh uống rượu xong, Trần Bình An đều dừng bước, chẳng những tế ra hai thanh kiếm mô phỏng, còn có thể lấy phi kiếm Mùng Một Mười Lăm, dứt khoát lưu loát giết địch, nhưng mà tuyệt đối sẽ không dừng lại quá lâu ở một nơi, cũng không phải ở trên một đường lần theo thứ tự xuất kiếm, sau đó thỉnh thoảng lại trở về chiến trường lúc trước xuất kiếm, sau đó vừa đi chính là đi ra mấy trăm dặm, có thể cứu kiếm tu dưới bản mạng phi kiếm liền cứu được, có thể thuận tay giết yêu liền giết, tuyệt không cậy mạnh, lại càng không tham công.
+- Ngươi là đại tu sĩ nhị cảnh, có thể giữ chút thể diện không?
 
-Không chỉ như thế, một thiếu niên thần sắc chất phác mặc áo đen, thoáng cái là lão giả khuôn mặt tiều tụy.
+Vị kiếm tiên này có quan hệ rất tốt với Nhạc Thanh và Mễ Hỗ. Khi Tả Hữu hỏi kiếm Nhạc Thanh, hắn là một trong những kiếm tiên ra khỏi thành khuyên can.
 
-Khi Trần Bình An do dự, cân nhắc da mặt cô gái trong tay, có cần che ở trên mặt hay không, có một vị kiếm tiên ti chức hộ trận thật sự không nhìn nổi nữa, lấy tiếng lòng cười mắng: "Ngươi là đại tu sĩ nhị cảnh, cần chút mặt mũi được không?"
+Trần Bình An giơ ngón giữa với hắn, sau đó cắn răng quyết đoán đắp da mặt lên, nhảy lên đầu tường. Lúc đi lại, hắn thật sự thướt tha mềm mại như một nữ tử.
 
-Vị Kiếm Tiên này có quan hệ rất tốt với Nhạc Thanh và Mễ Hỗ, lúc ấy Tả Hữu hỏi Kiếm Nhạc Thanh, hắn là một trong những Kiếm Tiên ra khỏi thành khuyên can.
+Rồi hắn giúp một đám kiếm tu trẻ tuổi lén lút xuất kiếm. Vị kiếm tiên ở xa đầu tiên kinh ngạc, sau cười to không dứt, rất khâm phục người đọc sách nhất mạch Văn Thánh mà trước đây hắn vốn không có ấn tượng tốt.
 
-Trần Bình An dựng thẳng một ngón giữa hướng kiếm tiên kia, sau đó cắn răng một cái, quyết đoán phủ lớp da bên trên, nhảy lên đầu tường, hành tẩu, đúng là thướt tha mềm mại như nữ tử.
+Cười xong, kiếm tiên nhìn bóng lưng trẻ tuổi mặc pháp bào y phường, thu liễm tâm thần, tiếp tục hộ trận cho phi kiếm của đông đảo kiếm tu rời đầu tường.
 
-Sau đó giúp đỡ một đám kiếm tu trẻ tuổi lén lút xuất kiếm. Kiếm tiên xa xa kia đầu tiên là kinh ngạc, sau đó cười to không thôi, rất là phục vị người đọc sách Văn Thánh nhất mạch vốn có quan cảm không tốt này.
-
-Kiếm tiên cười xong, nhìn bóng lưng trẻ tuổi mặc pháp bào của y phường, kiếm tiên thu liễm tâm thần, tiếp tục hộ trận cho phi kiếm của đông đảo kiếm tu rời khỏi đầu tường.
-
-Kiếm tiên hướng về phía nam, cẩn thận quan sát từng chi tiết chiến trường, đồng thời ở sâu trong nội tâm sinh ra một ý niệm, đại khái chỉ có người trẻ tuổi như vậy, mới có thể là tiểu sư đệ của Tả Hữu, có thể làm cho lão đại kiếm tiên đặt cược.
+Hắn hướng về phương nam, cẩn thận quan sát từng chi tiết trên chiến trường, trong lòng thầm nghĩ: đại khái chỉ người trẻ tuổi như vậy mới có thể làm tiểu sư đệ của Tả Hữu, khiến lão đại kiếm tiên đặt cược.
 
 Mới có thể xứng đôi với Trữ Diêu.

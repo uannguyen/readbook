@@ -1,527 +1,555 @@
 # Chương 697: Dời núi lấp biển
 
-Ẩn Quan Đại Nhân Kiếm Khí Trường Thành?
+Ẩn Quan đại nhân của Kiếm Khí Trường Thành?
 
-Không phải tiểu cô nương tết tóc sừng dê trong truyền thuyết sao? Nghe đồn nàng có thể chỉ bằng vào hai nắm đấm, đã đánh cho chân thân đại yêu Man Hoang thiên hạ tan vỡ, là một vị thích chiến nhất của Kiếm Khí Trường Thành.
+Chẳng phải trong truyền thuyết là tiểu cô nương tết tóc sừng dê sao? Nghe nói nàng chỉ dùng hai nắm đấm đã đánh tan chân thân đại yêu Man Hoang thiên hạ, là một trong những người hiếu chiến nhất Kiếm Khí Trường Thành. Sao bây giờ lại biến thành nam tử trẻ tuổi có gương mặt xa lạ trước mắt?
 
-Tại sao lại biến thành nam tử trẻ tuổi có gương mặt lạ trước mắt này?
+Nhưng dù không thể tin, lúc này bọn họ cũng phải tin. Nhiều kiếm tiên ngồi đây như vậy, không thể cùng nói bừa.
 
-Chỉ là không dám tin nữa, lúc này cũng phải tin.
+Hoặc cho dù đánh chết cũng không tin, bọn họ vẫn phải giả vờ tin. Nếu thật sự bị phi kiếm của kiếm tiên bản châu cắt đầu, tiện tay ném khỏi Đảo Huyền sơn, món nợ này tính cho ai? Chẳng lẽ còn có thể kéo bè kết phái, cùng chung mối thù tìm Kiếm Khí Trường Thành tính sổ? Đừng quên, đồng hành xưa nay là oan gia, rất nhiều vụ làm ăn của các độ thuyền vẫn luôn xung đột với nhau.
 
-Nhiều Kiếm Tiên ngồi như vậy, không thể không nói lung tung.
+Một lão quản sự Ngai Ngai châu cân nhắc một phen, đứng dậy xoay người, chậm rãi nói:
 
-Hoặc là nói đánh chết không tin, cũng phải làm bộ tin tưởng, bằng không thực sự bị phi kiếm của kiếm tiên bản châu cắt đầu, tùy tay ném ra khỏi Đảo Huyền sơn, thù hận này tính cho ai? Còn có thể kéo bè kết phái, cùng chung mối thù, cùng nhau tìm Kiếm Khí Trường Thành tính sổ? Đừng quên, đồng hành cho tới bây giờ vẫn là kẻ thù. Rất nhiều chuyện làm ăn của độ thuyền, thật ra vẫn luôn xung đột lẫn nhau.
+- Cung chúc Trần kiếm tiên thăng nhiệm Ẩn Quan đại nhân. Tiểu nhân họ Đới, tên Hao,[?] là quản sự độ thuyền Thái Canh của Ngai Ngai châu. Tu vi cảnh giới càng không đáng nhắc đến, sợ làm bẩn tai đại nhân.
 
-Một vị lão quản sự Ngai Ngai châu ước lượng một phen, đứng dậy, lại xoay người, chậm rãi nói: "Cung chúc Trần Kiếm tiên vinh thăng Ẩn Quan đại nhân. Tiểu nhân, họ Đới Mệnh, là quản sự độ thuyền "Thái Canh" của Ngai Ngai châu, tu vi cảnh giới lại càng không đáng nhắc tới, đều sợ ô uế lỗ tai Ẩn Quan đại nhân. Vãn bối cả gan nói một câu, tối nay nghị sự, Ẩn Quan đại nhân một mình ra mặt, đã là vinh hạnh cực lớn của chúng ta, Ẩn Quan lên tiếng, sao dám không theo? Thật ra không cần nhọc công đi nhiều Kiếm Tiên tiền bối như vậy, vãn bối ngu dốt lại mắt vụng về, tạm thời không rõ ràng lắm tiến triển chiến sự bên Kiếm Khí Trường Thành, chỉ biết bất cứ một vị Kiếm Tiên tiền bối nào, đều là cường giả đỉnh phong sát lực thật lớn nhất trên đời này, dừng lại ở Đảo Huyền sơn một lát, đã bớt đi rất nhiều rất nhiều, thật sự đáng tiếc."
+- Vãn bối cả gan nói một câu. Tối nay nghị sự, một mình Ẩn Quan đại nhân ra mặt đã là vinh hạnh cực lớn của chúng ta. Đại nhân lên tiếng, chúng ta nào dám không nghe? Thật ra không cần làm phiền nhiều vị kiếm tiên tiền bối như thế.
 
-Khóe miệng Ngô Chiêu nhếch lên rồi lại đè xuống.
+- Vãn bối ngu dốt mắt kém, tạm thời không rõ chiến sự ở Kiếm Khí Trường Thành tiến triển ra sao, chỉ biết bất cứ vị kiếm tiên tiền bối nào cũng là cường giả đỉnh phong, sát lực lớn nhất trên đời. Các vị dừng lại ở Đảo Huyền sơn một lát, chiến trường đã thiếu đi rất nhiều lực lượng, thật sự đáng tiếc.
 
-Những lời nói này của Đới Hao, mạnh miệng nói đều có, mở đầu một cái tốt. Không hổ là Kim Đan khách trên đường tu hành, thượng ngũ cảnh trên thương trường.
+Khóe miệng Ngô Cầu hơi nhếch lên rồi lập tức đè xuống.[?]
 
-Nhiều kiếm tiên hưởng dự một châu mấy châu như vậy, so với ở bên này bàn chuyện mua bán với chúng ta những thương nhân không ra gì này, không bằng đi Kiếm Khí Trường Thành xuất kiếm giết yêu, thích hợp hơn chút.
+Đới Hao nói đủ cả lời cứng lẫn lời mềm, mở đầu rất tốt. Không hổ là Kim Đan khách trên đường tu hành, thượng ngũ cảnh trên thương trường.
 
-Càng phù hợp với phong thái độ của kiếm tiên.
+Nhiều kiếm tiên danh tiếng khắp một châu, mấy châu, so với ngồi đây bàn mua bán với những thương nhân không ra gì như bọn họ, đến Kiếm Khí Trường Thành xuất kiếm giết yêu đương nhiên thích hợp hơn, cũng hợp phong thái kiếm tiên hơn.
 
-Ngô Dận cảm thấy mình phải niệm tình hương hỏa độ thuyền "Thái Canh", dù sao Đới Hao mạo hiểm mở miệng nói chuyện như vậy, là vì tranh thủ lợi ích cho tất cả độ thuyền tám châu.
+Ngô Cầu cảm thấy mình phải nhớ chút tình hương khói với độ thuyền Thái Canh. Đới Hao mạo hiểm mở miệng là vì tranh lợi ích cho tất cả độ thuyền tám châu. Nếu thật có kiếm tiên nổi giận giết người, hắn nhất định sẽ ra tay ngăn cản.
 
-Nếu thật sự có Kiếm Tiên bạo khởi giết người, Ngô Dận hắn nhất định sẽ ra tay ngăn cản.
+Nữ kiếm tiên Tạ Tùng Hoa ngồi đối diện vị quản sự Ngai Ngai châu nhíu mày. Khá lắm, người của châu nàng phụ trách lại là kẻ đầu tiên nhảy ra “hỏi kiếm” phá quán?
 
-Nữ tử kiếm tiên Tạ Tùng Hoa ngồi đối diện quản sự đò ngang Ngai Ngai châu nhíu mày.
+Trần Bình An kiên nhẫn nghe lão Kim Đan nói hết, ánh mắt vẫn nhìn Đới Hao đang giấu kim trong bông, đồng thời đưa tay ấn hờ về phía Tạ Tùng Hoa hai cái, ra hiệu chuyện nhỏ, không sao.
 
-Khá lắm, Ngai Ngai châu mình phụ trách, thế mà lại thành "người hỏi kiếm" đầu tiên nhảy ra đập phá quán?
+Hắn gật đầu với lão quản sự, cười nói:
 
-Trần Bình An vẫn kiên nhẫn nghe vị lão Kim Đan này nói xong, ánh mắt thủy chung nhìn về Đái Diệp trong ngôn ngữ miên lý tàng châm, lại đưa tay hướng Tạ Tùng Hoa hư ấn hai cái, ý bảo không quan trọng, việc nhỏ.
+- Thứ nhất, ta không phải kiếm tiên, có phải kiếm tu hay không cũng khó nói. Các ngươi hứng thú thì cứ đoán thử. Ta từng đi độ thuyền vượt châu nhiều lần, biết đường xa, không có gì giải buồn thật sự không được.
 
-Trần Bình An gật đầu với lão Kim Đan quản sự, cười nói: "Đầu tiên, ta không phải là kiếm tiên, có phải kiếm tu hay không cũng khó nói, nếu các ngươi có hứng thú thì có thể đoán thử, ta từng ngồi thuyền vượt châu rất nhiều lần, biết rằng vượt châu đi xa, đường xá xa xôi, không có chuyện gì giải buồn thì thật sự không thành. Tiếp theo, những kiếm tiên chân chính đang ngồi đây, ví dụ như Tạ Kiếm Tiên ngồi đối diện Đới Hao ngươi, khi nào xuất kiếm, khi nào thu kiếm, người ngoài cuộc có thể tận tình khuyên bảo, người tốt có lòng tốt, nguyện ý nói mấy lời chân thành là chuyện tốt. Đới Hao, ngươi mở đầu đi, kế tiếp hai bên chúng ta bàn chuyện, nên như thế, thẳng thắn không kiêng nể gì."
+- Thứ hai, những kiếm tiên chân chính đang ngồi đây, ví như Tạ kiếm tiên đối diện Đới Hao ngươi, khi nào xuất kiếm, khi nào thu kiếm, người ngoài có thể tận tình khuyên bảo. Người tốt có lòng tốt, nguyện ý nói mấy câu chân thành là chuyện tốt. Đới Hao mở đầu rồi, tiếp theo hai bên bàn chuyện cứ nên thẳng thắn, không cần kiêng dè.
 
-Điều này làm cho rất nhiều người vốn cho rằng người trẻ tuổi sẽ thẹn quá hoá giận, đám quản sự độ thuyền trở mặt tại chỗ, có chút thất vọng.
+Nhiều quản sự vốn tưởng người trẻ tuổi sẽ thẹn quá hóa giận, trở mặt tại chỗ, không khỏi thất vọng.
 
-Trần Bình An hơi tạm dừng, đưa tay nhẹ nhàng gõ mặt bàn, ý cười không giảm, "Nhưng xét đến cùng, không quản là không quản, đừng nói là ta, cho dù là vị lão đại kiếm tiên kia của chúng ta, cũng không câu thúc, vì sao? Rất đơn giản, kiếm tiên chung quy là kiếm tiên, thể xác và tinh thần phi kiếm đều tự do. Bằng không sao lại đứng đầu quỷ quái ở trên tứ đại sơn kia, không phải là bởi vì chưa bao giờ quá để ý tiền thần tiên, đạo lý thánh hiền, quy củ tông môn các loại."
+Trần Bình An dừng một chút, nhẹ gõ mặt bàn, ý cười không giảm:
 
-Quản sự Bạch Khê của "Ngõa bồn độ thuyền" sơn thủy quật Phù Dao châu, đối diện là vị kiếm tiên Tạ Trĩ xuất thân dã tu bản châu.
+- Nhưng nói cho cùng, không quản vẫn là không quản. Đừng nói ta, ngay cả lão đại kiếm tiên của chúng ta cũng không câu thúc bọn họ. Vì sao? Rất đơn giản, kiếm tiên rốt cuộc vẫn là kiếm tiên, cả thân tâm lẫn phi kiếm đều tự do. Nếu không, sao có thể đứng đầu bốn hạng người trên núi khó đối phó nhất? Chẳng phải vì họ chưa từng quá để ý tiền thần tiên, đạo lý thánh hiền, quy củ tông môn sao?[?]
 
-Đối diện quản sự độ thuyền Kim Giáp châu, là nữ tử kiếm tiên Tống Sính mời rượu lại phạt rượu trước kia.
+Quản sự Bạch Khê của độ thuyền Ngõa Bồn thuộc Sơn Thủy Quật ở Phù Dao châu, ngồi đối diện kiếm tiên dã tu xuất thân bản châu Tạ Trĩ. Đối diện quản sự độ thuyền Kim Giáp châu là nữ kiếm tiên Tống Sính, người trước đó mời rượu rồi phạt rượu. Phía Lưu Hà châu là kiếm tiên Bồ Hòa, người xách quản sự Nguyên Anh cảnh ném khỏi Xuân Phiên Trai như xách gà con, còn nói muốn đưa mấy vị hảo hữu đến ôn chuyện với Lý Huấn ở tổ sư đường.[?]
 
-Đối diện Lưu Hà Châu, là Kiếm Tiên Bồ Hòa, ném ra Xuân Phiên Trai giống như xách gà con quản sự của một vị Nguyên Anh độ thuyền, còn nói muốn mang theo hảo hữu của Nhị Tam đi ôn chuyện với Lý Huấn ở Tổ Sư Đường.
+Đại diện độ thuyền ba châu ấy cảm nhận lời tân nhiệm Ẩn Quan đại nhân sâu sắc nhất.
 
-Người phát ngôn của độ thuyền ba châu này, đối với lời nói của tân nhiệm Ẩn Quan đại nhân, cảm xúc sâu sắc nhất.
+Trần Bình An vẫn ôn hòa như nói chuyện nhà:
 
-Trần Bình An vẫn luôn ôn hòa, như đang cùng người quen nói chuyện trong nhà: "Đái sóc, tuy ta cảm kích lòng tốt của ngươi, nhưng những lời này đổi thành người khác của châu khác mà nói thì có vẻ tốt hơn. Ngươi mà nói, có chút không thỏa đáng, Tạ Kiếm Tiên hai lần xuất kiếm, một lần hủy diệt căn bản của một kiếm tu Ngọc Phác Cảnh yêu tộc, một lần đã đánh tan toàn bộ một yêu tộc Ngọc Phác Cảnh, hồn phi phách tán, không lưu lại nửa điểm, về phần Nguyên Anh ơi Kim Đan à, đương nhiên cũng không còn. Cho nên Tạ Kiếm Tiên đã coi như công đức viên mãn, chẳng những không quay về Kiếm Khí Trường Thành, ngược lại sẽ cùng các ngươi rời khỏi Đảo Huyền sơn, quay về quê hương Ngai Ngai châu, về việc này, Tạ Kiếm Tiên chẳng lẽ lúc trước bận rộn ôn chuyện chè chén với đồng hương, không nói sao?"
+- Đới Hao, ta cảm kích lòng tốt của ngươi, nhưng lời này đổi thành người châu khác nói sẽ thích hợp hơn. Ngươi nói thì hơi không ổn. Tạ kiếm tiên hai lần xuất kiếm, một lần hủy căn bản của kiếm tu yêu tộc Ngọc Phác cảnh, một lần đánh tan cả một yêu tộc Ngọc Phác cảnh, khiến hắn hồn phi phách tán, không còn chút gì. Về phần Nguyên Anh hay Kim Đan, đương nhiên cũng chẳng còn.
 
-Trần Bình An quay đầu nhìn Tạ Tùng Hoa.
+- Cho nên Tạ kiếm tiên đã xem như công đức viên mãn. Nàng chẳng những không trở lại Kiếm Khí Trường Thành, trái lại còn cùng các ngươi rời Đảo Huyền sơn, về quê hương Ngai Ngai châu. Chuyện này, chẳng lẽ lúc trước Tạ kiếm tiên bận uống rượu ôn chuyện với đồng hương, chưa nói sao?
 
-Tạ Tùng Hoa nhìn chằm chằm Đới Diệp: "Đã nói rồi. Chắc là Đái lão thần tiên quên rồi."
+Hắn quay đầu nhìn Tạ Tùng Hoa. Nàng nhìn chằm chằm Đới Hao:
 
-Trần Bình An khoát tay, liếc nhìn tuyết lớn lông ngỗng bên ngoài nội đường Xuân Phiên Trai, nói: "Không sao, lúc này coi như là nói lại một lần, tha hương gặp đồng hương, chuyện hiếm có như thế nào cũng đáng giá nhắc nhở nhiều hơn một lần."
+- Đã nói rồi. Chắc Đới lão thần tiên quên mất.
 
-Đới Hao đứng lên, không dám ngồi xuống, phỏng chừng ngồi xuống cũng sẽ như ngồi trên đống lửa.
+Trần Bình An khoát tay, liếc tuyết lớn ngoài nội đường Xuân Phiên Trai:
 
-"Đứng làm gì? Mọi người đều ngồi, một người độc đứng, khó tránh khỏi có hiềm nghi từ trên cao nhìn xuống đối đãi kiếm tiên."
+- Không sao, coi như nói thêm một lần. Tha hương gặp đồng hương là chuyện hiếm có, nhắc thêm một lần cũng đáng.
 
-Trần Bình An thu lại ý cười, nói với vị lão Kim Đan kia: "Ngồi đi."
+Đới Hao đứng lên, không dám ngồi xuống, đoán chừng có ngồi cũng như ngồi trên đống lửa.
 
-Đới Hao lập tức ngồi xuống.
+- Đứng làm gì? Mọi người đều ngồi, chỉ một người đứng, khó tránh bị nghi từ trên cao nhìn xuống kiếm tiên.
 
-Ngô Cầu và Đường Phi Tiền ngồi cạnh hai vị Trung Thổ Ngọc Phác Cảnh, nhanh chóng liếc nhau.
+Trần Bình An thu ý cười:
 
-Xem ra vị Ẩn Quan đại nhân tân nhiệm này rất không phải là Kiếm Tiên.
+- Ngồi đi.
 
-Ngai Ngai Ngai châu "Nam ki" độ thuyền vị tu sĩ Ngọc Phác cảnh thân phận ẩn nấp kia, Giang Cao Đài, tuổi thật lớn, cũng là dung mạo trẻ tuổi, chỗ ngồi của hắn cực kỳ gần với Đường Phi tiền, hắn cùng "Thái Canh" độ thuyền" Đái Đái Đái có chút hương hỏa tình, hơn nữa bị Kiếm Khí Trường Thành bắt được, xốc lên ngụy trang, thương nhân đang ngồi, lão hồ ly nào không phải luyện thành hỏa nhãn kim tinh, Giang Cao Đài lo lắng về sau Giao Long Câu mua bán, sẽ bị người từ đó làm càn quấy hoàng thành.
+Đới Hao lập tức ngồi xuống. Hai tu sĩ Ngọc Phác cảnh Trung Thổ là Ngô Cầu và Đường Phi Tiền nhanh chóng liếc nhau. Xem ra vị Ẩn Quan mới này quả thật rất không giống kiếm tiên.
 
-Điều này khiến cho Giang Cao Đài về công về tư, về tình về lý, đều nên nói vài câu, bằng không một Ngai Ngai châu to như vậy, thật sự sẽ bị một cô nương như Tạ Tùng Hoa bóp cổ sao?
+Trên độ thuyền Nam Ki của Ngai Ngai châu có tu sĩ Ngọc Phác cảnh giấu thân phận tên Giang Cao Đài. Hắn tuổi thật đã lớn nhưng dung mạo trẻ tuổi, chỗ ngồi rất gần Đường Phi Tiền. Hắn có chút tình hương khói với độ thuyền Thái Canh, hơn nữa thân phận đã bị Kiếm Khí Trường Thành lật ra. Đám thương nhân ngồi đây đều là cáo già, mắt sáng như đuốc, hắn lo việc mua bán ở Giao Long Câu sau này sẽ bị kẻ khác phá hoại.[?]
 
-Giang Cao Đài thậm chí không đứng dậy, trực tiếp mở miệng nói: "Ẩn Quan đại nhân, những người như chúng ta, cảnh giới không đáng nhắc tới, nếu bàn về bản lĩnh đánh giết, có thể tất cả mọi người gộp chung một chỗ, hai ba vị kiếm tiên cùng nhau ra tay, khách nhân Xuân Phiên Trai này sẽ chết hết."
+Công hay tư, tình hay lý, Giang Cao Đài đều nên nói vài câu. Chẳng lẽ cả Ngai Ngai châu rộng lớn lại bị một cô nương như Tạ Tùng Hoa bóp cổ?
 
-Tạ Tùng Hoa nheo mắt, giơ một tay lên, vuốt nhẹ lên tay nắm của ghế.
+Hắn thậm chí không đứng dậy, trực tiếp nói:
 
-Giang Cao Đài đối với điều này coi như không thấy, tiếp tục nói: "Chúng ta những kẻ người đồng nát đầy người, am hiểu việc, nếu không phải chém giết, tự nhiên cũng không thể nói là bảo mệnh, chỉ có thể làm chút buôn bán nhỏ, kiếm chút tiền vất vả. Nếu Ẩn Quan Đại Nhân cảm thấy có thể đàm phán, vậy thì cứ nói chuyện, cảm thấy không cần phải trò chuyện với chúng ta thật tốt, chúng ta vì mạng sống, cho dù không thích hợp mua bán, cũng ngoan ngoãn chịu đựng, châu khác đồng đạo nghĩ như thế nào, ta cũng không xen vào, Giang Cao Đài ta cùng một chiếc thuyền chở thuyền ở phía nam rách nát, liền dẫn đầu, Ẩn Quan Đại Nhân chỉ để ý ra giá, dù là làm lỗ vốn, ta cũng làm, lúc ấy chúc mừng Trần Kiếm Tiên tấn thăng Ẩn Quan Đại Nhân Kiếm Khí Trường Thành."
+- Ẩn Quan đại nhân, những người như chúng ta cảnh giới không đáng nhắc tới. Nếu bàn bản lĩnh chém giết, có lẽ tất cả gộp lại, chỉ cần hai ba vị kiếm tiên cùng ra tay, khách nhân Xuân Phiên Trai sẽ chết hết.
 
-Đám người Ngô Cầu, Bạch Khê, đều nhìn Giang Cao Đài với cặp mắt khác xưa.
+Tạ Tùng Hoa nheo mắt, đưa tay vuốt nhẹ tay vịn ghế. Giang Cao Đài như không thấy, tiếp tục:
 
-Không chút dây dưa dài dòng.
+- Đám người dính đầy mùi tiền chúng ta không giỏi chém giết, tự nhiên cũng không dám nói là giỏi giữ mạng, chỉ biết làm chút buôn bán nhỏ, kiếm ít tiền vất vả. Nếu Ẩn Quan đại nhân thấy có thể bàn, vậy cứ nói chuyện. Nếu không cần bàn bạc tử tế, chúng ta vì giữ mạng, dù vụ mua bán không thích hợp cũng ngoan ngoãn chịu.
 
-Cực tốt.
+- Đồng đạo châu khác nghĩ sao ta không quản. Giang Cao Đài ta và chiếc Nam Ki rách nát sẽ đi đầu. Đại nhân cứ việc ra giá, dù lỗ vốn ta cũng làm, coi như chúc mừng Trần kiếm tiên thăng chức Ẩn Quan đại nhân Kiếm Khí Trường Thành.
 
-Lo lắng duy nhất của Ngô Thao, tạm thời ngược lại không phải vị ẩn quan trẻ tuổi tiếu lý tàng đao kia, mà là "Người trong nhà" hoành hành ngang ngược, ví dụ như Bắc Câu Lô Châu có thù hận lâu năm cùng Ngai Ngai châu.
+Ngô Cầu, Bạch Khê đều nhìn Giang Cao Đài bằng con mắt khác. Không dây dưa dài dòng, rất tốt.
 
-Lúc trước Xuân Phiên Trai Thiệu Vân Nham tự mình an bài quản sự của độ thuyền một châu tụ tập ở một đình viện, lại dùng kiếm tiên bản châu đãi khách, thật sự có thể nói là dụng tâm hiểm ác.
+Điều Ngô Cầu lo nhất tạm thời không phải vị Ẩn Quan trẻ tuổi cười giấu dao, mà là “người nhà” ngang ngược, chẳng hạn Bắc Câu Lô Châu vốn có thù lâu năm với Ngai Ngai châu. Trước đó Thiệu Vân Nham cố ý xếp quản sự độ thuyền từng châu vào cùng một đình viện, lại dùng kiếm tiên bản châu tiếp khách, quả thật dụng tâm hiểm ác.
 
-Bắc Câu Lô Châu cùng Ngai Ngai châu không hợp nhau, là trên đời đều biết.
+Bắc Câu Lô Châu và Ngai Ngai châu không hợp là chuyện cả thiên hạ đều biết. Một lão quản sự Nguyên Anh kiếm tu Bắc Câu Lô Châu muốn lập tức phá đài của Giang Cao Đài. Dù không có tông chủ Phù Bình kiếm tông Ly Thải đang uống rượu ở đây, chỉ cần thấy oắt con Ngai Ngai châu ra oai, Bắc Câu Lô Châu đã muốn đối nghịch. Hai quản sự kia liên tiếp mở miệng, thật coi người Bắc Câu Lô Châu đã chết hết sao?
 
-Cho nên một vị quản sự của lão Nguyên Anh kiếm tu bắc Câu Lô châu, liền muốn lập tức hủy "cao thai đài" nơi Giang Cao Đài này, cho dù không có Phù Bình Kiếm Hồ tông chủ Phù Bình Kiếm Hồ đang uống rượu kia, chỉ cần là oắt con Ngai Ngai châu đang uy phong, bắc Câu Lô châu sẽ nguyện ý đối nghịch, Ngai Ngai châu hai vị độ thuyền quản trước đó nói chuyện, thực sự cho Bắc Câu Lô châu là người chết sao?!
+Trong Hạo Nhiên thiên hạ, độ thuyền Bắc Câu Lô Châu đến Đảo Huyền sơn vốn kiếm tiền ít nhất!
 
-Hạo Nhiên Thiên Hạ, vốn là độ thuyền vượt châu chỉ có Bắc Câu Lô Châu đi Đảo Huyền sơn, kiếm tiền ít nhất!
+Chỉ là các lão kiếm tu quản sự đều nhận được tiếng lòng Ly Thải nhắc nhở:
 
-Chỉ là tất cả quản sự độ thuyền của lão kiếm tu, lại đều được giọng điệu của Khoái Thải nhắc nhở, "Không cần để ý tới thằng nhãi này, tối nay nghị sự, các ngươi chỉ cần xem kịch."
+- Không cần để ý tên này. Tối nay các ngươi chỉ cần xem kịch.
 
-Trần Bình An cười nói: "Đứng lên nói chuyện, Hạo Nhiên Thiên Hạ coi trọng nhất cấp bậc lễ nghĩa."
+Trần Bình An cười nói:
 
-Ẩn Quan trẻ tuổi vừa nói ra, đại đa số quản sự độ thuyền đối diện kiếm tiên đều biến sắc.
+- Đứng lên nói chuyện. Hạo Nhiên thiên hạ coi trọng lễ nghĩa nhất.
 
-Bảo Đới Hao ngồi xuống, lại để cho Giang Cao Đài đứng dậy?
+Vừa nghe lời ấy, phần lớn quản sự ngồi đối diện kiếm tiên đều biến sắc. Bảo Đới Hao ngồi, lại bảo Giang Cao Đài đứng? Đạo lý đều để một mình Trần Bình An ngươi nói hết sao?
 
-Con mẹ nó đạo lý đều nói xong cho một m*nh tr*n Bình An ngươi?
+Sắc mặt Giang Cao Đài âm trầm. Cả đời hắn đại thể thuận lợi, cơ duyên không ngừng, làm ăn với đại lão Lưu thị Ngai Ngai châu cũng chỉ được lễ ngộ, chưa từng chịu nhục như vậy.
 
-Giang Cao Đài sắc mặt âm trầm, đời này hắn đại thể trôi chảy, cơ duyên không ngừng, cho dù là làm ăn với đại lão Ngai Ngai châu Lưu thị, cũng chưa từng chịu qua vũ nhục bực này, chỉ có lễ ngộ.
+Trần Bình An lồng hai tay trong tay áo, cười nhìn hắn.
 
-Trần Bình An hai tay lồng trong tay áo, cứ như vậy cười nhìn Giang Cao Đài.
+Đới Hao nói không muốn chậm trễ kiếm tiên giết yêu, vị Ẩn Quan trẻ tuổi nói một đống lời, câu thật sự có sức nặng lại là Tạ kiếm tiên đánh nát đại yêu Ngọc Phác cảnh, cả Nguyên Anh lẫn Kim Đan đều không còn. Chữ Kim Đan sau cùng chẳng phải nói lão Kim Đan Đới Hao sao?
 
-Đái Tranh và Kiếm Khí Trường Thành nói không muốn chậm trễ kiếm tiên giết yêu, ẩn quan trẻ tuổi liền nói một đống chuyện có thừa, câu nói chân chính có phân lượng, thật ra là Nguyên Anh Kim Đan Tạ Kiếm Tiên đánh nát một vị đại yêu Ngọc Phác cảnh, Kim Đan sau đó, nói chính là Đái Sàm lão Kim Đan kia?
+Giang Cao Đài lấy lui làm tiến, không cho kiếm tiên cơ hội xuất kiếm mà thử giới hạn Kiếm Khí Trường Thành, kết quả đối phương chỉ nói một câu lễ nghĩa Hạo Nhiên thiên hạ. Các lão quản sự khó chịu vô cùng: đây chẳng phải cách giảng lý mà bọn họ ở Hạo Nhiên thiên hạ quen dùng nhất sao?
 
-Giang Cao Đài lấy lui làm tiến, rõ ràng không cho kiếm tiên cơ hội xuất kiếm, lại có thể thử điểm mấu chốt của Kiếm Khí Trường Thành, kết quả Ẩn Quan trẻ tuổi lại nói một câu lễ nghĩa Hạo Nhiên Thiên Hạ?
+Giang Cao Đài cười, đứng dậy ôm quyền:
 
-Trong lòng rất nhiều lão quản sự khó chịu đến cực điểm, những chuyện này, không phải phương thức giảng lý bọn họ nhất Hạo Nhiên Thiên Hạ sao?
+- Là ta thất lễ, bồi tội với Ẩn Quan đại nhân.
 
-Giang Cao Đài cười cười, đứng dậy ôm quyền nói: "Là ta mất cấp bậc lễ nghĩa, bồi tội với Ẩn Quan đại nhân."
+Ngô Cầu, Đường Phi Tiền, Bạch Khê đều lén thở phào, thật sự sợ hắn cho người trẻ tuổi cơ hội giết gà dọa khỉ.
 
-Đám người Ngô Cầu, Đường Phi Tiền, Bạch Khê đều lén lút thở phào nhẹ nhõm.
+Không ngờ Trần Bình An lại cười:
 
-Thật đúng là sợ Giang Cao Đài cho người trẻ tuổi kia cơ hội giết gà dọa khỉ.
+- Nhận lời xin lỗi, có thể ngồi xuống nói chuyện.
 
-Nào ngờ người trẻ tuổi kia lại cười nói: "Tiếp nhận xin lỗi, có thể ngồi xuống nói chuyện."
+Đường đường tu sĩ Ngọc Phác thượng ngũ cảnh, Giang Cao Đài vẫn đứng, sắc mặt xanh mét. Nếu âm thầm giao đấu trên thương trường với Ẩn Quan trẻ tuổi, dù gian nan đến đâu hắn cũng không đến mức khó xử như vậy. Điều hắn lo là mặt mũi tối nay ở Xuân Phiên Trai bị lột sạch, ném xuống đất giẫm hết lần này đến lần khác, sẽ ảnh hưởng đến việc buôn bán riêng với Lưu thị Ngai Ngai châu.
 
-Đường đường tu sĩ Ngọc Phác thượng ngũ cảnh, Giang Cao Đài đứng tại chỗ, sắc mặt xanh mét.
+Hắn tỏ vẻ không muốn bị đùa như khỉ, định phất tay áo bỏ đi. Tạ Tùng Hoa nói:
 
-Nếu là cùng ẩn quan trẻ tuổi kia bắt đôi chém giết trên thương trường, âm thầm vô luận gian nan như thế nào, giang cao đài là người làm ăn, trái lại cũng không đến mức khó xử như thế, điều thật sự khiến giang cao đài lo lắng, là mình tối nay ở Xuân Phiên Trai mặt mũi, bị người ta lột da ném trên mặt đất, giẫm một cước, kết quả lại giẫm một cước, sẽ ảnh hưởng đến sau này mua bán riêng tư với Ngai Ngai châu Lưu thị.
+- Ẩn Quan đại nhân, vậy ta cưỡi Nam Ki này về quê, không cần tiễn.
 
-Giang Cao Đài làm bộ mình không muốn bị đùa giỡn như khỉ, muốn phất tay áo rời đi.
+Không ngờ Thiệu Vân Nham cũng đứng dậy:
 
-Tạ Tùng Hoa nói: "Ẩn Quan đại nhân, vậy ta cưỡi "Nam Ki" này về quê rồi, không cần đưa tiễn."
+- Kiếm Khí Trường Thành và độ thuyền Nam Ki mua bán không thành vẫn còn nhân nghĩa, tin rằng Ẩn Quan đại nhân không ngăn cản, người ngoài như ta càng không thể xen vào. Chỉ là trùng hợp, Thiệu Vân Nham dù sao cũng là chủ Xuân Phiên Trai, trước khi Tạ kiếm tiên rời đi, ta sẽ cùng Giang thuyền chủ dạo một vòng.
 
-Không ngờ Thiệu Vân Nham lại đứng lên, "Kiếm Khí Trường Thành và thuyền vượt không phanh ở phía Nam, mua bán không thành nhân nghĩa, tin rằng Ẩn Quan Đại Nhân sẽ không ngăn cản, một người ngoài như ta lại càng không thể xen vào chuyện này. Chỉ là trùng hợp, dù sao Thiệu Vân Nham cũng là chủ nhân của Xuân Phiên Trai, cho nên trước khi Tạ Kiếm Tiên rời đi, ta sẽ đi dạo Xuân Phiên Trai cùng Giang thuyền chủ."
+Hắn không muốn Tạ Tùng Hoa làm việc quá cực đoan, ảnh hưởng đến thành tựu đại đạo sau này của nàng. Một mình hắn thì không sao.
 
-Rốt cuộc Thiệu Vân Nham không hy vọng Tạ Tùng Hoa làm việc quá cực đoan, tránh ảnh hưởng tới thành tựu đại đạo trong tương lai của nàng, một mình hắn thì không sao.
+Giang Cao Đài dừng bước, cười ha ha quay đầu:
 
-Giang Cao Đài dừng bước, cười ha ha, quay đầu nhìn phía người trẻ tuổi mặt mang ý cười kia, "Ẩn Quan đại nhân, coi chúng ta là kẻ ngốc, Kiếm Khí Trường Thành cứ như vậy mở cửa đón khách buôn bán? Ta ngược lại muốn xem xem dựa vào ép mua ép bán, nửa năm sau, Đảo Huyền sơn còn có mấy chiếc độ thuyền cập bờ?!"
+- Ẩn Quan đại nhân coi chúng ta là kẻ ngốc sao? Kiếm Khí Trường Thành mở cửa buôn bán như vậy à? Ta muốn xem ép mua ép bán thế này, nửa năm sau Đảo Huyền sơn còn mấy chiếc độ thuyền cập bờ?!
 
-Trần Bình An cười nói: "Giang thuyền chủ là người thông minh đỉnh, bằng không làm sao có thể trở thành Ngọc Phác cảnh, làm sao mà không biết cấp bậc lễ nghĩa, quá nửa là ngay từ đầu đã không muốn buôn bán với Kiếm Khí Trường Thành chúng ta, không sao, vẫn để cho chủ nhân thuyền chủ ra ngoài, để cho Thiệu Kiếm Tiên cùng ngắm cảnh là được. Miễn cho mọi người hiểu lầm, có chuyện ta ở chỗ này nói một chút, phải giải thích với mọi người một chút, Thiệu Kiếm Tiên không có quan hệ gì với chúng ta, tối nay nghị sự, chọn nơi phong cảnh đẹp nhất Xuân Phiên Trai, ta đã thay Kiếm Khí Trường Thành trả tiền cho Thiệu Kiếm Tiên."
+Trần Bình An cười:
 
-Thiệu Vân Nham mỉm cười nói: "Kiếm tiên dắt tay nhau đại giá quang lâm, Xuân Phiên Trai nho nhỏ thật vẻ vang cho kẻ hèn này, cho nên chiết khấu vẫn phải có."
+- Giang thuyền chủ thông minh tuyệt đỉnh, nếu không sao có thể thành Ngọc Phác cảnh, sao lại không biết lễ nghĩa? Hơn phân nửa ngay từ đầu ngươi đã không muốn buôn bán với chúng ta. Không sao, cứ để thuyền chủ ra ngoài, Thiệu kiếm tiên cùng ngắm cảnh là được.
 
-Trần Bình An thở dài, thần sắc có chút sầu bi, nói với Giang Cao Đài: "Cường mua cái mũ lớn này ép bán, ta không phải họ Đới, đeo không được. Kiếm Khí Trường Thành cùng thuyền Giáp Căn không làm được buôn bán, chỗ này của ta cho dù đau lòng muốn chết, chung quy là muốn trách bản lãnh mình không đủ, chỉ là đáng tiếc ta ngay cả cơ hội mở miệng ra giá cũng không có, Giang thuyền chủ là nghe cũng không muốn nghe ta ra giá, quả nhiên là câu nói rất hay, người nhỏ lời nhẹ, sẽ thức thời chút, ta càng muốn nói nhẹ khuyên người ta, người nghèo nhập chúng. Để chư vị chế giễu rồi."
+- Để mọi người khỏi hiểu lầm, ta xin giải thích: Thiệu kiếm tiên không liên quan đến chúng ta. Tối nay chọn nơi phong cảnh đẹp nhất Xuân Phiên Trai nghị sự, ta đã thay Kiếm Khí Trường Thành trả tiền cho hắn.
 
-Trần Bình An đứng lên, nhìn Giang Cao Đài vẫn như cũ không dịch bước kia, "Ta không so đo sự kiên nhẫn của chủ thuyền sông không tốt, giang thuyền chủ cũng chớ hiểu lầm ta thành ý không đủ, ngược lại hắt nước bẩn ta, quân tử tuyệt giao, không nói lời ác ý. Lâm thời, chúng ta tranh cái lễ thượng vãng lai, để tụ hảo tán."
+Thiệu Vân Nham mỉm cười:
 
-Sau đó Trần Bình An không nhìn Giang Cao Đài nữa, nhìn từng người Ngô Liêm, Đường Phi Tiền, Bạch Khê: "Kiếm Khí Trường Thành đãi khách, vẫn là vô cùng có thành ý, Đới Tông nói chuyện, Giang thuyền chủ cũng nói chuyện, kế tiếp còn có người, có thể nói thêm chút lời ở trước Kiếm Khí Trường Thành. Sau đó, ta lại đến mở miệng nói chuyện, phản chính tông chỉ có một, từ hôm nay trở đi, nếu để cho chư vị chủ thuyền kiếm ít tiền hơn trước kia, loại mua bán này, đừng nói các ngươi không làm, ta cùng với Kiếm Khí Trường Thành, cũng không làm."
+- Các vị kiếm tiên cùng đại giá quang lâm, Xuân Phiên Trai nhỏ bé vẻ vang biết bao, đương nhiên phải giảm giá.
 
-Nói tới đây, Trần Bình An dời tầm mắt, chuyển dời đến bên kiếm tiên, "Tạ kiếm tiên, không cùng Thiệu kiếm tiên, cùng nhau đưa tiễn Giang thuyền chủ?"
+Trần Bình An thở dài, vẻ mặt sầu muộn:
 
-Tạ Tùng Hoa đứng dậy nhìn vị ẩn quan trẻ tuổi tự tay giúp mình góp nhặt hai khoản chiến công. Vị nữ kiếm tiên không muốn nợ ân tình này lại có vẻ áy náy phá lệ.
+- Cái mũ ép mua ép bán lớn như vậy, ta không phải họ Đới, đội không nổi.[?] Kiếm Khí Trường Thành không làm được mua bán với Nam Ki, dù ta đau lòng đến chết cũng chỉ trách bản lĩnh mình không đủ. Đáng tiếc ngay cả cơ hội mở miệng ra giá cũng không có, Giang thuyền chủ chẳng muốn nghe ta báo giá.
 
-Trần Bình An nhẹ nhàng lắc đầu.
+- Quả nhiên người nhỏ lời nhẹ, phải biết điều một chút. Để chư vị chê cười rồi.[?]
 
-Tạ Tùng Hoa mỉm cười, cũng lười sĩ diện, quay đầu nói với Giang Cao Đài: "Ra khỏi cửa lớn này, Tạ Tùng Hoa chỉ là kiếm tu Ngai Ngai châu Tạ Tùng Hoa. Giang thuyền chủ, vậy thì để ta và Thiệu Vân Nham, hai vị kiếm tu cùng cảnh với ngươi, cùng đi dạo Xuân Phiên Trai với ngươi?"
+Hắn đứng lên, nhìn Giang Cao Đài vẫn chưa dịch bước:
 
-Tâm tư Giang Cao Đài nhanh chóng xoay chuyển, hỏi: "Ẩn quan đại nhân, Kiếm Khí Trường Thành sẽ không để cho chúng ta chịu thiệt, thật sao?"
+- Ta không so đo Giang thuyền chủ thiếu kiên nhẫn, thuyền chủ cũng đừng hiểu lầm ta không đủ thành ý, lại hắt nước bẩn lên ta. Quân tử tuyệt giao không nói lời ác, trước khi đi chúng ta giữ chút lễ thượng vãng lai, để tụ hợp tốt đẹp, chia tay cũng tốt đẹp.
 
-Trần Bình An đi đến một bên khác của bàn tứ tiên, đưa tay đè lại khối ngọc bài hai chữ "Ẩn quan" cổ xưa kia, sau đó mặt hướng về phía mọi người hai bên, cười không nói lời nào.
+Hắn không nhìn Giang Cao Đài nữa, lần lượt nhìn Ngô Cầu, Đường Phi Tiền, Bạch Khê:
 
-Thiệu Vân Nham đã đi về phía cửa lớn.
+- Kiếm Khí Trường Thành tiếp khách rất có thành ý. Đới quản sự đã nói, Giang thuyền chủ cũng nói, tiếp theo còn ai muốn nói trước Kiếm Khí Trường Thành cứ nói thêm. Sau đó ta mới mở miệng. Tôn chỉ chỉ có một: từ hôm nay, nếu để các vị chủ thuyền kiếm ít tiền hơn trước, vụ mua bán này đừng nói các ngươi, ngay cả ta và Kiếm Khí Trường Thành cũng không làm.
 
-Tạ Tùng Hoa đã tỏa ra một luồng kiếm ý, trong hộp kiếm trúc sau lưng có tiếng kiếm ngâm vang.
+Hắn nhìn sang phía kiếm tiên:
 
-Đường Phi Tiền đứng lên, hơi nghiêng người, hướng người trẻ tuổi ôm quyền nói: "Khẩn cầu Ẩn Quan đại nhân lưu lại Giang thuyền chủ, không vui mà tan, chung quy không đẹp, nếu là Ẩn Quan đại nhân, nguyện ý để cho Nam Ki độ thuyền tận lực, chẳng phải là tốt hơn sao."
+- Tạ kiếm tiên không cùng Thiệu kiếm tiên tiễn Giang thuyền chủ sao?
 
-Đường Phi Tiền không phải giúp Giang Cao Đài kia sống sót, giúp thật ra là mình, là tất cả người tối nay nơm nớp lo sợ làm ăn với Kiếm Khí Trường Thành.
+Tạ Tùng Hoa đứng dậy nhìn vị Ẩn Quan trẻ tuổi đã tự tay giúp nàng góp hai phần chiến công. Nữ kiếm tiên không muốn nợ ân tình này đặc biệt áy náy. Trần Bình An nhẹ lắc đầu.
 
-Rất nhiều oán hận, trước tiên phải giấu kỹ.
+Tạ Tùng Hoa mỉm cười, không giữ thể diện nữa, quay sang Giang Cao Đài:
 
-Chỉ cần rời khỏi Xuân Phiên Trai, rời xa Đảo Huyền sơn, đều dễ nói chuyện.
+- Ra khỏi cửa này, Tạ Tùng Hoa chỉ là kiếm tu Ngai Ngai châu. Giang thuyền chủ, vậy để ta và Thiệu Vân Nham, hai kiếm tu cùng cảnh giới với ngươi, cùng dạo Xuân Phiên Trai nhé?
 
-Trần Bình An hỏi: "Trên núi Hạo Nhiên Thiên Hạ phong cảnh, cong cong quấn quanh, các ngươi quen thuộc, ta cũng không xa lạ, không bàn chuyện mua bán, chỉ nói giang thuyền chủ đi ra đại môn, kết cục gì, Đường Phi tiền ngươi không biết? Hay là coi Giang thuyền chủ chính mình không biết? Để lại như thế nào? Vì sao phải lưu lại? Ngươi làm người thứ ba mở miệng nói với ta, từ từ nói, ta tạm thời nhẫn nại, nghe một chút."
+Tâm tư Giang Cao Đài xoay chuyển, hỏi:
 
-Trần Bình An lấy ngón tay nhẹ nhàng gõ ngọc bài, cười tủm tỉm nói: "Ở trong thính đường này, đàm phán mua bán thì có quy củ bàn mua bán, quy củ này, chỉ có thể lớn hơn so với Ẩn Quan này. Tóm lại đều là làm ăn lui tới, đều có thể mất đi ân cừu trên thần tiên tiền. Ở chung với ta lâu hơn một chút, các ngươi tự nhiên sẽ hiểu được, ta là một trong những người làm ăn công đạo nhất ở Kiếm Khí Trường Thành, ít nhất cũng nên có một trong những "."."
+- Ẩn Quan đại nhân nói Kiếm Khí Trường Thành không để chúng ta chịu thiệt, thật sao?
 
-Kiếm tiên Tạ Trĩ cười nói: "Đúng rồi."
+Trần Bình An đi sang phía kia bàn, đưa tay đè ngọc bài cổ khắc hai chữ “Ẩn Quan”, hướng về mọi người hai bên mỉm cười không nói.
 
-Trần Bình An lập tức nói: "Người trong nhà giúp người một nhà mà nói chuyện, chỉ biết giúp đỡ."
+Thiệu Vân Nham đã đi về cửa lớn. Tạ Tùng Hoa tỏa kiếm ý, trong hộp kiếm trúc sau lưng vang tiếng kiếm ngâm.
 
-Tạ Trĩ liếc mắt nhìn đám quản sự độ thuyền Phù Diêu Châu, nói: "Lời này của Ẩn Quan đại nhân thật không có đạo lý, Tạ Trĩ ta xuất thân từ Phù Diêu Châu, cùng đám tiên sư gia phả thắt lưng buộc bạc triệu trước mắt mới là thân thích đồng hương nghèo."
+Đường Phi Tiền đứng lên, hơi nghiêng người ôm quyền:
 
-Phong Tuyết miếu Ngụy Tấn từ đầu tới đuôi, mặt không biểu cảm, ngồi ở trên ghế nhắm mắt dưỡng thần, nghe được nơi này, có chút bất đắc dĩ.
+- Khẩn cầu đại nhân giữ Giang thuyền chủ lại. Không vui mà tan chung quy không đẹp. Nếu đại nhân nguyện ý để độ thuyền Nam Ki góp sức, chẳng phải tốt hơn sao?
 
-Dã tu kiếm tiên Tạ Trĩ nói những lời này, không đến mức là Trần Bình An trước đó đã dạy? Hẳn là lời thật lòng lâm thời nảy lòng tham.
+Hắn không chỉ muốn cứu Giang Cao Đài mà còn giúp chính mình và tất cả những người nơm nớp lo sợ làm ăn với Kiếm Khí Trường Thành tối nay. Rất nhiều oán hận phải giấu trước. Chỉ cần rời Xuân Phiên Trai, rời xa Đảo Huyền sơn, mọi chuyện đều dễ nói.
 
-Đường Phi Tiền tìm từ, cẩn thận nói: "Chỉ cần Ẩn Quan đại nhân nguyện ý Giang thuyền chủ lưu lại nghị sự, ta nguyện ý phá lệ tự tiện làm việc một hồi, lần sau độ thuyền cập bờ Đảo Huyền sơn, hạ giá một thành."
+Trần Bình An hỏi:
 
-Trần Bình An lấy khối ngọc bài treo ở bên hông, sau đó ngồi trở lại tại chỗ, nói: "Ta dựa vào cái gì để cho một kẻ ngốc thượng ngũ cảnh có tiền không kiếm, tiếp tục ngồi ở chỗ này ghê tởm mình? Các ngươi thực cho rằng danh hiệu ẩn quan của ta, còn không đáng giá bằng một "Nam Ki" chỉ biết trộm chút long khí ở Giao Long Câu? Một thành? Ngai Ngai châu Lưu thị bán cho ngươi chỗ long khí dựa sau lưng Đường Phi Tiền ngươi, cũng chỉ xứng ngươi móc ra một thành tiền lời? Ngươi đã xem thường ta, còn muốn ngay cả tính mạng đại đạo của Giang Cao Thai, cũng xem thường?!"
+- Phong cảnh quanh co trên núi Hạo Nhiên thiên hạ, các ngươi quen thuộc, ta cũng không xa lạ. Không bàn mua bán, chỉ nói Giang thuyền chủ ra khỏi cửa sẽ có kết cục gì, Đường Phi Tiền ngươi không biết? Hay ngươi cho rằng chính hắn không biết? Giữ lại thế nào? Vì sao phải giữ? Ngươi là người thứ ba mở miệng, cứ chậm rãi nói, ta tạm nhẫn nại nghe.
 
-Đường Phi Tiền nhíu mày.
+Hắn dùng ngón tay nhẹ gõ ngọc bài, cười tủm tỉm:
 
-Mật sự bực này, Kiếm Khí Trường Thành là làm sao hiểu rõ được?
+- Trong sảnh này, bàn mua bán có quy củ bàn mua bán, quy củ ấy chỉ có thể lớn hơn Ẩn Quan ta. Tóm lại đều là làm ăn qua lại, ân cừu có thể tính bằng tiền thần tiên. Ở chung lâu một chút, các ngươi tự nhiên hiểu ta là một trong những người làm ăn công đạo nhất Kiếm Khí Trường Thành, ít nhất cũng có chữ “một trong”.
 
-Trần Bình An trầm giọng nói: "Khổ Hạ kiếm tiên."
+Kiếm tiên Tạ Trĩ cười:
 
-Khổ Hạ kiếm tiên chuẩn bị đứng dậy: "Có."
+- Đúng vậy.
 
-Nếu nói Tạ Tùng Hoa nợ Trần Bình An một ân tình lớn lao.
+Trần Bình An lập tức nói:
 
-Như vậy chỗ Thiệu Nguyên Vương Triều của Khổ Hạ Kiếm Tiên, chính là thiếu một cái nhân tình còn muốn hơn cả thiên đại.
+- Người trong nhà nói giúp người nhà, chỉ biết bênh vực.
 
-Lâm Quân Bích là trụ cột tương lai của vương triều Thiệu Nguyên, đại đạo tương lai của thiếu niên, một mảnh quang minh!
+Tạ Trĩ liếc quản sự Phù Dao châu:
 
-Khổ Hạ kiếm tiên không có nhiều tâm tư cong cong như vậy, có một trả một, chỉ đơn giản như vậy.
+- Lời đại nhân chẳng có đạo lý. Ta xuất thân Phù Dao châu, cùng đám tiên sư gia phả lưng giắt bạc triệu trước mắt mới là thân thích đồng hương nghèo.
 
-Nếu mình còn không trả được, nếu thân là sư điệt của Chu Thần Chi, cả đời không cầu xin sư bá cái gì, cũng có thể để cho Lâm Quân Bích sau khi trở về Trung Thổ Thần Châu, mang theo mấy câu nói.
+Ngụy Tấn Phong Tuyết miếu từ đầu đến cuối không biểu cảm, nhắm mắt dưỡng thần trên ghế, nghe đến đây hơi bất đắc dĩ. Lời dã tu kiếm tiên Tạ Trĩ nói chẳng lẽ do Trần Bình An dạy trước? Hẳn là lời thật lòng nhất thời nổi hứng.
 
-Về phần sư bá Chu Thần Chi nghe xong sư điệt vẫn không có tiền đồ gì mấy câu di ngôn trước khi chết, có nguyện ý để ý hay không, có ra tay hay không, Khổ Hạ Kiếm Tiên không nghĩ nữa.
+Đường Phi Tiền lựa lời, cẩn thận nói:
 
-Bạch Khê biết chỉ cần ở trong số các vị kiếm tiên, Khổ Hạ kiếm tiên này là người dễ nói chuyện nhất, một khi người này nói lời hung ác, đối với một phương như mình mà nói, sẽ là một hồi kiếp nạn không nhỏ chấn động lòng người.
+- Chỉ cần Ẩn Quan đại nhân đồng ý để Giang thuyền chủ ở lại nghị sự, ta nguyện phá lệ tự quyết một lần, chuyến độ thuyền cập Đảo Huyền sơn sau sẽ giảm giá một thành.
 
-Cho nên dù Bạch Khê kiên trì cũng phải lấy thân phận quản sự của người trên thuyền Chậu Sành của Phù Dao Châu, ngăn Khổ Hạ Kiếm Tiên lại, tự mình mở miệng trước!
+Trần Bình An lấy ngọc bài treo bên hông, ngồi về chỗ cũ:
 
-Bạch Khê xem như nhìn thấu, cùng ẩn quan trẻ tuổi so với Hạo Nhiên Thiên Hạ càng Hạo Nhiên Thiên Hạ này buôn bán, thì không thể chơi cái trò lục đục với nhau kia.
+- Dựa vào đâu ta phải để một kẻ ngốc thượng ngũ cảnh có tiền không kiếm tiếp tục ngồi đây khiến mình khó chịu? Các ngươi thật cho rằng danh hiệu Ẩn Quan của ta không bằng một chiếc Nam Ki chỉ biết trộm chút long khí ở Giao Long Câu?
 
-Bạch Khê đứng lên, thần sắc lạnh nhạt nói: "Nếu Ẩn Quan đại nhân cố ý để Giang thuyền chủ rời đi, vậy thì coi như là một mình Sơn Thủy Quật Bạch Khê ta."
+- Một thành? Chỗ long khí Lưu thị Ngai Ngai châu bán cho thế lực sau lưng Đường Phi Tiền ngươi, chỉ đáng để ngươi móc ra một thành lợi nhuận? Ngươi xem thường ta thì thôi, còn muốn xem thường cả tính mạng và đại đạo của Giang Cao Đài?!
 
-Bạch Khê thậm chí còn cười cười, không chút nào che lấp ý châm chọc của mình: "Chỉ hy vọng Tạ Kiếm Tiên và Thiệu Kiếm Tiên đừng cảm thấy cảnh giới của ta thấp kém, không xứng đồng hành."
+Đường Phi Tiền nhíu mày. Chuyện bí mật như vậy, sao Kiếm Khí Trường Thành biết rõ?
 
-Tạ Tùng Hoa chỉ ừ một tiếng rồi thuận miệng nói: "Không xứng là không xứng, cũng không sao, hộp trúc của ta có nhiều kiếm khí."
+Trần Bình An trầm giọng:
 
-Thiệu Vân Nham thì đứng ở bên kia cửa chính.
+- Khổ Hạ kiếm tiên.
 
-Kiếm tiên Khổ Hạ quay đầu nhìn về phía ẩn quan trẻ tuổi.
+Khổ Hạ chuẩn bị đứng dậy:
 
-Trần Bình An cười đưa tay ấn hờ, ý bảo không cần đứng dậy nói chuyện.
+- Có.
 
-Có Bạch Khê ngoài dự đoán của mọi người nguyện ý lấy cái chết phá cục, không đến mức biến thành từng bước nắm mũi đi khỏi Kiếm Khí Trường Thành, rất nhanh đã có tu sĩ đồng châu quen biết với Bạch Khê, cũng đứng lên, "Tính thêm ta một người."
+Nếu Tạ Tùng Hoa thiếu Trần Bình An một ân tình lớn, vương triều Thiệu Nguyên phía Khổ Hạ kiếm tiên còn nợ một ân tình lớn hơn. Lâm Quân Bích là trụ cột tương lai của Thiệu Nguyên, đại đạo thiếu niên sáng sủa vô cùng!
 
-Ngay cả chủ thuyền Nguyên Anh bị Bồ Hòa ném ra khỏi Xuân Phiên Trai sớm nhất kia, cho dù lúc trước nhận sai giống như một con chó với kiếm tiên, lúc này vẫn dứt khoát kiên quyết đi theo Bạch Khê đứng dậy, "Phiền Chung" chủ thuyền Lưu Vũ, cũng muốn lĩnh hội thắng cảnh của Xuân Phiên Trai một phen, thuận tiện lĩnh hội một phen kiếm khí của Tạ Kiếm Tiên."
+Khổ Hạ không có nhiều tâm tư quanh co, có một trả một, đơn giản như vậy. Nếu mình không trả hết, thân là sư điệt Chu Thần Chi, cả đời chưa từng cầu xin sư bá chuyện gì, hắn còn có thể để Lâm Quân Bích sau khi về Trung Thổ Thần Châu mang theo mấy lời. Sư bá nghe di ngôn của sư điệt không mấy tiền đồ trước lúc chết, có nguyện để ý, có ra tay hay không, hắn không nghĩ nữa.
 
-Không chỉ như thế, còn có một tiểu thuyền chủ không biết tên bất quá là Kim Đan trẻ tuổi, là một vị nữ tử, thân phận đặc thù, là một tiên gia trên biển Tây Nam Hạo Nhiên Thiên Hạ, ghế ngồi của nàng cực kỳ sát phía sau, cho nên cách Thiệu Vân Nham không xa, cũng đứng dậy nói: "Nghê Thường "người chèo thuyền Liễu Thâm, không biết có may mắn hay không, có thể khiến cho Tạ Kiếm Tiên, Thiệu Kiếm Tiên có thêm một vị kiếm tiên đồng du xuân phiên trai."
+Bạch Khê biết trong số kiếm tiên, Khổ Hạ là người dễ nói chuyện nhất. Một khi người này nói lời hung ác, đối với phe bọn họ sẽ là một tai kiếp không nhỏ. Cho nên dù phải cứng đầu, hắn cũng phải lấy thân phận quản sự thuyền Ngõa Bồn của Phù Dao châu ngăn Khổ Hạ, tự mở miệng trước!
 
-Cảnh giới thấp nhất, còn là nữ tu.
+Bạch Khê đã nhìn thấu: làm ăn với vị Ẩn Quan trẻ tuổi còn giống Hạo Nhiên thiên hạ hơn cả người Hạo Nhiên thiên hạ này, không thể chơi trò đấu đá tâm cơ.
 
-Cách chết này rất có chú ý.
+Hắn đứng dậy, thần sắc lạnh nhạt:
 
-Người đứng dậy cuối cùng chính là nữ tu Nguyên Anh kỳ Trung thổ lúc trước cùng Mễ Dụ tâm thanh ngôn ngữ, nàng chậm rãi đứng dậy, cười nhìn về phía Mễ Dụ, "Mễ đại kiếm tiên, hạnh ngộ, không biết nhiều năm không gặp, kiếm thuật của Mễ đại kiếm tiên có tinh tiến hay không."
+- Nếu đại nhân cố ý để Giang thuyền chủ rời đi, vậy tính thêm Sơn Thủy Quật Bạch Khê ta một người.
 
-Mễ Dụ mỉm cười nói: "Không bỏ được."
+Hắn còn cười, không che vẻ châm chọc:
 
-Nguyên anh của nữ tử nọ cười lạnh không thôi.
+- Chỉ mong Tạ kiếm tiên và Thiệu kiếm tiên đừng cảm thấy cảnh giới ta thấp kém, không xứng đồng hành.
 
-Ngô Cầu vẫn luôn không nhúc nhích, trong lòng cực kỳ vui vẻ.
+Tạ Tùng Hoa ừ một tiếng, thuận miệng đáp:
 
-Như này mới đúng!
+- Không xứng thì không xứng, cũng chẳng sao, trong hộp trúc của ta nhiều kiếm khí.
 
-Đây mới là "Tiểu thiên địa khí tượng" độ thuyền các châu cùng Kiếm Khí Trường Thành buôn bán, nên có.
+Thiệu Vân Nham đứng bên cửa lớn. Khổ Hạ quay nhìn Ẩn Quan trẻ tuổi, Trần Bình An cười đưa tay ấn hờ, ra hiệu không cần đứng dậy.
 
-Kiếm tiên không phải sở thích cũng am hiểu nhất giết người sao?
+Bạch Khê ngoài dự liệu của mọi người nguyện lấy cái chết phá cục, không để Kiếm Khí Trường Thành từng bước dắt mũi. Rất nhanh một tu sĩ đồng châu quen biết hắn cũng đứng dậy:
 
-Hiện tại có người, còn không chỉ một người, duỗi cổ ra thật sự là giết cho các ngươi.
+- Tính thêm ta.
 
-Các ngươi có muốn rút kiếm giết hay không?
+Ngay cả chủ thuyền Nguyên Anh bị Bồ Hòa ném khỏi Xuân Phiên Trai đầu tiên, dù trước đó nhận sai với kiếm tiên như một con chó, lúc này vẫn dứt khoát đứng theo Bạch Khê:
 
-Giang Cao Đài ôm quyền cất cao giọng nói: "Tạ ơn chư vị!"
+- Lưu Vũ, chủ thuyền Phiền Chung,[?] cũng muốn lĩnh hội thắng cảnh Xuân Phiên Trai, thuận tiện lĩnh hội kiếm khí Tạ kiếm tiên.
 
-Sau khi đứng lên Đường Phi Tiền vẫn không ngồi xuống, cũng có tâm tình không khác gì bạn tốt Ngô Dận.
+Một nữ thuyền chủ trẻ tuổi chỉ là Kim Đan, thân phận đặc biệt, xuất thân tiên gia trên biển phía tây nam Hạo Nhiên thiên hạ, ngồi gần cuối và cách Thiệu Vân Nham không xa, cũng đứng lên:
 
-Ẩn Quan trẻ tuổi kia, thật sự cho rằng gọi đến một đám Kiếm Tiên áp trận, sau đó dựa vào một khối ngọc bài, có thể tất cả đều ở trong khống chế?
+- Liễu Thâm của thuyền Nghê Thường không biết có may mắn khiến Tạ kiếm tiên và Thiệu kiếm tiên thêm một vị đồng du Xuân Phiên Trai hay không?
 
-Thứ đồ chơi không biết trời cao đất rộng!
+Cảnh giới thấp nhất, lại là nữ tu, cách tìm chết này rất đáng cân nhắc.
 
-Tuổi còn trẻ, tính là cái gì!
+Người cuối cùng đứng dậy là nữ tu Nguyên Anh Trung Thổ trước đó dùng tiếng lòng nói chuyện với Mễ Dụ. Nàng chậm rãi đứng, cười nhìn hắn:
 
-Ly Thải duỗi một ngón tay, xoa xoa khóe miệng, muốn một kiếm chém chết một người thì cũng được.
+- Mễ đại kiếm tiên, hạnh ngộ. Nhiều năm không gặp, không biết kiếm thuật của ngươi có tinh tiến không?
 
-Chỉ là trong tâm hồ của nàng lại vang lên tiếng lòng của Ẩn Quan trẻ tuổi, vẫn không nóng nảy.
+Mễ Dụ mỉm cười:
 
-Lúc này, Ly Thải mới nhịn được không xuất kiếm.
+- Không nỡ.
 
-Ngụy Tấn đã mở mắt.
+Nữ tu cười lạnh không thôi.
 
-Hai quản sự đò ngang thành Lão Long vừa định hành động, lập tức thành thật.
+Ngô Cầu từ đầu không nhúc nhích, trong lòng cực kỳ vui vẻ. Như vậy mới đúng! Đây mới là khí tượng của tiểu thiên địa nơi độ thuyền các châu buôn bán với Kiếm Khí Trường Thành.
 
-Đám chủ thuyền Nam Bà Sa châu coi như yên tĩnh.
+Kiếm tiên chẳng phải thích và giỏi giết người nhất sao? Bây giờ có người, lại không chỉ một, thật sự đưa cổ ra cho các ngươi giết. Các ngươi có rút kiếm không?
 
-Về phần Bắc Câu Lô Châu bên kia, căn bản không có ý niệm xen vào.
+Giang Cao Đài ôm quyền cất giọng:
 
-Lúc này, sau khi cả sảnh đường khí phách dõng dạc, mọi người mới lục tục phát hiện người trẻ tuổi vốn nên sứt đầu mẻ trán kia, thế mà lại sớm một tay chống cằm, nghiêng dựa vào bàn tứ tiên, cứ như vậy cười nhìn mọi người.
+- Đa tạ chư vị!
 
-Bắc Câu Lô Châu, Bảo Bình Châu, Nam Bà Sa châu đều có thể thương lượng được.
+Đường Phi Tiền đứng lên rồi không ngồi xuống, tâm tình cũng giống bằng hữu Ngô Cầu. Ẩn Quan trẻ tuổi kia thật cho rằng gọi một đám kiếm tiên áp trận, dựa vào ngọc bài là có thể khống chế tất cả? Thứ không biết trời cao đất rộng, tuổi còn trẻ thì tính là gì!
 
-Một người là do phong tục từ xưa gây ra, một người là quá không nói nên lời, một người là cách Đảo Huyền sơn quá gần, dù sao còn có Thuần Nho Trần thị, mà Trần Thuần An lại vừa rời khỏi Kiếm Khí Trường Thành không bao lâu.
+Ly Thải đưa ngón tay xoa khóe miệng, muốn một kiếm chém chết một người cũng được. Nhưng trong tâm hồ nàng vang lên tiếng lòng Ẩn Quan trẻ tuổi, bảo vẫn chưa vội, nàng mới nhịn không xuất kiếm.
 
-Trung Thổ Thần Châu, Ngai Ngai châu, Phù Diêu châu, khó thương lượng nhất.
+Ngụy Tấn đã mở mắt. Hai quản sự độ thuyền Lão Long thành vừa định hành động, lập tức thành thật. Đám chủ thuyền Nam Bà Sa châu tương đối yên tĩnh, phía Bắc Câu Lô Châu căn bản không có ý xen vào.
 
-Một người là quen thói vênh mặt hất hàm sai khiến, khinh thường hào kiệt tám châu. Một người là trời đất bao la cũng không lớn bằng tiền thần tiên. Một người là làm nát việc làm ăn Đảo Huyền sơn, cũng là một người có bản lãnh kiếm tiền nhất.
+Sau một hồi cả sảnh đường khí phách sục sôi, mọi người lần lượt phát hiện người trẻ tuổi đáng lẽ phải sứt đầu mẻ trán đã sớm chống cằm, nghiêng người dựa bàn, cười nhìn bọn họ.
 
-Kim Giáp châu, Lưu Hà châu, dễ thương lượng vẫn là không dễ thương lượng, phải xem tình thế.
+Bắc Câu Lô Châu, Bảo Bình Châu và Nam Bà Sa châu đều có thể thương lượng. Một bên vì phong tục xưa nay, một bên vì thế lực không đủ để nói,[?] một bên vì quá gần Đảo Huyền sơn, lại còn có Thuần Nho Trần thị, Trần Thuần An vừa rời Kiếm Khí Trường Thành không lâu.
 
-Hiện tại đã trở thành tình huống không dễ thương lượng.
+Trung Thổ Thần Châu, Ngai Ngai châu, Phù Dao châu khó thương lượng nhất. Một bên quen vênh mặt sai khiến, khinh thường hào kiệt tám châu; một bên trời đất bao la cũng không lớn bằng tiền thần tiên; một bên dù làm hỏng việc buôn bán ở Đảo Huyền sơn vẫn là nơi có bản lĩnh kiếm tiền nhất.
 
-Cuối cùng tầm mắt Trần Bình An vòng qua trên người hai vị quản sự đò ngang Lão Long thành, nhìn thêm vài lần.
+Kim Giáp châu và Lưu Hà châu dễ hay khó thương lượng phải xem tình thế. Bây giờ đã thành khó thương lượng.
 
-Độ thuyền vượt châu Bảo Bình châu, thật ra cũng chính là sáu chiếc độ thuyền kia của Lão Long thành, Thôn Bảo Kình Phù gia, cùng với phù không đảo được vinh dự gọi là "Tiểu Đảo Huyền", Tôn gia có Sơn Hải Quy chỉ bị tổ tiên bắt được thuần phục, Phạm gia cũng có tòa Quế Hoa Đảo kia.
+Cuối cùng Trần Bình An đưa mắt qua hai quản sự độ thuyền Lão Long thành, nhìn thêm vài lần. Độ thuyền vượt châu Bảo Bình châu thật ra là sáu chiếc của Lão Long thành: Thôn Bảo Kình Phù gia, Sơn Hải Quy do tổ tiên Tôn gia trên phù không đảo được gọi là “Tiểu Đảo Huyền” bắt và thuần phục, cùng Quế Hoa đảo của Phạm gia.[?]
 
-Tối nay làm khách xuân phiên trai hai vị quản gia, một vị là quản sự Thôn Bảo Kình của Phù gia, một vị là lão thuyền chủ độ thuyền vượt châu lục của Đinh gia.
+Hai vị quản sự làm khách tối nay, một là quản sự Thôn Bảo Kình Phù gia, một là lão thuyền chủ độ thuyền vượt châu của Đinh gia. Trần Bình An từng qua Lão Long thành vài lần nhưng chưa đối mặt hai người. Đoán chừng dù họ nghe tên hắn cũng chỉ coi là trùng tên.
 
-Đi qua Lão Long thành vài lần, cũng chưa từng đối mặt với hai người, nhắm chừng hai vị đại nhân vật Lão Long thành này, mặc dù từng nghe nói "Trần Bình An", cũng sẽ coi như là trùng tên.
+Vị Ẩn Quan trẻ tuổi lười biếng cười:
 
-Ẩn quan trẻ tuổi lười biếng cười nói: "Thôi, sao, một vụ mua bán đôi bên cùng có lợi, nhất định phải tháo đầu xuống đặt ở trên bàn làm ăn, cân lượng sao? Ta thấy cần thiết sao."
+- Thôi, một vụ mua bán đôi bên cùng có lợi, nhất định phải tháo đầu đặt lên bàn cân thử sao? Ta thấy không cần thiết.
 
-Đường Phi Tiền cười lạnh nói: "Mới vừa rồi hô đánh hô giết, mượn thanh thế của kiếm tiên muốn tùy ý định nhân sinh, hình như không phải những người chúng ta?"
+Đường Phi Tiền cười lạnh:
 
-Trần Bình An vẫn như cũ bảo trì tư thế kia, cười tủm tỉm nói: "Ta đây không phải trẻ tuổi nóng tính, một khi tiểu nhân đắc chí, nắm đại quyền trong tay, có chút phiêu thôi."
+- Vừa rồi hô đánh hô giết, mượn thanh thế kiếm tiên muốn tùy ý định sống chết người khác, hình như không phải chúng ta?
 
-Ngô Cầu nhấp một ngụm trà Xuân Phiên Trai, nhẹ nhàng đặt chén trà xuống, cười nói: "Cả đời này của chúng ta không có tiền đồ gì, khác biệt một trời một vực với Ẩn Quan đại nhân, không phải người cùng đường, không thể nói chuyện suốt dọc đường. Thật ra chúng ta kiếm tiền không dễ, mỗi người đều phải đánh bạc tính mạng. Chi bằng đổi địa điểm, đổi thời điểm khác rồi lại nói chuyện tiếp? Vẫn là câu nói kia, một vị Ẩn Quan đại nhân nói chuyện cũng rất có tác dụng, không cần phiền phức đến các kiếm tiên như vậy, có lẽ cũng không cần Ẩn Quan đại nhân đích thân lộ diện, đổi thành Yến gia chủ hoặc Nạp Lan Kiếm Tiên, tiếp xúc với đám tiểu nhân vật như chúng ta cũng đã đủ rồi."
+Trần Bình An vẫn giữ tư thế ấy, cười tủm tỉm:
 
-Trần Bình An cười nói: "Lúc trước ta đã nói rồi, ra khỏi cửa có quy củ ra khỏi cửa, ngồi ở chỗ này thì có quy củ ngồi ở chỗ này, ví dụ như tất cả mọi chuyện, đều có thể giải quyết ở trên chuyện tiền thần tiên, vừa rồi ầm ầm ầm, các ngươi đã nghĩ ít rồi, cho nên ta nói rõ ràng hơn chút, lần này ta tới Đảo Huyền sơn, ngay từ đầu đã muốn thay một nhóm thuyền chủ lớn, ví dụ như..."
+- Ta trẻ tuổi nóng tính, tiểu nhân đắc chí, nắm đại quyền trong tay nên có chút lâng lâng thôi.
 
-Trần Bình An nhìn phía nữ tử tu sĩ Kim Đan vị trí rất gần phía sau kia, "Ngại thường thuyền chủ Liễu Thâm, ta nguyện ý tiêu hai trăm đồng tiền Cốc Vũ, hoặc là vật tư đan phường giá tương đương với cái giá này, đổi lại sư muội Liễu tiên tử tiếp quản "Nghê Thường", giá cả không công bằng, nhưng mà người đều đã chết, lại có thể như thế nào chứ? Về sau không tới Đảo Huyền sơn kiếm tiền sao? Người mất, độ thuyền vẫn còn, tốt xấu còn có thể kiếm hai trăm đồng tiền Cốc Vũ a. Vì sao chọn ngươi trước? Rất đơn giản a, ngươi là quả hồng mềm, giết lên, đỉnh núi kia cùng sư trưởng, cũng không dám thả một cái rắm a."
+Ngô Cầu nhấp ngụm trà, nhẹ đặt chén xuống:
 
-Sắc mặt nữ tử kim đan lập tức trắng bệch.
+- Cả đời chúng ta không có tiền đồ, khác đại nhân một trời một vực, không cùng đường, khó nói chuyện. Kiếm tiền không dễ, mỗi người đều phải đánh cược tính mạng. Chi bằng đổi địa điểm, đổi lúc khác bàn tiếp?
 
-Giang Cao Đài lập tức cười hỏi: "Không biết ở trong mắt Ẩn Quan đại nhân, cái đầu này của ta giá trị bao nhiêu tiền Cốc Vũ?"
+- Vẫn là câu ấy, một mình Ẩn Quan đại nhân lên tiếng cũng rất có tác dụng, không cần phiền các kiếm tiên. Có lẽ cũng không cần đại nhân đích thân lộ diện, đổi thành Yến gia chủ hoặc Nạp Lan kiếm tiên tiếp xúc với đám tiểu nhân vật chúng ta đã đủ.
 
-Trần Bình An lắc đầu nói: "Ngươi là người hẳn phải chết, không cần tốn của ta một đồng tiền thần tiên. Bên Ngai Ngai châu Lưu thị, Tạ Kiếm Tiên sẽ giải quyết cục diện rối rắm. Bên Trung Thổ Thần Châu, Khổ Hạ Kiếm Tiên cũng sẽ nói với sư bá Chu Thần Chi của hắn mấy câu, giải quyết chỗ dựa phía sau Đường Phi Tiền và hắn. Mọi người đều buôn bán, hẳn là rất rõ ràng, cảnh giới không quan trọng như vậy, không quan trọng như vậy."
+Trần Bình An cười:
 
-Trần Bình An nói: "Tạ ơn kiếm tiên, tạm thời đừng ra khỏi cửa, thuyền chủ giang thuyền nói thêm một chữ, thì làm thịt đi. Đỡ phải bọn họ cảm thấy ta là ẩn quan, ngay cả giết gà dọa khỉ cũng không dám."
+- Ta đã nói, ra cửa có quy củ ra cửa, ngồi đây có quy củ ngồi đây. Ví dụ mọi chuyện đều có thể giải quyết bằng tiền thần tiên. Vừa rồi ồn ào, các ngươi nghĩ chưa đủ, nên ta nói rõ hơn: lần này tới Đảo Huyền sơn, ngay từ đầu ta đã muốn thay một nhóm đại thuyền chủ. Ví dụ...
 
-Tạ Tùng Hoa thở ra một hơi nặng nề.
+Hắn nhìn nữ tu Kim Đan ngồi gần cuối:
 
-Rốt cục có thể xuất kiếm mổ người.
+- Liễu Thâm thuyền chủ Nghê Thường, ta nguyện bỏ hai trăm đồng tiền cốc vũ, hoặc vật tư đan phường giá tương đương, đổi lấy việc sư muội Liễu tiên tử tiếp quản Nghê Thường. Giá không công bằng, nhưng người đã chết thì làm sao? Sau này không đến Đảo Huyền sơn kiếm tiền nữa sao? Người mất, độ thuyền vẫn còn, tốt xấu gì còn kiếm được hai trăm đồng tiền cốc vũ.
 
-Trần Bình An quay đầu nhìn phía Nguyên Anh Bạch Khê sơn thủy quật, "Lão tổ nhà ngươi, có thù cũ với Kiếm Khí Trường Thành ta, thù lớn rồi, trước kia Ẩn Quan không quan tâm các ngươi, để ta tới. Tối nay đừng đi nữa, ta sẽ bảo Tạ Trĩ Kiếm Tiên đi thêm một chuyến, che chở thuyền Chậu Sành của các ngươi, thuận buồm xuôi gió quay về sơn thủy quật Phù Diêu châu, nói rõ ràng với lão tổ kia, ân oán đã rõ ràng, về sau mua bán vẫn như cũ, thích tới hay không, không tới, tự gánh lấy hậu quả."
+- Vì sao chọn ngươi đầu tiên? Rất đơn giản, ngươi là quả hồng mềm, giết ngươi, đỉnh núi và sư trưởng kia cũng không dám đánh rắm.
 
-Lần này đến lượt kiếm tiên, bắt đầu đứng dậy.
+Sắc mặt nữ tử lập tức trắng bệch. Giang Cao Đài cười hỏi:
 
-Dã tu kiếm tiên Tạ Trĩ đứng lên, cười cảm khái nói: "Tiên sư không giết gia phả, đã rất nhiều năm, thật sự khiến người ta hoài niệm."
+- Không biết trong mắt đại nhân, đầu ta đáng giá bao nhiêu tiền cốc vũ?
 
-Trần Bình An tiếp tục nói: "Tối nay không đứng dậy rời khỏi chỗ, ồn ào, đều là khách quý của Kiếm Khí Trường Thành."
+- Ngươi là người phải chết, không cần tiêu một đồng tiền thần tiên của ta. Phía Lưu thị Ngai Ngai châu, Tạ kiếm tiên sẽ giải quyết. Phía Trung Thổ Thần Châu, Khổ Hạ kiếm tiên nói mấy câu với sư bá Chu Thần Chi, giải quyết chỗ dựa sau lưng Đường Phi Tiền và ngươi. Đều là người làm ăn, hẳn rõ cảnh giới không quan trọng đến thế.
 
-Trần Bình An cười nói: "Không đem toàn bộ chi tiết, một ít cặn bã tâm tính, từ trong ao bùn tung lên, toàn bộ bày ra trên mặt bàn nhìn một chút, để cho giữa độ thuyền vượt châu cùng Kiếm Khí Trường Thành, lại để cho giữa thuyền chủ cùng thuyền chủ đều nhìn cẩn thận lẫn nhau, làm sao lâu dài yên tâm buôn bán?"
+Trần Bình An nói:
 
-Trần Bình An nói: "Mễ Dụ."
+- Tạ kiếm tiên tạm thời đừng ra cửa. Giang thuyền chủ nói thêm một chữ thì giết đi, khỏi để bọn họ cảm thấy ta làm Ẩn Quan ngay cả giết gà dọa khỉ cũng không dám.
 
-Mễ Dụ đứng lên, ánh mắt lạnh lùng nhìn về phía tu sĩ Nguyên Anh nữ tử kia: "Xin lỗi, trước đây là ta lừa ngươi một lần cuối cùng. Thật ra ta cam lòng."
+Tạ Tùng Hoa thở ra một hơi nặng nề. Rốt cuộc có thể xuất kiếm giết người.
 
-Nguyên Anh nữ tử nhất thời lòng như đao cắt.
+Trần Bình An quay sang Bạch Khê Nguyên Anh cảnh của Sơn Thủy Quật:
 
-Sau đó Mễ Dụ lấy từ trong tay áo ra một quyển sách, nhìn quanh bốn phía, tùy tiện chọn một vị không đứng dậy, lúc trước thiếu chút nữa đã đứng dậy làm chủ thuyền, lôi tổ tông mười tám đời của đối phương ra ngoài.
+- Lão tổ nhà ngươi có thù cũ với Kiếm Khí Trường Thành, thù lớn lắm. Trước đây Ẩn Quan không để ý các ngươi, để ta xử lý. Tối nay đừng đi nữa. Ta sẽ bảo Tạ Trĩ kiếm tiên đi thêm một chuyến, bảo vệ thuyền Ngõa Bồn thuận buồm xuôi gió về Sơn Thủy Quật Phù Dao châu, nói rõ với lão tổ kia: ân oán đã rõ, sau này mua bán như cũ, thích đến hay không tùy, không đến thì tự gánh hậu quả.
 
-Không riêng gì nguồn gốc sư thừa, đệ tử đích truyền là cái gì coi trọng nhất, con nối dõi khai chi tán diệp dưới chân núi như thế nào, nhà riêng to to nhỏ nhỏ ở nơi nào, không chỉ là tài sản riêng của Đảo Huyền sơn, ở các nơi biệt viện, thậm chí là giống như Ngô Cầu, Đường Phi Tiền ở châu khác đều có của cải, càng là ghi chép năm năm mười, đều bị Mễ Dụ thuận miệng nói toạc ra. Ngay cả những tiên tử nào không phải quyến lữ trên núi nhưng lại hơn hẳn quyến lữ, cũng có rất nhiều môn đạo học vấn.
+Lần này đến lượt kiếm tiên đứng dậy. Dã tu Tạ Trĩ cười cảm khái:
 
-Mễ Dụ lại nói về gia sản của hai vị chủ thuyền, thuộc như lòng bàn tay.
+- Tiên sư đã nhiều năm không giết tu sĩ gia phả, thật khiến người ta hoài niệm.
 
-Sau đó Trần Bình An cười nói: "Được rồi, không quá tam ba bận."
+Trần Bình An nói tiếp:
 
-Mễ Dụ gật đầu.
+- Những người tối nay không đứng dậy rời chỗ ồn ào đều là khách quý của Kiếm Khí Trường Thành. Không đem toàn bộ nội tình, chút tâm tư cặn bã dưới ao bùn khuấy lên, bày trên bàn để độ thuyền và Kiếm Khí Trường Thành, thuyền chủ và thuyền chủ nhìn rõ lẫn nhau, làm sao yên tâm làm ăn lâu dài?
 
-Bây giờ lão tử là người được Ẩn Quan đại nhân khâm điểm, là người có tài, không xứng à?
+- Mễ Dụ.
 
-Trần Bình An lại hô một cái tên, nói: "Bồ Hòa."
+Mễ Dụ đứng dậy, lạnh lùng nhìn nữ tu Nguyên Anh:
 
-Bồ Hòa đứng dậy nhìn thẳng tu sĩ Nguyên Anh lúc trước đã nói lời xin lỗi với mình, ánh mắt âm trầm, nói: "Lão tử nghĩ không thông, trên đời này còn có loại thương nhân thiếu chút nữa đã chết, lại sắp chết một lần nữa. Ta ngược lại muốn nhìn Ngọc Phác Cảnh kia ngơ ngác, chờ ta lên thuyền, hắn có thể quỳ trên mặt đất, cầu xin ta nể mặt hắn."
+- Xin lỗi, trước đây ta lừa ngươi lần cuối. Thật ra ta nỡ.
 
-Trần Bình An nhìn phía hai vị nhân vật tâm phúc bên độ thuyền tám châu, "Ngô Cầu, Đường Phi Tiền. Lão thần tiên thượng ngũ cảnh, hai vị ngay cả tòa nhà cũng mua được Ly sơn Bắc Câu Lô Châu bên kia, sau đó ở trước mặt ta mở miệng một tiếng tiểu nhân vật, kiếm tiền vất vả."
+Nữ tử nhất thời lòng đau như dao cắt. Sau đó Mễ Dụ lấy một quyển sổ, nhìn quanh, tùy tiện chọn một thuyền chủ chưa đứng dậy nhưng vừa rồi suýt đứng, lôi cả mười tám đời tổ tông đối phương ra.
 
-Ly Thải đứng lên, "Ta sẽ không rời khỏi Đảo Huyền sơn, nhưng có thể dùng phi kiếm đưa tin cho Bình Kiếm Tông, Thái Huy Kiếm Tông, nói Đảo Huyền sơn bên này có chút lời đồn đãi nhảm nhí, hai vị lão thần tiên, cấu kết Yêu tộc. Đúng rồi, những vãn bối như Khổ Hạ Kiếm Tiên, Úc Dận Phu và Chu Mai không phải vẫn chưa rời khỏi Kiếm Khí Trường Thành sao, để bọn họ cũng nói việc này với Trung Thổ Thần Châu, để hai vị lão thần tiên tự chứng minh trong sạch, miễn cho oan uổng người tốt."
+Từ lai lịch sư thừa, đệ tử đích truyền coi trọng điều gì, con cháu dưới núi sinh sôi ra sao, nhà riêng lớn nhỏ ở đâu, sản nghiệp tại Đảo Huyền sơn, biệt viện các nơi, đến của cải ở châu khác như Ngô Cầu, Đường Phi Tiền đều được ghi tỉ mỉ, Mễ Dụ thuận miệng nói hết. Ngay cả tiên tử nào không phải đạo lữ trên núi mà còn hơn đạo lữ cũng có rất nhiều chuyện bên trong.
 
-Kiếm tiên Khổ Hạ lập tức đứng dậy, "Không khó. Theo lý nên như thế."
+Hắn lại nói về gia sản hai vị thuyền chủ khác, thuộc như lòng bàn tay. Trần Bình An cười:
 
-Trần Bình An cuối cùng trừng mắt nhìn, vẻ mặt nghi hoặc nói: "Các ngươi cho rằng ta là muốn kết thù với đỉnh núi sau lưng các ngươi sao? Về phần sao? Không đến mức à, ta chính là không vừa mắt các ngươi thôi, trừ số rất ít người phải chết, ta làm việc, vẫn là rất có chừng mực, còn nữa sau khi nhận lỗi, cộng thêm cả đống tiền bồi thường, đều sẽ có. Nhìn lâu dài, ai cũng không thiệt. Các ngươi thực cho rằng ta đã gọi kiếm tiên tới đây, chỉ là uống rượu với các ngươi mà thôi? Các ngươi những phế vật có thể không công kiếm tiền cũng không cần này, xứng sao?"
+- Được rồi, không quá tam ba bận.
 
-Tôn Cự Nguyên cũng cười đứng dậy, "Ta cùng chư vị đang ngồi, cùng với các vị sư môn, lão tổ gì đó phía sau, tình hương khói vẫn còn một số, thù riêng chưa từng có. Cho nên chuyện nhận lỗi, không dám làm phiền Ẩn Quan Đại Nhân chúng ta, để ta."
+Mễ Dụ gật đầu. Bây giờ lão tử là người Ẩn Quan đại nhân khâm điểm, là người có tài, không xứng sao?
 
-Đồng Lư đứng lên, "Chuyện bồi thường tiền, Yến gia ta coi như có chút của cải, ta thất bại, bồi hoàn mới thôi."
+Trần Bình An gọi tiếp:
 
-Nạp Lan Thải Hoán không hề hành động.
+- Bồ Hòa.
 
-Chuyện tối nay đã vượt qua dự đoán của nàng rất rất nhiều.
+Bồ Hòa đứng dậy, nhìn thẳng tu sĩ Nguyên Anh trước đó nhận lỗi với mình, ánh mắt âm trầm:
 
-Trần Bình An liền thay đổi tầm mắt, "Đừng để người ngoài chê cười. Mặt mũi của ta không sao cả, mặt mũi của cỏ lạ Nạp Lan, đáng giá chút tiền."
+- Lão tử không hiểu, trên đời còn loại thương nhân suýt chết một lần lại sắp chết lần nữa. Ta muốn xem tên Ngọc Phác cảnh đần độn kia, khi ta lên thuyền, có quỳ xuống cầu xin ta nể mặt hắn không.
 
-Nạp Lan Thải Hoán đành phải chậm rãi đứng dậy.
+Trần Bình An nhìn hai nhân vật chủ chốt phía độ thuyền tám châu:
 
-Trần Bình An hoàn toàn không còn ý cười, tuy còn bảo trì tư thế lười nhác kia, nhưng vẫn gắt gao nhìn thẳng kiếm tu Nguyên Anh làm ăn nhiều này.
+- Ngô Cầu, Đường Phi Tiền. Hai vị lão thần tiên thượng ngũ cảnh, ngay cả nhà ở Ly Thải sơn Bắc Câu Lô Châu cũng mua được,[?] sau đó trước mặt ta mở miệng một tiếng tiểu nhân vật, kiếm tiền vất vả.
 
-Nạp Lan Thải Hoán kiên trì, im lặng không lên tiếng.
+Ly Thải đứng lên:
 
-Trần Bình An hỏi: "Ghế có sai chỗ không, Nạp Lan Thải Hoán ngươi nên ngồi bên kia thì hơn?"
+- Ta sẽ không rời Đảo Huyền sơn, nhưng có thể dùng phi kiếm truyền tin cho Phù Bình kiếm tông và Thái Huy kiếm tông, nói bên này có tin đồn hai vị lão thần tiên cấu kết yêu tộc. Đúng rồi, vãn bối như Khổ Hạ kiếm tiên, Úc Dận Phu và Chu Mai chẳng phải vẫn chưa rời Kiếm Khí Trường Thành sao? Để bọn họ cũng nói việc này với Trung Thổ Thần Châu, để hai vị tự chứng minh trong sạch, khỏi oan cho người tốt.
 
-Nạp Lan Thải Hoán ánh mắt ngoan lệ, vừa định mở miệng nói chuyện.
+Khổ Hạ lập tức đứng dậy:
 
-Kiếm tiên Cao Khôi đứng lên, quay đầu nhìn về phía Nạp Lan Thải Hoán.
+- Không khó. Theo lý nên như thế.
 
-Nạp Lan Thải Hoán vốn đã đến bên miệng, gọi thẳng ba chữ "Trần Bình An" là tục danh, lập tức nuốt từng chữ vào bụng.
+Trần Bình An chớp mắt, vẻ mặt nghi hoặc:
 
-Biến cố không hiểu này.
+- Các ngươi cho rằng ta muốn kết thù với đỉnh núi sau lưng các ngươi sao? Có cần vậy không? Không đến mức ấy. Ta chỉ không vừa mắt các ngươi thôi. Trừ số rất ít người phải chết, ta làm việc vẫn rất có chừng mực. Sau đó lời nhận lỗi cùng một đống tiền bồi thường đều sẽ có. Nhìn lâu dài, ai cũng không thiệt.
 
-Càng khiến những "người ngoài" như Ngô Dận cảm thấy kinh hãi.
+- Các ngươi thật cho rằng ta gọi kiếm tiên tới đây chỉ để uống rượu cùng các ngươi? Đám phế vật có tiền đưa tới cũng không cần các ngươi, xứng sao?
 
-Ẩn quan trẻ tuổi ngoài miệng nói mình "Tiểu nhân đắc chí", thật sự là một cái nảy sinh ác độc, chẳng lẽ ngay cả người một nhà cũng muốn giết sao?
+Tôn Cự Nguyên cười đứng lên:
 
-Tiểu nhân đắc chí hay không, khó mà nói.
+- Ta với chư vị ngồi đây, cùng sư môn, lão tổ phía sau các vị, vẫn có chút tình hương khói, chưa từng có thù riêng. Cho nên chuyện nhận lỗi không dám phiền Ẩn Quan đại nhân, để ta.
 
-Người trẻ tuổi kia, tâm địa thật đen tối!
+Một người Yến gia đứng lên:[?]
 
-Về phần cách nói nắm đại quyền trong tay, thật sự là không hề hàm hồ chút nào.
+- Chuyện bồi thường, Yến gia ta coi như có chút của cải, ta sẽ bồi hoàn đầy đủ.[?]
 
-Ngô Cầu rốt cục đứng lên, ôm quyền nói: "Ẩn Quan đại nhân, không cần như thế, mua bán chỉ là mua bán, hai bên chúng ta đều lui một bước, cầu một người đều vui vẻ, cầu một tiền tài nhỏ như nước chảy dài."
+Nạp Lan Thải Hoán không hề nhúc nhích. Chuyện tối nay đã vượt quá dự đoán của nàng rất nhiều.
 
-Ẩn Quan trẻ tuổi chỉ một tay chống cằm, nhìn tuyết lớn lông ngỗng ngoài cửa lớn.
+Trần Bình An chuyển mắt sang nàng:
 
-Trần Bình An giống như đang lẩm bẩm: "Các ngươi thực cho rằng Kiếm Khí Trường Thành, ở Hạo Nhiên Thiên Hạ không có nửa điểm nhân duyên, nửa điểm tình hương khói sao? Cảm thấy Kiếm Khí Trường Thành không dùng những thứ này, sẽ không tồn tại sao? Đơn giản là không học cách làm việc bẩn thỉu của các ngươi, sẽ thành lý do các ngươi nghĩ lầm kiếm tiên cũng không có đầu óc? Biết các ngươi vì sao bây giờ còn có thể đứng mà không chết không?"
+- Đừng để người ngoài chê cười. Mặt mũi ta không sao, mặt mũi Nạp Lan Thiêu Vi đáng giá chút tiền.
 
-Trần Bình An tự hỏi tự đáp: "Đó là trong những năm tháng dài đằng đẵng gần vạn năm, từ khi Nam Bà Sa châu có chiếc độ thuyền vượt châu đầu tiên đến Đảo Huyền sơn, bắt đầu từ "Giẩm Thủy" kia, nếu ta nhớ không lầm, điều thứ hai là Phù Dao châu đã biến mất tông môn kia, Vân Độ sơn, chiếc độ thuyền "Vườn xuống" kia, điều thứ ba, là Đồng Diệp châu hôm nay một châu không còn một chiếc độ thuyền vượt châu nào nữa, là chiếc "Đồng Tán" ở giữa biển khó lật người chết hết kia, sau khi tin tức truyền về Kiếm Khí Trường Thành, kiếm tiên chỉ có thể là yên lặng xuất kiếm, tế điện xa xa, chuyện này, quá mức xa xưa, chỉ sợ kiếm tiên bản thổ ở tòa kiếm khí Trường Thành này cũng không rõ lắm."
+Nạp Lan Thải Hoán đành chậm rãi đứng dậy. Trần Bình An hoàn toàn không còn ý cười, tuy vẫn giữ tư thế lười nhác nhưng nhìn chằm chằm nữ kiếm tu Nguyên Anh giỏi buôn bán.
 
-Trần Bình An ngồi thẳng thân thể.
+Nàng cứng người, không nói. Hắn hỏi:
 
-"Trong những năm tháng sớm nhất, hầu như tất cả độ thuyền đi Đảo Huyền sơn, toàn bộ không vì kiếm tiền, ai nấy đều tương đương với đưa tiền cho Kiếm Khí Trường Thành. Cho dù thời gian trôi qua, thay đổi chút tình huống, trên thực tế là thay đổi rất nhiều, không sao đâu, Kiếm Khí Trường Thành chúng ta, vẫn sẽ nhớ tình cảm của độ thuyền tám châu Hạo Nhiên Thiên Hạ các ngươi, vẫn không quên. Nạp Lan Thiêu Vi năm đó tức giận, vẫn không đi địa giới Vũ Long Tông xuất kiếm? Hiện tại biết nguyên nhân rồi chứ? Không phải lão tổ Sơn Thủy Quật thông minh bao nhiêu, cũng không phải hắn hợp tung liên hoành hoành xinh đẹp bao nhiêu, một kiếm chém xuống, nói không còn là không còn nữa."
+- Ghế đặt sai chỗ rồi sao? Nạp Lan Thải Hoán, ngươi nên ngồi bên kia thì hơn?
 
-"Các ngươi kiếm tiền thì kiếm tiền, nhưng nói đến cùng, từng cái vật tư độ thuyền cuồn cuộn không ngừng đưa đến Đảo Huyền sơn, lại dời đến Kiếm Khí Trường Thành, không có các ngươi, Kiếm Khí Trường Thành đã sớm thủ không được, Kiếm Khí Trường Thành chúng ta này được Kiếm Khí Trường Thành chấp nhận, cũng sẽ chấp nhận."
+Ánh mắt nàng hung ác, vừa định mở miệng, kiếm tiên Cao Khôi đứng lên quay sang nhìn. Ba chữ “Trần Bình An” đã tới bên miệng lập tức bị nàng nuốt xuống.
 
-Trần Bình An đứng lên, cười tươi, vươn hai tay, ấn xuống phía dưới mấy cái, "Đều ngồi a, thất thần làm cái gì, ta nói giết người thì thực sự giết người, còn nói có chút đạo lý hay không? Các ngươi cũng thực tin tưởng a?"
+Biến cố khó hiểu này càng khiến người ngoài như Ngô Cầu kinh hãi. Vị Ẩn Quan trẻ tuổi miệng nói mình tiểu nhân đắc chí, lúc thật sự nổi giận chẳng lẽ ngay cả người nhà cũng muốn giết?
 
-Chỉ thấy Ẩn Quan trẻ tuổi kia cười ha hả nói: "Giang thuyền chủ, ngồi. Liễu Thâm, cũng ngồi, tất cả mọi người đều ngồi xuống nói chuyện. Hòa khí sinh tài, chúng ta là thương gia, đánh đánh giết giết, không thể tưởng tượng nổi."
+Tiểu nhân đắc chí hay không khó nói, nhưng tâm địa người trẻ tuổi này thật đen tối! Còn chuyện nắm đại quyền trong tay quả thật không giả chút nào.
 
-Mễ Dụ không ngồi xuống.
+Ngô Cầu rốt cuộc đứng dậy ôm quyền:
 
-Cho nên cũng không ai dám ngồi xuống.
+- Ẩn Quan đại nhân, không cần như thế. Mua bán chỉ là mua bán, hai bên cùng lui một bước, cầu mọi người vui vẻ, cầu tiền tài chảy dài như nước.
 
-Tạ Tùng Hoa, Bồ Hòa, Tạ Trĩ và những kiếm tu Hạo Nhiên Thiên Hạ này, rõ ràng sát ý của mỗi người đều còn đó.
+Ẩn Quan trẻ tuổi chống cằm nhìn tuyết lớn ngoài cửa, như lẩm bẩm:
 
-Trần Bình An đi đến sau ghế dựa của Nạp Lan Thải Hoán, duỗi hai ngón tay ra, nhẹ nhàng ấn lên đầu vai vị nữ tử kiếm tu Nguyên Anh này, dùng tiếng lòng mỉm cười nhắc nhở nàng: "Giữ cái đầu ngồi xuống, nếu không thì chết đi. Trên tay ngươi, nhiều chuyện làm ăn vượt quá giới hạn như vậy, hồ sơ bí lục của Ẩn Quan nhất mạch đều ghi lại toàn bộ. Cho nên nói ngươi vẫn quá ngu xuẩn, thật sự cho rằng bản lĩnh làm ăn của lão tổ nhà ngươi không bằng ngươi? Ngươi kém lão Kiếm Tiên cả vạn dặm. Nạp Lan Thiêu Vi đã cứu ngươi một mạng, cứu không được lần thứ hai."
+- Các ngươi thật cho rằng Kiếm Khí Trường Thành không có chút nhân duyên, chút tình hương khói nào ở Hạo Nhiên thiên hạ? Cho rằng chúng ta không dùng thì những thứ ấy không tồn tại? Chỉ vì không học làm chuyện bẩn thỉu của các ngươi mà các ngươi tưởng kiếm tiên không có đầu óc?
 
-Nạp Lan Thải Hoán như bị sét đánh, trong đầu trống rỗng, mặt không còn chút máu, chậm rãi ngồi xuống.
+- Biết vì sao bây giờ các ngươi còn đứng được, chưa chết không?
 
-Sau đó ẩn quan trẻ tuổi hai tay nắm chặt hai tay, tựa lưng vào ghế dựa phía sau Nạp Lan Thải Hoán, nhìn về phía đám quản sự đang không biết làm sao ở phía đối diện, vẻ mặt bất đắc dĩ nói: "Đợi lấy lễ, lấy thế ép xuống, hiểu đạo lý, động chi dĩ tình, Ẩn Quan nho nhỏ của ta, có thể làm được, tối nay đều làm rồi, mọi người sao còn không nể mặt ta chút nào? Hả?"
+Hắn tự hỏi tự đáp:
 
-Thế là tất cả mọi người ngồi xuống.
+- Bởi trong những năm tháng dài gần vạn năm, từ chiếc độ thuyền vượt châu đầu tiên của Nam Bà Sa châu đến Đảo Huyền sơn, chiếc Giẩm Thủy kia,[?] nếu ta nhớ không lầm, chiếc thứ hai là của tông môn Vân Độ sơn ở Phù Dao châu đã biến mất, chiếc Vườn Xuống.[?]
 
-Người ẩn quan trẻ tuổi không biết từ nơi nào nhảy ra kia, thủ đoạn âm hiểm, tâm địa ác độc, đầu óc có bệnh!
+- Chiếc thứ ba là Đồng Tán của Đồng Diệp châu, nơi hôm nay không còn chiếc độ thuyền vượt châu nào. Nó lật giữa biển, người trên thuyền chết hết. Tin truyền về Kiếm Khí Trường Thành, kiếm tiên chỉ có thể lặng lẽ xuất kiếm, tế từ xa. Chuyện quá xa xưa, sợ rằng ngay cả kiếm tiên bản địa cũng không rõ.
 
-Trần Bình An đi trở về chỗ cũ, nhưng không ngồi xuống, chậm rãi nói: "Không dám cam đoan chư vị nhất định kiếm tiền nhiều hơn so với trước kia. Nhưng mà có thể cam đoan chư vị kiếm được không ít tiền. Câu này, có thể tin. Không tin không sao, về sau những sổ sách càng ngày càng dày của các vị, không lừa được người."
+Trần Bình An ngồi thẳng:
 
-Mễ Dụ đứng dậy, giũ tay áo, trong tay áo càn khôn, lướt ra từng tập sách, từng cái treo ở trước người tất cả quản sự độ thuyền.
+- Những năm tháng sớm nhất, gần như tất cả độ thuyền đi Đảo Huyền sơn đều không vì kiếm tiền, mỗi chiếc đều chẳng khác gì đưa tiền cho Kiếm Khí Trường Thành. Dù thời gian trôi qua, tình hình thay đổi một chút, thật ra thay đổi rất nhiều, cũng không sao. Kiếm Khí Trường Thành chúng ta vẫn nhớ, chưa từng quên tình nghĩa của độ thuyền tám châu Hạo Nhiên thiên hạ.
 
-Trần Bình An tiếp tục nói: "Tất cả vật tư cần thiết sau này của Kiếm Khí Trường Thành đều nằm trên danh sách, dựa theo thiên can, đều cẩn thận phân chia đẳng cấp, bên trên giá cả đều viết, cụ thể giảm giá như thế nào, phải xem bản lãnh của chư vị đào đất ba thước ở Hạo Nhiên Thiên Hạ. Còn lại độ thuyền vượt châu chưa thể tham dự nghị sự tối nay, làm phiền chư vị hỗ trợ chuyển lời. Bởi vì trước kia rất nhiều vật tư, về sau Kiếm Khí Trường Thành sẽ không thu nửa điểm, nhưng mà một ít vật tư, Kiếm Khí Trường Thành ai đến cũng không cự tuyệt, giá sẽ chỉ càng cao. Nơi bát châu, mỗi nơi đều có sở trường riêng."
+- Năm đó Nạp Lan Thiêu Vi tức giận, chẳng phải vẫn không đến địa giới Vũ Long tông xuất kiếm sao?[?] Bây giờ biết nguyên nhân chưa? Không phải lão tổ Sơn Thủy Quật thông minh bao nhiêu, cũng không phải hợp tung liên hoành đẹp đẽ bao nhiêu. Một kiếm chém xuống, nói không còn là không còn nữa.
 
-"Đáp ứng ký sổ Kiếm Khí Trường Thành, không chịu cho chúng ta ký sổ, người trước là tình nghĩa và tình hương khói, người sau là bổn phận người làm ăn cầu tài, đều có thể lén bàn với ta, có phải lấy nợ đổi lấy lợi ích thực tế từ nơi khác bù lại hay không, vẫn có thể bàn."
+- Các ngươi kiếm tiền thì cứ kiếm. Nhưng nói đến cùng, từng chuyến độ thuyền liên tục đưa vật tư đến Đảo Huyền sơn, rồi chuyển sang Kiếm Khí Trường Thành. Không có các ngươi, chúng ta đã sớm không giữ được. Phần tình này, Kiếm Khí Trường Thành thừa nhận, cũng sẽ luôn thừa nhận.
 
-Tất cả quản sự độ thuyền đều bắt đầu cẩn thận lật xem.
+Trần Bình An đứng dậy cười tươi, đưa hai tay ấn xuống mấy lần:
 
-Nói tới đây, Trần Bình An cười nhìn phía vị tu sĩ Nguyên Anh sơn thủy quật Bạch Khê, "Có phải rất bất ngờ hay không? Thật ra chuyện ngươi mưu đồ bí mật, một chuyện trong đó, hình như là trước khi tới Đảo Huyền sơn, trước tiên dỡ hàng rồi lại chứa hàng, tranh thủ một chiếc độ thuyền chuyên bán mấy loại vật tư, cầu giá cao, miễn cho ép giá lẫn nhau, bán rẻ cho Kiếm Khí Trường Thành, có phải vừa vặn là kiếm khí Trường Thành chúng ta vốn đã giúp ngươi làm hay không? Bạch Khê lão thần tiên a, chính ngươi tự vấn tâm, Kiếm Khí Trường Thành vốn chính là quang minh chính đại làm buôn bán cùng các ngươi như vậy, ngươi còn lén lút không rơi vào chỗ tốt, tội gì phải thế? Về phần ai tiết lộ suy nghĩ của ngươi, cũng đừng đi tìm tòi nghiên cứu, với tài sản phong phú của Phù Dao châu cùng năng lực Sơn Thủy Quật, từ đó về sau kiếm tiền cũng không đủ, tính toán chút việc nhỏ này làm chi?"
+- Đều ngồi đi, ngây ra làm gì? Ta nói giết người thì thật sự giết sao, còn nói đạo lý hay không? Các ngươi cũng thật tin à?
 
-Tu sĩ Ngai Ngai châu nhìn thấy một chỗ, sửng sốt nửa ngày, Kiếm Khí Trường Thành sau này lại muốn thu mua Tuyết Hoa tiền trắng trợn?!
+Hắn cười ha hả:
 
-Vị quản sự Phù gia kia của Lão Long thành, thời điểm lật đến một trang, cũng cảm thấy có chút ý tứ, bởi vì đặc sản Vân Hà sơn đã sớm ký kết minh ước với Phù gia, Vân Căn thạch, giá cả tăng lên!
+- Giang thuyền chủ, ngồi. Liễu Thâm cũng ngồi. Tất cả ngồi xuống nói chuyện. Hòa khí sinh tài, chúng ta là thương gia, đánh đánh giết giết còn ra thể thống gì.
 
-Ngay cả các quản sự độ thuyền Bắc Câu Lô Châu không vui kiếm nhiều tiền nhất cũng dở khóc dở cười, được rồi, xem ra sau khi trở về bản châu, phải ngồi xuống nói chuyện một chút với bãi Cốt Ma tông.
+Mễ Dụ không ngồi, vì vậy cũng không ai dám ngồi. Tạ Tùng Hoa, Bồ Hòa, Tạ Trĩ và các kiếm tu Hạo Nhiên thiên hạ rõ ràng vẫn còn sát ý.
 
-Trần Bình An cuối cùng nói: "Tiền kế tiếp, đều là các vị có thể tùy tiện kiếm, nếu có người như vậy ngừng độ thuyền vượt châu ở bản châu, không kiếm được tiền thần tiên này, nhất định phải giống như tiểu hài tử bực bội, làm khí phách tranh giành, cũng được, núi xanh không thay đổi, nước nhỏ chảy dài, phần tình nghĩa này, chậm rãi so sánh. Còn có, ngoài công việc, các vị quản sự độ thuyền, cũng nên suy nghĩ cho đại đạo của mình, thêm muốn vật đan phường, có một số tiên gia pháp bảo, Kiếm Khí Trường Thành chúng ta bên này nhất nhất ghi lại trong danh sách, chỉ cần làm được, đều sẽ giúp các ngươi lấy vật đổi vật, nếu là cần bổ sung chút tiền thần tiên, chúng ta đương nhiên cũng sẽ nói thẳng với các ngươi, trong lúc này, ta cam đoan Kiếm Khí Trường Thành không kiếm thêm ai một đồng tiền Tuyết Hoa, xem như là tặng thêm một chút lợi ích nhỏ cho các vị."
+Trần Bình An đến sau ghế Nạp Lan Thải Hoán, dùng hai ngón tay nhẹ ấn vai nàng, mỉm cười truyền âm:
 
-Giang Cao Đài bất động thanh sắc lật xem quyển sách dày kia, lấy tiếng lòng hỏi, "Ẩn Quan đại nhân, thật sự không giết người, chỉ buôn bán?"
+- Giữ cái đầu mà ngồi xuống, nếu không thì chết. Trong tay ngươi có bao nhiêu vụ làm ăn vượt quá giới hạn, hồ sơ bí lục Ẩn Quan nhất mạch đều ghi hết. Cho nên ngươi vẫn quá ngu xuẩn, thật cho rằng bản lĩnh buôn bán của lão tổ không bằng ngươi? Ngươi kém lão kiếm tiên vạn dặm. Nạp Lan Thiêu Vi đã cứu ngươi một mạng, không cứu được lần thứ hai.
 
-Trần Bình An cười nói: "Chỉ nhìn kết quả, không nhìn quá trình, chẳng lẽ ta không nên cảm tạ ngươi mới đúng? Ngày nào đó hai ta không làm mua bán nữa, đến thu sau tính sổ. Nhưng ngươi yên tâm, mỗi bút làm ăn, giá cả đều bày ở bên kia, chẳng những ngươi tình ta nguyện, hơn nữa cũng có thể tính một chút tình hương khói của ngươi, cho nên có hi vọng huề nhau. Từ đó về sau, trời đất bao la, chúng ta đời này còn có thể gặp mặt hay không, đều đã là hai chuyện khác nhau."
+Nạp Lan Thải Hoán như bị sét đánh, đầu óc trống rỗng, mặt không còn giọt máu, chậm rãi ngồi xuống.
 
-Giang Cao Đài nửa tin nửa ngờ.
+Ẩn Quan trẻ tuổi đặt hai tay lên lưng ghế nàng, nhìn các quản sự đối diện đang không biết làm sao, vẻ mặt bất đắc dĩ:
 
-Trần Bình An hoặc là lấy tiếng lòng trả lời một số người lặng yên hỏi.
+- Lấy lễ đối đãi, lấy thế đè người, giảng đạo lý, dùng tình lay động, một Ẩn Quan nhỏ bé như ta làm được gì tối nay đều đã làm rồi. Mọi người sao còn không nể mặt ta chút nào? Hả?
 
-Hoặc là chủ động nói chuyện với người khác.
+Thế là tất cả ngồi xuống. Vị Ẩn Quan trẻ tuổi không biết từ đâu nhảy ra này thủ đoạn âm hiểm, tâm địa độc ác, đầu óc có bệnh!
 
-"Vị Thiếu thành chủ Phù Nam Hoa kia của các ngươi, hôm nay cảnh giới gì rồi?"
+Trần Bình An trở về chỗ cũ nhưng không ngồi, chậm rãi nói:
 
-"Liễu tiên tử, lúc trước là ta nói hươu nói vượn, sư muội phụ tá đắc lực kia của ngươi, không hổ là tâm phúc của ngươi, trên thực tế nàng đối với ngươi đó là cực kỳ kính trọng."
+- Không dám cam đoan các vị nhất định kiếm nhiều tiền hơn trước, nhưng có thể cam đoan kiếm không ít. Câu này có thể tin. Không tin cũng không sao, về sau sổ sách ngày càng dày của các vị sẽ không lừa người.
 
-"Đừng hận Mễ Dụ kiếm tiên, hắn làm sao có thể giết ngươi được, đương nhiên là làm bộ cho vị ẩn quan này xem, nếu ngươi vì thế mà thương tâm, thì càng khiến hắn thương tâm hơn. Si tình cô phụ si tâm, nhân gian thật đáng tiếc."
+Mễ Dụ đứng dậy giũ tay áo, từ trong tay áo càn khôn bay ra từng tập sách, lơ lửng trước mặt từng quản sự độ thuyền.
 
-Ẩn Quan đại nhân tuổi còn trẻ, ngôn ngữ tùy ý, giống như đang hàn huyên khách sáo với người quen.
+Trần Bình An tiếp tục:
 
-Chỉ là những lời kia, rơi vào trong tâm hồ của từng vị quản sự trên thuyền, người sau đều phải cẩn thận từng li từng tí nhai nát từng chữ, sợ bỏ lỡ huyền cơ gì.
+- Tất cả vật tư Kiếm Khí Trường Thành cần sau này đều có trong danh sách, được chia cấp bậc cẩn thận theo thiên can, giá cả cũng viết rõ. Cụ thể giảm giá thế nào phải xem bản lĩnh đào đất ba thước ở Hạo Nhiên thiên hạ của chư vị. Những độ thuyền chưa thể tham dự nghị sự tối nay, làm phiền chư vị chuyển lời.
 
-Bởi vì cho dù tất cả mọi người không có bất kỳ giao lưu nào, nhưng mà không hẹn mà cùng đều lòng còn sợ hãi một chuyện.
+- Bởi rất nhiều vật tư trước kia, sau này Kiếm Khí Trường Thành sẽ không thu nữa. Nhưng có một số vật tư chúng ta ai đến cũng không từ chối, giá chỉ càng cao. Tám châu, mỗi nơi đều có sở trường riêng.
 
-Người trẻ tuổi này, vào thời khắc nào đó muốn giết sạch tất cả những người ngồi đối diện kiếm tiên.
+- Người đồng ý cho Kiếm Khí Trường Thành ghi nợ là tình nghĩa, tình hương khói. Người không chịu cho ghi nợ là bổn phận người làm ăn cầu tài. Đều có thể lén bàn với ta xem có đổi khoản nợ lấy lợi ích thực tế ở nơi khác bù đắp hay không, vẫn có thể thương lượng.
 
-Có lẽ là thật, có lẽ vẫn là giả.
+Các quản sự bắt đầu cẩn thận lật xem. Trần Bình An cười nhìn Bạch Khê của Sơn Thủy Quật:
 
-Nhưng lỡ như là thật thì sao?
+- Rất bất ngờ phải không? Thật ra một trong những chuyện ngươi bí mật mưu tính là trước khi đến Đảo Huyền sơn, dỡ hàng rồi xếp lại, để mỗi độ thuyền chuyên bán mấy loại vật tư, cầu giá cao, tránh ép giá nhau, bán rẻ cho Kiếm Khí Trường Thành. Chẳng phải chúng ta vừa giúp ngươi làm rồi sao?
 
-Trần Bình An tiếp tục một tay chống má, nhìn tuyết lớn ngoài cửa.
+- Bạch Khê lão thần tiên, tự hỏi lòng mình, Kiếm Khí Trường Thành vốn quang minh chính đại buôn bán với các ngươi như vậy. Ngươi lén lút lại chẳng được lợi, hà tất? Còn ai tiết lộ ý định của ngươi, đừng tìm hiểu nữa. Với tài sản Phù Dao châu và năng lực Sơn Thủy Quật, từ nay kiếm tiền còn không đủ, tính toán chuyện nhỏ ấy làm gì?
 
-Lúc này, chiếc độ thuyền kia của Lưu Tiện Dương, hẳn là sắp về tới Nam Bà Sa châu.
+Một tu sĩ Ngai Ngai châu xem đến một chỗ, sửng sốt hồi lâu: Kiếm Khí Trường Thành sau này lại muốn thu mua tiền tuyết hoa với số lượng lớn?!
 
-Mà chiếc độ thuyền đã sớm rời xa Đảo Huyền sơn kia.
+Quản sự Phù gia Lão Long thành lật đến một trang cũng thấy thú vị: Vân Căn thạch, đặc sản của Vân Hà sơn đã sớm kết minh với Phù gia, tăng giá!
 
-Lưu Tiện Dương đang ở trong phòng khêu đèn đọc sách, trên bàn đặt một con dấu.
+Ngay cả quản sự Bắc Câu Lô Châu vốn không vui vì kiếm được nhiều tiền cũng dở khóc dở cười. Được rồi, sau khi về bản châu phải ngồi xuống nói chuyện với Cốt Ma tông.[?]
 
-Biên khoản: Ấn thứ nhất của đại kiếm tiên Trần Bình An, huynh trưởng Lưu Tiện Dương tồn tại.
+Trần Bình An nói:
 
-Ấn văn: Bàn Sơn Đảo Hải.
+- Tiền tiếp theo đều là các vị có thể thoải mái kiếm. Nếu có người vì thế ngừng độ thuyền ở bản châu, không kiếm tiền thần tiên, nhất định như trẻ con giận dỗi tranh khí, cũng được. Núi xanh không đổi, nước nhỏ chảy dài, tình nghĩa này từ từ so sánh.
 
-Lưu Tiện Dương liếc con dấu, hiểu ý cười.
+- Ngoài làm ăn, các quản sự cũng nên nghĩ cho đại đạo của mình. Thứ cần từ đan phường cùng một số pháp bảo tiên gia, Kiếm Khí Trường Thành đều đã ghi trong danh sách. Chỉ cần làm được, chúng ta sẽ giúp các vị lấy vật đổi vật. Nếu cần thêm tiền thần tiên, đương nhiên nói thẳng. Trong chuyện này, ta cam đoan Kiếm Khí Trường Thành không kiếm thêm ai một đồng tiền tuyết hoa, coi như tặng chư vị chút lợi ích nhỏ.
 
-Thằng nhóc này hay lắm, chuyện khoác lác này nên học theo bản thân.
+Giang Cao Đài bất động thanh sắc lật quyển sổ dày, dùng tiếng lòng hỏi:
 
-Đảo Huyền sơn, đại đường Xuân Phiên Trai.
+- Ẩn Quan đại nhân thật sự không giết người, chỉ làm ăn?
 
-Bên ngoài tuyết lớn rơi xuống nhân gian.
+Trần Bình An cười:
 
-Mễ Dụ lặng lẽ hỏi: "Ẩn Quan đại nhân, thật sự bỏ qua như vậy sao?"
+- Chỉ nhìn kết quả, không nhìn quá trình, chẳng lẽ ta không nên cảm tạ ngươi sao? Ngày nào hai ta không làm ăn nữa, đến thu sau tính sổ. Nhưng ngươi yên tâm, mỗi vụ mua bán đều có giá bày rõ, chẳng những hai bên tình nguyện, còn có thể tính chút tình hương khói của ngươi, cho nên có hy vọng hòa nhau. Từ đó về sau trời đất bao la, đời này còn gặp lại hay không cũng chưa chắc.
 
-Trần Bình An hỏi ngược lại: "Ta nói rồi sao?"
+Giang Cao Đài nửa tin nửa ngờ. Trần Bình An khi thì dùng tiếng lòng trả lời người lặng lẽ hỏi, khi thì chủ động nói chuyện:
 
-Mễ Dụ nói: "Hình như đã nói rồi."
+- Thiếu thành chủ Phù Nam Hoa của các ngươi hôm nay cảnh giới gì rồi?
 
-Trần Bình An nói: "Ta luôn nói chuyện bản thân cũng không tin."
+- Liễu tiên tử, trước đây ta nói hươu nói vượn. Sư muội đắc lực của ngươi không hổ là tâm phúc, thật ra nàng cực kỳ kính trọng ngươi.
 
-Mễ Dụ lập tức ngầm hiểu, nói: "Ta hiểu rồi!"
+- Đừng hận Mễ Dụ kiếm tiên, hắn sao nỡ giết ngươi, đương nhiên chỉ làm bộ cho Ẩn Quan ta xem. Nếu ngươi vì thế thương tâm thì càng khiến hắn thương tâm. Người si tình phụ tấm lòng si, nhân gian thật đáng tiếc.
 
-Trần Bình An liếc xéo vị Mễ đại kiếm tiên này.
+Ẩn Quan đại nhân tuổi còn trẻ, nói năng tùy ý, giống hàn huyên khách sáo với người quen. Chỉ là lời rơi vào tâm hồ từng quản sự, bọn họ đều phải cẩn thận nghiền ngẫm từng chữ, sợ bỏ qua huyền cơ.
 
-Mễ Dụ nhìn về phía Thiệu Vân Nham đang ngồi ngây ngô không làm gì ngoài cửa, mở miệng hỏi: "Thiệu Kiếm Tiên, quý phủ có trà ngon rượu ngon không, Ẩn Quan đại nhân cứ ngồi như vậy chắc không phải là nói chơi chứ?"
+Bởi cho dù không trao đổi, tất cả đều không hẹn mà cùng nghĩ đến một chuyện khiến lòng còn sợ hãi: có lẽ vào một thời khắc nào đó, người trẻ tuổi này thật sự muốn giết sạch tất cả những người ngồi đối diện kiếm tiên.
 
-Thiệu Vân Nham cười cười không nói, cũng không lên đường.
+Có lẽ là thật, có lẽ vẫn là giả. Nhưng vạn nhất là thật thì sao?
 
-Mễ Dụ tự mình lấy ra một bình rượu tiên gia, đưa cho Ẩn Quan đại nhân.
+Trần Bình An lại chống má nhìn tuyết lớn ngoài cửa. Lúc này chiếc độ thuyền của Lưu Tiện Dương hẳn sắp về đến Nam Bà Sa châu.
 
-Đứng dậy đưa rượu, đặt trên bàn rượu, tiêu sái xoay người, nhanh nhẹn ngồi xuống.
+Trên chiếc độ thuyền đã sớm rời xa Đảo Huyền sơn ấy, Lưu Tiện Dương đang khêu đèn đọc sách trong phòng, trên bàn đặt một con dấu.
 
-Nước chảy thành sông, không chút nào mất tự nhiên.
+Bên cạnh khắc: “Ấn thứ nhất của đại kiếm tiên Trần Bình An, huynh trưởng Lưu Tiện Dương giữ.”[?]
 
-Vị chủ nhân Xuân Phiên Trai ở cửa kia, cũng cảm thấy mất mặt thay vị kiếm tiên Ngọc Phác cảnh này.
+Ấn văn: “Bàn Sơn Đảo Hải”.
 
-Lúc này chắc chắn Mễ Dụ còn chưa biết, trong tương lai, người đứng đầu bên cạnh Trần Bình An chỉ là một tay sai chân chó, ngoài hắn ra thì không còn ai khác.
+Lưu Tiện Dương liếc con dấu, hiểu ý cười. Thằng nhóc này hay lắm, chuyện khoác lác nên học theo mình.
+
+Tại đại đường Xuân Phiên Trai ở Đảo Huyền sơn, bên ngoài tuyết lớn rơi xuống nhân gian.
+
+Mễ Dụ lặng lẽ hỏi:
+
+- Ẩn Quan đại nhân, thật sự bỏ qua như vậy sao?
+
+Trần Bình An hỏi ngược:
+
+- Ta nói rồi sao?
+
+- Hình như đã nói.
+
+- Ta thường nói cả lời chính mình cũng không tin.
+
+Mễ Dụ lập tức hiểu ý:
+
+- Ta hiểu rồi!
+
+Trần Bình An liếc xéo hắn. Mễ Dụ nhìn Thiệu Vân Nham ngồi không ngoài cửa, hỏi:
+
+- Thiệu kiếm tiên, quý phủ có trà ngon rượu ngon không? Ẩn Quan đại nhân ngồi như vậy, chắc không phải chỉ nói chơi chứ?
+
+Thiệu Vân Nham cười không nói, cũng không đứng dậy. Mễ Dụ tự lấy một bình rượu tiên gia đưa Ẩn Quan đại nhân. Hắn đứng lên đưa rượu, đặt trên bàn, tiêu sái xoay người, nhanh nhẹn ngồi xuống, một mạch tự nhiên.
+
+Chủ nhân Xuân Phiên Trai ngoài cửa cũng cảm thấy mất mặt thay vị kiếm tiên Ngọc Phác cảnh này.
+
+Lúc này Mễ Dụ chắc chắn chưa biết, trong tương lai, kẻ đứng đầu đám tay sai chân chó bên cạnh Trần Bình An không ai khác chính là hắn.

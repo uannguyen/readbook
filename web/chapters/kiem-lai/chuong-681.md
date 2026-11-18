@@ -1,441 +1,543 @@
 # Chương 681: Ngày mùa hè chói chang, gió tuyết đường xa
 
-Cao thành Chiếu sáng ngày đầu.
+Ánh mặt trời vừa chiếu lên tòa thành cao.
 
-Núi non trùng điệp, Đổng Họa Phù, Phạm Đại Triệt lựa chọn rút lui.
+Điệp Chướng và Đổng Họa Phù, Phạm Đại Triệt lựa chọn lui xuống nghỉ ngơi. Trữ Diêu, Trần Tam Thu và Yến Trác vẫn ở lại đầu tường.
 
-Trữ Diêu, Trần Tam Thu, Yến Trác tiếp tục lưu lại tại chỗ.
+Trần Bình An trở về bên cạnh bọn họ, thay một tấm da mặt hán tử trung niên, giúp Trần Tam Thu và Yến Trác quan sát tình thế chiến trường, thỉnh thoảng nhắc nhở đôi câu.
 
-Trần Bình An quay về bên bọn họ, thay một tấm da mặt hán tử trung niên, trước giúp đỡ Trần Tam Thu, Yến Trác nhìn chằm chằm tình thế chiến trường, ngẫu nhiên mở miệng nhắc nhở một câu.
+Chỉ điểm Phạm Đại Triệt cần nói thật rõ ràng, còn với Trần Tam Thu và Yến Trác, hắn có thể nói ngắn gọn hơn nhiều, chỉ bổ sung những chỗ thiếu sót nhỏ. Phần lớn là đường đi của phi kiếm, nơi nên đặt chân, cùng nhau nhanh chóng xem lại những lần xuất kiếm, để làm tốt hơn nữa.
 
-So với Phạm Đại Triệt nhất định phải nói chính xác, nói chuyện với Trần Tam Thu và Yến Trác, Trần Bình An sẽ giản lược tiết kiệm rất nhiều, bổ sung chỗ thiếu sót rất nhỏ mà thôi.
-
-Phần nhiều là một ít quỹ tích phi kiếm, đề nghị lựa chọn chỗ đặt chân, một loại nhanh chóng phục bàn, tranh thủ từ dễ biến thành tốt hơn mà thôi. Không phải quen uống rượu, thành cần bạn tốt, Trần Bình An sẽ không coi hai vị kiếm tu Kim Đan cảnh này ra gì, trên thực tế, Trần Bình An ngưng thần quan chiến, quan sát Trần Tam Thu cùng Yến Trác xuất kiếm, thu được không ít ích lợi.
+Nếu không phải bằng hữu thường xuyên cùng nhau uống rượu, Trần Bình An cũng chẳng cần phải lo cho hai kiếm tu Kim Đan cảnh này. Thật ra khi tập trung quan chiến, nhìn Trần Tam Thu và Yến Trác xuất kiếm, hắn cũng thu được không ít ích lợi.
 
 Sau đó Trần Bình An đi tìm Phạm Đại Triệt.
 
-Phạm Đại Triệt thấy khuôn mặt hán tử Trần Bình An, có chút bất đắc dĩ, đối địch với Trần Bình An, thật sự là xui xẻo tám đời, phần mộ tổ tiên không phải bốc lên khói nhẹ, là khói đen cuồn cuộn, vốn không ép được quan tài.
+Nhìn gương mặt hán tử xa lạ của hắn, Phạm Đại Triệt có phần bất đắc dĩ. Đối địch với Trần Bình An quả thật xui xẻo tám đời, phần mộ tổ tiên đâu chỉ bốc khói xanh, mà là khói đen cuồn cuộn, ngay cả quan tài cũng chẳng đè nổi.
 
-Bất đắc dĩ, Phạm Đại Triệt cũng rất cảm ơn, nếu như không phải Trần Bình An xuất hiện, Phạm Đại Triệt còn luống cuống tay chân rất lâu.
+Dẫu vậy, Phạm Đại Triệt vẫn rất cảm kích. Nếu không có Trần Bình An, hắn còn phải luống cuống tay chân rất lâu.
 
-Trần Bình An ngồi xổm xuống, ném cho Phạm Đại Triệt một bình Trúc Hải Động Thiên tửu, cười nói: "Nhớ nhớ nhớ nhớ nhớ nhớ khen của ta."
+Trần Bình An ngồi xổm xuống, ném cho hắn một bầu Trúc Hải Động Thiên tửu, cười nói:
 
-Đổng Họa Phù nói: "Dùng tiền của Phạm Đại Triệt mua được rượu, sau đó lại lấy ra tặng ân tình cho Phạm Đại Triệt, ta học được rồi."
+- Nhớ nhớ nhớ nhớ nhớ nhớ khen ta đấy.
 
-Trần Bình An làm bộ không nghe thấy, dán lên người một tấm phù trừ uế giấy vàng, giúp đỡ loại trừ mùi máu tanh kia.
+Đổng Họa Phù nói:
 
-Điệp Chướng cười hỏi: "Đi nơi khác nhặt tiền à?"
+- Dùng tiền của Phạm Đại Triệt mua rượu, rồi lấy rượu tặng hắn để kiếm ân tình, ta học được rồi.
 
-Trần Bình An gật đầu nói: "Tùy tiện đi dạo. Bởi vì lo lắng ngược lại giúp, bị người ta đưa tới sự chú ý của một số đại yêu chỗ tối, cho nên không dám xuất lực. Sau đó tính cùng các kiếm tiên thương lượng, một mình phụ trách một đoạn đầu tường nhỏ, làm mồi nhử, kẻ nguyện mắc câu. Đến lúc đó các ngươi ai rút khỏi chiến trường, có thể đi qua tìm ta, kiến thức một chút phong thái ngự kiếm đại tu sĩ, nhớ mang rượu, không cho không xem."
+Trần Bình An làm như không nghe thấy, dán lên người một tấm phù trừ uế giấy vàng, xua đi mùi máu tanh.
 
-Đổng Họa Phù lắc đầu nói: "Vậy ta không đi."
+Điệp Chướng cười hỏi:
 
-Núi non cười nói: "Ta cũng vậy."
+- Đi chỗ khác nhặt tiền à?
 
-Phạm Đại Triệt phát hiện Trần Bình An nhìn mình, kiên trì nói: "Ta không dám đi."
+Trần Bình An gật đầu:
 
-Trần Bình An cười tủm tỉm nói: "Đại Triệt à, người không đi, rượu có thể tới mà, ai còn thèm nhìn thấy ngươi."
+- Tùy tiện đi dạo. Ta sợ giúp không được gì, ngược lại khiến đám đại yêu trong bóng tối chú ý tới các ngươi, cho nên không dám ra sức. Lát nữa ta định thương lượng với các kiếm tiên, một mình phụ trách một đoạn đầu tường nhỏ, làm mồi nhử, ai muốn cắn câu thì tới. Sau này các ngươi lui khỏi chiến trường có thể đến tìm ta, mở mang kiến thức về phong thái ngự kiếm của đại tu sĩ. Nhớ mang rượu, không cho xem không đâu.
 
-Gần núi và bùa Đổng Họa gần như đồng thời đứng dậy, tiếp tục đi về phía đầu tường phía Nam.
+Đổng Họa Phù lắc đầu:
 
-Phạm Đại Triệt cũng muốn đi theo, lại bị Trần Bình An đưa tay ấn hờ, ra hiệu không vội.
+- Vậy ta không đi.
 
-Trần Bình An nói: " kề vai chiến đấu cùng những bằng hữu này, có phải cảm thấy áp lực rất lớn hay không? Giống như hỗ trợ bọn họ một lần, liền kéo chân sau một lần?"
+Điệp Chướng cười nói:
+
+- Ta cũng vậy.
+
+Thấy Trần Bình An nhìn mình, Phạm Đại Triệt gượng nói:
+
+- Ta không dám đi.
+
+Trần Bình An cười tủm tỉm:
+
+- Đại Triệt à, người không tới thì rượu có thể tới, ai thèm nhìn thấy ngươi chứ.
+
+Điệp Chướng và Đổng Họa Phù gần như đồng thời đứng dậy, tiếp tục đi về phía đầu tường phía nam. Phạm Đại Triệt cũng muốn theo, nhưng Trần Bình An đưa tay ngăn lại, bảo hắn đừng vội.
+
+- Kề vai chiến đấu với đám bằng hữu này, có phải ngươi cảm thấy áp lực rất lớn không? Giống như cứ giúp bọn họ một lần là lại kéo chân sau một lần?
 
 Phạm Đại Triệt gật đầu.
 
-Trần Bình An cười nói: "Sau khi có ý niệm như vậy, thật ra không phải chuyện xấu, chẳng qua muốn thì tốt hơn, ngươi nên áp chế những ý niệm này, Phạm Đại Triệt, đừng quên, ngươi là một vị kiếm tu bình cảnh Long Môn cảnh, hôm nay còn chưa đến ba mươi tuổi. Biết ở Hạo Nhiên Thiên Hạ chúng ta, cho dù Bắc Câu Lô châu được vinh dự gọi là kiếm tu như mây kia, một vị kiếm tu sớm muộn gì cũng sẽ tễ thân Kim Đan, là một người tuấn ngạn trẻ tuổi rất giỏi cỡ nào không?"
+Trần Bình An cười nói:
 
-Trần Bình An chỉ chỉ mình, "Không phải Hạo Nhiên Thiên Hạ có người như ta, Hạo Nhiên Thiên Hạ đều là người như Trần Bình An. Trong những người cùng lứa tuổi trên núi xấp xỉ tuổi với ngươi ta, chỉ nói cân lượng giết địch, so với ta tốt hơn, đương nhiên cũng sẽ có, hẳn là còn không ít. Nhưng mà so với ta, rất nhiều, rất nhiều."
+- Nghĩ như vậy thật ra không phải chuyện xấu, chỉ là ngươi nên đè nén suy nghĩ ấy xuống. Phạm Đại Triệt, đừng quên ngươi là kiếm tu đang ở bình cảnh Long Môn cảnh, năm nay còn chưa đến ba mươi tuổi. Ngươi biết ở Hạo Nhiên Thiên Hạ, cho dù là Bắc Câu Lô Châu nổi tiếng kiếm tu nhiều như mây, một kiếm tu sớm muộn cũng có thể bước vào Kim Đan là tuấn ngạn trẻ tuổi giỏi giang đến mức nào không?
 
-Trần Bình An chậm rãi nói: "Quê nhà của ta, Đông Bảo Bình Châu, ta đi qua rất nhiều giang hồ, Phạm Đại Triệt ngươi nếu là ở bên kia tu hành, sẽ là một thiên chi kiêu tử vương triều ký thác kỳ vọng cao, ngươi có thể sẽ cảm thấy trước kia ta thường xuyên nói giỡn, nói mình tốt xấu cũng là đường đường ngũ cảnh đại tu sĩ, là trêu chọc là tự giễu, thật ra không hoàn toàn là như vậy, ở quê nhà ta bên kia, một đầu yêu tộc Động Phủ cảnh, quỷ mị, chính là đại yêu hoàn toàn xứng đáng, chính là lệ quỷ kinh thế hãi tục. Ngươi ngẫm lại xem, một kiếm tu Kim Đan kiếm phôi tiên thiên, khả năng cũng chỉ chừng ba mươi tuổi, ở Bảo Bình châu bên kia, là cao cao tại thượng như thế nào?"
+Hắn chỉ vào mình:
 
-Phạm Đại Triệt gật gật đầu: "Trước kia không nghĩ tới những thứ này, không quá hứng thú đối với chuyện Hạo Nhiên Thiên Hạ. Từ nhỏ đến lớn, đều cảm thấy tư chất của mình có thể tính là tạm được, nhưng mà không đủ tốt."
+- Không phải Hạo Nhiên Thiên Hạ có một người như ta, thì ở đó ai cũng giống Trần Bình An. Trong đám người tu hành xấp xỉ tuổi ngươi và ta, chỉ xét bản lĩnh giết địch, người giỏi hơn ta đương nhiên có, hẳn còn không ít. Nhưng người kém hơn ta thì rất nhiều, rất nhiều.
 
-Trần Bình An cười cười, giang hai cánh tay ra, hai ngón tay khép lại chỉ vào hai đầu: "Chuyện ta nói, Phạm Đại Triệt ở bên cạnh đám người Trữ Diêu Trần Tam Thu, cảm thấy mình làm gì đều là sai, là một loại cực đoan, Phạm Đại Triệt ở quê hương ta bên kia, giống như có thể cầm kiếm địch quốc, là một cực đoan khác. Tự nhiên đều không thể lấy."
+Trần Bình An chậm rãi nói:
 
-Trần Bình An thu hồi một tay, một tay nắm quyền, quơ quơ ở giữa đường tơ kẽ tóc lúc trước, "Sự tình có thể có cực đoan đó, không thể tránh né, nhưng mà đạo tâm của một vị kiếm tu, hẳn là dừng ở chỗ này, lù lù bất động. Chuyện ngoài thân, nói lớn ra, thật sự chỉ là chuyện ngoài thân, rất khó bị chúng ta hoàn toàn nắm giữ, nhưng mà bản tâm của người tu đạo, vĩnh viễn chỉ là chuyện trong tay ngươi và ta, gần trong gang tấc, là công phu bổn gia có thể tùy thời tùy chỗ mài giũa tinh tiến. Thiên địa nhỏ, chẳng qua là lập chùy với thiên địa, nhưng mà lòng người bao hàm toàn diện, có thể so với thiên địa cao hơn lớn hơn nữa, nhất là kiếm tu, suy nghĩ tới đâu, phi kiếm tới, cả người lẫn tính mạng đều tự do. Câu này ta cảm thấy rất đúng. Cùng bầu rượu trên tay ngươi, cùng nhau tặng không cho ngươi."
+- Ta đã đi qua rất nhiều giang hồ ở quê nhà Đông Bảo Bình Châu. Nếu ngươi tu hành ở đó, ngươi sẽ là thiên chi kiêu tử được cả một vương triều gửi gắm kỳ vọng. Có lẽ ngươi thấy trước kia ta thường nói mình tốt xấu gì cũng là đại tu sĩ ngũ cảnh, chỉ là nói đùa, tự giễu. Thật ra không hoàn toàn như vậy. Ở quê ta, một con yêu tộc hay quỷ mị Động Phủ cảnh đã là đại yêu danh xứng với thực, lệ quỷ kinh thế hãi tục. Ngươi thử nghĩ xem, một kiếm tu có tư chất kết thành Kim Đan, có khi mới ngoài ba mươi tuổi, ở Bảo Bình Châu sẽ cao cao tại thượng đến nhường nào?
 
-Phạm Đại Triệt ánh mắt trong suốt, uống sảng khoái một ngụm rượu, lau lau khóe miệng, trầm giọng nói: "Trần Bình An, những lời này, nếu là trước kia ngươi nói với ta, ta có lẽ chỉ nghe được một cái hiểu, nhưng mà chưa chắc thật sự nghe lọt, hiện tại không giống, ta hiểu."
+Phạm Đại Triệt gật đầu:
 
-Trần Bình An mỉm cười nói: "Thật ra đều như nhau, ta cũng từng ăn đau khổ to nhỏ, đi đi dừng dừng một chút, nghĩ cái này nghĩ cái kia, mới đi tới hôm nay."
+- Trước kia ta chưa từng nghĩ tới, cũng không mấy hứng thú với chuyện Hạo Nhiên Thiên Hạ. Từ nhỏ đến lớn ta vẫn cảm thấy tư chất của mình chỉ có thể coi là tạm được, chưa đủ tốt.
 
-Phạm Đại Triệt trầm mặc một lát, đột nhiên hiếu kỳ hỏi: "Câu nói tặng rượu cùng lúc kia là vị cao nhân thánh hiền nào nói? Ta càng suy nghĩ càng có đạo lý."
+Trần Bình An cười, dang hai tay chỉ về hai phía:
 
-Trần Bình An vươn tay v**t v* cằm, "Đại Triệt à, cái đầu nhỏ của ngươi không linh hoạt thì thôi đi, ánh mắt thế nào cũng không tốt lắm đâu."
+- Ở cạnh Trữ Diêu và Trần Tam Thu, ngươi cảm thấy mình làm gì cũng sai, đó là một cực đoan. Nếu tới quê ta, ngươi lại giống như có thể cầm kiếm chống cả một nước, đó là cực đoan khác. Cả hai đều không nên lấy.
 
-Phạm Đại Triệt cười đứng dậy, dùng sức ném bầu rượu trong tay, định đi về phía bọn Trần Tam Thu.
+Hắn thu một tay, nắm tay còn lại thành quyền, đặt ở chính giữa:
 
-Nào ngờ Trần Bình An đưa tay một cái, bắt lấy bầu rượu rỗng, đứng dậy mắng to: "Kiếm tu Long Môn cảnh nho nhỏ, ở trước mặt đường đường đại tu sĩ nhị cảnh, giả bộ hào kiệt khí khái của ông nội ngươi, bầu rượu không cần tiền."
+- Chuyện đời có hai cực đoan là điều khó tránh, nhưng đạo tâm của kiếm tu phải dừng ở giữa, vững vàng bất động. Những chuyện ngoài thân, nói cho cùng vẫn là chuyện ngoài thân, rất khó để chúng ta nắm hết trong tay. Nhưng bản tâm của người tu đạo mãi mãi nằm trong tay mỗi người, ở ngay gần bên, là công phu của chính mình, bất cứ lúc nào cũng có thể mài giũa cho tinh tiến.
 
-Phạm Đại Triệt có chút chột dạ, bước nhanh rời đi, chỉ là nhịn không được quay đầu, nhìn thấy Nhị chưởng quỹ kia nghiêng đầu, ngón tay để ở thái dương bên kia, sau đó chậm rãi tháo xuống một tấm da mặt ngụy trang.
+- Con người đứng giữa thiên địa tuy nhỏ bé, nhưng lòng người bao hàm vạn vật, có thể cao rộng hơn cả trời đất[?]. Nhất là kiếm tu, ý nghĩ tới đâu, phi kiếm tới đó, cả người lẫn tính mạng đều tự do. Ta cảm thấy câu này rất đúng, tặng cho ngươi cùng bầu rượu trong tay.
 
-Phạm Đại Triệt hỏi: "Trần Bình An, chỉ là không quên được nàng, có phải ta không có tiền đồ?"
+Ánh mắt Phạm Đại Triệt sáng lên. Hắn uống một ngụm rượu lớn, lau khóe miệng, trầm giọng nói:
 
-Trần Bình An thu tấm da mặt Chu Liễm chế tạo vào trong tay áo, cười nói: "Chỉ nói chuyện si tình chủng si tâm, không có gì tốt hơn so với cái này."
+- Trần Bình An, những lời này nếu ngươi nói trước kia, có lẽ ta hiểu được đôi chút, nhưng chưa chắc thật sự nghe lọt. Bây giờ khác rồi, ta hiểu.
 
-Phạm Đại Triệt nghi hoặc nói: "Lúc trước chúng ta mới quen biết, ngươi không phải nói như vậy sao? Mắng đến mức ta máu chó xối đầu."
+Trần Bình An mỉm cười:
 
-Trần Bình An lấy ra hồ lô dưỡng kiếm thần sắc uể oải, uống hớp rượu, cười nói: "Không có sức cùng học vấn của nơi này, tự mình cân nhắc đi. Còn nữa, lấy ra một chút khí phách đại kiếm tiên Long Môn cảnh, gà trống cãi nhau đầu đối đầu, kiếm tu đánh nhau không ghi thù."
+- Thật ra đều như nhau, ta cũng từng chịu đủ chuyện khổ lớn nhỏ, vừa đi vừa dừng, nghĩ tới nghĩ lui mới tới được hôm nay.
 
-Trần Bình An thật ra đã không còn lo lắng về tình thương của Phạm Đại Triệt, Phạm Đại Triệt ở bên bọn họ hình như cũng tu hành, lời nói và việc làm đều không xuất sắc, nhưng Trần Bình An có thể chắc chắn con đường tu đạo của Phạm Đại Triệt có thể rất dài. Trần Bình An lập tức tương đối lo lắng, là sợ Phạm Đại Triệt nghe qua đạo lý của mình, biết rồi, kết quả phát hiện mình không làm được, hoặc là nói làm không tốt, sẽ là một loại phiền toái khác.
+Phạm Đại Triệt im lặng một lát, đột nhiên tò mò:
 
-Một đạo lý, chưa từng biết rằng bản thân đã phủ định, biết và công nhận thì chỉ có một loại khẳng định, không làm được, là một loại phủ định lần nữa.
+- Câu nói ngươi tặng cùng bầu rượu là của vị cao nhân thánh hiền nào? Ta càng nghĩ càng thấy có lý.
 
-Nói như vậy, đến một bước này, chính là đạo lý đi tới tuyệt lộ, đi tới nơi táng thân trên tâm lộ, hài cốt không còn. Đáng sợ nhất chính là cùng đạo lý này liên tiếp học vấn, đều sẽ tử vong theo, sẽ chết một mảng lớn.
+Trần Bình An vuốt cằm:
 
-Nào ngờ Phạm Đại Triệt nói: "Nếu ta là tạm thời không làm được loại kiếm tâm kiên định như ngươi nói, không thể không chịu Trần Tam Thu bọn họ ảnh hưởng, Trần Bình An, ngươi nhớ phải nhắc nhở ta nhiều một chút, một lần không được thì hai lần, con người ta, không có ưu điểm gì lớn, chính là coi như nghe khuyên."
+- Đại Triệt à, đầu óc ngươi không linh hoạt thì thôi, sao ánh mắt cũng kém thế?
 
-Trần Bình An cười nói: "Dễ nói."
+Phạm Đại Triệt cười đứng dậy, tiện tay ném bầu rượu rỗng, định đi về phía Trần Tam Thu. Không ngờ Trần Bình An đưa tay bắt lấy, đứng dậy mắng:
 
-Phạm Đại Triệt nói: "Vậy ngươi cũng nghe ta khuyên một câu, trận đại chiến này phải đánh, không thiếu mấy ngày rưỡi, ngươi dưỡng thương trước rồi trở lại đầu tường, nếu không cứ tiếp tục như vậy, tương lai khi cần chúng ta rời đầu tường lao tới chiến trường, ngươi rất khó khôi phục lại đỉnh phong. Ngươi là kiếm sư hộ trận của ta, cho dù ngươi không lo lắng cho mình, nhưng tốt xấu gì cũng lo lắng cho cái mạng nhỏ của ta, về sau còn muốn uống rượu hay không?"
+- Kiếm tu Long Môn cảnh nho nhỏ, trước mặt đại tu sĩ nhị cảnh đường đường chính chính mà bày đặt hào khí cái con khỉ! Bầu rượu không tốn tiền chắc?
 
-Trần Bình An gật đầu nói: "Có đạo lý."
+Phạm Đại Triệt hơi chột dạ, bước nhanh đi. Hắn không nhịn được quay đầu lại, nhìn thấy Nhị chưởng quỹ nghiêng đầu, đặt ngón tay bên thái dương, chậm rãi tháo tấm da mặt xuống.
 
-Trần Bình An thật đúng là lấy ra phù thuyền, rời khỏi đầu tường.
+- Trần Bình An, chỉ vì không quên được nàng mà ta như vậy, có phải rất không có tiền đồ không?
 
-Phạm Đại Triệt đi đến đầu tường phía nam, Trữ Diêu gật đầu cười nói với hắn: "Cảm ơn."
+Trần Bình An cất tấm da mặt Chu Liễm chế tạo vào tay áo, cười nói:
 
-Phạm Đại Triệt muốn giữ bình tĩnh, nhưng không làm được, dứt khoát nở nụ cười.
+- Nếu chỉ nói chuyện si tình, có gì không tốt đâu.
 
-Đổng Họa Phù bình luận: "Thấy ngu chưa?"
+- Lúc trước chúng ta mới quen, ngươi đâu có nói như vậy? Ngươi còn mắng ta té tát.
 
-Trong đoàn người, phi kiếm giết địch tiêu sái thoải mái nhất, Trần Tam Thu mỉm cười nói: "Đổng Hắc Thán, ngươi có bản lãnh để Trữ Diêu nói một tiếng cảm ơn với ngươi?"
+Trần Bình An mệt mỏi lấy hồ lô dưỡng kiếm ra uống một ngụm, cười nói:
 
-Đổng Họa Phù quay đầu hỏi: "Trữ tỷ tỷ, có thể nói tiếng cảm ơn với ta được không?"
+- Trong đó có học vấn, tự mình ngẫm đi[?]. Còn nữa, lấy ra chút khí phách của đại kiếm tiên Long Môn cảnh đi. Gà trống đánh nhau thì đầu đối đầu, kiếm tu đánh nhau không ghi thù.
 
-Trữ Diêu từ đầu đến cuối nhìn về phía trước, khen thưởng một chữ cút.
+Thật ra Trần Bình An đã không còn lo lắng chuyện tình cảm của Phạm Đại Triệt. Ở bên bọn họ, lời nói và việc làm của hắn dường như đều không nổi bật, nhưng Trần Bình An tin con đường tu đạo của hắn có thể rất dài.
 
-Đổng Họa Phù gật gật đầu, tỏ vẻ vui mừng, sau đó quay đầu nhìn về phía Trần Tam Thu và Phạm Đại Triệt, hỏi: "Trữ tỷ tỷ chưa bao giờ khách khí với ta, các ngươi có thể chứ?"
+Điều hắn lo hơn là Phạm Đại Triệt nghe đạo lý, hiểu rồi, lại phát hiện mình không làm được hoặc làm chưa tốt, khi ấy sẽ có phiền toái khác.
 
-Trần Tam Thu giơ ngón tay cái lên cao.
+Một đạo lý, chưa từng biết thì bản thân đã phủ định một lần; biết rồi, tán thành rồi là một lần khẳng định; nhưng nếu không làm được, lại là một lần phủ định nữa. Đến bước ấy, đạo lý đi vào ngõ cụt, chết trên con đường trong lòng người, hài cốt không còn. Đáng sợ nhất là những học vấn liên quan đến đạo lý ấy cũng chết theo, chết cả một mảng lớn.
 
-Phạm Đại Triệt hít sâu một hơi, tế ra phi kiếm bản mạng, kiếm quang lóe lên, lướt xuống đầu tường.
+Nào ngờ Phạm Đại Triệt nói:
 
-Trần Bình An khống chế phù thuyền, không có việc gì làm, liền học đệ tử học sinh của mình, ghé vào đầu thuyền, lấy tay chèo thuyền, giống như thật sự nhanh chút?
+- Nếu tạm thời ta không làm được như ngươi nói, không giữ được kiếm tâm kiên định, vẫn bị Trần Tam Thu bọn họ ảnh hưởng, ngươi nhớ thường xuyên nhắc nhở ta. Một lần không được thì hai lần. Ta không có ưu điểm gì lớn, chỉ là còn biết nghe khuyên.
 
-Trong khoảng thời gian đại chiến, mấy kiếm tu trẻ tuổi đến từ nơi khác, từ thành nam rút đến đầu tường thành bắc bên kia, một nhóm kiếm tu bản thổ nghỉ ngơi dưỡng sức khác, im lặng thay thế vị trí. Chỉ là...
+Trần Bình An cười:
 
-Lúc đi lướt qua bọn họ, trên mặt người sau phần lớn có chút ý cười.
+- Dễ thôi.
 
-Úc Dận Phu ngồi ở trên đầu tường phía bắc, nhai miếng bánh nướng cuối cùng, một thân quyền ý dạt dào, lại mãi không thể ra quyền, điều này làm Úc Dận Phu lên đầu tường chỉ có thể xem cuộc chiến, lần đầu tiên trong đời, đối với cảnh giới võ học đăng cao, sinh ra một loại khát cầu rất lớn, thất cảnh kim thân, chung quy không giống bát cảnh đi xa, chỉ cần chen thân viễn du cảnh, có thể như luyện khí sĩ ngự phong, có thể ra quyền nhẹ nhàng vui vẻ.
+Phạm Đại Triệt nói:
 
-Sắc mặt Chu Mai trắng bệch, lòng còn sợ hãi, xoa xoa mồ hôi trên trán, không nói một lời.
+- Vậy ngươi cũng nghe ta khuyên một câu. Đại chiến phải đánh, chẳng thiếu mấy ngày này. Ngươi dưỡng thương trước rồi hãy trở lại đầu tường. Nếu cứ tiếp tục, sau này khi chúng ta phải rời đầu tường xông vào chiến trường, ngươi khó mà khôi phục tới đỉnh phong. Ngươi là kiếm sư hộ trận của ta, dù không lo cho mình cũng phải lo cho cái mạng nhỏ của ta chứ. Sau này còn muốn uống rượu nữa không?
 
-Sau khi nàng tế ra phi kiếm bản mạng, mấy lần bị Khổ Hạ Kiếm Tiên hộ trận, hoặc là bị Kim Chân Mộng cứu viện, ngay cả Lâm Quân Bích vẫn chỉ là kiếm tu Quan Hải cảnh cũng trợ giúp nàng một lần, nếu không phải Lâm Quân Bích nhìn thấu ngụy trang của một vị tử sĩ Yêu tộc, cố ý xuất kiếm dụ dỗ đối phương tế ra đòn sát thủ, cuối cùng Lâm Quân Bích rút phi kiếm khỏi điện quang hỏa thạch, do Kim Chân Mộng thuận thế xuất kiếm chém yêu, Chu Mai khẳng định sẽ bị thương đến phi kiếm bản mạng, cho dù đại đạo căn bản không bị thương nặng, lại sẽ lui xuống thành, đi đến Tôn phủ ngoan ngoãn dưỡng thương, từ nay về sau cả tràng chiến sự hoàn toàn không quan hệ với nàng.
+Trần Bình An gật đầu:
 
-Lâm Quân Bích đang cùng Kim Chân Mộng nói tâm đắc chiến sự lúc trước.
+- Có lý.
 
-Đây cũng là lần đầu tiên Lâm Quân Bích nói chuyện phiếm với Kim Chân Mộng như vậy, nói rằng sự được mất và khuyết điểm của hai bên khi xuất kiếm, sơ suất và rất nhiều chỗ tinh diệu.
+Hắn thật sự lấy phù thuyền ra, rời khỏi đầu tường.
 
-Kim Chân Mộng cười ấm áp, mặc dù vẫn không nói nhiều nhưng rõ ràng là thân thiết hơn với Lâm Quân Bích.
+Phạm Đại Triệt đi tới đầu tường phía nam. Trữ Diêu gật đầu cười với hắn:
 
-Đây cũng là lần đầu tiên Kim Chân Mộng cảm thấy vị thiếu niên thiên tài giống như quanh năm không nhiễm bụi trần như Lâm Quân Bích này phá lệ có chút ý vị.
+- Cảm ơn.
 
-Lâm Quân Bích lấy ra một bình sứ nhỏ tinh xảo do vương triều Thiệu Nguyên chế tạo, đổ ra ba viên đan dược, màu sắc khác nhau, mình để lại một viên màu vàng nhạt, còn lại hai viên đan dược màu xanh nhạt, màu xanh lá cây, lần lượt ném cho Kim Chân Mộng và Chu Mai.
+Phạm Đại Triệt muốn giữ vẻ bình tĩnh, nhưng không làm được, dứt khoát nở nụ cười.
 
-Kim Chân Mộng và Chu Mai cơ bản giống nhau, đều do dự một chút, vẫn lựa chọn nhận lấy, ba người tự nuốt đan dược của mình.
+Đổng Họa Phù nhận xét:
 
-Lâm Quân Bích bắt đầu nín thở ngưng thần, hô hấp thổ nạp, đan dược dần dần tan rã, linh khí tràn trề tràn vào vài khí phủ mấu chốt.
+- Thấy ngốc chưa?
 
-Lâm Quân Bích phân ra một phần tâm thần, tiếp tục suy nghĩ nhiều lần về vấn tâm cuộc cuối cùng lúc trước.
+Trần Tam Thu là người điều khiển phi kiếm giết địch tiêu sái nhất trong nhóm, cười nói:
 
-Mỗi một lần phục hồi là có thể khiến đạo tâm của Lâm Quân Bích viên mãn một chút.
+- Đổng Hắc Thán, ngươi có bản lĩnh để Trữ Diêu nói cảm ơn với ngươi không?
 
-Lúc trước thiếu niên lang áo trắng tự xưng Thôi Đông Sơn, trong quá trình từ trên bàn cờ vê quân cờ thu vào hũ cờ, hỏi một vấn đề, hỏi Lâm Quân Bích có dám ở lại Kiếm Khí Trường Thành xuất kiếm giết yêu hay không.
+Đổng Họa Phù quay đầu:
 
-Lâm Quân Bích nói dám, chỉ là nguy hiểm quá lớn, lợi ích quá nhỏ, tựa hồ không đáng giá.
+- Trữ tỷ tỷ, có thể nói cảm ơn ta một tiếng không?
 
-"Không phải đề nghị, mà là mệnh lệnh. Bởi vì ngươi quá ngu xuẩn, cho nên ta chỉ có thể nói nhiều một chút, miễn cho lòng tốt của ta bị ngươi xào thành một bàn lòng lừa. Khiến cho một chuyện tốt như vậy, trái lại trở thành lý do để ngươi oán trách ta, đến lúc đó ta đánh chết ngươi, ngươi còn cảm thấy ủy khuất."
+Trữ Diêu vẫn nhìn phía trước, ban thưởng cho hắn một chữ:
 
-Thôi Đông Sơn hai ngón tay kẹp chặt một quân cờ, quơ quơ, "Thứ nhất, sau khi lưu lại, giết bao nhiêu con đại yêu, căn bản không quan trọng, nếu có thể giết thêm chút, thắng được một hai vị kiếm tiên tán thành, là tốt hơn."
+- Cút.
 
-Thôi Đông Sơn tùy tiện ném quân cờ kia vào trong bình cờ, lại vê quân cờ, "Thứ hai, có Khổ Hạ ở bên cạnh các ngươi, bản thân ngươi chú ý chừng mực, sẽ không chết, Khổ Hạ so với ngươi càng ngu xuẩn hơn, nhưng chung quy là người tốt trên núi hiếm thấy, cho nên ngươi càng giống người tốt, xuất kiếm vượt quả quyết, giết yêu càng nhiều, như vậy ở trên đầu thành, qua mỗi một ngày, sự tán thành của Khổ Hạ đối với ngươi, sẽ càng nhiều, Khổ Hạ vốn là tâm tồn tử chí, cho nên không thể nói một ngày nào đó, Khổ Hạ nguyện ý đem tử pháp đổi một loại cách chết khác., Đơn giản là vì mình, biến thành vì Lâm Quân Bích, vì tương lai của vương triều Thiệu Nguyên. Đến giờ phút này, ngươi cần phải chú ý, đừng để Khổ Hạ Kiếm Tiên thật sự vì ngươi mà chết trận ở đây, Lâm Quân Bích ngươi phải không ngừng thông qua Chu Mai và Kim Chân Mộng, nhất là Chu Mai, để Khổ Hạ bỏ đi phần ý niệm khẳng khái chịu chết đó, hộ tống các ngươi rời khỏi Kiếm Khí Trường Thành, nhớ kỹ, cho dù Khổ Hạ Kiếm Tiên cố ý một mình quay về Kiếm Khí Trường Thành, cũng nên đưa mấy người các ngươi một đường hộ tống đến Nam Bà Sa Châu, hắn mới có thể quay đầu trở về, làm thế nào, ý nghĩa ở đâu, ta không dạy ngươi, cái đầu không lớn tuổi đã bị gỉ sét kia của ngươi, tự suy nghĩ đi."
+Đổng Họa Phù gật đầu hài lòng, quay sang Trần Tam Thu và Phạm Đại Triệt:
 
-Thôi Đông Sơn ném vào con cờ thứ hai, "Thứ ba, ngươi rời khỏi Đảo Huyền sơn đường về, ở chung với Chu Mai, Kim Chân Mộng, từ đầu đến cuối, cần điểm đến dừng, nhất thiết không thể vẽ rắn thêm chân, ý đồ thu mua lòng người. Không ngại dạy ngươi một quyết khiếu, Lâm Quân Bích bình thường sớm chiều ở chung với bọn họ, vẫn như cũ là Lâm Quân Bích tự thị thanh cao trong xương cốt, cùng Lâm Quân Bích lúc trước trên đầu tường xuất kiếm giết yêu phải phán như hai người khác nhau, nếu không ngươi sẽ kiếm củi ba năm thiêu một giờ. Chu Mai và Kim Chân Mộng, không phải hạng nghiêm luật Tương Quan Trừng Trừng, người sau lòng người việc thực, người trước đối diện việc hư, là hai loại thiên địa. Tự ngươi cân nhắc cho kỹ."
+- Trữ tỷ tỷ chưa bao giờ khách khí với ta. Các ngươi được như vậy không?
 
-"Thứ tư, trở về vương triều Thiệu Nguyên văn phong cường thịnh Trung Thổ Thần Châu, ngươi liền câm miệng, không đề cập tới một chữ, ngậm không được miệng, ngươi lăn đi bế quan từ chối tiếp khách. Trước khi ngươi câm miệng, đương nhiên phải có một phen mật đàm với tiên sinh của ngươi, ngươi thẳng thắn đối đãi với ta là được, trừ ta ra, việc lớn việc nhỏ, không cần che đậy, đừng coi tiên sinh ngươi là kẻ ngốc. Quốc sư đại nhân sẽ hiểu được ý đồ của ngươi, không những sẽ không phản cảm, ngược lại vui mừng, bởi vì ngươi cùng hắn, vốn là người đồng đạo. Hắn tự nhiên sẽ âm thầm giúp ngươi hộ đạo, vì đệ tử đắc ý như ngươi làm chút việc nội sự của tiên sinh., Hắn sẽ không tự mình ra sân, vì ngươi nổi danh, thủ đoạn quá thấp kém, tin tưởng quốc sư đại nhân chẳng những không làm như thế, còn có thể nắm trong tay hỏa hầu, ngược lại đạo hạnh càng cao. Nghiêm Luật này so với ngươi càng ngu xuẩn hơn, dù sao đã là quân cờ của ngươi, trở về quê nhà, tự sẽ làm chuyện hắn nên làm, nói những lời hắn nên nói. Nhưng quốc sư lại sẽ ở Thiệu Nguyên vương triều phong cấm, không cho phép tùy ý khuếch đại kinh nghiệm của ngươi ở Kiếm Khí Trường Thành. Sau đó ngươi có thể chờ học cung thư viện thay ngươi nói chuyện, trong lúc này, Lâm Quân Bích càng im miệng không nói, Thiệu Nguyên vương triều càng giữ im lặng, khen ngợi bốn phương tám hướng, đều sẽ tự mình tìm tới cửa, ngươi đóng cửa cũng không ngăn được."
+Trần Tam Thu giơ ngón tay cái. Phạm Đại Triệt hít sâu một hơi, tế phi kiếm bản mạng, kiếm quang lóe lên rồi lướt xuống đầu tường.
 
-"Không riêng gì vương triều Thiệu Nguyên, tất cả vương triều xung quanh, các tướng công khanh, tướng công khanh đế vương, người tu đạo trên núi, phố phường giang hồ dưới núi, đều sẽ biết có thiếu niên Lâm Quân Bích, đi xa Kiếm Khí Trường Thành, lâm chiến dám không lùi, xuất kiếm có thể giết yêu."
+Trần Bình An điều khiển phù thuyền, rảnh rỗi không có việc gì, bèn học đệ tử của mình nằm sấp trên đầu thuyền, dùng tay chèo. Hình như thật sự nhanh hơn một chút?
 
-Thôi Đông Sơn dùng hai ngón tay vê quân cờ, cười hỏi: "Ở trong " xếp hạng thứ tư" này, nhỏ bé nhất ở nơi nào? Nghĩ cho kỹ, đáp án đừng để ta thất vọng."
+Trong lúc đại chiến, mấy kiếm tu trẻ tuổi từ nơi khác đến lui từ đầu tường phía nam về phía bắc. Một nhóm kiếm tu bản thổ nghỉ ngơi dưỡng sức xong lặng lẽ thay thế vị trí của bọn họ. Khi hai bên lướt qua nhau, phần lớn người sau đều mỉm cười.
 
-Lâm Quân Bích trả lời: "Khiến tiên sinh của ta cảm thấy cách đối nhân xử thế của ta vẫn còn hơi non nớt, cũng để tiên sinh có thể làm chút chuyện mà học sinh của mình không thể làm được, trong lòng tiên sinh sẽ không có bất kỳ khúc mắc nào."
+Úc Dận Phu ngồi trên đầu tường phía bắc, nhai miếng bánh nướng cuối cùng. Quyền ý khắp người nàng dạt dào, nhưng mãi không thể xuất quyền. Chỉ có thể đứng xem chiến, lần đầu tiên trong đời nàng vô cùng khát khao cảnh giới võ học cao hơn. Thất cảnh kim thân rốt cuộc không giống bát cảnh viễn du; chỉ cần bước vào viễn du cảnh, nàng có thể ngự gió như luyện khí sĩ, cũng có thể thoải mái xuất quyền.
 
-Thôi Đông Sơn đánh mất quân cờ kia, "Cũng may, cuối cùng còn chưa đến mức ngu đến chết. Chờ đi, về sau chiến sự Kiếm Khí Trường Thành càng thảm thiết, Hạo Nhiên Thiên Hạ bị một gậy đánh cho ngây dại, thoáng thanh tỉnh vài phần, sự tích Lâm Quân Bích ngươi ở Kiếm Khí Trường Thành sẽ càng có hàm kim lượng."
+Sắc mặt Chu Mai trắng bệch, lòng vẫn còn sợ hãi, đưa tay lau mồ hôi trên trán, không nói lời nào.
 
-Thôi Đông Sơn lại cầm lên một quân cờ, cười khẩy nói: "Dù là các thánh nhân nho gia, quân tử hiền nhân phân thuộc các đạo thống văn mạch khác với tiên sinh ngươi, cũng sẽ lau mắt mà nhìn Lâm Quân Bích ngươi. Quốc sư coi ngươi là quan môn đệ tử càng thêm đại đạo khả kỳ, thư viện học cung nho gia lại chưa chắc tiếp tục coi Lâm Quân Bích là đệ tử của quốc sư vương triều, huyền diệu nơi đây, tự mình thể hội nhiều hơn, sẽ để ngươi như uống rượu thuần."
+Sau khi nàng tế phi kiếm bản mạng, mấy lần phải nhờ Khổ Hạ Kiếm Tiên hộ trận hoặc Kim Chân Mộng cứu viện. Ngay cả Lâm Quân Bích vẫn chỉ là kiếm tu Quan Hải cảnh cũng giúp nàng một lần. Hắn nhìn thấu ngụy trang của một tử sĩ yêu tộc, cố ý xuất kiếm dụ đối phương dùng đòn sát thủ, đến lúc nghìn cân treo sợi tóc mới thu phi kiếm, để Kim Chân Mộng thuận thế chém yêu.
 
-Thôi Đông Sơn lắc lắc ngón tay cùng quân cờ, "Nhưng chớ đắc ý vênh váo, toàn bộ tán dương hôm nay, đều sẽ trở thành người chê trách ngày khác, khen cùng chê trách, lại thường thường là cùng một nhóm người. Cái này lại là một diệu, nghĩ rõ rồi, lại là rượu nguyên chất, cực kỳ say lòng người."
+Nếu không, phi kiếm bản mạng của Chu Mai chắc chắn bị thương. Dù căn bản đại đạo không tổn hại nặng, nàng cũng phải lui xuống thành, ngoan ngoãn đến Tôn phủ dưỡng thương, từ đó không còn liên quan gì tới trận chiến này nữa.
 
-Thôi Đông Sơn ném quân cờ trong tay, nện vào trong hũ cờ, quân cờ va chạm, tiếng vang thanh thúy, run lên tay áo, "Nghiêm luật người này, có thể lợi dụng thêm. Chu Mai người này, phải được nàng tán thành, nhất là cái sau, quan hệ hai bên xử trí thỏa đáng, ngươi sẽ có niềm vui bất ngờ."
+Lâm Quân Bích đang bàn với Kim Chân Mộng về trận chiến vừa rồi. Đây là lần đầu hai người trò chuyện như vậy, nói về được mất, thiếu sót, sơ suất và những chỗ tinh diệu khi mỗi người xuất kiếm. Kim Chân Mộng cười ôn hòa, tuy vẫn ít lời nhưng rõ ràng đã thân cận hơn với Lâm Quân Bích. Đây cũng là lần đầu hắn cảm thấy thiếu niên thiên tài quanh năm tựa như không nhiễm bụi trần này có chút thú vị.
 
-Lâm Quân Bích nhẹ giọng hỏi: "Là gia tộc sau lưng Chu Mai sao?"
+Lâm Quân Bích lấy ra một bình sứ nhỏ tinh xảo do vương triều Thiệu Nguyên chế tạo, đổ ra ba viên đan dược màu sắc khác nhau. Hắn giữ viên vàng nhạt, ném hai viên xanh nhạt và xanh lục lần lượt cho Kim Chân Mộng và Chu Mai. Hai người đều do dự một chút rồi nhận lấy, ba người tự nuốt đan dược.
 
-Thôi Đông Sơn lắc đầu nói: "Không chỉ như thế. Ngươi thật sự là đầu óc hồ đồ, chơi cờ gì? Đi một bước chỉ xem một hai bước, đã muốn thắng cờ?"
+Lâm Quân Bích ngưng thần thổ nạp. Đan dược dần tan, linh khí dồi dào tràn vào mấy khí phủ quan trọng. Hắn phân ra một phần tâm thần, tiếp tục nhớ lại ván vấn tâm cuối cùng trước đó. Mỗi lần suy ngẫm, đạo tâm của hắn lại viên mãn thêm một chút.
+Trước đó, thiếu niên áo trắng tự xưng Thôi Đông Sơn vừa nhặt quân cờ trên bàn cho vào hũ vừa hỏi Lâm Quân Bích có dám ở lại Kiếm Khí Trường Thành xuất kiếm giết yêu hay không.
 
-Lâm Quân Bích thành tâm thành ý nói: "Xin Thôi tiên sinh giải thích nghi hoặc cho ta."
+Lâm Quân Bích nói dám, chỉ là nguy hiểm quá lớn, lợi ích quá nhỏ, tựa hồ không đáng.
 
-Thôi Đông Sơn nói: "Chu Mai nói cái gì, không khác gì Úc Phu tận mắt nhìn thấy, không sai biệt lắm. Hai vị nữ tử như hình với bóng, quan hệ thân thiết mà lại thuần túy, cái gì mà không nói? Úc Tật Phu tán thành nhân phẩm Chu Mai, Chu Mai tán thành Lâm Quân Bích ngươi, tự nhiên sẽ vì ngươi nói vài câu công đạo trên ý nghĩa thật sự, chính bởi vì là hồn nhiên của Chu Mai, Úc Dận Phu mới nghe được. Như vậy thành phủ kém cỏi của ngươi ở Kiếm Khí Trường Thành, ở trong mắt Úc Mịch Phu, chẳng những không trở thành tỳ vết cuộc đời của Thiệu Nguyên Vương Triều Lâm Quân Bích, ngược lại có thể tăng thêm cái nhìn mặt chính diện của nàng đối với ngươi. Nói như vậy, có thể hiểu được không?"
+Thôi Đông Sơn nói:
 
-Lâm Quân Bích nhẹ giọng nói: "Vãn bối sợ lý giải có sai lầm, không đủ sâu xa, nguyện nghe tường tận."
+- Đây không phải đề nghị mà là mệnh lệnh. Vì ngươi quá ngu xuẩn, ta chỉ có thể nói thêm vài câu, miễn cho lòng tốt của ta bị ngươi xào thành một bàn lòng lừa, chuyện tốt ngược lại thành lý do để ngươi oán trách. Đến lúc ta đánh chết ngươi, ngươi còn cảm thấy ủy khuất.
 
-Thôi Đông Sơn cười nói: "Người không có một chút tật xấu nào, không thể thân nhất. Một khi phủ định ngươi, lại tán thành ngươi, loại tán thành này, so với lần đầu gặp mặt đã tán thành, càng thêm kiên định bất động. Cái này cũng không hiểu? Chơi cờ cũng không hiểu, lòng người cũng không hiểu, ta cũng có chút hối hận, muốn làm mua bán lâu dài với ngươi. Sao cảm giác là ý muốn lỗ vốn? Lâm Quân Bích, chơi cờ với ngươi nhiều ván như vậy, ta không có chút sầu lo, chưa từng nghĩ cùng ngươi liên thủ làm ăn, ngược lại lo lắng, như thế nào cho phải?"
+Hắn kẹp một quân cờ giữa hai ngón tay, quơ quơ:
+
+- Thứ nhất, sau khi ở lại, giết được bao nhiêu đại yêu không quan trọng. Nếu giết thêm một ít, được một hai vị kiếm tiên tán thành thì càng tốt.
+
+Hắn tiện tay ném quân cờ vào hũ, lại nhặt quân khác:
+
+- Thứ hai, có Khổ Hạ bên cạnh, chỉ cần bản thân ngươi biết chừng mực thì sẽ không chết. Khổ Hạ còn ngu xuẩn hơn ngươi, nhưng rốt cuộc là người tốt hiếm thấy trên núi. Ngươi càng giống người tốt, xuất kiếm càng quả quyết, giết yêu càng nhiều, mỗi ngày ở đầu thành, hắn sẽ càng tán thành ngươi.
+
+- Khổ Hạ vốn đã ôm chí chết, nói không chừng một ngày nào đó hắn sẵn lòng đổi một cách chết khác: từ chết vì mình thành chết vì Lâm Quân Bích, vì tương lai vương triều Thiệu Nguyên. Lúc ấy ngươi phải chú ý, đừng để Khổ Hạ Kiếm Tiên thật sự vì ngươi mà chết trận ở đây.
+
+- Ngươi phải thông qua Chu Mai và Kim Chân Mộng, nhất là Chu Mai, khiến Khổ Hạ bỏ ý niệm khẳng khái chịu chết, hộ tống các ngươi rời Kiếm Khí Trường Thành. Nhớ kỹ, dù hắn cố ý một mình quay về, cũng phải đưa các ngươi tới Nam Bà Sa Châu rồi mới được trở lại. Làm thế nào, có ý nghĩa gì, ta không dạy ngươi; cái đầu chưa già đã gỉ sét của ngươi tự nghĩ đi.
+
+Thôi Đông Sơn ném quân cờ thứ hai vào hũ:
+
+- Thứ ba, trên đường rời Đảo Huyền sơn trở về, khi ở cùng Chu Mai và Kim Chân Mộng, việc gì cũng nên vừa phải, tuyệt đối đừng vẽ rắn thêm chân, tìm cách mua chuộc lòng người. Ta dạy ngươi một bí quyết: Lâm Quân Bích ngày thường sớm chiều ở chung với bọn họ vẫn phải là Lâm Quân Bích tự cho mình thanh cao từ trong xương cốt, khác hẳn Lâm Quân Bích xuất kiếm giết yêu trên đầu tường. Nếu không ngươi sẽ kiếm củi ba năm thiêu một giờ.
+
+- Chu Mai và Kim Chân Mộng không giống hạng người như Nghiêm Luật và Tương Quan Trừng[?]. Một bên coi trọng thực chất, một bên chú ý bề ngoài, là hai loại thiên địa khác nhau. Ngươi tự ngẫm cho kỹ.
+
+- Thứ tư, sau khi trở lại vương triều Thiệu Nguyên ở Trung Thổ Thần Châu, nơi văn phong hưng thịnh, ngươi phải ngậm miệng, không nhắc một chữ. Nếu không ngậm được thì cút đi bế quan, từ chối gặp khách.
+
+- Trước đó, đương nhiên ngươi phải mật đàm với tiên sinh của mình. Trừ chuyện về ta ra, việc lớn việc nhỏ đều thẳng thắn nói hết, đừng coi tiên sinh ngươi là kẻ ngốc. Quốc sư sẽ hiểu ý đồ của ngươi, chẳng những không phản cảm mà còn vui mừng, bởi các ngươi vốn là người đồng đạo. Hắn sẽ âm thầm hộ đạo cho ngươi, làm chút việc mà một tiên sinh nên làm cho đệ tử đắc ý.
+
+- Hắn sẽ không đích thân ra mặt giúp ngươi nổi danh, thủ đoạn ấy quá thấp kém. Quốc sư chẳng những không làm thế, mà còn nắm chắc chừng mực, đạo hạnh cao hơn nhiều. Nghiêm Luật còn ngu xuẩn hơn ngươi, đã là quân cờ của ngươi thì khi về quê tự khắc sẽ làm chuyện hắn nên làm, nói những lời hắn nên nói.
+
+- Nhưng quốc sư sẽ phong cấm trong vương triều Thiệu Nguyên, không cho tùy tiện thổi phồng kinh nghiệm của ngươi ở Kiếm Khí Trường Thành. Sau đó ngươi chỉ cần chờ học cung, thư viện lên tiếng thay ngươi. Trong lúc này, Lâm Quân Bích càng im lặng, vương triều Thiệu Nguyên càng không nói gì, lời khen bốn phương tám hướng càng tự tìm đến, đóng cửa cũng không ngăn được.
+
+- Không chỉ vương triều Thiệu Nguyên, cả những vương triều xung quanh, từ đế vương công khanh, tu sĩ trên núi tới phố phường giang hồ dưới núi đều sẽ biết có thiếu niên Lâm Quân Bích đi xa đến Kiếm Khí Trường Thành, lâm trận không lùi, xuất kiếm có thể giết yêu.
+
+Thôi Đông Sơn vê quân cờ, cười hỏi:
+
+- Trong điều thứ tư này, chỗ tinh tế nhất ở đâu? Nghĩ kỹ rồi đáp, đừng làm ta thất vọng.
+
+Lâm Quân Bích đáp:
+
+- Để tiên sinh ta cảm thấy cách đối nhân xử thế của ta vẫn còn non nớt, cũng để tiên sinh có thể làm những chuyện học sinh không làm được, trong lòng tiên sinh sẽ không có khúc mắc.
+
+Thôi Đông Sơn ném quân cờ vào hũ:
+
+- Cũng may, cuối cùng chưa đến mức ngu chết. Cứ chờ đi, sau này chiến sự Kiếm Khí Trường Thành càng thảm thiết, Hạo Nhiên Thiên Hạ bị đánh cho choáng váng, đến khi tỉnh táo đôi phần, sự tích của ngươi ở đây sẽ càng có giá trị.
+
+Hắn nhặt một quân cờ khác, cười khẩy:
+
+- Ngay cả thánh nhân, quân tử hiền nhân Nho gia thuộc đạo thống và văn mạch khác với tiên sinh ngươi cũng sẽ lau mắt nhìn Lâm Quân Bích. Quốc sư coi quan môn đệ tử là ngươi đại đạo càng đáng chờ mong, còn thư viện học cung Nho gia chưa chắc tiếp tục chỉ coi ngươi là đệ tử quốc sư vương triều. Chỗ huyền diệu này ngươi tự thể hội, sẽ giống như uống rượu ngon.
+
+Hắn lắc ngón tay kẹp quân cờ:
+
+- Nhưng đừng đắc ý quên mình. Tất cả lời khen hôm nay đều có thể biến thành lời trách móc ngày khác, mà người khen với người trách thường là cùng một đám. Đây lại là một chỗ diệu, nghĩ thông rồi cũng như rượu ngon, cực kỳ say lòng người.
+
+Thôi Đông Sơn ném quân cờ vào hũ, tiếng va chạm lanh lảnh, rồi giũ tay áo:
+
+- Nghiêm Luật có thể lợi dụng thêm. Chu Mai thì ngươi phải được nàng tán thành. Nhất là người sau, nếu xử trí thỏa đáng quan hệ giữa hai người, ngươi sẽ có niềm vui bất ngờ.
+
+Lâm Quân Bích khẽ hỏi:
+
+- Là gia tộc sau lưng Chu Mai sao?
+
+- Không chỉ thế. Đầu óc ngươi hồ đồ như vậy còn chơi cờ gì? Đi một bước chỉ nhìn một hai bước mà muốn thắng sao?
+
+Lâm Quân Bích thành tâm nói:
+
+- Xin Thôi tiên sinh giải thích nghi hoặc.
+
+- Lời Chu Mai nói cũng gần như Úc Dận Phu tận mắt nhìn thấy. Hai nữ tử như hình với bóng, quan hệ thân thiết thuần túy, chuyện gì mà không nói? Úc Dận Phu tán thành nhân phẩm Chu Mai; nếu Chu Mai tán thành ngươi, tự nhiên sẽ thật lòng nói giúp ngươi vài câu công đạo. Chính bởi nàng hồn nhiên, Úc Dận Phu mới nghe lọt.
+
+- Như vậy, chút thành phủ kém cỏi của ngươi ở Kiếm Khí Trường Thành chẳng những không thành tỳ vết trong mắt Úc Dận Phu, ngược lại còn khiến nàng có cái nhìn tốt hơn về ngươi. Hiểu chưa?
+
+Lâm Quân Bích nhẹ giọng:
+
+- Vãn bối sợ mình hiểu sai, hiểu chưa đủ sâu, nguyện nghe tường tận.
+
+Thôi Đông Sơn cười:
+
+- Người không có chút khuyết điểm nào là người khó thân cận nhất. Một khi đã phủ định ngươi rồi lại tán thành, sự tán thành ấy sẽ vững chắc hơn nhiều so với khi vừa gặp đã tán thành. Cái này cũng không hiểu? Chơi cờ không hiểu, lòng người cũng không hiểu. Ta hơi hối hận vì muốn làm ăn lâu dài với ngươi rồi, sao cứ thấy như sắp lỗ vốn?
+
+- Lâm Quân Bích, chơi với ngươi nhiều ván như vậy ta chưa từng lo lắng, nhưng nghĩ đến chuyện liên thủ làm ăn thì lại lo, phải làm sao đây?
 
 Lâm Quân Bích muốn nói lại thôi.
 
-Thôi Đông Sơn nheo mắt, "Chỉ biết hỏi sẽ không nghĩ? Ngươi có biết kiên nhẫn của ta có hạn hay không, ta sẽ g**t ch*t ngươi, biết vì sao không? Trả lời sai rồi, ngươi sẽ chết."
+Thôi Đông Sơn nheo mắt:
 
-Trán Lâm Quân Bích chảy ra mồ hôi, "Ta có thể tự mình chết ngu, nhưng không thể liên lụy đến ánh mắt Thôi tiên sinh đi công tác, tìm một kẻ ngu để buôn bán."
+- Chỉ biết hỏi, không biết nghĩ? Ngươi có biết kiên nhẫn của ta có hạn không? Ta sẽ giết ngươi, biết vì sao không? Trả lời sai thì ngươi chết.
 
-Thôi Đông Sơn mỉm cười nói: "Hảo tiểu tử, vẫn có thể dạy nha."
+Trán Lâm Quân Bích đổ mồ hôi:
 
-Thôi Đông Sơn đặt tay lên quân cờ trong hũ, nhẹ nhàng v**t v*, thuận miệng nói: "Một kiếm tu trung thổ đủ thông minh nhưng lại dám không tiếc chết, đều là võ phu thuần túy Úc Dận Phu xuất thân trung thổ thần châu, là sẽ không chán ghét. Người Úc gia, thậm chí là lão thất phu Chu Thần Chi kia, đối với một thiếu niên kiếm tu có thể khiến Úc Dận Phu không chán ghét, ngươi cho rằng sẽ như thế nào? Là một chuyện nhỏ có cũng được mà không có cũng không sao sao? Úc gia lão nhân, Chu Thần Chi, những lão bất tử này, đối với Lâm Quân Bích Bích ban đầu kia, đối với Lâm Quân Bích kia..., Cái loại người thông minh gà mờ này? Gặp được ít sao? Úc gia lão nhân một tay nắm giữ hai đại vương triều bị diệt, quật khởi, có loại người nào mà chưa từng thấy qua. Chu lão thất phu sống mấy ngàn năm, đã quen nhìn việc đời phập phồng, bọn họ thấy ít, là loại người trẻ tuổi vừa thông minh vừa ngu xuẩn, tinh thần bừng bừng, không đem thiên địa đặt ở trong mắt, trên người tràn ngập một cỗ sức mạnh, dám ở trên một số đại cục, không tiếc danh lợi, không tiếc mạng."
+- Ta có thể tự mình ngu chết, nhưng không thể liên lụy khiến ánh mắt Thôi tiên sinh mắc sai lầm, tìm phải kẻ ngu để làm ăn.
 
-Thôi Đông Sơn nhẹ nhàng nâng tay lên, rời khỏi hũ cờ, khẽ lật chuyển cổ tay, cười nói: "Đây là chỗ nhỏ bé trong lòng người phong vân biến ảo, phong cảnh bao la, chỉ là các ngươi không nhìn thấy thật mà thôi. Lòng dạ tỉ mỉ? Thần tiên khách tu đạo, để mắt tốt như vậy không dùng, giả mù, tu đạo tu đạo, tu đạo cái rắm đạo tâm. Lâm Quân Bích ngươi nhất định là sơn thượng nhân cao lớn triển khai tay chân ở triều đình, không hiểu lòng người, như thế nào phân biệt người biết người, dùng người ngự người như thế nào? Như thế nào có thể dùng lòng người không nghi ngờ?"
+Thôi Đông Sơn mỉm cười:
 
-Lâm Quân Bích vui lòng phục tùng, trịnh trọng nói: "Thôi tiên sinh cao minh, Lâm Quân Bích thụ giáo."
+- Tiểu tử khá lắm, còn dạy được.
 
-Thôi Đông Sơn ngẩng đầu, "Cao minh? Chỉ dùng một cái thuyết pháp dung tục như vậy, để hình dung ta."
+Hắn đặt tay lên những quân cờ trong hũ, nhẹ nhàng vuốt ve:
 
-Lâm Quân Bích lắc đầu nói: "Vừa cao lại vừa sáng! Chỉ có nhật nguyệt mà thôi! Đây là cảnh giới ta nguyện ý tiêu phí cả đời theo đuổi, cũng không phải cao minh như trong miệng người thế tục kia."
+- Một kiếm tu Trung Thổ đủ thông minh, lại dám không tiếc mạng, võ phu thuần túy Úc Dận Phu xuất thân Trung Thổ Thần Châu sẽ không chán ghét. Người Úc gia, thậm chí lão thất phu Chu Thần Chi kia, đối với thiếu niên kiếm tu khiến Úc Dận Phu không chán ghét, ngươi nghĩ sẽ thế nào? Đó là chuyện nhỏ có cũng được, không có cũng được sao?
 
-Thôi Đông Sơn cười ha ha, " nịnh nọt cái này, rất có phong phạm đỉnh núi nhà ta, rất tốt rất tốt, về sau có cơ hội, nói không chừng ta thật muốn thu ngươi làm đệ tử, sau đó ngươi có thể đi tổ sư đường bên kia dập đầu thắp hương bái lạy."
+- Lão nhân Úc gia và Chu Thần Chi đã gặp thiếu kẻ thông minh nửa vời như Lâm Quân Bích ban đầu hay sao? Lão nhân Úc gia từng nắm trong tay sự diệt vong và quật khởi của hai đại vương triều, loại người nào chưa từng thấy? Chu lão thất phu sống mấy nghìn năm, nhìn quen thăng trầm. Thứ bọn họ ít thấy là người trẻ tuổi vừa thông minh vừa ngu xuẩn, tràn đầy sinh khí, không coi trời đất vào đâu, trên người có một luồng sức mạnh, dám vì đại cục mà không tiếc danh lợi, không tiếc tính mạng.
 
-Lâm Quân Bích kỳ thật trong lòng đã có một suy đoán, chỉ là quá mức không thể tưởng tượng, không thể tin được.
+Thôi Đông Sơn nhấc tay khỏi hũ cờ, khẽ xoay cổ tay, cười nói:
 
-Thôi Đông Sơn thu liễm ý cười, cúi đầu nhìn bàn cờ, lau bàn tay một cái, toàn bộ quân cờ đều rơi vào hũ cờ, sau đó kẹp ra một quân đen cô đơn đặt ở bàn cờ, lại kẹp lên từng quân cờ trắng, vây ra một vòng lớn.
+- Đây là phong cảnh bao la, biến ảo trong những chỗ nhỏ bé của lòng người, chẳng qua các ngươi không nhìn thấy rõ mà thôi. Tu sĩ trên núi có đôi mắt tốt như vậy lại không dùng, giả mù; tu đạo cái rắm đạo tâm! Sau này Lâm Quân Bích ngươi tất sẽ là người trên núi thi triển tay chân ở triều đình. Không hiểu lòng người thì làm sao phân biệt, nhận biết, sử dụng và điều khiển người? Làm sao dùng người mà không nghi ngờ?
 
-Thôi Đông Sơn nói: "Đã đem ngươi coi là nửa đệ tử bồi dưỡng, vậy ta sẽ lấy ra một chút bản lãnh thực sự, lấy nghiêm luật làm lệ con cờ đen này, ngươi phải dạy con cờ đen này tự mình cảm thấy rất tự do, trời đất bao la không câu nệ, cuộc đời tràn ngập hy vọng. Nhưng lòng người hắn, toàn bộ suy nghĩ, trên thực tế đều ở trong sự khống chế của ngươi, muốn nó sống, muốn nó chết, muốn nó được thế thất thế, đều ở trong tính toán của ngươi."
+Lâm Quân Bích tâm phục khẩu phục, trịnh trọng nói:
 
-Lâm Quân Bích cảm thấy lý lẽ này rất dễ hiểu, không khó hiểu.
+- Thôi tiên sinh cao minh, Lâm Quân Bích thụ giáo.
 
-Sau đó Thôi Đông Sơn ở ngoài quân trắng lại vây ra một vòng tròn đen lớn hơn nữa, "Đây là nhân tâm của Chu lão thất phu, Úc gia lão nhân. Ngươi nên phá cục như thế nào?"
+Thôi Đông Sơn ngẩng đầu:
 
-Lâm Quân Bích trầm tư hồi lâu, giơ cánh tay lên xoa xoa cái trán, lắc đầu nói: "Khó giải, thậm chí không nên nghĩ đến chuyện phá cục."
+- Cao minh? Chỉ dùng lời dung tục như vậy để hình dung ta?
 
-Thôi Đông Sơn gật gật đầu, "Không sai, đúng một nửa."
+Lâm Quân Bích lắc đầu:
 
-Thôi Đông Sơn cầm lên một quân cờ trắng, ném ở trên bàn cờ ngoài quân đen, "Một lát trên bàn cờ, tình thế khó sửa, cuộc đời chung quy không phải chơi cờ, trước sau chỉ kém một quân cờ. Nhưng đừng quên lòng người không câu nệ, cho nên có thể ném một ý niệm, giấu ở xa xa, trừng to mắt, nhìn kỹ bàn cờ thiên địa lớn hơn nữa, Chu Thần Chi tính là cái gì. Đây là tu tâm."
+- Vừa cao lại vừa sáng, chỉ có nhật nguyệt mà thôi! Đó là cảnh giới ta nguyện dùng cả đời theo đuổi, không phải cao minh trong miệng người thế tục.
 
-Lâm Quân Bích cúi đầu nhìn bàn cờ không phải là kỳ phổ, lâm vào trầm tư.
+Thôi Đông Sơn cười ha hả:
 
-"U u lộc minh, thực dã chi bình, thực dã chi bình. Ta có rượu ngon, thổi kèn trống lò xo, không có khách quý."
+- Nịnh nọt kiểu này rất có phong phạm đỉnh núi nhà ta, rất tốt, rất tốt. Sau này có cơ hội, nói không chừng ta thật sự sẽ thu ngươi làm đệ tử, để ngươi đến tổ sư đường dập đầu thắp hương bái lạy.
 
-Thôi Đông Sơn thu hồi tầm mắt nhìn về phía đại địa, quay đầu nhìn về phía bầu trời, mỉm cười nói: "Sơn thượng khách, Vân Trung Quân, thấy chim bay qua, nổi một lớn trắng."
+Thật ra trong lòng Lâm Quân Bích đã có một suy đoán, chỉ là quá khó tin.
 
-Trên đầu thành, giờ này khắc này, Lâm Quân Bích cũng học theo "thiếu niên áo trắng" ngửa đầu nhìn lại.
+Thôi Đông Sơn thu ý cười, cúi nhìn bàn cờ. Hắn phất tay, tất cả quân cờ đều rơi vào hũ, rồi đặt một quân đen đơn độc lên bàn, lại dùng từng quân trắng vây thành một vòng lớn.
 
-Người nọ chính là Thôi Sàm dưới xuất ra Thải Vân phổ.
+- Đã coi ngươi là nửa đệ tử mà bồi dưỡng, ta sẽ lấy ra chút bản lĩnh thật sự. Lấy Nghiêm Luật làm ví dụ, hắn là quân đen này. Ngươi phải khiến hắn tự thấy mình rất tự do, trời đất bao la không gì gò bó, cuộc đời tràn đầy hy vọng. Nhưng lòng hắn, mọi suy nghĩ của hắn đều nằm trong sự khống chế của ngươi; muốn hắn sống hay chết, đắc thế hay thất thế, đều ở trong tính toán của ngươi.
 
-Kỳ lực thậm chí còn cao hơn so với Thôi Sàm năm đó.
+Lâm Quân Bích cảm thấy đạo lý này dễ hiểu.
 
-Vị thiếu niên áo trắng kia thu hồi bàn cờ bình thường, sau khi đứng dậy, nói một câu cuối cùng với Lâm Quân Bích, "Dạy ngươi những thứ này, là vì nói cho ngươi, tính toán lòng người, không có ý nghĩa gì, không làm gì chứ đừng làm bừa."
+Sau đó Thôi Đông Sơn dùng quân đen vây ngoài quân trắng thành một vòng lớn hơn:
 
-Trần Bình An không trực tiếp quay về Ninh phủ, mà là đi một chuyến tới quán rượu.
+- Đây là lòng người của Chu lão thất phu và lão nhân Úc gia. Ngươi phá cục thế nào?
 
-Cửa hàng không đóng cửa, chỉ là không có khách.
+Lâm Quân Bích trầm tư hồi lâu, đưa tay lau trán, lắc đầu:
 
-Lúc trước ở quán rượu hỗ trợ Trương Gia Trinh và Tưởng Đi hai vị thiếu niên đầy tớ, đã giống với Kim Đan kiếm tu Thôi Sàm, bí mật đi hướng Đảo Huyền sơn, Chủng Thu và Bùi Tiền Tào Tình Lãng đi Nam Bà Sa châu du lịch, hai vị thiếu niên thì theo Thôi Đông Sơn cùng đi Bảo Bình châu kia.
+- Khó giải, thậm chí không nên nghĩ tới chuyện phá cục.
 
-Ba người đang giúp quán rượu, thiếu niên tên là Khâu Khâu Khâu, thiếu nữ tên là Lưu Nga, đứa nhỏ nhất trong đám gọi là Đào Bản. Tất cả đều là những người được chọn làm tiểu nhị, đều là hàng xóm láng giềng quen thuộc.
+- Không sai, đúng một nửa.
 
-Trong đó tấm đào và Phùng Khang Nhạc cùng lứa tuổi còn không giống nhau lắm, Phùng Khang Nhạc tuổi còn nhỏ đã bắt đầu tích cóp tiền chuẩn bị cưới vợ, đó là thật sự không sợ trời không sợ đất, càng biết nhìn mặt mà nói chuyện, thấy gió chiều nào theo chiều ấy, nhưng tấm đào cũng chỉ còn lại không sợ trời không sợ đất, một sợi gân. Khâu Quỳ cùng Lưu Nga vốn đang ngồi ở trên bàn tán gẫu, nhìn thấy nhị chưởng quỹ hòa hòa khí khí kia, vẫn khẩn trương cử động, đứng lên, giống như ngồi ở trên bàn rượu lười biếng, Trần Bình An cười đưa tay ấn hờ hai cái, "Khách nhân cũng không có, các ngươi tùy ý chút."
+Thôi Đông Sơn cầm một quân trắng, đặt ngoài vòng quân đen:
 
-Chỉ có một mình tấm đào nằm sấp trên ghế dài của bàn rượu nơi khác ngẩn người, kinh ngạc nhìn đường cái không có một bóng người kia.
+- Trong chốc lát, thế cờ khó sửa. Cuộc đời rốt cuộc không phải chơi cờ, trước sau chỉ cách nhau một quân cờ. Đừng quên lòng người không bị câu thúc, cho nên có thể gửi một ý niệm ra thật xa, mở to mắt nhìn bàn cờ thiên địa lớn hơn. Chu Thần Chi tính là gì? Đây là tu tâm.
 
-Trần Bình An ngồi ở trên bàn rượu, cười hỏi: "Sao hả, cướp vợ nhỏ không đoạt được Phùng Khang Nhạc, không vui à?"
+Lâm Quân Bích cúi nhìn bàn cờ không phải kỳ phổ, rơi vào trầm tư.
 
-Đào Bản rầu rĩ không vui nói: "Nhị chưởng quỹ, ngươi nói xem, ta có phải là loại kiếm phôi tử mà ai cũng nhìn không ra hay không."
+- U u lộc minh, thực dã chi bình, thực dã chi bình. Ta có rượu ngon, thổi kèn trống lò xo, không có khách quý[?].
 
-Trần Bình An không còn lời nào để chống đỡ.
+Thôi Đông Sơn thu tầm mắt nhìn đại địa, quay đầu nhìn trời, mỉm cười:
 
-Trần Bình An vỗ vỗ bàn, "Đi xách bầu rượu lại đây cho ta, quy củ cũ."
+- Khách trên núi, Vân Trung Quân, thấy chim bay qua, uống một chén lớn[?].
 
-Đào Bản không vui đứng dậy, hô: "Lưu Nga tỷ tỷ, đi lấy bầu rượu với nhị chưởng quầy, đừng quên lấy tiền."
+Trên đầu thành, giờ phút này Lâm Quân Bích cũng học theo thiếu niên áo trắng ngẩng đầu nhìn trời.
 
-Trần Bình An lấy ra một đồng Tuyết Hoa tiền, đưa cho Lưu Nga, nói rau tương cùng mỳ Dương Xuân thì không cần, chỉ uống rượu. Rất nhanh thiếu nữ đã lấy ra một bầu rượu cùng một cái bát trắng, nhẹ nhàng đặt lên bàn.
+Người ấy chính là người từng lấy ra Thải Vân phổ dưới tên Thôi Sàm[?]. Kỳ lực của hắn thậm chí còn cao hơn Thôi Sàm năm đó.
 
-Trần Bình An rót một chén Trúc Hải Động Thiên Tửu, nhấp một ngụm rượu.
+Thiếu niên áo trắng thu bàn cờ bình thường lại, đứng dậy, nói câu cuối với Lâm Quân Bích:
 
-Đào Bản ngồi dậy, ghé vào trên bàn rượu, có chút chán đến chết, ngón tay gõ mặt bàn, nói: "Nhị chưởng quỹ, ta cũng không muốn bán rượu cả đời a."
+- Dạy ngươi những điều này là để nói cho ngươi biết, tính toán lòng người chẳng có ý nghĩa gì. Không có việc thì đừng làm bừa.
+Trần Bình An không trực tiếp trở về Ninh phủ, mà đi tới quán rượu. Cửa hàng không đóng, chỉ là không có khách.
 
-Trần Bình An cười hỏi: "Vậy ngươi muốn làm cái gì?"
+Hai thiếu niên từng giúp việc ở quán là Trương Gia Trinh và Tưởng Đi, trước đó đã cùng kiếm tu Kim Đan Thôi Sàm bí mật đến Đảo Huyền sơn. Chủng Thu cùng Bùi Tiền, Tào Tình Lãng đi Nam Bà Sa Châu du lịch, còn hai thiếu niên theo Thôi Đông Sơn đến Bảo Bình Châu.
 
-Đào Bản nói: "Ta cũng chưa nghĩ ra."
+Bây giờ trong quán có ba người giúp việc: thiếu niên Khâu Quỳ[?], thiếu nữ Lưu Nga và đứa nhỏ tuổi nhất là Đào Bản. Bọn họ đều được chọn làm tiểu nhị, vốn là hàng xóm láng giềng quen thuộc.
 
-Trần Bình An uống rượu, không nói gì nữa.
+Đào Bản không giống Phùng Khang Nhạc cùng tuổi. Phùng Khang Nhạc còn nhỏ đã tích cóp tiền cưới vợ, thật sự không sợ trời không sợ đất, lại biết nhìn sắc mặt, thấy gió chiều nào che chiều ấy. Đào Bản thì chỉ có mỗi cái không sợ trời không sợ đất, đầu óc một đường thẳng.
 
-Đào Bản không có lời tìm lời nói: "Nhị chưởng quỹ, ngươi có biết hay không, kỳ thật rất nhiều người sau lưng nói xấu ngươi. Đến chỗ chúng ta bên này mua rượu rất nhiều khách nhân, đều thay ngươi bênh vực kẻ yếu. Rất nhiều lời, chỉ là nghe thôi cũng đã rất tức giận rồi."
+Khâu Quỳ và Lưu Nga vốn đang ngồi bên bàn nói chuyện. Thấy Nhị chưởng quỹ hòa nhã tới, hai người vẫn căng thẳng đứng dậy, dường như sợ bị trách lười biếng. Trần Bình An cười đưa tay ấn xuống:
 
-Trần Bình An lắc đầu nói: "Không biết a. Ngươi nói đi?"
+- Không có khách, các ngươi cứ tự nhiên.
 
-Ván đào liền bắt đầu dốc hết đậu trong ống trúc, một năm một mười nói những lời mình nghe được.
+Chỉ có Đào Bản nằm sấp trên ghế dài cạnh bàn khác, ngẩn người nhìn con phố vắng tanh.
 
-Đào Bản thấy Nhị chưởng quầy chỉ uống rượu, cũng không tức giận, hài tử liền có chút tức giận, thở phì phì nói: "Nhị chưởng quầy lỗ tai ngươi lại không điếc, đến cùng có nghe ta nói chuyện hay không a."
+Trần Bình An ngồi xuống, cười hỏi:
 
-Trần Bình An cười nói: "Có nghe."
+- Sao thế, tranh vợ nhỏ không lại Phùng Khang Nhạc nên không vui à?
 
-Gió đông thổi tơ liễu bay, gió đông thổi tơ liễu rơi.
+Đào Bản buồn bã:
 
-Những sợi dương liễu giống như gió đông, lên lên xuống xuống, để ý cái gì.
+- Nhị chưởng quỹ, ngươi nói xem, ta có phải loại kiếm phôi mà không ai nhìn ra không?
 
-Chỉ là đạo lý như vậy quá nhàm chán, càng không cần phải nhắc tới cho một đứa bé nghe.
+Trần Bình An không biết nói gì. Hắn vỗ bàn:
 
-Cho nên Trần Bình An giống như hậu tri hậu giác, cả giận nói: "Đám khốn kiếp này, quá đáng giận."
+- Đi lấy cho ta bầu rượu, quy củ cũ.
 
-Đứa nhỏ nóng lòng muốn thử nói: "Chúng ta làm gì?"
+Đào Bản không vui đứng dậy, gọi:
 
-Trần Bình An huyền chỉ bát rượu trong tay, liếc xéo nói: "Ngươi giúp ta đánh nhau à, hay là giúp ta trông chừng?"
+- Lưu Nga tỷ tỷ, lấy rượu cho Nhị chưởng quỹ, đừng quên thu tiền!
 
-Đào Bản thở dài, một lần nữa nằm úp sấp ở trên bàn, "Lúc có nhiều khách nhân, ta ngại mệt, không có khách, lại ngại buồn bực, có chuyện gì vậy."
+Trần Bình An lấy một đồng tiền tuyết hoa đưa cho Lưu Nga, bảo không cần rau dưa muối và mì Dương Xuân, chỉ uống rượu. Thiếu nữ nhanh chóng mang một bầu rượu và cái bát trắng đến, nhẹ nhàng đặt lên bàn. Hắn rót Trúc Hải Động Thiên tửu, nhấp một ngụm.
 
-Trần Bình An trêu ghẹo nói: "Đúng vậy đúng vậy, sao lại thế."
+Đào Bản ngồi dậy, ghé lên bàn, chán nản gõ ngón tay xuống mặt bàn:
 
-Đào Bản trừng mắt, "Con người ngươi thật không thú vị, thuyết thư tiên sinh cũng không làm nữa, cửa hàng bên này cũng không thích quản, suốt ngày không biết bận cái gì."
+- Nhị chưởng quỹ, ta cũng không muốn bán rượu cả đời.
 
-Trần Bình An phất tay nói: "Ta tiêu tiền mua rượu, nên có một đĩa rau tương cùng một bát mỳ mùa xuân, tặng ngươi."
+- Vậy ngươi muốn làm gì?
 
-Đào Bản cười toe toét.
+- Ta vẫn chưa nghĩ ra.
 
-Lưu Nga vẫn luôn vểnh tai nghe cuộc đối thoại bên này, lập tức đi chào hỏi Phùng thúc thúc, làm một bát mì Dương Xuân cho nhị chưởng quầy.
+Trần Bình An uống rượu, không nói nữa.
 
-Trần Bình An khoan thai uống rượu.
+Đào Bản lại tìm chuyện nói:
 
-Không biết sao nhớ tới trận kiếp nạn kia của Liễu lão thị lang vườn sư tử ở Thanh Loan quốc.
+- Nhị chưởng quỹ, ngươi có biết rất nhiều người nói xấu sau lưng ngươi không? Nhiều khách đến mua rượu còn bất bình thay ngươi. Có những lời chỉ nghe thôi đã thấy tức giận rồi.
 
-Người đọc sách yêu quý lông vũ là quan trọng nhất, cho nên sợ nhất là khó giữ được tiết kiệm.
+Trần Bình An lắc đầu:
 
-Thôi Đông Sơn nói những thủ đoạn âm độc đan xen vào nhau, đều là ý tưởng của trưởng tử lão thị lang Liễu Thanh Phong, người đồng hương Lý Bảo Châm của trấn nhỏ chỉ là nghe theo mà thôi.
+- Không biết. Ngươi kể đi?
 
-Trần Bình An quay đầu nhìn tửu lâu lớn nhỏ trên đường cái phía sau, con đường trống rỗng kia.
+Đào Bản liền trút hết như đổ đậu, kể lại đầu đuôi những gì mình nghe được. Thấy Nhị chưởng quỹ chỉ uống rượu, không hề nổi giận, đứa nhỏ lại tức, phồng má nói:
 
-Thật ra những người kia theo như lời Đào Bản, những lời này, không khiến Trần Bình An cảm thấy kỳ quái chút nào, thậm chí có thể nói, đã sớm đoán được, tựa như Trần Bình An khắc chữ ở trên con dấu kia, thế gian không có gì ngoài ý muốn.
+- Tai ngươi có điếc đâu, rốt cuộc có nghe ta nói không?
 
-Đối với Trần Bình An hôm nay mà nói, muốn tức giận cũng rất khó.
+Trần Bình An cười:
 
-Cùng sự thất vọng kia, càng là nửa điểm không dính dáng.
+- Có nghe.
 
-Khẳng định là có người từng ở quán rượu hoặc phố Thái Tượng, phố Ngọc Lãng, gặp được công tử ca Trần Tam Thu, có người nịnh nọt lấy lòng nhưng không có kết quả, liền bắt đầu vụng trộm ghi hận Trần Tam Thu, Nhị chưởng quầy và Trần Tam Thu là bằng hữu, vậy thì ngay cả Trần Bình An cũng ghi hận rồi.
+Gió đông thổi tơ liễu bay, gió đông thổi tơ liễu rơi. Những sợi tơ liễu theo gió lên xuống, có gì phải để ý?
 
-Chắc chắn là có kiếm tu kia xem thường cơ hội và tu vi của núi, nên mới căm hận tiếng huyên náo ầm ĩ của quán rượu kia, có vẻ là đáng ghét nhất thời.
+Chỉ là đạo lý ấy quá nhàm chán, càng không cần nói với một đứa nhỏ. Vì thế Trần Bình An làm như bây giờ mới hiểu ra, giận dữ nói:
 
-Có người bạn cùng lứa tuổi từng theo dòng chảy lớn mỉa mai Yến mập mạp, về sau cảnh giới Yến Trác càng ngày càng cao, từ nhìn xuống, khinh miệt, trở nên càng ngày càng cần ngưỡng mộ Yến Trác cùng Ninh phủ, cùng Trần Bình An đều quen biết, nhóm người này trong lòng sẽ không thoải mái, cào tim cào gan.
+- Đám khốn kiếp ấy, thật đáng giận!
 
-Chắc chắn cũng có những khách uống rượu trẻ tuổi có ý đồ lôi kéo quan hệ với Nhị chưởng quầy ở quán rượu Nhiễm Chướng, chỉ cảm thấy hình như mình và Nhị chưởng quầy kia trước sau không hàn huyên với nhau, ban đầu cũng không nghĩ nhiều, chỉ là theo danh tiếng của Trần Bình An càng lúc càng lớn, đối với những người đó mà nói đã trở thành một tổn thất lợi ích thiết thực, dần dà, không đến bên kia mua rượu uống rượu nữa, còn thích đổi bạn bè với bọn họ, đổi thành tửu lâu tửu quán nơi khác, cùng nhau nói những lời châm chọc với quán rượu nhỏ kia, cực kỳ khoái ý, người phụ họa càng nhiều, tư vị uống rượu càng tốt.
+Đứa nhỏ nóng lòng hỏi:
 
-Những người này, nhất là khi nghĩ tới mình từng giả bộ, cùng kiếm tu ngồi ven đường uống rượu ăn dưa muối, đột nhiên cảm thấy trong lòng khó chịu, cho nên cùng người trong đồng đạo, bố trí lên quán rượu kia, càng lúc càng hăng say.
+- Chúng ta làm gì bây giờ?
 
-Cửa hàng rượu kia càng náo nhiệt, làm ăn càng tốt, người uống rượu ở nơi khác nói ngôn ngữ âm dương quái dị kia, nhìn quanh bốn phía, dù bên người không có mấy người, nhưng cũng có rất nhiều lý do trấn an mình, thậm chí sẽ cảm thấy mọi người đều say, mình như vậy mới là thanh tỉnh, tốp năm tốp ba, ôm đoàn sưởi ấm, càng thành tri kỷ, cũng là thật lòng.
+Trần Bình An nâng bát rượu, liếc xéo:
 
-Phật kinh nói, một mưa có thể làm trơn, mà cỏ cây có khác biệt.
+- Ngươi giúp ta đánh nhau hay là giúp ta trông chừng?
 
-Cùng với trăm dạng người như lời lão nói, thật ra là ý tứ không sai biệt lắm.
+Đào Bản thở dài, lại nằm úp xuống bàn:
 
-Phủ định bất kỳ một người nào, đều là một chuyện rất dễ dàng.
+- Lúc đông khách thì ngại mệt, không có khách lại thấy buồn bực. Sao lại thế nhỉ?
 
-Vô luận là lão đại kiếm tiên Kiếm Khí Trường Thành, hay là nho gia đạo đức thánh nhân Hạo Nhiên Thiên Hạ, hoặc là thánh hiền chư tử bách gia, bất cứ một người nào trên đời, chỉ cần người ngoài muốn đâm chọc, là có thể dễ dàng phủ định, ở trong lòng ta đánh giết người khác.
+Trần Bình An trêu:
 
-Ai cũng có thể làm được chuyện, nếu không thì không thể chỉ làm một mình, nếu không thì sẽ bị thiệt.
+- Đúng vậy, sao lại thế nhỉ?
 
-Đổi thành thật lòng tán thành một người, sẽ rất khó.
+Đào Bản trừng mắt:
 
-Lạc thú hôm nay của Trần Bình An căn bản không phải so bì với bọn họ, ngược lại là được nhàn hạ, chỉ cần có cơ hội, liền tận lực đi xem nhân sinh phức tạp của những người này, xem lòng người giang hồ.
+- Ngươi thật không thú vị. Thuyết thư tiên sinh cũng không làm nữa, quán rượu cũng không thích quản, cả ngày chẳng biết bận việc gì.
 
-Trần Bình An uống một hớp rượu lớn, rượu trong chén đã uống hết, lại rót một chén.
+Trần Bình An phất tay:
 
-Nhìn miếng đào vùi đầu ăn như hùm như sói, Trần Bình An cười nói: "Ăn từ từ thôi, không ai giành với ngươi."
+- Ta bỏ tiền mua rượu, đáng được một đĩa dưa muối và một bát mì Dương Xuân, tặng ngươi đấy.
 
-Đào Bản không thèm nhìn.
+Đào Bản cười toe toét. Lưu Nga vẫn vểnh tai nghe bọn họ nói chuyện, lập tức đi gọi Phùng thúc thúc nấu một bát mì Dương Xuân.
 
-Trần Bình An uống rượu, có chút nhớ quê nhà.
+Trần Bình An thong thả uống rượu, không biết vì sao lại nhớ đến kiếp nạn của Liễu lão thị lang ở vườn Sư Tử, Thanh Loan quốc. Người đọc sách quý trọng thanh danh, sợ nhất cuối đời không giữ được khí tiết.
 
-Khi còn nhỏ, trong trấn nhỏ, một đứa bé từng trèo cây lấy lại diều đứt dây treo trên cành cao, kết quả bị nói là ăn trộm.
+Thôi Đông Sơn từng nói những thủ đoạn âm độc đan xen ấy đều do trưởng tử của lão thị lang là Liễu Thanh Phong nghĩ ra; đồng hương trấn nhỏ Lý Bảo Châm chỉ nghe theo mà thôi.
 
-Từng có một lần ở mộ thần tiên xa xa nhìn bạn cùng lứa chơi đùa, có người cắn rắn, đứa bé kia liền vội vàng dựa vào cửa hàng Dương gia bên kia hỏi, học trộm, nghe lén được phương thuốc, giúp đỡ đứa nhỏ bị rắn cắn kia đắp thuốc.
+Trần Bình An quay đầu nhìn những tửu lâu lớn nhỏ phía sau cùng con đường vắng vẻ. Thật ra lời Đào Bản vừa kể không khiến hắn thấy lạ, thậm chí có thể nói là đã sớm ngờ tới. Giống như chữ hắn khắc trên con dấu, thế gian không có gì ngoài ý muốn.
 
-Sau đó, lại nhìn thấy đứa nhỏ đen như than quanh năm một mình một người này, xa xa nhìn bọn họ chơi đùa, mắng hung hăng nhất, ném bùn đất dùng sức nhất, vừa vặn là những người bạn cùng lứa tuổi từng tiếp xúc với cô nhi ngõ Nê Bình.
+Đối với Trần Bình An hôm nay, ngay cả tức giận cũng khó, càng chẳng nói đến thất vọng.
 
-Năm đó Trần Bình An không hiểu vì sao lại như vậy, sau khi dần dần lớn lên, sẽ hiểu được, thì ra không làm như vậy, bọn họ sẽ mất đi bạn của mình.
+Chắc chắn có người từng gặp công tử Trần Tam Thu ở quán rượu hoặc trên phố Thái Tượng, phố Ngọc Lãng, nịnh nọt lấy lòng không được liền âm thầm ghi hận. Nhị chưởng quỹ là bằng hữu của Trần Tam Thu, thế là cả Trần Bình An cũng bị ghi hận.
 
-Nhưng mà chuyện này cũng không làm chậm trễ những đứa nhỏ kia, sau khi lớn lên hiếu thuận cha mẹ, giúp đỡ hàng xóm lão nhân gánh nước, hơn nửa đêm giành nước.
+Cũng có kiếm tu xem thường cơ duyên và tu vi trên núi[?], căm ghét quán rượu lúc nào cũng ồn ào náo nhiệt, chỉ cảm thấy chướng mắt.
 
-Cũng sẽ có người trẻ tuổi trở thành kẻ kiếm ăn, có người thậm chí vận khí tốt, sẽ trở thành người giúp đỡ đám con cháu nhàn rỗi của phố Phúc Lộc, ngõ Đào Diệp, suốt ngày tìm được cơ hội, liền trừng mắt trợn mắt, làm ra vẻ hung ác.
+Có người cùng lứa từng hùa theo đám đông chế giễu Yến mập mạp. Về sau cảnh giới Yến Trác ngày càng cao, từ chỗ nhìn xuống khinh miệt, bọn họ càng phải ngẩng đầu nhìn hắn. Yến Trác lại quen biết Ninh phủ và Trần Bình An, khiến bọn họ khó chịu, như bị cào tim cào gan.
 
-Dù vậy, cũng không làm lỡ thời gian trong những người này, có người sẽ được tiền thưởng, trở về nhà, liền dẫn các đệ đệ muội muội quần áo keo kiệt cũ nát, ngón chân cái hàng năm đứng ở "Ngoài cửa" đi cửa hàng trấn nhỏ, vung tay vung chân, mua một đống hàng tết, lại để cha mẹ làm một bữa cơm tất niên phong phú, vô cùng náo nhiệt, đoàn đoàn viên viên.
+Hẳn cũng có khách uống rượu trẻ tuổi từng muốn kết giao với Nhị chưởng quỹ ở quán rượu Điệp Chướng, nhưng trước sau không thể trò chuyện thân thiết. Ban đầu họ không nghĩ nhiều, chỉ là danh tiếng Trần Bình An càng lúc càng lớn, chuyện ấy dần thành một tổn thất lợi ích thiết thực. Lâu dần họ không tới mua rượu nữa, đổi bằng hữu, đổi sang tửu lâu tửu quán khác, cùng nhau châm chọc quán rượu nhỏ, người phụ họa càng nhiều thì uống càng khoái chí.
 
-Sẽ làm cho các đệ đệ muội muội một ít chuồn chuồn tre, đao trúc kiếm trúc.
+Những người ấy, nhất là lúc nhớ tới việc mình từng làm bộ ngồi ven đường cùng đám kiếm tu uống rượu ăn dưa muối, lại thấy khó chịu trong lòng, cho nên càng hăng hái nói xấu quán rượu với những người cùng ý.
 
-Cũng có loại khi còn bé chính là người một nhà toàn bộ tâm địa xấu xa, sau khi lớn lên vẫn như thế, sau đó kết hôn sinh con, cuộc sống có thể sống tốt, không tính là quá tốt, người một nhà, chưa bao giờ vì đúng sai mà cãi vã, nhận thức của người một nhà, tựa như đều có một loại hòa hợp hòa hợp của tiểu thiên địa. Cho dù Trần Bình An thành diêu công học đồ, thật ra lúc ấy vẫn không hiểu vì sao như thế, sau đó đi qua rất nhiều đường giang hồ, đọc không ít đạo lý trên sách, mới biết được nguyên do.
+Quán rượu kia càng náo nhiệt, làm ăn càng tốt, bọn họ ở nơi khác càng nói giọng âm dương quái khí. Nhìn quanh, dù bên cạnh không có mấy người, họ vẫn có vô số lý do an ủi mình, thậm chí cảm thấy mọi người đều say, chỉ mình tỉnh táo. Từng tốp năm ba người tụ lại sưởi ấm, càng coi nhau là tri kỷ, cũng là thật lòng.
 
-Đứa nhỏ ở ngõ Nê Bình, từng ngày từng ngày lớn lên, đối với những tao ngộ lúc nhỏ, mỗi lần như vậy, cũng sẽ có lớn nhỏ không vui, cũng sẽ ủy khuất.
+Phật kinh nói, cùng một trận mưa thấm nhuần, nhưng cỏ cây có khác. Lời lão nhân nói về trăm dạng người, thật ra cũng gần như vậy.
 
-Chỉ có thể một mình ngồi xổm, rung đùi đắc ý, đấu cỏ chơi đùa, hoặc là ở bên mộ thần tiên, nặn ra một đám tượng đất nhỏ thô ráp đến không thể tưởng tượng nổi.
+Phủ định một người là chuyện rất dễ. Bất kể là lão đại kiếm tiên của Kiếm Khí Trường Thành, thánh nhân đạo đức Nho gia ở Hạo Nhiên Thiên Hạ hay thánh hiền chư tử bách gia, bất cứ ai trên đời, chỉ cần người ngoài muốn tìm chỗ chê trách thì đều dễ dàng phủ định, giết chết người khác trong lòng mình.
 
-Cũng tiện tay nhặt lên một cành cây khô, trên đường cây cỏ tươi tốt, một thân một mình nhảy nhót, coi cành cây khô như kiếm, một đường chém giết, thở hồng hộc, vô cùng vui vẻ.
+Chuyện ai cũng có thể làm được, nếu mình không làm thì dường như sẽ chịu thiệt[?]. Nhưng thật lòng tán thành một người lại rất khó.
 
-Cũng sẽ đau răng đến sưng mặt, chỉ có thể nhai một ít thảo dược phương pháp thổ dân ở trong miệng, vài ngày không muốn nói chuyện.
+Niềm vui của Trần Bình An hôm nay vốn không nằm ở việc so đo với bọn họ. Ngược lại, khi có thời gian rảnh, chỉ cần có cơ hội hắn sẽ cố gắng nhìn cuộc đời phức tạp của những người ấy, nhìn lòng người giang hồ.
 
-Nhưng chỉ cần không bệnh không tai nạn, trên người chỗ nào cũng không đau, dù ăn một bữa đói một bữa, cũng là hạnh phúc.
+Hắn uống cạn bát rượu, lại rót thêm. Thấy Đào Bản vùi đầu ăn ngấu nghiến, hắn cười nói:
 
-Hơn nửa đêm cũng sẽ ngủ không được, một mình chạy tới giếng Tỏa Long hoặc là dưới tàng cây hòe già, một đứa bé lẻ loi trơ trọi, chỉ cần nhìn tinh không rực rỡ trên trời, sẽ cảm giác mình giống như cái gì cũng không có, lại giống như cái gì cũng có.
+- Ăn chậm thôi, không ai giành với ngươi.
 
-Về sau con sên nhỏ cùng một ngõ nhỏ kia trưởng thành, biết đi đường, biết nói chuyện.
+Đào Bản chẳng buồn ngẩng đầu.
 
-Thiếu niên giầy rơm ngõ Nê Bình cũng gặp Lưu Tiện Dương.
+Trần Bình An uống rượu, hơi nhớ quê nhà.
 
-Sau đó thành học đồ lò nung, liền cảm thấy cuộc đời có chút hi vọng ngoài định mức.
+Khi còn nhỏ ở trấn, có đứa bé trèo cây lấy chiếc diều đứt dây mắc trên cành cao, cuối cùng lại bị nói là ăn trộm.
 
-Phải chiếu cố một ít con sên nhỏ nhiều hơn, muốn học thêm một chút bản lãnh với Lưu Tiện Dương.
+Có lần nó đứng xa nhìn đám trẻ cùng tuổi chơi bên mộ thần tiên, thấy có người bị rắn cắn liền vội chạy tới cửa hàng Dương gia, lén nghe được phương thuốc rồi giúp đứa trẻ kia đắp thuốc.
 
-Trần Bình An hy vọng ba người tương lai đều nhất định phải ăn no mặc ấm, mặc kệ về sau gặp chuyện gì, vô luận là đại tai tiểu khảm, bọn họ đều có thể thuận lợi đi qua, chịu đựng qua, ra mặt.
+Về sau nhìn thấy đứa nhỏ đen như than, quanh năm chỉ có một mình, đứng xa nhìn bọn họ chơi, những người mắng hung dữ nhất, ném bùn đất mạnh nhất lại chính là mấy đứa từng được cô nhi ngõ Nê Bình giúp đỡ.
 
-Tiểu sên trùng nói mình nhất định phải kiếm nhiều tiền, để mẫu thân mỗi ngày ra ngoài đều có thể đeo vàng đeo bạc, còn phải chuyển đến nhà ở phố Phúc Lộc bên kia.
+Năm ấy Trần Bình An không hiểu vì sao. Lớn dần lên hắn mới hiểu, thì ra nếu không làm vậy, bọn họ sẽ mất bằng hữu của mình.
 
-Đến lúc đó tất cả vương bát đản từng bắt nạt hai mẹ con bọn họ, nếu mình không đi gây phiền toái, bản thân bọn họ sẽ sợ muốn chết, tự mình đánh vào miệng mình, còn phải chủ động xách gà vịt tới cửa nhận sai, bằng không Cố Xán hắn sẽ không tha thứ bọn họ, trước kia mắng hắn một trăm câu, hắn liền mắng lại mấy trăm câu, trước kia đạp hắn một cước, liền đạp trở về bảy tám cước, đạp đối phương lăn lộn đầy đất, thiếu chút nữa chết tươi.
+Nhưng chuyện ấy không cản trở những đứa trẻ ấy khi lớn lên hiếu thuận với cha mẹ, giúp lão nhân hàng xóm gánh nước, nửa đêm tranh nhau lấy nước[?].
 
-Lưu Tiện Dương nói muốn trở thành người có tay nghề tốt nhất trong toàn bộ Long Dận, muốn học hết toàn bộ bản lãnh của Diêu lão đầu, đồ sứ do chính tay ông ta làm ra, muốn trở thành vật đặt lên bàn của hoàng đế lão nhân, còn muốn để hoàng đế lão nhân đối đãi như đồ gia truyền. Ngày nào đó tuổi tác cao, thành lão nhân, Lưu Tiện Dương khẳng định so với Diêu lão nhân càng uy phong bát diện, đem một đệ tử cùng học đồ tay chân vụng về mỗi ngày mắng đến máu chó xối đầu.
+Cũng có người trẻ tuổi trở thành kẻ kiếm ăn ngoài đường, có kẻ may mắn được theo chân đám con cháu nhàn rỗi ở phố Phúc Lộc, ngõ Đào Diệp, suốt ngày tìm cơ hội trợn mắt bày vẻ hung ác.
 
-Lưu Tiện Dương còn hy vọng mình có thể tùy tiện một quyền đánh nát khối gạch, một bước là có thể vượt qua dòng suối nhỏ chỗ rộng nhất, toàn bộ những người từng đọc sách ở trường tư, những kẻ biết mấy câu chữ chua, đều phải lau mắt mà nhìn Lưu Tiện Dương hắn, cầu xin viết câu đối xuân cho Lưu gia lão.
+Dù vậy, có người được thưởng tiền rồi trở về nhà, dẫn các đệ đệ muội muội quần áo cũ rách, ngón chân cái quanh năm thò ra ngoài giày, tới cửa hàng trong trấn, hào phóng mua một đống hàng tết. Họ để cha mẹ nấu một bữa cơm tất niên thịnh soạn, cả nhà náo nhiệt đoàn viên. Họ cũng làm chuồn chuồn tre, đao tre kiếm tre cho đệ đệ muội muội.
 
-Lúc đó, nguyện vọng của ba người xuất thân từ một người, kỳ thật lúc ấy mỗi người đều cảm thấy rất lớn, lớn nhất.
+Cũng có người từ nhỏ cả nhà đã xấu bụng, lớn lên vẫn vậy, rồi cưới vợ sinh con. Cuộc sống của họ khá tốt, tuy chưa phải quá tốt; cả nhà chưa bao giờ cãi nhau vì đúng sai, suy nghĩ hòa hợp như một tiểu thiên địa. Ngay cả khi đã làm học đồ lò nung, Trần Bình An vẫn không hiểu vì sao. Sau này đi nhiều đường giang hồ, đọc không ít đạo lý trong sách, hắn mới biết nguyên do.
 
-Nhưng không ai ngờ được, so với cuộc đời sau này của ba người mà nói, nguyện vọng lớn như vậy, thật ra cũng không lớn, thậm chí có thể nói là rất nhỏ.
+Đứa trẻ ngõ Nê Bình lớn lên từng ngày. Mỗi lần gặp những chuyện ấy lúc nhỏ, nó cũng buồn bực, cũng thấy ủy khuất. Nó chỉ có thể một mình ngồi xổm chơi đấu cỏ, hoặc bên mộ thần tiên nặn một đám tượng đất thô ráp không tưởng.
 
-Chỉ là Cố Xán biến thành ba người bọn họ năm đó đều ghét nhất loại người này.
+Nó cũng tiện tay nhặt cành cây khô, một mình nhảy nhót trên con đường cỏ cây um tùm, coi cành cây là kiếm, vừa chạy vừa chém giết, thở hồng hộc mà hết sức vui vẻ.
 
-Lưu Tiện Dương cũng không trở thành đại hiệp, mà trở thành một người đọc sách danh xứng với thực.
+Có lúc đau răng sưng cả mặt, nó chỉ biết ngậm nhai ít thảo dược theo phương thuốc dân gian, mấy ngày không muốn nói chuyện. Nhưng chỉ cần không bệnh không tai, trên người không đau chỗ nào, dù bữa no bữa đói vẫn là hạnh phúc.
 
-Chỉ nghĩ tới Trần Bình An sống yên ổn, cũng không có sống yên ổn như vậy.
+Nửa đêm không ngủ được, nó một mình chạy đến giếng Tỏa Long hoặc dưới gốc hòe già. Đứa bé lẻ loi chỉ cần nhìn trời sao rực rỡ, liền cảm thấy mình giống như chẳng có gì, lại giống như có tất cả.
 
-Tiền kiếm được không ít, đi rất xa trên giang hồ, gặp rất nhiều chuyện người trước kia nghĩ cũng không dám nghĩ. Không là đứa nhỏ đeo cái sọt lớn hái thuốc kia nữa, chỉ đổi một cái sọt lớn nhìn không thấy, sờ không được, chất đầy trên đường đời không nỡ quên vứt bỏ, lần lượt nhặt tới bỏ vào câu chuyện lớn nhỏ trong sọt sau lưng.
+Về sau con sên nhỏ cùng ngõ lớn lên, biết đi, biết nói. Thiếu niên giày rơm ngõ Nê Bình cũng gặp Lưu Tiện Dương. Sau đó hắn thành học đồ lò nung, cảm thấy cuộc đời có thêm chút hy vọng.
 
-Có một số câu chuyện, kết cục không được coi là mỹ mãn, người có tình không thể trở thành quyến thuộc, người hảo tâm hình như không có phúc báo, có những lúc chia tay không hề thương cảm, thật ra không còn cơ hội gặp lại. Có những câu chuyện, kết cục tốt đẹp, cũng có thiếu sót. Có những câu chuyện chưa có phần cuối.
+Hắn muốn chăm sóc con sên nhỏ nhiều hơn, muốn học thêm chút bản lĩnh với Lưu Tiện Dương. Trần Bình An mong ba người sau này đều được ăn no mặc ấm, mặc kệ gặp đại tai hay trắc trở nhỏ, đều có thể thuận lợi đi qua, chịu đựng được, ngẩng đầu sống tiếp.
 
-Nhưng mà Trần Bình An vẫn luôn tin tưởng, ở chỗ ám muội thấy ánh sáng, ở tuyệt cảnh tuyệt vọng sinh ra hy vọng, sẽ không sai.
+Con sên nhỏ nói nhất định phải kiếm thật nhiều tiền, để mẫu thân mỗi ngày ra ngoài đều đeo vàng đeo bạc, còn phải chuyển tới phố Phúc Lộc. Đến lúc ấy, những kẻ khốn kiếp từng bắt nạt hai mẹ con, dù nó không đi tìm phiền toái, bọn họ cũng sẽ sợ chết khiếp, tự tát miệng mình, chủ động xách gà vịt đến cửa nhận sai. Nếu không, Cố Xán hắn sẽ không tha thứ: trước kia mắng hắn một trăm câu, hắn mắng trả mấy trăm câu; đạp hắn một cước, hắn trả lại bảy tám cước, đạp đối phương lăn lộn trên đất, gần chết mới thôi.
 
-Trần Bình An buông bát rượu, suy nghĩ xuất thần.
+Lưu Tiện Dương nói muốn trở thành người có tay nghề tốt nhất Long Tuyền[?], học hết bản lĩnh của Diêu lão đầu. Đồ sứ do hắn tự tay làm phải được đặt trên bàn hoàng đế, còn phải được hoàng đế coi như bảo vật gia truyền. Ngày nào đó tuổi cao thành lão nhân, Lưu Tiện Dương nhất định uy phong hơn Diêu lão đầu, ngày ngày mắng đệ tử học đồ tay chân vụng về té tát.
 
-Nhớ tới Diêu lão nhân thích một thân một mình hai tay lồng tay áo kia.
+Lưu Tiện Dương còn mong mình tiện tay một quyền đánh nát viên gạch, một bước vượt qua chỗ rộng nhất của con suối. Tất cả người từng đọc sách ở trường tư, biết vài câu chữ chua, đều phải lau mắt nhìn hắn, cầu xin viết câu đối xuân cho Lưu gia[?].
 
-Nhớ rõ lần đầu tiên theo lão nhân vào núi tìm kiếm bùn đất thích hợp nung sứ, bỗng nhiên rơi xuống một trận tuyết lớn, gió lạnh thấu xương, tuyết lớn không đầu gối, thiếu chút nữa thiếu niên giày rơm quần áo bị đông chết.
+Khi ấy, nguyện vọng của mỗi người trong ba đứa đều rất lớn, đều cho là lớn nhất. Nhưng không ai ngờ so với cuộc đời sau này của bọn họ, nguyện vọng lớn như vậy thật ra chẳng lớn, thậm chí có thể nói là rất nhỏ.
 
-Trầm Mặc lão nhân tự mình đi phía trước, chỉ là chậm lại bước chân, hơn nữa hiếm khi nói thêm hai câu, "Mùa đông đi đường núi, trời đông giá rét, thật vất vả kiếm chút tiền, một đồng tiền không nỡ lấy ra, chỉ vì sống chết cóng chính mình?"
+Chỉ là Cố Xán trở thành loại người mà cả ba từng ghét nhất. Lưu Tiện Dương cũng không thành đại hiệp, mà trở thành một người đọc sách danh xứng với thực. Còn Trần Bình An chỉ mong sống yên ổn, cuối cùng cũng không sống yên ổn như vậy.
 
-"Trời lạnh đường xa, chỉ tự mình mặc nhiều một chút, cái này cũng nghĩ không rõ? Cha mẹ không dạy, chính mình sẽ không nghĩ sao?"
+Hắn kiếm được không ít tiền, đi rất xa trên giang hồ, gặp rất nhiều chuyện trước kia nghĩ cũng không dám nghĩ. Hắn không còn là đứa nhỏ đeo sọt lớn hái thuốc, chỉ đổi sang một cái sọt không nhìn thấy, không sờ được, chứa đầy những câu chuyện lớn nhỏ hắn nhặt dọc đường đời, không nỡ quên hay vứt bỏ.
 
-Giống như trên đường phong tuyết không có điểm cuối, thiếu niên chịu tội nghe càng tệ hơn ngôn ngữ, khóc cũng khóc không được.
+Có những câu chuyện kết thúc không mỹ mãn: người có tình không thành quyến thuộc, người tốt dường như không được phúc báo, có lúc chia tay không chút thương cảm mà thật ra chẳng còn cơ hội gặp lại. Có câu chuyện kết thúc tốt đẹp nhưng vẫn có thiếu sót, có câu chuyện chưa tới hồi kết.
 
-Lão nhân thủy chung không quản Trần Bình An chết sống.
+Nhưng Trần Bình An vẫn luôn tin, nhìn thấy ánh sáng trong chỗ tối tăm, tìm được hy vọng nơi tuyệt cảnh, là không sai.
 
-Nhưng mà Trần Bình An lại một lần nữa thực sự cảm thấy rõ ràng loại tuyệt vọng này, có một người đuổi theo, chẳng những mang đến cho Trần Bình An một cái bao lớn đựng áo bông nặng nề cùng lương khô đồ ăn, thiếu niên cao lớn kia còn chửi ầm lên lão nhân hắn đường đường chính chính bái sư dập đầu, không phải thứ gì tốt.
+Hắn buông bát rượu, xuất thần nhớ tới Diêu lão nhân thích một mình lồng hai tay trong tay áo.
 
-Trần Bình An hơi không để ý, liền bị người ta đưa tay ghìm chặt cổ, bị kéo ngửa ra sau.
+Lần đầu theo lão nhân vào núi tìm đất nung sứ, bỗng gặp trận tuyết lớn, gió lạnh thấu xương, tuyết ngập đến đầu gối. Thiếu niên giày rơm áo mỏng thiếu chút nữa bị đông chết.
 
-Người nọ chẳng những chưa thấy tốt đã thu, cánh tay kia ngược lại tăng thêm lực đạo, một bàn tay khác dùng sức xoa đầu Trần Bình An, cười to nói: "Hôm nay vóc dáng cao lớn lắm! Đã hỏi ta đáp ứng chưa?!"
+Lão nhân trầm mặc đi phía trước, chỉ chậm bước lại, hiếm khi nói thêm vài câu:
 
-Hốc mắt Trần Bình An phiếm hồng, lẩm bẩm nói: "Sao bây giờ mới tới."
+- Mùa đông đi đường núi, trời lạnh thế này, vất vả kiếm được chút tiền mà không nỡ lấy ra một đồng, định để mình chết cóng sao?
 
-Trên đời này, người duy nhất có thể khoa tay múa chân đối với Trần Bình An, hơn nữa Trần Bình An cũng nguyện ý đi nghe, đến Kiếm Khí Trường Thành.
+- Trời lạnh đường xa, tự mặc thêm chút quần áo, chuyện đó cũng không nghĩ ra? Cha mẹ không dạy thì chính mình không biết nghĩ sao?
+
+Trên đường gió tuyết tựa như không có điểm cuối, thiếu niên chịu khổ còn phải nghe lời khó nghe, muốn khóc cũng không khóc nổi. Lão nhân từ đầu đến cuối không quản sống chết của Trần Bình An.
+
+Nhưng ngay lúc Trần Bình An một lần nữa thật sự cảm nhận được tuyệt vọng, có người đuổi theo. Người ấy không chỉ mang tới một bọc lớn đựng áo bông dày và lương khô, thiếu niên cao lớn còn chửi ầm lên rằng lão nhân hắn đường đường chính chính dập đầu bái sư chẳng phải thứ tốt lành gì.
+
+Trần Bình An hơi lơ đãng, đột nhiên bị người ta đưa tay ghì cổ kéo ngửa ra sau. Người nọ chẳng những không buông, cánh tay còn dùng thêm sức, bàn tay kia ra sức xoa đầu hắn, cười lớn:
+
+- Bây giờ cao lớn lắm rồi nhỉ! Đã hỏi ta đồng ý chưa?!
+
+Hốc mắt Trần Bình An đỏ lên, lẩm bẩm:
+
+- Sao bây giờ mới tới?
+
+Trên đời này, người duy nhất có thể khoa tay múa chân với Trần Bình An, mà Trần Bình An cũng sẵn lòng nghe theo, đã đến Kiếm Khí Trường Thành.
 
 Bởi vì hắn là Lưu Tiện Dương.

@@ -1,115 +1,241 @@
 # Chương 682: Không có ta Lưu Tiện Dương liền không được
 
-Khâu Liễn và Lưu Nga đều rất khiếp sợ, bởi vì nhị chưởng quầy Kiếm Khí Trường Thành chưa bao giờ bị người ta khi dễ như vậy, hình như vĩnh viễn chỉ có nhị chưởng quầy lừa gạt người khác.
+Khâu Liễn và Lưu Nga đều kinh ngạc. Nhị chưởng quầy Kiếm Khí Trường Thành chưa từng bị ai bắt nạt như vậy, trước nay hình như chỉ có nhị chưởng quầy lừa người khác.
 
-Một đứa bé như miếng đào che chở cho quán rượu, có thể giúp chị Thiên Chướng và Nhị chưởng quầy mỗi ngày kiếm tiền, đó là nguyện vọng lớn nhất của nó. Nhưng lúc này miếng đào đã bỏ qua cơ hội bênh vực lẽ phải, lặng lẽ bưng bát đĩa rời khỏi bàn rượu, không nhịn được quay đầu lại nhìn. Đứa bé cảm thấy người thanh niên cao lớn, mặc áo xanh kia thật lợi hại, sau này mình cũng phải trở thành người như vậy, ngàn vạn lần không nên trở thành người như Nhị chưởng quỹ, cho dù thường xuyên cười to nói chuyện với người khác ở quán rượu này, rõ ràng mỗi ngày đều kiếm được nhiều tiền như vậy, nhưng khi còn trẻ người trong Kiếm Khí Trường Thành đã có bộ dáng như hôm nay, tâm sự nặng nề, không được vui vẻ.
+Đào Bản một lòng che chở quán rượu, nguyện vọng lớn nhất là giúp Thiên Chướng tỷ tỷ và nhị chưởng quầy mỗi ngày kiếm được nhiều tiền. Nhưng lần này đứa trẻ bỏ qua cơ hội bênh vực lẽ phải, lặng lẽ bưng bát đĩa rời khỏi bàn, đi được mấy bước lại không nhịn được quay đầu nhìn.
 
-Lưu Tiện Dương buông Trần Bình An ra, ngồi ở bên cạnh Trần Bình An đã nhường ra vài vị trí ghế dài, ngoắc tay nói với bàn đào: "Tiểu hỏa kế kia, cầm thêm một bình rượu ngon cùng một chén rượu, sổ sách ghi ở trên đầu Trần Bình An."
+Nó cảm thấy thanh niên áo xanh cao lớn kia thật lợi hại. Sau này mình cũng phải trở thành người như thế, tuyệt đối không học nhị chưởng quầy. Dù thường ngày ở quán rượu nhị chưởng quầy hay cười nói với người ta, mỗi ngày rõ ràng cũng kiếm được rất nhiều tiền, nhưng tuổi còn trẻ mà đã mang dáng vẻ của người ở Kiếm Khí Trường Thành, tâm sự nặng nề, chẳng được vui vẻ.
 
-Đào Bản nhìn về phía Nhị chưởng quầy, Nhị chưởng quầy nhẹ nhàng gật đầu, Đào Bản liền đi cầm một bình Trúc Hải Động Thiên tửu rẻ nhất. Tuy nói không quá hy vọng biến thành Nhị chưởng quỹ, nhưng Nhị chưởng quầy kinh doanh, vô luận bán rượu hay là tọa trang, hoặc là quyền vấn kiếm, vẫn là lợi hại nhất, Đào Bản cảm thấy những chuyện này vẫn có thể học được, nếu không mình sau này còn làm sao cùng Phùng Khang Nhạc đoạt vợ.
+Lưu Tiện Dương buông Trần Bình An ra, ngồi xuống chiếc ghế dài bên cạnh. Trần Bình An đã nhích ra nhường chỗ cho hắn. Lưu Tiện Dương ngoắc tay gọi Đào Bản:
 
-Trong bầu rượu kia của Trần Bình An còn có rượu, rót giúp Lưu Tiện Dương một chén, hỏi: "Sao lại tới nơi này?"
+- Tiểu hỏa kế, lấy thêm một bình rượu ngon với một cái bát, ghi sổ cho Trần Bình An.
 
-Lưu Tiện Dương không vội đưa ra đáp án, nhấp một ngụm rượu, run rẩy, sầu bi nói: "Quả nhiên vẫn là không quen uống rượu tiên gia, một cái tiện mệnh, cả đời chỉ cảm thấy rượu gạo nếp ủ ngon."
+Đào Bản nhìn nhị chưởng quầy, thấy hắn khẽ gật đầu mới đi lấy một bình Trúc Hải Động Thiên tửu rẻ nhất. Tuy không muốn trở thành người như nhị chưởng quầy, nhưng chuyện làm ăn của nhị chưởng quầy, từ bán rượu, làm chủ sòng đến đánh cược quyền kiếm, đều lợi hại nhất. Đào Bản cảm thấy những chuyện ấy vẫn phải học, bằng không sau này lấy gì tranh vợ với Phùng Khang Nhạc?
 
-Trần Bình An cười nói: "Rượu nếp Đổng Thủy Tỉnh thật ra có mang theo chút, chẳng qua uống hết cho ta."
+Trong bầu rượu của Trần Bình An vẫn còn rượu. Hắn rót cho Lưu Tiện Dương một bát, hỏi:
 
-Lưu Tiện Dương dùng khuỷu tay nện ở đầu vai Trần Bình An, "Vậy ngươi nói cái rắm."
+- Sao ngươi lại tới đây?
 
-Trần Bình An xoa xoa bả vai, tự uống rượu.
+Lưu Tiện Dương không vội đáp, nhấp một ngụm rượu, run người, buồn rầu nói:
 
-Lưu Tiện Dương uống một hớp rượu lớn, nâng mu bàn tay lên lau khóe miệng, nhếch ngón tay cái lên, chỉ chỉ con đường lớn phía sau mình, "Theo các bạn cùng trường cùng nhau tới bên này du lịch, trên đường mới biết được Kiếm Khí Trường Thành lại đánh trận, dọa ta gần chết, chỉ sợ các tiên sinh phu tử nhiệt huyết sôi lên, muốn từ trong bụng no bụng thi thư, lấy ra mấy cân hạo nhiên chính khí cho các học sinh nhìn một cái, sau đó hì hục mang theo chúng ta đi đầu tường giết yêu, thật ra ta muốn tránh ở trong tứ đại nhà riêng Xuân Phiên trai của Đảo Huyền sơn, Một lòng đọc sách, sau đó xa xa nhìn Viên Nhựu Phủ, Mai hoa viên tử cùng Thủy Tinh cung tề danh với Xuân Phiên Trai, nhưng tiên sinh cùng đồng môn ai cũng đại nghĩa lẫm liệt, ta là người tốt xấu, mạng có thể bị đánh rớt một nửa, nhưng mà mặt tuyệt đối không thể bị người ta đánh sưng, liền kiên trì đi theo. Đương nhiên, ở Xuân Phiên Trai bên kia nghe không ít sự tích của ngươi, đây là nguyên nhân quan trọng nhất, ta phải khuyên nhủ ngươi, không thể để ngươi giày vò như vậy."
+- Quả nhiên vẫn không quen uống rượu tiên gia. Ta là cái mạng hèn, cả đời chỉ thấy rượu gạo nếp ủ là ngon.
 
-Trần Bình An không nói lời nào, chỉ uống rượu.
+Trần Bình An cười nói:
 
-Trên đời này người nói dông dài nhất, chính là Lưu Tiện Dương.
+- Rượu nếp của Đổng Thủy Tỉnh, ta thật ra có mang theo một ít, chẳng qua uống hết rồi.
 
-Trần Bình An lĩnh giáo rất nhiều năm.
+Lưu Tiện Dương thúc khuỷu tay vào vai hắn:
 
-Năm đó ba người ở chung, đại khái chính là Lưu Tiện Dương và Cố Xán một lời không hợp liền cãi nhau, Trần Bình An cũng lười khuyên can, nghe mà thấy, dù sao một lớn một nhỏ, tranh cãi cũng không ồn ào đến đâu, Lưu Tiện Dương cãi nhau với người ta hình như cho tới bây giờ chưa từng thua, bởi vì hắn căn bản không để ý thắng thua của cãi nhau, vĩnh viễn cười hì hì vui tươi, Cố Xán thường thường rõ ràng ngoài miệng cãi nhau đã thắng, mắng mười tám đời tổ tông Lưu Tiện Dương một lần, kết quả đến cuối cùng vẫn là Cố Xán tự mình càng thêm uất ức, liền đuổi theo Lưu Tiện Dương đánh, tức giận, Cố Xán sẽ chép cành cây, đập đá, Lưu Tiện Dương cho dù không cẩn thận bị đá đập trúng, cũng không tức giận. Cố Xán từng nói, Lưu Tiện Dương người này không tốt chút nào, cùng mệnh tiện mệnh mệnh mệnh mệnh mệnh mệnh côn quang, duy nhất coi như tạm được, chính là không ghi thù, càng không ỷ vào khí lực lớn sẽ đánh người.
+- Vậy ngươi nói cái rắm.
 
-Lúc ấy, ba người sống nương tựa lẫn nhau, thật ra đều có cách sống của mình, đạo lý của ai cũng sẽ không lớn hơn, cũng không có gì rõ ràng đúng sai thị phi, Lưu Tiện Dương thích nói ngụy biện, Trần Bình An cảm thấy mình căn bản không hiểu đạo lý, Cố Xán cảm thấy đạo lý chính là khí lực lớn nắm đấm cứng, trong nhà có tiền, bên cạnh có nhiều chó săn, ai cũng có đạo lý, Lưu Tiện Dương và Trần Bình An chỉ là lớn tuổi hơn hắn mà thôi, hai người đời này có thể cưới được vợ hay không cũng khó nói là kẻ nghèo khổ, đạo lý ở đâu ra.
+Trần Bình An xoa vai, tự uống rượu.
 
-Nhưng lúc ấy, lên cây bắt chim, xuống sông mò cá, cùng nhau cắm mạ giành nước, từ trong khe hở phơi lúa hái hạt đậu kia, ba người luôn vui vẻ nhiều thời gian hơn một chút.
+Lưu Tiện Dương uống một hớp lớn, lấy mu bàn tay lau khóe miệng, hất ngón cái chỉ con đường phía sau:
 
-Trần Bình An uống rượu ở giữa khoảng thời gian Lưu Tiện Dương uống rượu, lúc này mới hỏi: "Ở chỗ thuần nho Trần thị bên kia cầu học đọc sách, sống thế nào?"
+- Ta cùng đồng môn tới đây du lịch, giữa đường mới biết Kiếm Khí Trường Thành lại đánh trận, dọa ta gần chết. Chỉ sợ các vị tiên sinh, phu tử nhiệt huyết dâng trào, lấy mấy cân hạo nhiên chính khí từ trong bụng đầy thi thư ra cho học trò nhìn, rồi hùng hục dẫn chúng ta lên đầu tường giết yêu.
 
-Lưu Tiện Dương cười nói: "Cái gì mà thế nào chẳng ra sao cả, hơn mười năm qua, không phải đều tới rồi sao, có thể kém hơn so với ở trấn nhỏ bên kia sao?"
+- Thật ra ta muốn trốn trong Xuân Phiên trai, một trong bốn tòa nhà riêng ở Đảo Huyền sơn, yên lòng đọc sách, rồi từ xa nhìn Viên Nhựu phủ, Mai Hoa viên tử và Thủy Tinh cung nổi danh ngang với Xuân Phiên trai. Nhưng tiên sinh và đồng môn ai nấy đều đại nghĩa lẫm liệt. Ta tốt xấu gì cũng là người, mạng có thể mất nửa cái, mặt thì tuyệt đối không thể để người ta đánh sưng, đành phải cắn răng theo tới.
 
-Lưu Tiện Dương tựa như uống không quen Trúc Hải Động Thiên tửu, phần nhiều là nhấp ngụm rượu nhỏ, "Cho nên ta là không hối hận rời khỏi trấn nhỏ chút nào, nhiều nhất chính là lúc nhàm chán, suy nghĩ một chút về cảnh sắc quê nhà bên kia, ruộng hoa, chỗ ở long diêu lộn xộn, phân gà phân chó trong ngõ nhỏ, nghĩ cũng nghĩ, nhưng cũng chỉ là tùy tiện suy nghĩ một chút, không có nhiều cảm giác hơn, nếu không phải có chút nợ cũ còn phải tính toán một chút, còn có người muốn gặp một lần, ta cũng không cảm thấy cần phải về Bảo Bình châu, về làm cái gì, không có gì sức lực."
+- Đương nhiên, ở Xuân Phiên trai ta nghe không ít chuyện của ngươi. Đây mới là nguyên nhân quan trọng nhất. Ta phải khuyên ngươi, không thể để ngươi tự giày vò như vậy.
 
-Lưu Tiện Dương lắc đầu, lặp lại: "Thực sự không có gì."
+Trần Bình An không nói gì, chỉ uống rượu.
 
-Trần Bình An đột nhiên chỉ nói ra một cái tên, rồi không nói nữa, "Cố Xán."
+Người dông dài nhất trên đời chính là Lưu Tiện Dương. Trần Bình An đã lĩnh giáo nhiều năm.
 
-Lưu Tiện Dương cười nhạo nói: "Tiểu thò mũi xanh từ nhỏ đã nghĩ ngươi làm cha cho hắn, ngươi thật sự coi mình là cha hắn à, đầu óc có bệnh à, không giết thì không giết, lương tâm bất an, ngươi tự tìm, chịu lấy, nếu giết thì giết, trong lòng hối hận, ngươi cũng chịu đựng cho ta, lúc này sao đây, từ nhỏ đến lớn, ngươi không phải vẫn cứ như vậy sao? Như thế nào, bản lãnh lớn rồi, đọc sách ngươi chính là quân tử thánh hiền, học quyền tu rồi, ngươi chính là sơn thượng thần tiên?"
+Năm ấy ba người ở cùng nhau, Lưu Tiện Dương và Cố Xán hơi không hợp ý là cãi vã. Trần Bình An cũng lười khuyên can, chỉ ngồi nghe. Dù sao một lớn một nhỏ, cãi nhau cũng chẳng đến mức nào.
 
-Lưu Tiện Dương nói đến phát cáu, một bàn tay đẩy lên đầu Trần Bình An, "Cố Xán? Con sên nhỏ cũng không muốn kêu nữa?!"
+Lưu Tiện Dương dường như chưa từng thua khi cãi nhau với người khác, bởi hắn căn bản không quan tâm thắng thua, lúc nào cũng cười hì hì. Cố Xán thường rõ ràng đã thắng trên miệng, mắng hết mười tám đời tổ tông Lưu Tiện Dương, nhưng cuối cùng người càng thêm uất ức vẫn là Cố Xán, bèn đuổi theo đánh hắn.
 
-Lưu Tiện Dương càng nói càng giận, rót rượu cũng không uống, hùng hùng hổ hổ nói: "Cũng chính là ngươi lề mề, thích không có việc gì tìm việc. Đổi là ta, Cố Xán rời khỏi trấn nhỏ, bản lãnh lớn như vậy, làm cái gì cũng liên quan rắm gì tới ta. Ta chỉ quen biết con sên nhỏ ngõ Nê Bình, hắn làm tiểu ma đầu Thư Giản hồ, lạm sát kẻ vô tội., Mình muốn chết thì đi chết, dựa vào làm chuyện xấu, cuộc sống sống tốt đẹp với ai cũng đều khác, đó cũng là bản lãnh con sên nhỏ, là thư giản hồ chướng khí mù mịt, có tai ương này ai đi ngăn cản? Lưu Tiện Dương ta là làm thịt ai hay là hại ai? Trần Bình An ngươi đọc qua vài quyển sách, mọi chuyện đều lấy đạo đức thánh hiền yêu cầu mình làm người? Ngươi lúc ấy là một gã ngoài cửa ngay cả môn sinh nho gia cũng không tính, khí phách ngút trời như vậy, các quân tử nho gia kia còn không phải ai cũng phi thăng lên trời? Lưu Tiện Dương ta con em nho gia chính nhi bát kinh, cùng Trần thị lão tổ tông vai gánh nhật nguyệt kia., Còn không phải là sớm bảy trăm tám năm đã tới Kiếm Khí Trường Thành giết yêu sao? Bằng không thì phải tự mình xoắn xuýt đến chết oan uổng cho chính mình? Ta thật không hiểu, tại sao ngươi lại sống thành một tên Trần Bình An như vậy, ta nhớ rõ khi còn bé, ngươi cũng không như vậy a, chuyện nhàn hạ gì cũng không quản, lời đồn cũng không thích nói một câu, là ai dạy ngươi? Tề tiên sinh trường học kia? Hắn chết rồi, ta không nói được hắn, hơn nữa người chết là lớn nhất. Văn Thánh lão tú tài? Được rồi, lát nữa ta đi mắng hắn. Đại kiếm tiên Tả Hữu? Thôi đi, cách quá gần, ta sợ hắn đánh ta."
+Khi tức giận, Cố Xán sẽ nhặt cành cây, ném đá. Lưu Tiện Dương có lỡ bị đá ném trúng cũng không tức giận. Cố Xán từng nói Lưu Tiện Dương chẳng có gì tốt, là kẻ nghèo kiết xác, tiện mệnh lại lưu manh[?]. Chỗ duy nhất tạm được là không ghi thù, cũng không ỷ vào sức lớn mà đánh người.
 
-Trần Bình An rốt cuộc mở miệng nói một câu, "Ta vẫn luôn là chính mình năm đó."
+Khi ấy ba người nương tựa vào nhau, thật ra ai cũng có cách sống riêng. Đạo lý của ai cũng không lớn hơn ai, chẳng có đúng sai rõ ràng. Lưu Tiện Dương thích ngụy biện, Trần Bình An cảm thấy mình căn bản không hiểu đạo lý.
 
-Lưu Tiện Dương giơ tay lên, Trần Bình An theo bản năng né tránh.
+Cố Xán thì cho rằng đạo lý chính là sức lớn, nắm đấm cứng, trong nhà có tiền, bên cạnh có nhiều chó săn. Những kẻ ấy mới có đạo lý. Lưu Tiện Dương và Trần Bình An chẳng qua lớn tuổi hơn hắn, đều là kẻ nghèo khổ, đời này có cưới nổi vợ hay không còn khó nói, lấy đâu ra đạo lý?
 
-Lưu Tiện Dương trợn mắt, giơ bát rượu lên uống ngụm rượu, "Biết một sự kiện ta không thể tưởng tượng nhất, là cái gì không? Không phải ngươi có của cải hôm nay, nhìn qua có vẻ như có tiền, thành một trong những người có tiền có tiền nhất trong đám chúng ta năm đó, bởi vì ta rất sớm cho rằng, Trần Bình An khẳng định sẽ trở nên có tiền, rất có tiền, cũng không phải ngươi nhìn phong cảnh hôm nay mà thấy thảm trạng đáng thương như vậy, bởi vì ta biết ngươi cho tới bây giờ chính là một người thích để tâm vào chuyện vụn vặt."
+Nhưng những lúc cùng nhau lên cây bắt chim, xuống sông mò cá, cắm mạ giành nước, nhặt hạt đậu trong khe sân phơi lúa[?], ba người vẫn có nhiều lúc vui vẻ hơn.
 
-Lưu Tiện Dương giơ bát rượu, "Một chuyện ta không thể tưởng được nhất, là ngươi học uống rượu, thật đúng là thích uống rượu."
+Nhân lúc Lưu Tiện Dương uống rượu, Trần Bình An mới hỏi:
 
-Lưu Tiện Dương nhấc bát rượu lên lại đặt lên bàn, hắn thực sự không thích uống rượu, thở dài, "Con sên nhỏ biến thành bộ dáng này, Trần Bình An và Lưu Tiện Dương, thật ra thì phải làm thế nào đây? Ai mà không có cuộc sống của mình phải trải qua chứ. Có nhiều thứ chúng ta mặc kệ dụng tâm dùng sức như thế nào, chính là làm không được chuyện tốt, vẫn luôn là như vậy, thậm chí về sau còn sẽ luôn như thế. Chúng ta những năm tháng đáng thương nhất, không phải cũng sống qua sao."
+- Ở chỗ thuần nho Trần thị cầu học, ngươi sống thế nào?
 
-Lưu Tiện Dương đưa tay đè đầu Trần Bình An, "Ngươi giúp tiểu thò lò mũi xanh làm nhiều chuyện bù lại sai lầm như vậy, tốt lắm, tốt đến không thể tốt hơn nữa. Ta rốt cuộc là từng đọc mấy quyển sách thánh hiền, biết trên đời này thiếu loại kẻ ngốc tự mình ôm phiền toái vào thân như ngươi."
+Lưu Tiện Dương cười nói:
 
-Lưu Tiện Dương nhẹ nhàng nâng tay, sau đó vỗ một cái, "Nhưng mà đến bây giờ ngươi còn khó chịu như vậy, thật không tốt, không thể càng không tốt. Giống ta, Lưu Tiện Dương đầu tiên là Lưu Tiện Dương, mới là người đọc sách gà mờ kia, cho nên ta chỉ không hy vọng ngươi biến thành kẻ ngốc kia. Loại tư tâm này, chỉ cần không hại người, cho nên đừng sợ cái này."
+- Thế nào là thế nào? Hơn mười năm cũng qua rồi, chẳng lẽ còn kém lúc ở trấn nhỏ?
 
-Trần Bình An nói: "Đạo lý ta đều biết."
+Hắn dường như không quen uống Trúc Hải Động Thiên tửu, phần lớn chỉ nhấp từng ngụm nhỏ:
 
-Lưu Tiện Dương cười khổ nói: "Chỉ là không làm được, hoặc là cảm thấy mình làm không tốt, đúng không? Cho nên càng khó chịu?"
+- Cho nên ta chẳng hối hận vì rời trấn nhỏ. Cùng lắm lúc buồn chán thì nhớ tới cảnh quê nhà, ruộng hoa, nơi ở lộn xộn bên lò rồng, phân gà phân chó trong ngõ nhỏ. Nghĩ thì có nghĩ, nhưng chỉ tùy tiện nhớ một chút, không có cảm giác gì hơn.
 
-Trần Bình An gật gật đầu: "Thật ra một cửa kia của Cố Xán, ta đã sớm vượt qua tâm quan, chính là nhìn thấy nhiều cô hồn dã quỷ như vậy, sẽ nghĩ đến năm đó ba người chúng ta, chính là nhịn không được sẽ cảm động lây, sẽ nghĩ đến Cố Xán trúng một cước như vậy, một đứa nhỏ nhỏ như vậy, đau đến mức lăn lộn đầy đất, thiếu chút nữa đã chết, sẽ nghĩ đến Lưu Tiện Dương năm đó thiếu chút nữa bị người ta đánh chết ở trong ngõ Nê Bình, cũng sẽ nghĩ đến mình thiếu chút nữa chết đói, là dựa vào cơm trăm nhà hàng xóm láng giềng, để nổi danh, cho nên ở Thư Giản hồ, đã muốn làm thêm chút gì đó, ta cũng không hại người, ta cũng có thể tận lực tự bảo vệ mình, trong lòng muốn làm, lại có thể làm một chút thì phải làm một chút, vì sao không làm chứ?"
+- Nếu không phải còn mấy món nợ cũ cần tính, còn có người muốn gặp, ta cũng chẳng thấy cần trở về Bảo Bình châu. Về làm gì, chẳng có ý nghĩa gì.
 
-Lưu Tiện Dương cũng khó chịu, chậm rãi nói: "Sớm biết như thế này, ta đã không rời khỏi quê nhà. Quả nhiên không có ta thì không được."
+Hắn lắc đầu, lặp lại:
 
-Một người có lý tưởng, thường thường cần rời quê hương.
+- Thật sự chẳng có gì.
 
-Thật vất vả đạt thành mộng tưởng, rồi lại khó tránh khỏi sẽ nhớ nhà ở trong mộng.
+Trần Bình An đột nhiên nói ra một cái tên, rồi không nói thêm:
 
-Nhưng Lưu Tiện Dương đối với quê nhà, tựa như chính hắn nói, không có quá nhiều hoài niệm, cũng không có cái gì khó có thể tiêu tan.
+- Cố Xán.
 
-Nhiều nhất chính là lo lắng Trần Bình An cùng con sên nhỏ, nhưng mà đối với phần ý niệm kia của người sau, lại xa xa không bằng Trần Bình An.
+Lưu Tiện Dương cười nhạo:
 
-Đối với Lưu Tiện Dương mà nói, cuộc sống của mình trôi qua không tệ, thật ra chính là những lời giải thích lớn nhất đối với Lưu gia, hàng năm đều viếng mồ mả kính rượu, xuân tiết dán môn thần gì đó, cùng với cái gì tổ trạch tu sửa loại này, Lưu Tiện Dương từ nhỏ đã không để trong lòng bao nhiêu, rất qua loa, lần lượt tháng giêng cùng viếng mồ mả thanh minh, đều thích cọ chút tiền giấy có sẵn với Trần Bình An, Trần Bình An cũng từng nhắc tới một hai câu..., Đều bị Lưu Tiện Dương đẩy trở về, nói ta là độc đinh của Lưu gia, về sau có thể giúp Lưu gia khai chi tán diệp, hương khói không ngừng, các lão tổ tông ở dưới đất nên cười như nở hoa, còn dám hy vọng xa vời một đứa con cháu lẻ loi hiu quạnh kiếm ăn như thế nào? Nếu thật sự nguyện ý phù hộ Lưu Tiện Dương hắn, nhớ tới nửa điểm tốt của con cháu Lưu gia lão Lưu, vậy thì nhanh chóng báo cho Mộng Nhi, nói trấn nhỏ nơi nào chôn giấu mấy bình bạc lớn, phát tài, đừng nói là đốt một chậu tiền giấy nhỏ, mấy chậu lớn người giấy ngựa đều có.
+- Thằng nhóc thò lò mũi xanh từ nhỏ đã muốn ngươi làm cha nó, ngươi thật coi mình là cha nó à? Đầu óc có bệnh sao? Không giết thì thôi, lương tâm bất an là ngươi tự tìm, tự chịu. Nếu giết rồi hối hận thì cũng tự chịu cho ta. Từ nhỏ đến lớn ngươi chẳng phải vẫn như vậy sao?
 
-Lưu Tiện Dương tâm vẫn rất lớn, lớn đến nỗi năm đó thiếu chút nữa bị người ta đánh chết, cũng có thể tự mình nói giỡn, mặc dù tiểu sên phát triển cũng hoàn toàn không sao cả, tâm nhãn của tiểu sên vẫn còn nhỏ hơn lỗ kim. Rất nhiều người ghi thù, cuối cùng sẽ biến thành từng chuyện không sao cả, xóa bỏ, lật xem, nhưng có một số người ghi thù, cả đời đều trừng mắt to nhìn sổ sách, không có việc gì thì lật qua lật lại, hơn nữa cảm thấy thoải mái, không có nửa điểm không thoải mái, ngược lại đây mới thật sự là phong phú.
+- Thế nào, bản lĩnh lớn rồi, đọc sách thì thành quân tử thánh hiền, học quyền tu hành thì thành thần tiên trên núi?
 
-Lưu Tiện Dương nói: "Chỉ cần chính ngươi tự mình khắc nghiệt cầu xin, thế nhân sẽ càng ngày càng nghiêm khắc. Càng về sau, người rảnh rỗi ăn no cố gắng kén chọn người tốt, sẽ chỉ càng ngày càng nhiều, thế đạo càng tốt, nói ra nói vào chỉ càng nhiều, bởi vì thế đạo tốt, mới có khí lực nói ra nói vào, thế đạo cũng càng thêm dung ý riêng tư. Thế đạo thật không tốt, tự nhiên đều ngậm miệng, ăn cơm no cũng không dễ dàng, binh hoang mã loạn, nào có thời gian rảnh đi quản người tốt xấu, sống chết của mình cũng không để ý tới. Chút đạo lý này, hiểu không?"
+Nói đến phát cáu, Lưu Tiện Dương đưa tay đẩy đầu Trần Bình An:
 
-Trần Bình An gật gật đầu.
+- Cố Xán? Một tiếng con sên nhỏ cũng không muốn gọi nữa?!
 
-Lưu Tiện Dương tiếp tục nói: "Nếu ngươi cảm thấy thận trọng một chuyện, là đại sự hạng nhất, cảm thấy Trần Bình An nên biến thành một người tốt hơn, ta cũng lười khuyên ngươi nhiều, dù sao người chưa chết, là được. Cho nên ta chỉ cầu ngươi làm được một chuyện, đừng chết."
+Hắn càng nói càng giận, rót rượu mà chẳng uống, hùng hổ nói:
 
-Trần Bình An nói: "Bất ngờ quá nhiều, cố gắng hết sức tranh thủ."
+- Chỉ có ngươi lề mề, thích không có việc tìm việc. Đổi thành ta, Cố Xán rời khỏi trấn nhỏ, bản lĩnh lớn như thế, nó làm gì thì liên quan cái rắm đến ta? Ta chỉ quen con sên nhỏ ở ngõ Nê Bình.
 
-Lưu Tiện Dương nhíu nhíu mày, "Tề tiên sinh trường tư tuyển ngươi, hộ tống đám hài tử kia đi cầu học, Văn Thánh lão tú tài chọn ngươi, làm quan môn đệ tử, Lạc Phách sơn nhiều người chọn ngươi như vậy, làm sơn chủ, Trữ Diêu chọn ngươi, thành thần tiên đạo lữ. Những lý do này có lớn hơn nữa, cũng không phải lý do để ngươi chết ở chỗ này, chết ở trong trận đại chiến này. Nói câu khó nghe, những người chọn ngươi sẽ chọn ngươi., Không ai hy vọng ngươi chết ở Kiếm Khí Trường Thành. Ngươi cho rằng mình là ai? Kiếm Khí Trường Thành có thêm một Trần Bình An, nhất định sẽ giữ được? Thiếu một Trần Bình An, nhất định không giữ được? Không có đạo lý rắm chó như vậy, ngươi cũng đừng nói với ta những thứ có vô Trần Bình An, làm thêm một chút đạo lý là một chút, ta còn không hiểu ngươi? Ngươi chỉ cần muốn làm một việc, sẽ thiếu lý do? Trước kia ngươi chưa từng đọc sách, đã một bộ lại một bộ, hôm nay đọc chút sách, khẳng định càng có thể lừa mình dối người. Ta hỏi ngươi một chuyện, rốt cuộc có muốn sống rời khỏi nơi này hay không, làm tất cả những gì, có phải đều là vì còn sống rời khỏi Kiếm Khí Trường Thành hay không."
+- Nó làm tiểu ma đầu ở Thư Giản hồ, lạm sát người vô tội, muốn chết thì cứ đi chết. Dựa vào làm chuyện xấu mà sống tốt hơn người khác, đó cũng là bản lĩnh của con sên nhỏ[?]. Thư Giản hồ chướng khí mù mịt, có tai họa này thì ai ngăn được? Lưu Tiện Dương ta đã giết ai hay hại ai?
 
-Trần Bình An im lặng không lên tiếng.
+- Trần Bình An ngươi đọc mấy quyển sách, chuyện gì cũng lấy đạo đức thánh hiền mà đòi hỏi bản thân? Khi ấy ngươi còn là người ngoài cửa, ngay cả môn sinh Nho gia cũng không tính, đã có khí phách lớn như vậy, thế các quân tử Nho gia chẳng phải ai nấy đều nên phi thăng lên trời?
 
-Lưu Tiện Dương hỏi: "Vậy là không còn. Dựa vào đánh bạc vận khí? Đánh cuộc kiếm khí Trường Thành giữ được, Trữ Diêu không chết, Tả Hữu không chết, tất cả bằng hữu mới quen biết ở bên này sẽ không chết? Trần Bình An ngươi có phải cảm thấy sau khi rời khỏi quê nhà, quá mức trôi chảy, rốt cuộc con mẹ nó khi đến vận chuyển, đã từ một người vận khí kém nhất năm đó, biến thành người vận khí tốt nhất hay không? Vậy ngươi có nghĩ tới hay không, ngươi bây giờ trên tay có càng nhiều, kết quả người vừa chết, Game Over rồi, ngươi vẫn là kẻ đáng thương vận khí kém nhất kia như trước?"
+- Lưu Tiện Dương ta là con em Nho gia đứng đắn, cùng lão tổ tông Trần thị vai gánh nhật nguyệt kia, chẳng phải nên đến Kiếm Khí Trường Thành giết yêu từ bảy tám trăm năm trước[?]? Bằng không phải tự giày vò mình đến chết oan sao?
 
-Trần Bình An phá lệ cả giận nói: "Vậy ta nên làm gì bây giờ?! Đổi thành ngươi là ta, ngươi nên làm như thế nào?!"
+- Ta thật không hiểu, tại sao ngươi lại sống thành một Trần Bình An như thế. Ta nhớ khi còn bé ngươi đâu có như vậy, chuyện không liên quan chẳng buồn quản, lời đồn cũng không thích nói một câu. Ai dạy ngươi? Tề tiên sinh ở trường học? Hắn đã mất, ta không nói hắn được, hơn nữa người chết là lớn nhất. Văn Thánh lão tú tài? Được, lát nữa ta đi mắng hắn. Đại kiếm tiên Tả Hữu? Thôi đi, gần quá, ta sợ hắn đánh ta.
 
-Lưu Tiện Dương vẻ mặt bình tĩnh, nói: "Đơn giản mà, trước nói với Trữ Diêu, cho dù kiếm khí Trường Thành không thủ được, hai người đều phải sống sót, trong lúc đó, có thể hết sức đi làm việc, xuất kiếm ra quyền không lưu lực. Cho nên phải hỏi Trữ Diêu rốt cuộc là nghĩ như thế nào, là kéo Trần Bình An cùng chết ở bên này, làm vong mạng uyên ương, vẫn là hy vọng chết một người đi một người, bớt một người chết chính là lời, hoặc là hai người đồng tâm đồng lực, tranh thủ hai người đều có thể đi không thẹn với lương tâm., Nguyện ý nghĩ cho dù hôm nay mắc nợ, tương lai bổ sung. Hỏi rõ ràng tâm tư Trữ Diêu, cũng không quản đáp án tạm thời là cái gì, đều phải đi hỏi sư huynh rốt cuộc là nghĩ như thế nào, hy vọng tiểu sư đệ làm như thế nào, là kế thừa hương khói nhất mạch Văn Thánh không ngừng, hay là lấy thân phận đệ tử Văn Thánh nhất mạch, oanh oanh liệt liệt chết ở trên chiến trường, sư huynh cùng sư đệ, trước chết đi mà thôi. Cuối cùng lại đi hỏi lão đại kiếm tiên Trần Thanh Đô, nếu Trần Bình An ta muốn sống, có thể ngăn cản hay không, nếu không ngăn cản, còn có thể giúp một chút. Sinh tử chuyện lớn như vậy, mặt mũi tính là cái gì."
+Trần Bình An cuối cùng lên tiếng:
 
-Lưu Tiện Dương đẩy bát rượu của mình cho Trần Bình An, nói: "Quên rồi sao, ba người chúng ta năm đó ở quê nhà, ai có tư cách đi xin chút mặt mũi? Cầu người khác, người khác sẽ cho ngươi sao? Nếu là cầu thì người khác sẽ cho ngươi sao? Nếu là cầu, ba người chúng ta ai sẽ cảm thấy đó là chuyện đó? Tị trùng nước mũi nhỏ cầu người không được nhục mạ mẫu thân hắn, nếu cầu là được, ngươi xem năm đó con sên nhỏ có thể dập đầu được bao nhiêu? Nếu ngươi quỳ xuống đất dập đầu, có thể học thành tay nghề nung sứ, ngươi có đi dập đầu hay không? Nếu ta dập đầu, dập đầu thành hai cái đầu lớn., Có thể có tiền, thì có thể làm đại gia, ngươi xem ta không đập ra một cái hố to trên mặt đất? Như thế nào, hiện tại đã tìm ra chỗ tốt, sơn chủ trẻ tuổi của ngõ Nê Bình, Nhị chưởng quầy của Kiếm Khí Trường Thành, lại không muốn sống nữa? Rượu như vậy, ta uống không nổi. Lưu Tiện Dương ta đọc không ít sách, vẫn như cũ không quá biết xấu hổ, tự ti mặc cảm, trèo cao không lên Trần Bình An."
+- Ta vẫn luôn là ta năm đó.
 
-Trần Bình An vẻ mặt hoảng hốt, vươn tay, đẩy bát rượu trở về chỗ cũ.
+Lưu Tiện Dương giơ tay, Trần Bình An theo bản năng tránh đi.
 
-Hình như chuyện có thể làm, cũng chỉ có như thế.
+Lưu Tiện Dương trợn mắt, nâng bát uống một ngụm:
 
-Lưu Tiện Dương đưa tay cầm lên cái bát trắng, tiện tay ném ở trên mặt đất bên cạnh, bát trắng vỡ nát đầy đất, cười lạnh nói: "Bình An cái rắm chó, dù sao ta cũng sẽ không chết ở nơi này, về sau về quê nhà, yên tâm, ta sẽ đi viếng mộ thúc thúc thẩm thẩm bên kia, sẽ nói một câu, con trai các ngươi người không tệ, con dâu các ngươi cũng không tệ, cho dù cũng đã chết. Trần Bình An, ngươi cảm thấy bọn họ nghe được, có vui vẻ hay không?"
+- Biết chuyện khiến ta không ngờ nhất là gì không? Không phải ngươi có của cải như hôm nay, nhìn cũng giống người có tiền, trở thành một trong những người giàu nhất đám chúng ta năm đó. Bởi vì từ sớm ta đã nghĩ Trần Bình An nhất định sẽ có tiền, rất nhiều tiền.
 
-Trần Bình An cả người suy sụp ở bên kia, tâm khí, quyền ý, tinh khí thần đều suy sụp, chỉ lẩm bẩm nói: "Không biết. Nhiều năm qua, ta chưa từng mơ thấy cha mẹ một lần, một lần cũng không có."
+- Cũng không phải ngươi nhìn phong quang mà lại có bộ dạng đáng thương như bây giờ. Ta biết ngươi xưa nay thích để tâm vào những chuyện vụn vặt.
 
-Lưu Tiện Dương đột nhiên nở nụ cười, quay đầu hỏi: "Em dâu, nói như thế nào?"
+Lưu Tiện Dương nâng bát rượu:
 
-Phía sau Trần Bình An, có một cô gái phong trần mệt mỏi chạy tới bên này, đứng ở giữa tiểu thiên địa trầm mặc hồi lâu, rốt cuộc mở miệng nói: "Muốn Trần Bình An chết, ta để cho hắn chết trước. Trần Bình An tự mình muốn chết, ta thích hắn, chỉ đánh cho gần chết."
+- Chuyện ta không ngờ nhất là ngươi học uống rượu, còn thật sự thích uống.
+
+Hắn nâng bát lên rồi lại đặt xuống bàn. Hắn thật sự không thích uống rượu, thở dài nói:
+
+- Con sên nhỏ trở thành bộ dạng ấy, Trần Bình An và Lưu Tiện Dương chúng ta rốt cuộc có thể làm gì? Ai mà chẳng có cuộc sống của mình. Có rất nhiều chuyện, mặc kệ chúng ta dụng tâm dùng sức thế nào cũng không làm tốt được. Trước nay vẫn vậy, sau này thậm chí có lẽ cũng thế. Những năm tháng đáng thương nhất, chẳng phải chúng ta cũng đã sống qua sao?
+
+Lưu Tiện Dương đưa tay đè đầu Trần Bình An:
+
+- Ngươi giúp thằng nhóc thò lò mũi xanh làm nhiều chuyện để bù đắp sai lầm như vậy, tốt lắm, không thể tốt hơn. Dù sao ta cũng từng đọc mấy quyển sách thánh hiền, biết trên đời này thiếu những kẻ ngốc tự ôm phiền phức vào người như ngươi.
+
+Hắn khẽ nhấc tay, rồi vỗ xuống một cái:
+
+- Nhưng đến bây giờ ngươi vẫn khó chịu như vậy thì không tốt, không thể tệ hơn. Như ta đây, Lưu Tiện Dương trước tiên là Lưu Tiện Dương, sau mới là tên đọc sách gà mờ kia. Cho nên ta chỉ không muốn ngươi trở thành kẻ ngốc ấy. Chút tư tâm này, chỉ cần không hại người, thì đừng sợ.
+
+Trần Bình An nói:
+
+- Đạo lý ta đều biết.
+
+Lưu Tiện Dương cười khổ:
+
+- Chỉ là không làm được, hoặc cảm thấy mình làm không tốt, đúng không? Cho nên càng khó chịu?
+
+Trần Bình An gật đầu:
+
+- Thật ra cửa ải Cố Xán ấy, ta đã sớm vượt qua. Chỉ là nhìn thấy nhiều cô hồn dã quỷ như vậy, ta lại nhớ tới ba người chúng ta năm đó, không nhịn được mà cảm thấy như chính mình gặp phải.
+
+- Ta nhớ Cố Xán bị đá một cước, một đứa trẻ nhỏ như vậy đau đến lăn lộn dưới đất, suýt nữa chết. Cũng nhớ Lưu Tiện Dương năm ấy suýt bị người ta đánh chết trong ngõ Nê Bình, nhớ mình từng suýt chết đói, nhờ cơm trăm nhà của hàng xóm láng giềng mới sống được[?].
+
+- Cho nên ở Thư Giản hồ, ta muốn làm thêm một chút. Ta không hại người, cũng có thể cố hết sức tự bảo vệ mình. Trong lòng muốn làm, lại có thể làm được một chút thì làm một chút, vì sao không làm?
+
+Lưu Tiện Dương cũng thấy khó chịu, chậm rãi nói:
+
+- Sớm biết như vậy, ta đã không rời quê nhà. Quả nhiên không có ta thì không được.
+
+Người có lý tưởng thường phải rời khỏi quê hương. Thật vất vả đạt được mộng tưởng, rồi lại khó tránh khỏi nhớ nhà trong mộng.
+
+Nhưng Lưu Tiện Dương đối với quê nhà, tựa như chính hắn nói, không có quá nhiều hoài niệm, cũng không có gì khó buông bỏ. Cùng lắm là lo cho Trần Bình An và con sên nhỏ, nhưng nỗi lo dành cho người sau xa xa không bằng Trần Bình An.
+
+Với Lưu Tiện Dương, bản thân sống không tệ đã là lời ăn nói lớn nhất với Lưu gia. Những chuyện hàng năm viếng mộ kính rượu, Tết dán môn thần, hay sửa sang tổ trạch, từ nhỏ hắn đã không mấy để tâm, làm rất qua loa.
+
+Mỗi dịp tháng giêng và Thanh Minh tảo mộ, hắn đều thích xin ké chút tiền giấy của Trần Bình An. Trần Bình An từng nhắc một hai câu, đều bị hắn đáp trả:
+
+- Ta là độc đinh Lưu gia, sau này có thể giúp Lưu gia khai chi tán diệp, hương khói không dứt, các lão tổ tông dưới đất nên cười nở hoa rồi. Còn dám trông mong gì ở một đứa con cháu lẻ loi tự kiếm ăn như ta?
+
+- Nếu thật sự muốn phù hộ Lưu Tiện Dương ta, nhớ tới nửa điểm tốt của con cháu Lưu gia này, thì mau báo mộng cho ta, nói trong trấn nhỏ chỗ nào chôn mấy bình bạc lớn. Đến khi phát tài, đừng nói một chậu tiền giấy, mấy chậu lớn cùng người giấy ngựa giấy đều có.
+
+Lưu Tiện Dương lòng dạ rất rộng, rộng đến mức năm đó suýt bị người ta đánh chết cũng có thể đem ra nói đùa. Còn con sên nhỏ dù đã lớn, tâm nhãn vẫn nhỏ hơn lỗ kim.
+
+Có người ghi thù, cuối cùng từng chuyện đều trở thành không đáng kể, xóa đi, lật qua. Nhưng có người cả đời mở to mắt nhìn sổ nợ, không có việc gì lại giở ra xem, chẳng những không khó chịu mà còn cảm thấy thoải mái, ngược lại như thế mới thật sự thấy cuộc sống đủ đầy[?].
+
+Lưu Tiện Dương nói:
+
+- Chỉ cần ngươi tự khắt khe với mình, người đời sẽ càng ngày càng nghiêm khắc với ngươi. Về sau, những kẻ ăn no rảnh rỗi bới móc người tốt chỉ càng nhiều. Thế đạo càng tốt, lời bàn ra tán vào càng nhiều, bởi thế đạo tốt thì mới có sức mà nói, cũng càng dung thứ cho tư tâm[?].
+
+- Thế đạo thật sự không tốt, tự nhiên ai nấy đều ngậm miệng. Ăn no còn chẳng dễ, binh hoang mã loạn, nào có thời gian quản người khác tốt xấu, sống chết của mình còn lo không xong. Chút đạo lý này, hiểu không?
+
+Trần Bình An gật đầu.
+
+Lưu Tiện Dương nói tiếp:
+
+- Nếu ngươi cảm thấy chuyện cẩn trọng ấy là đại sự hàng đầu, cảm thấy Trần Bình An nên trở thành một người tốt hơn, ta cũng lười khuyên nhiều. Dù sao chỉ cần người chưa chết là được. Cho nên ta chỉ cầu ngươi làm một chuyện, đừng chết.
+
+Trần Bình An nói:
+
+- Chuyện ngoài ý muốn quá nhiều, ta sẽ cố hết sức.
+
+Lưu Tiện Dương nhíu mày:
+
+- Tề tiên sinh trường tư chọn ngươi hộ tống đám trẻ đi cầu học, Văn Thánh lão tú tài chọn ngươi làm đệ tử đóng cửa, nhiều người ở Lạc Phách sơn chọn ngươi làm sơn chủ, Ninh Diêu chọn ngươi làm thần tiên đạo lữ. Những lý do ấy dù lớn đến đâu cũng không phải lý do để ngươi chết ở đây, chết trong trận đại chiến này.
+
+- Nói khó nghe một câu, những người chọn ngươi, không ai mong ngươi chết ở Kiếm Khí Trường Thành. Ngươi tưởng mình là ai? Kiếm Khí Trường Thành thêm một Trần Bình An thì nhất định giữ được? Thiếu một Trần Bình An thì nhất định không giữ được? Không có đạo lý chó má như vậy.
+
+- Ngươi cũng đừng nói với ta cái lý có ngươi ở đây thì làm thêm được một chút. Ta còn không hiểu ngươi sao? Chỉ cần muốn làm một việc, ngươi còn thiếu lý do à? Trước kia chưa đọc sách, ngươi đã có từng bộ đạo lý, bây giờ đọc mấy quyển sách, chắc chắn càng biết tự lừa mình dối người.
+
+- Ta hỏi ngươi, rốt cuộc ngươi có muốn sống mà rời khỏi đây không? Tất cả những gì ngươi làm, có phải đều là để sống rời khỏi Kiếm Khí Trường Thành không?
+
+Trần Bình An im lặng.
+
+Lưu Tiện Dương hỏi:
+
+- Vậy là không rồi. Ngươi định đánh cược vận khí? Cược Kiếm Khí Trường Thành giữ được, Ninh Diêu không chết, Tả Hữu không chết, tất cả bằng hữu mới quen ở đây đều không chết?
+
+- Trần Bình An, có phải ngươi cảm thấy từ khi rời quê nhà mọi chuyện quá thuận lợi, cuối cùng con mẹ nó đã chuyển vận, từ kẻ có vận khí kém nhất năm ấy biến thành kẻ có vận khí tốt nhất? Vậy ngươi có nghĩ tới không, bây giờ ngươi có càng nhiều thứ trong tay, nhưng người vừa chết thì hết thảy đều xong, ngươi vẫn là kẻ đáng thương có vận khí kém nhất như trước?
+
+Trần Bình An hiếm khi nổi giận:
+
+- Vậy bây giờ ta nên làm gì?! Đổi thành ngươi là ta, ngươi sẽ làm thế nào?!
+
+Lưu Tiện Dương bình tĩnh nói:
+
+- Đơn giản thôi. Trước tiên nói với Ninh Diêu, cho dù Kiếm Khí Trường Thành không giữ được, hai người cũng phải sống sót. Trong thời gian ấy, có thể hết sức làm việc, xuất kiếm ra quyền không giữ lại sức lực.
+
+- Sau đó hỏi rõ Ninh Diêu nghĩ thế nào. Nàng muốn kéo Trần Bình An cùng chết ở đây, làm đôi uyên ương chết chung, hay hy vọng chết một người đi một người, bớt được một người chết là có lời? Hay là hai người đồng lòng đồng sức, cố gắng để cả hai đều có thể rời đi không thẹn với lương tâm, dù hôm nay mắc nợ thì tương lai bù đắp?
+
+- Hỏi rõ tâm tư Ninh Diêu rồi, bất kể tạm thời đáp án là gì, vẫn phải hỏi sư huynh nghĩ thế nào, hy vọng tiểu sư đệ làm thế nào. Là kế thừa hương khói một mạch Văn Thánh, hay lấy thân phận đệ tử Văn Thánh mà oanh oanh liệt liệt chết trên chiến trường, sư huynh và sư đệ chẳng qua ai chết trước ai mà thôi?
+
+- Cuối cùng lại hỏi lão đại kiếm tiên Trần Thanh Đô, nếu Trần Bình An ta muốn sống, ông ấy có ngăn cản không? Nếu không ngăn, có thể giúp một tay không? Chuyện sinh tử lớn như vậy, thể diện tính là cái gì?
+
+Lưu Tiện Dương đẩy bát rượu của mình sang cho Trần Bình An:
+
+- Quên rồi sao? Năm đó ba người chúng ta ở quê nhà, ai có tư cách xin chút thể diện? Cầu người khác, người ta sẽ cho ngươi sao? Nếu cầu mà có được, ba người chúng ta có ai thấy mất mặt?
+
+- Thằng nhóc thò lò mũi xanh cầu người khác đừng nhục mạ mẫu thân nó. Nếu cầu là được, ngươi xem năm đó con sên nhỏ có thể dập đầu bao nhiêu cái? Nếu ngươi quỳ xuống dập đầu là có thể học được tay nghề nung sứ, ngươi có dập đầu không?
+
+- Nếu ta dập đầu, dập đến đầu sưng gấp đôi mà có thể có tiền, có thể làm đại gia, ngươi xem ta có dập cho mặt đất thủng một cái hố lớn không?
+
+- Thế nào, bây giờ tìm được chỗ tốt rồi, sơn chủ trẻ tuổi của ngõ Nê Bình, nhị chưởng quầy Kiếm Khí Trường Thành, lại không muốn sống nữa? Rượu này ta uống không nổi. Lưu Tiện Dương ta đọc không ít sách, vẫn chẳng biết xấu hổ, tự thấy không bằng, trèo cao không tới Trần Bình An.
+
+Trần Bình An thần sắc hoảng hốt, đưa tay đẩy bát rượu về chỗ cũ.
+
+Hình như chuyện hắn có thể làm cũng chỉ có thế.
+
+Lưu Tiện Dương cầm bát trắng lên, tiện tay ném xuống đất. Bát vỡ tan, mảnh sứ văng khắp nơi. Hắn cười lạnh:
+
+- Bình An cái rắm chó. Dù sao ta cũng sẽ không chết ở đây. Sau này về quê nhà, ngươi cứ yên tâm, ta sẽ đi viếng mộ thúc thúc thẩm thẩm, nói với họ một câu: con trai các người không tệ, con dâu các người cũng không tệ, cho dù cả hai đều đã chết. Trần Bình An, ngươi cảm thấy họ nghe được sẽ vui vẻ sao?
+
+Cả người Trần Bình An suy sụp, tâm khí, quyền ý, tinh khí thần đều tan rã. Hắn chỉ lẩm bẩm:
+
+- Không biết. Nhiều năm như vậy, ta chưa từng mơ thấy cha mẹ một lần, một lần cũng không có.
+
+Lưu Tiện Dương đột nhiên cười, quay đầu hỏi:
+
+- Đệ muội, nàng nói sao?
+
+Phía sau Trần Bình An, một thiếu nữ phong trần mệt mỏi chạy tới. Nàng đứng trong tiểu thiên địa, trầm mặc hồi lâu, cuối cùng nói:
+
+- Kẻ muốn Trần Bình An chết, ta để hắn chết trước. Nếu Trần Bình An tự mình muốn chết, ta thích hắn, chỉ đánh cho gần chết.

@@ -1,435 +1,537 @@
 # Chương 687: Kiếm tu
 
-Trên đầu tường, Tề Thú không nhịn được quay đầu nhìn lại, Trần Bình An lấy ra một xấp phù lục giấy vàng, cảm giác tựa như một cửa hàng mới khai trương, chỉ là những phù lục phẩm trật không cao này bán cho ai? Chẳng lẽ bán cho súc sinh trong Man Hoang thiên hạ?
+Trên đầu tường, Tề Thú không nhịn được quay đầu nhìn lại. Trần Bình An lấy ra một xấp phù lục giấy vàng, trông như vừa khai trương cửa hàng. Nhưng những lá phù phẩm trật không cao này bán cho ai? Chẳng lẽ bán cho súc sinh Man Hoang thiên hạ?
 
-Phù lục thật nhiều, phù triện giống nhau xếp chồng lên nhau, cho nên hơn mười ngọn núi nhỏ, có cao có thấp, hơn ngàn tấm phù triện, như thế nào cũng sẽ có.
+Phù lục rất nhiều, từng loại giống nhau xếp thành hơn mười chồng cao thấp, tính ra ít nhất cũng có hơn ngàn tấm.
 
-Lá bùa tài chất rất tầm thường, khẳng định không đáng giá, Kiếm Khí Trường Thành bên này không bán vật ấy, hiển nhiên là rách nát Trần Bình An mang đến từ Hạo Nhiên Thiên Hạ, ngay cả lá bùa nhập môn của luyện khí sĩ phù lục ngũ cảnh cũng không tính, thực sự chỉ là lá bùa giấy vàng tùy ý buôn bán trên phố phường, nếu cộng thêm một cây kiếm gỗ đào, chính là tiêu chuẩn của những đạo sĩ đi dưới núi, hãm hại lừa gạt.
+Chất liệu giấy rất tầm thường, chắc chắn không đáng tiền. Kiếm Khí Trường Thành không bán vật ấy, hiển nhiên là đống đồ rách Trần Bình An mang từ Hạo Nhiên thiên hạ tới. Chúng thậm chí không bằng lá bùa nhập môn của luyện khí sĩ phù lục ngũ cảnh, chỉ là giấy vàng bán tùy tiện ngoài phố. Thêm một thanh kiếm gỗ đào nữa, sẽ thành bộ đồ nghề của đạo sĩ xuống núi lừa gạt người ta.
 
-Khi Trần Bình An bày xong trận địa, quay đầu nhìn phía Tề Thú.
+Bày xong trận thế, Trần Bình An quay sang Tề Thú. Trong lòng Tề Thú biết không ổn.
 
-Trong lòng Tề Thú biết không ổn.
+Trần Bình An nhìn hắn chân thành như cha ruột nhìn con ruột, cười nói:
 
-Trần Bình An ánh mắt chân thành giống như là cha ruột nhìn con ruột, cười nói: "Tề huynh, đi ngang qua chớ bỏ qua, ta làm người Trần tốt của Bao Phục trai, cùng nhị chưởng quầy của tiệm rượu kia, giống như hai người, Bao Phục trai này của ta, đừng nhìn nhỏ, nhưng mà từng xông pha Bảo Bình châu, Đồng Diệp Châu, Bắc Câu Lô châu giang hồ nhiều năm, nhất là vật phù lục, có tiếng là vật liêm mỹ, danh dự cực tốt, thu không biết bao nhiêu tấm biển chữ vàng, đều là khách nhân mua phù lục của ta, thu hoạch rất phong phú, ích lợi thật lớn, ai cũng cảm động đến rơi nước mắt, nhất định phải cảm tạ ta, ngăn cản cũng không được. Tề huynh, có ý tưởng hay không? Ngươi ta, không phải bằng hữu hơn giống bằng hữu, có thể giảm giá, nếu trên người Tề huynh không mang tiền thần tiên, không sao, cho phép ghi nợ, không ghi nợ, con người ta, rất dễ thương lượng."
+- Tề huynh, đi ngang qua chớ bỏ qua. Trần người tốt của Bao Phục trai ta và nhị chưởng quầy quán rượu kia giống như hai người khác nhau. Bao Phục trai tuy nhỏ nhưng từng xông pha giang hồ Bảo Bình châu, Đồng Diệp châu, Bắc Câu Lô châu nhiều năm. Đặc biệt là phù lục, giá rẻ hàng đẹp, danh tiếng cực tốt, nhận không biết bao nhiêu tấm biển chữ vàng.
 
-Tề Thú làm bộ không nghe thấy.
+- Khách mua phù lục của ta đều thu hoạch phong phú, được lợi lớn, ai cũng cảm động rơi nước mắt, nhất quyết cảm tạ, cản cũng không được. Tề huynh có hứng thú không? Ngươi và ta tuy không phải bằng hữu nhưng còn hơn bằng hữu, có thể giảm giá. Nếu Tề huynh không mang tiền thần tiên cũng không sao, cho phép ghi nợ, không tính lãi. Con người ta rất dễ thương lượng.
 
-Chỉ là không lay chuyển được Trần Bình An nói liên miên không dứt, lần lượt kể lại tinh diệu của hơn mười loại phù lục của mình, nói Thiên bộ trích ti phù, tuy nói chỉ là thoát thai từ bàng môn lôi pháp chính tông, nhưng sát phạt cực lớn, nói Đại Giang Hoành Lưu phù kia dùng ở trên chiến trường máu tươi như hồ nước sông lớn, thật sự là vừa đúng, còn có một dúm nhưỡng phù kia càng có thể từ đất bằng lên sơn mạch, để ngăn trở đại quân Yêu tộc tiến lên, phù rời núi lên, mười phần huyền diệu.
+Tề Thú làm bộ không nghe. Nhưng Trần Bình An cứ nói liên miên, lần lượt kể chỗ tinh diệu của hơn mười loại phù lục.
 
-Tề Thú bị tiếng động lớn đến mức không chịu được, chỉ đành cười lạnh mở miệng nói: "Ta tuy là một kiếm tu Nguyên Anh nho nhỏ, không uy phong bằng đại tu sĩ tam cảnh của nhị chưởng quầy, nhưng rốt cuộc là kiếm tu, muốn ngươi dùng bùa chú để làm gì? Lên mộ đốt vàng giấy? Kiếm Khí Trường Thành không có tập tục này."
+Thiên bộ trích ti phù tuy thoát thai từ một nhánh của lôi pháp chính tông, sát phạt vẫn cực lớn. Đại Giang Hoành Lưu phù dùng trên chiến trường máu chảy thành sông thật vừa vặn. Nhất Nhúm Thổ phù[?] lại có thể khiến đất bằng nổi núi, ngăn đại quân yêu tộc tiến lên, phù rời tay núi liền lên, vô cùng huyền diệu.
 
-Trần Bình An cầm lên một xấp phù lục, kiên nhẫn vô cùng, ý cười không giảm chút nào, giải thích với "Tề huynh": "Đây là cơ duyên đại đạo ta lấy vô số vò rượu tiên gia đổi lấy, vị đại kiếm tiên nào đó say mèm, mới không cẩn thận tiết lộ thiên cơ, lén truyền thụ ta loại "lộ dẫn phù" này, lộ dẫn đường dẫn đường, đã có thể khiến người sống qua ải thông hành, ở trên chiến trường, đương nhiên cũng có thể khiến kẻ địch đi lên đường hoàng tuyền, Tề huynh, thực không động tâm? Đại chiến chưa thật sự nôn nóng, chỉ lấy phi kiếm hành hạ súc sinh, ít nhiều mất đi chút thú vị, cái này giống như ở quán rượu của ta uống rượu, uống rượu, uống rượu tốt nữa, lại quan tuyệt kiếm khí Trường Thành, chung quy còn cần rau tương cùng Dương Xuân mặt tới uống rượu, mới tính là tư vị tuyệt đỉnh."
+Tề Thú bị làm phiền không chịu nổi, cười lạnh:
 
-Trần Bình An đổi một bàn tay khác, lại cầm lên một xấp phù lục lớn, "Phù này có lai lịch rất lớn, là tuyệt chiêu ẩn giấu bên người vị đại kiếm tiên kia, "Kiếm khí Quá Kiều Phù", Tề huynh, cảnh giới của ngươi tạm thời không cao, nhưng ta tin tưởng nhãn lực của ngươi không tệ, ngươi xem, viết rườm rà cỡ nào, từng tấm phù lục nhìn như không lớn, quả thực chính là từng tòa phù trận danh xứng với thực., Cái khác ta cũng không nói nhiều, chỉ là tiên gia đan sa vẽ bùa, cần tiêu hao bao nhiêu? Tề huynh há có thể bởi vì chất liệu lá bùa không tính là đứng đầu, liền kết luận phù lục này của ta không đáng giá? Tề huynh à, chưa từng nghĩ ngươi lại là loại người dung tục lấy diện mạo chuộc người như vậy, ta rất thất vọng a, Ly Chân kia đều bị ta ở trên chiến trường giết, tương tự từng đôi chém giết, Tề huynh có qua có lại với ta, cuối cùng chỉ thua ta một đường, chẳng khác nào Tề huynh ít nhất cũng là nhân vật thiên tài tiểu thắng ly chân một bậc, đặt ở Thác Nguyệt sơn, làm một đại sư huynh cũng không khó..."
+- Ta tuy chỉ là một kiếm tu Nguyên Anh nhỏ bé, không uy phong bằng đại tu sĩ tam cảnh nhị chưởng quầy, nhưng rốt cuộc vẫn là kiếm tu. Cần bùa của ngươi làm gì? Lên mộ đốt giấy vàng? Kiếm Khí Trường Thành không có tập tục đó.
 
-Tề Thú cả giận nói: "Trần Bình An, ngươi có để yên hay không?! Trong lúc đại chiến, làm phiền ngươi an tâm ngự kiếm giết địch! Cho dù chính ngươi dám phân tâm không tiếc mạng, cũng đừng liên lụy người ngoài."
+Trần Bình An cầm một xấp phù, vô cùng kiên nhẫn giải thích, ý cười không giảm:
 
-Trần Bình An buông hai xấp phù lục trong tay xuống, lấy chiếc quạt gấp khép lại nhẹ nhàng gõ ngực, nhìn về chiến trường phía nam, mỉm cười nói: "Tề huynh tạm thời chưa có ý nguyện mua sắm, không quan trọng, mua bán trên thế gian, duyên mắt đệ nhất. Ta sẽ nhìn nhiều hơn hào kiệt nịnh nọt của Tề huynh, thành trì bên kia, một số người nào đó đối với thủ đoạn giết địch của Tề huynh, có chút chỉ trích, cho rằng quá mức tàn nhẫn, muốn ta xem sao?, Rất tốt, chút tập khí của công tử ca hào phiệt trên người Tề huynh, là ngạo khí không coi ai ra gì của thiên tài kiếm tu, không cho phép người bạn cùng lứa tuổi có tư tâm mạnh hơn mình, đó mới là bệnh nhỏ, nhưng chỉ cần đến chiến trường, Tề huynh biến hóa nhanh chóng, trở thành chân hào kiệt. Trần Bình An có thể chịu đựng được một người muốn giết mà cầu không được trong thành, thậm chí còn có thể thúc giục trong lòng một chút không thoải mái, giúp ta cùng nhau giết địch giữ vững chiến trường, kiếm tu Tề Thú như vậy, thật sự là phong thái kiếm tiên nhất đẳng..."
+- Đây là cơ duyên đại đạo ta lấy vô số vò rượu tiên gia đổi được. Một vị đại kiếm tiên uống say, không cẩn thận tiết lộ thiên cơ, lén truyền cho ta loại lộ dẫn phù này. Lộ dẫn dùng chỉ đường, vừa có thể giúp người sống qua cửa, trên chiến trường đương nhiên cũng có thể đưa kẻ địch lên đường hoàng tuyền. Tề huynh thật không động tâm?
 
-Tề Thú hít sâu một hơi, "Có phải chỉ cần ta không mua bùa của ngươi, ngươi có thể cứ mãi nhắc mãi không?"
+- Đại chiến chưa đến lúc nóng bỏng, chỉ dùng phi kiếm hành hạ súc sinh ít nhiều mất thú vị. Giống như uống rượu ở quán ta, dù rượu ngon đứng đầu Kiếm Khí Trường Thành, chung quy vẫn cần rau tương và mì Dương Xuân đưa rượu mới là tư vị tuyệt đỉnh.
 
-Trần Bình An mở ra quạt xếp, mỉm cười nói: "Không nói không nói, Tề huynh cứ tiêu sái xuất kiếm."
+Hắn đổi tay cầm một xấp phù lớn khác:
 
-Tề Thú thu hồi tầm mắt, tiếp tục khống chế Phi Diên cùng Tâm Huyền chém giết yêu vật.
+- Phù này lai lịch càng lớn, là tuyệt chiêu giấu kín của vị đại kiếm tiên kia, kiếm khí quá kiều phù. Tề huynh cảnh giới tạm thời không cao, nhưng ta tin nhãn lực của ngươi không tệ. Ngươi xem nét vẽ rườm rà biết bao, từng tấm nhìn không lớn mà quả thực là một phù trận danh xứng với thực.
 
-So với trận chiến đầu tiên, lần này tu sĩ Yêu tộc hóa thành hình người, tỉ lệ ở trong đại quân công thành rõ ràng cao hơn vài phần. Không còn là những kiếm tu đầu tường cảnh giới cao, thậm chí cũng không bị những súc sinh chưa khai khiếu tính vào chiến công, trong trận chiến khai mạc đầu tiên, những Yêu tộc này căn bản không tính là tu sĩ chính thức, phần nhiều là bị điều động vọt tới trước, tác dụng duy nhất, chính là lấy hài cốt chồng chất thành núi, lấp đầy từng khe rãnh thâm cốc lớn do Kiếm Tiên mở ra, huyết nhục nhuộm dần đại địa, ảnh hưởng thiên thời địa lợi.
+- Chuyện khác không nói, chỉ tính tiên gia đan sa vẽ phù phải tiêu hao bao nhiêu? Tề huynh há có thể vì chất liệu giấy chưa phải thượng hạng mà kết luận phù của ta không đáng giá? Không ngờ Tề huynh lại là loại người dung tục trông mặt bắt hình dong, ta rất thất vọng.
 
-Thật ra Tề Thú hoàn toàn không để vào mắt đối với mấy loại phù lục thuộc ngũ hành, duy chỉ có lộ dẫn phù và quá cầu phù, nhất là thứ sau, quả thật có chút cảm thấy hứng thú, bởi vì trên lá bùa thật sự có từng tia từng sợi kiếm khí lưu chuyển, không thể làm giả, trong phù đảm, kiếm ý không nhiều nhưng tinh túy, Trần Bình An kia nói là đại kiếm tiên bí mật truyền thụ, Tề Thú cũng tin vài phần.
+- Ly Chân bị ta giết trên chiến trường. Cũng là một chọi một, Tề huynh giao thủ với ta, cuối cùng chỉ thua một đường, chẳng khác nào Tề huynh ít nhất là thiên tài mạnh hơn Ly Chân một bậc. Đặt ở Thác Nguyệt sơn, làm đại sư huynh cũng không khó...
 
-Nhưng Tề Thú tự mình thủ vững chiến trường không khó, căn bản không muốn buôn bán với Trần Bình An, mặc cho ngươi nói đến mức ba hoa chích choè, thanh danh bán rượu và tọa trang của Nhị chưởng quầy ngươi đều ở trên đường lớn Kiếm Khí Trường Thành, ngay cả người làm nhà cái cũng không kiếm được tiền, trong lịch sử Kiếm Khí Trường Thành thật đúng là chưa từng có, càng là con bạc kinh nghiệm phong phú mắng càng dữ, Trần Bình An ngươi trong lòng không biết sao?
+Tề Thú giận dữ:
 
-Vị trí kiếm tu trên chiến trường của Tạ Tùng Hoa và Lưu Tiện Dương là một lão Nguyên Anh trầm mặc ít nói sau khi đến nơi này, chính là Trình Thuyên từ thượng ngũ cảnh ngã xuống hồi cảnh giới Nguyên Anh, thích cãi nhau với kiếm tiên Triệu Hạm hơn nửa đời người, một nam một bắc ngồi hai đầu tường, một lời không hợp nhổ nước bọt vào nhau. Trước kia giằng co với Triệu Hạm, lão kiếm tu Nguyên Anh rất nhiều, rời khỏi Triệu Na Tra, một mình một người, tựa như không có đối thủ, thủy chung không nói một lời.
+- Trần Bình An, ngươi có để yên không?! Đại chiến đang diễn ra, phiền ngươi an tâm ngự kiếm giết địch! Chính ngươi phân tâm không tiếc mạng cũng đừng liên lụy người khác.
 
-Thật ra ở khu vực phía nam thành trì, trong đó có một tòa nhà riêng do Kiếm Tiên để lại, là sư tổ của Trình Thuyên dựa vào chiến công đổi lấy, sau đó ghi nhớ tên của Trình Thuyên. Bởi vì nhánh của Trình Thuyên này, hiện giờ trừ một mình hắn ra, các gia tộc, sư môn còn lại đều đã chết hết, kết cục không khác gì nữ Kiếm Tiên Chu Trừng.
+Trần Bình An đặt hai xấp phù xuống, dùng quạt gấp khép lại gõ nhẹ ngực, nhìn chiến trường phía nam, mỉm cười:
 
-Trình Thuyên xuất kiếm cực kỳ lanh lẹ, phi kiếm "Thủy Sơn", nơi phi kiếm đi qua, trên không chiến trường xuất hiện từng ngọn núi tựa như bích ngọc điêu khắc mà thành, nện Yêu tộc thành từng bãi thịt vụn, nếu có tu sĩ Yêu tộc may mắn không chết, hoặc là né tránh, vậy sẽ mất đi vài ngọn núi. Mỗi đỉnh núi một khi bị tu sĩ Yêu tộc cảnh giới không tầm thường lấy pháp bảo đánh nát, lại hóa thành nước hồ Bích Thủy, sau khi rơi xuống đất sẽ lập tức đóng băng chiến trường, Yêu tộc sau đó ngửa đầu nhìn lại, liền có núi cao áp đỉnh mà rơi xuống.
+- Tề huynh tạm thời chưa muốn mua cũng không sao. Mua bán trên đời, hợp mắt là trước tiên. Ta vẫn rất ngưỡng mộ phong thái hào kiệt của Tề huynh[?]. Trong thành có người chỉ trích thủ đoạn giết địch của huynh quá tàn nhẫn. Theo ta thấy, rất tốt!
 
-Cho nên so với hai hàng xóm, bốn thanh phi kiếm của Trần Bình An cùng xuất hiện, Tề Thú hành hạ Yêu tộc đến chết, chiến trường bên Trình Thuyên hết sức nhẹ nhàng sạch sẽ.
+- Chút tập khí công tử hào phiệt trên người Tề huynh, cùng sự ngạo mạn không cho phép người cùng lứa mạnh hơn mình, chỉ là bệnh nhỏ. Một khi đến chiến trường, Tề huynh liền trở thành chân hào kiệt. Trần Bình An ta là người ngươi muốn giết mà không giết được, vậy mà ngươi vẫn có thể nén khó chịu trong lòng, cùng ta giết địch giữ vững chiến trường. Kiếm tu Tề Thú như vậy quả thật có phong thái kiếm tiên nhất đẳng...
 
-Càng làm cho Trần Bình An mở rộng tầm mắt cảnh tượng còn không ở đây, mà là rất nhiều hồn phách Yêu tộc tương đối gầy yếu, rất dễ dàng bị không tự chủ được túm vào giữa hồ nước, cuối cùng cùng tan vỡ với hồ nước đóng băng.
+Tề Thú hít sâu:
 
-Thật ra Trình Thuyên còn có một thanh phi kiếm bản mạng "Thác Bi" nhìn như gân gà, trừ cái đó ra, lại cũng có một vật đại luyện bản mệnh, tên không rõ, nhưng có cảnh tượng tuyệt diệu, đặt đá làm núi, đặt nước làm sông.
+- Có phải chỉ cần ta không mua phù, ngươi sẽ cứ nói mãi không?
 
-Cho nên năm đó Trình Thuyên truyền đạo cho ân sư, là một trong những kiếm tiên dẫn đội đi săn thú ở Man Hoang Thiên Hạ, sẽ luyện Giang Hà, Sơn Phong trước, sau đó mang về Kiếm Khí Trường Thành, giao cho đệ tử Trình Thuyên luyện chế trong đó, sau đó người nọ lấy ra tiểu sơn Tế Thủy trong bồn cảnh, phối hợp với thần thông thác bi của phi kiếm bản mạng, trên chiến trường sẽ có dị tượng lan tràn, giang hà cuộn trào, núi cao nổi lên, lại bị kiếm ý thác bi dẫn dắt, giang hà đột nhiên tăng lên, núi cao hơn.
+Trần Bình An mở quạt, mỉm cười:
 
-Cho nên Trình Thuyên trong trận công thủ chiến sau mười ba trận chiến, mới có thể bị một vị đại yêu nhìn chằm chằm vào, còn dùng phương pháp đánh lén khiến Trình Thuyên rớt cảnh giới, bởi vì bắt cặp chém giết Trình Phác Thuyên, có lẽ không dễ thấy chút nào giữa kiếm tiên, nhưng đến trên chiến trường, cùng Ngọc Phác cảnh Ngô Thừa Bái có được một thanh "Cam Lâm" kia, loại kiếm tiên này sẽ tạo thành sát thương cực lớn đối với đại quân công thành Man Hoang Thiên Hạ.
+- Không nói nữa, không nói nữa. Tề huynh cứ tiêu sái xuất kiếm.
 
-Trần Bình An quay đầu nhìn lại, Trình Thuyên lạnh nhạt nói: "Câm miệng. Lão tử không có tiền để lừa ngươi."
+Tề Thú thu hồi ánh mắt, tiếp tục khống chế Phi Diên và Tâm Huyền giết yêu.
 
-Trần Bình An cười nói: "Được rồi."
+So với trận đầu, lần này tỷ lệ tu sĩ yêu tộc đã hóa hình trong đại quân công thành rõ ràng cao hơn. Những súc sinh chưa khai khiếu ở trận đầu thậm chí không được kiếm tu cảnh giới cao trên đầu tường tính vào chiến công. Chúng phần lớn bị xua lên trước, tác dụng duy nhất là lấy hài cốt chất núi, lấp khe rãnh vực sâu do kiếm tiên mở ra, lấy máu thịt thấm đất, ảnh hưởng thiên thời địa lợi.
 
-Tề Thú có chút dở khóc dở cười, cừ thật, cũng là kiếm tu Nguyên Anh, vì sao Trần Bình An đến bên Trình Thuyên, dễ nói chuyện như vậy?
+Tề Thú thật ra không để mấy loại phù ngũ hành vào mắt. Chỉ riêng lộ dẫn phù và quá kiều phù, nhất là loại sau, khiến hắn hơi hứng thú. Trên lá phù thật sự có từng tia kiếm khí lưu chuyển, không thể làm giả. Kiếm ý trong phù đảm không nhiều nhưng tinh túy, chuyện Trần Bình An nói được đại kiếm tiên bí truyền, hắn cũng tin mấy phần.
 
-Không chỉ như thế, Tề Thú phát hiện Trần Bình An mặt mũi xám xịt kia chẳng những không mang thù, ngược lại còn hướng lão nhân xa xa ném tới một bình rượu Thanh Thần sơn giá trị năm đồng Tuyết Hoa tiền.
+Nhưng tự mình giữ chiến trường không khó, hắn căn bản không muốn làm ăn với Trần Bình An. Nhị chưởng quầy bán rượu và làm chủ sòng tiếng tăm lẫy lừng khắp đường phố. Làm nhà cái mà không kiếm được tiền, trong lịch sử Kiếm Khí Trường Thành thật chưa từng có. Con bạc càng lão luyện càng mắng dữ, chẳng lẽ Trần Bình An không tự biết?
 
-Trình Thuyên mở nê phong, ngửi ngửi, ghét bỏ nói: "Tư vị quá nhạt, tính là gì rượu. Triệu Tiêu mới thích uống loại đàn bà như vậy."
+Người thay Tạ Tùng Hoa và Lưu Tiện Dương trấn giữ là một lão Nguyên Anh trầm mặc ít lời, Trình Thuyên. Lão từ thượng ngũ cảnh rớt về Nguyên Anh, từng cãi nhau với kiếm tiên Triệu Hạm hơn nửa đời người. Hai người ngồi hai đầu tường nam bắc, hơi không hợp ý là nhổ nước bọt về phía nhau.
 
-Nói thì nói như thế, nhưng rượu vẫn phải uống.
+Ngày trước giằng co với Triệu Hạm, lão nói rất nhiều. Rời khỏi Triệu Na Tra, chỉ còn một mình, tựa như không có đối thủ, lão lại chẳng nói câu nào.
 
-Không ngờ Trần Bình An lại ném một bầu rượu trắng mới bán cho cửa hàng, Trình Thuyên vừa ngửi, gật đầu nói: "Lúc này mới tính là rượu, khó trách cửa hàng buôn bán không tệ, nếu ngươi mở cửa hàng rượu trên đầu tường thành, ta cũng sẽ mua."
+Ở phía nam thành có một tòa nhà riêng do kiếm tiên để lại, là sư tổ Trình Thuyên dùng chiến công đổi lấy, sau ghi tên cho lão. Bởi một nhánh Trình Thuyên hiện nay trừ lão ra, gia tộc và sư môn đều đã chết hết, kết cục không khác nữ kiếm tiên Chu Trừng.
 
-Trần Bình An cười nói: "Không ký sổ."
+Trình Thuyên xuất kiếm cực kỳ gọn ghẽ. Phi kiếm Thủy Sơn đi qua, giữa không trung hiện lên từng ngọn núi như ngọc bích điêu khắc, nện yêu tộc thành thịt vụn. Nếu tu sĩ yêu tộc may mắn tránh được hoặc không chết, lại có thêm mấy ngọn núi đè xuống.
 
-Trình Thuyên liếc mắt nhìn người trẻ tuổi kia một cái, hỏi: "Nghe nói bị một tiểu cô nương đánh ngã ở cửa Ninh phủ?"
+Một ngọn núi bị tu sĩ cảnh giới không tầm thường dùng pháp bảo đánh nát sẽ hóa thành nước hồ xanh biếc, rơi xuống lập tức đóng băng chiến trường. Yêu tộc phía sau vừa ngẩng đầu đã thấy núi cao ập xuống.
 
-Trần Bình An lấy quạt xếp nhẹ nhàng gõ lòng bàn tay, nói: "Không dối gạt Trình tiền bối, lấy mạnh chống địch, là trò sở trường của ta. Mặc kệ ai so chiêu với ta, phần thắng đều sẽ rất lớn. Ví dụ như vị Tề huynh đệ bên cạnh ta."
+So với bốn phi kiếm của Trần Bình An và cách Tề Thú hành hạ yêu tộc, chiến trường của Trình Thuyên nhẹ nhàng sạch sẽ hơn nhiều. Càng khiến Trần Bình An mở rộng tầm mắt là những hồn phách yêu tộc yếu ớt dễ bị kéo vào hồ, cuối cùng cùng mặt hồ đóng băng vỡ nát.
 
-Trong trận chiến sự thứ hai, cũng là Mùng Một Mười Lăm, lá thông bốn thanh phi kiếm Tùng Châm Khuyết Lôi, Trần Bình An ứng đối càng thêm thoải mái thích ý, phi kiếm cực nhanh.
+Trình Thuyên còn có phi kiếm bản mạng Thác Bi, thoạt nhìn không mấy hữu dụng, ngoài ra lại có một vật được đại luyện làm bản mạng, không rõ tên nhưng có cảnh tượng kỳ diệu: đặt đá thành núi, đặt nước thành sông.
 
-Chỉ nói chuyện khống chế phi kiếm, quả nhiên vẫn là mình giỏi nhất, không cần bị từng đạo lý câu thúc, tâm ý tự nhiên càng thêm thuần túy, đạo lý là tốt, nhiều cũng sẽ ép người, phi kiếm tự nhiên sẽ chậm hơn một đường, một đường ngăn cách, khác nhau một trời một vực.
+Năm xưa ân sư truyền đạo của lão là một trong những kiếm tiên dẫn đội đi săn ở Man Hoang thiên hạ. Người ấy luyện hóa sông núi, mang về Kiếm Khí Trường Thành giao cho đệ tử tiếp tục luyện chế. Sau đó Trình Thuyên lấy núi nhỏ, dòng nước trong bồn cảnh ra, phối hợp thần thông Thác Bi của phi kiếm bản mạng. Trên chiến trường sông cuộn núi nổi, lại được kiếm ý Thác Bi dẫn dắt, sông càng lớn, núi càng cao.
 
-Trình Thuyên cảm thấy tiểu tử này nói chuyện, so với Triệu Tiêu kia thú vị hơn nhiều.
+Bởi vậy trong trận công thủ sau mười ba trận chiến[?], Trình Thuyên bị đại yêu nhắm trúng, đánh lén khiến rớt cảnh giới. Đấu một chọi một, lão có lẽ không nổi bật giữa các kiếm tiên, nhưng trên chiến trường, giống Ngô Thừa Bái Ngọc Phác cảnh có thanh Cam Lâm, lão gây sát thương cực lớn cho đại quân công thành.
 
-Cho nên vị lão Nguyên Anh này thế mà lại trực tiếp dịch vị trí, ngồi ở bên cạnh Trần Bình An, hỏi: "Nghe nói Hạo Nhiên Thiên Hạ nhiều kỳ sơn dị thủy, có thể khiến người ta rửa tai rửa tai chói mắt, quan sát vô số thứ?"
+Trần Bình An quay đầu nhìn, Trình Thuyên lạnh nhạt nói:
 
-Trần Bình An thậm chí không quay đầu nói chuyện với người khác, chỉ là nhìn ra xa phía trước, cười nói: "Chỉ là như vậy, xem nhiều rồi, nhất là phải bôn ba trong đó, cũng sẽ phiền chán, tầm nhìn khắp nơi trở ngại, rất khó lòng như chim bay qua chung nam. Người tu đạo quê nhà bên kia, sống lâu trong núi, đều sẽ tĩnh cực muốn động, hướng trong hồng trần ngoài sơn thủy lăn đi một phen, xuống núi chỉ vì lên núi, cũng không có ý tứ gì."
+- Câm miệng. Lão tử không có tiền để ngươi lừa.
 
-Trình Thuyên có chút hối hận khi ngồi ở bên này, vừa rồi tên này nói chuyện rất hăng hái, lúc này lại giả bộ, không thú vị.
+- Được rồi.
 
-Trần Bình An từ trong lòng lấy ra một quyển 《Kiếm Tiên Ấn Phổ 》, cười hì hì quay đầu, đưa cho Trình Thuyên, "Trình tiền bối, nhìn xem có con dấu nào cảm thấy hứng thú hay không, làm ăn thật sự quá tốt, hầu như đều đã bán đi, nhưng mà Trình tiền bối mở miệng đòi hỏi, ta chẳng những có thể khắc thêm, còn có thể giảm giá, cho dù bản thân Trình tiền bối không nhìn trúng, nhưng chỉ cần chuyển tay bán đi, một hai bầu rượu và tiền bạc đã kiếm được, sao lại không làm?"
+Tề Thú dở khóc dở cười. Cũng là kiếm tu Nguyên Anh, tại sao Trần Bình An đến chỗ Trình Thuyên lại dễ nói chuyện như vậy?
 
-Trình Thuyên tiếp nhận Kiếm Tiên Ấn Phổ, tiện tay mở ra một tờ, cười hắc hắc nói: "Ngoài việc làm ăn ra, ai chọn con dấu, ngoài mặt là duyên mắt đến, kì thực là loại nào đó trong lòng có sở hữu, cho không ngươi, vừa kiếm tiền, lại có thể dựa vào đó nhìn một hai người trong lòng, hai chưởng quầy, buôn bán tốt a."
+Không chỉ không ghi thù, Trần Bình An còn ném cho lão một bình rượu Thanh Thần sơn giá năm đồng tiền tuyết hoa. Trình Thuyên mở niêm phong ngửi thử, ghét bỏ:
 
-"Nhìn lòng người, là cân nhắc, là đẩy cửa tốt, hay là gõ cửa tốt hơn? Ta thấy đều không tốt."
+- Vị quá nhạt, tính gì là rượu. Triệu Hạm mới thích thứ rượu đàn bà này.
 
-Sau đó Trần Bình An phe phẩy quạt xếp, vẻ mặt tủi thân và uất ức nói: "Trình tiền bối đừng ỷ vào kiếm thuật huyền diệu, có thể một mình một nhà trong rất nhiều kiếm tiên, nói hươu nói vượn, ức h**p một vãn bối. Bất quá giờ phút này, tiền bối uống rượu đọc sách xuất kiếm, kiếm khí lật sách, giết yêu phụ rượu, Trình tiền bối rất có danh sĩ phong lưu."
+Nói vậy, lão vẫn uống. Trần Bình An lại ném một bình rượu trắng cửa hàng mới bán, lão ngửi xong gật đầu:
 
-Trình Thuyên tuy tùy ý lật xem ấn phổ, xuất kiếm lại không hàm hồ chút nào, mà Trần Bình An tuy rằng một lần nữa trở thành Bao Phục trai, xuất kiếm cũng càng không ngưng trệ nửa điểm.
+- Thế mới là rượu. Khó trách cửa hàng làm ăn không tệ. Nếu ngươi mở quán trên đầu tường, ta cũng mua.
 
-Trình Thuyên nhìn thấy một cái dấu, hơi dừng lại liền cố ý lật qua một trang, nào ngờ khóe mắt Trình Thuyên lại liếc qua, phát hiện tiểu vương bát đản thối tha không biết xấu hổ kia, liền nhìn thẳng vào mình, sau đó người sau hiểu ý cười, đại khái là nói ta hiểu, khẳng định nhìn thấu không nói vỡ, Trình tiền bối không cần có nửa điểm thẹn thùng. Trình Thuyên cũng không sao cả, đưa tay v**t v* văn tự này, nhất là hai chữ giai nhân cuối cùng, để cho vị lão kiếm tu này thổn thức không thôi.
+- Không ghi sổ.
 
-"Lưu Lũng mũ cũ, thanh sơn lục thủy lão lộ, sương chiều hà hà, hỏa hoa đèn đuốc Nghiêu Giai Nhân."
+Trình Thuyên liếc người trẻ tuổi, hỏi:
 
-Trình Thuyên hắn tranh giành cả đời với Triệu Tiêu Tiêu, cũng không biết rốt cuộc nàng thích ai, nàng chỉ nói ai bước lên Tiên Nhân cảnh trước, nàng liền thích ai.
+- Nghe nói ngươi bị một tiểu cô nương đánh ngã trước cửa Ninh phủ?
 
-Lúc ấy Trình Thuyên có cảnh giới cao hơn, tư chất tốt hơn, cho nên Trình Thuyên nói nàng ta chắc chắn thích mình.
+Trần Bình An lấy quạt gõ lòng bàn tay:
 
-Triệu Tử Quân lại vẫn nói năm đó là nàng dụng tâm lương khổ, hy vọng dùng cái này khích lệ đạo tâm của Triệu Tử Quân ta.
+- Không giấu Trình tiền bối, lấy mạnh chống địch là sở trường của ta. Bất kể ai so chiêu với ta, phần thắng của người đó đều rất lớn. Ví dụ như Tề huynh đệ bên cạnh.
 
-Mỗi người đều có đạo lý riêng, tranh giành vô số năm.
+Trong trận chiến thứ hai này, vẫn là bốn thanh Mùng Một, Mười Lăm, Tùng Châm, Khụ Lôi, nhưng Trần Bình An ứng phó thoải mái hơn, phi kiếm cực nhanh. Chỉ nói đến khống chế phi kiếm, quả nhiên vẫn là tự mình giỏi nhất[?]. Không bị từng đạo lý câu thúc, tâm ý tự nhiên thuần túy hơn. Đạo lý là tốt, nhưng quá nhiều cũng đè nặng lên người, phi kiếm chậm đi một đường, cách nhau một đường đã khác biệt một trời một vực.
 
-Từng có một nữ tử kiếm tiên tên là Tống Vân Thải của Kiếm Khí Trường Thành, phong thái tuyệt luân.
+Trình Thuyên thấy tiểu tử này nói chuyện thú vị hơn Triệu Hạm nhiều, bèn chuyển đến ngồi cạnh hắn:
 
-Nàng và Trình Thuyên, Triệu Nhất Trúc đều xuất thân từ cùng một ngõ hẹp, ở trong ba người đều là kiếm tu thượng ngũ cảnh, trong năm tháng kề vai chiến đấu nhiều năm cùng nhau, ngõ nhỏ đồng thời hiện ra ba vị kiếm tiên, danh tiếng lớn đến mức ngay cả Đảo Huyền sơn, Vũ Long tông xa hơn nữa, Nam Bà Sa châu xa hơn chút nữa cũng từng nghe nói.
+- Nghe nói Hạo Nhiên thiên hạ có nhiều núi lạ nước đẹp, khiến người ta mở rộng tai mắt, nhìn mãi không hết?
 
-Trình Thuyên ném trả quyển《Kiếm Tiên Ấn Phổ》kia cho Trần Bình An, thuận miệng nói: "Về sau làm kiếm tu, cũng đừng nhập thế quá mức."
+Trần Bình An không quay đầu, nhìn về phía trước cười:
 
-Trần Bình An thu hồi ấn phổ, hôm nay hai gói hành lý trai mua bán đều không thành, còn không tốn công bỏ vào hai bầu rượu tiên gia, nhưng Trình Thuyên đã nói chuyện về kiếm tu, cộng thêm chuyện bất quá tam, là dấu hiệu tốt, cười nói: "Mượn lời chúc của tiền bối, sau đó thành kiếm tu rồi nói sau."
+- Cũng chỉ thế thôi. Xem nhiều rồi, nhất là phải bôn ba trong đó, cũng sẽ chán. Tầm mắt đâu đâu cũng bị cản, rất khó có lòng dạ như chim bay qua Chung Nam[?]. Tu sĩ quê nhà sống lâu trong núi, tĩnh quá muốn động, lại xuống hồng trần lăn lộn một phen. Xuống núi chỉ vì lên núi, cũng không thú vị gì.
 
-Hai người trầm mặc, từng người xuất kiếm.
+Trình Thuyên hơi hối hận ngồi bên này. Vừa rồi tiểu tử nói chuyện hăng hái, bây giờ lại làm bộ, không thú vị.
 
-Tề Thú có chút hâm mộ nhị chưởng quỹ kia, thật sự là có thể trò chuyện với ai.
+Trần Bình An lấy từ trong ngực một quyển Kiếm Tiên Ấn Phổ, cười hì hì đưa lão:
 
-Một lúc lâu sau.
+- Trình tiền bối xem có con dấu nào vừa ý không? Làm ăn quá tốt, gần như đã bán hết. Nhưng tiền bối mở miệng, ta chẳng những khắc thêm mà còn giảm giá. Dù tiền bối không thích, chỉ cần bán lại cũng kiếm được tiền một hai bình rượu, sao không làm?
 
-Trình Thuyên đột nhiên nói: "Theo ta thấy, bỏ qua quyền pháp pháp bảo gì đó, tiểu tử ngươi rất nhanh trí, đây mới là bản lĩnh bàng thân nhất, nếu ta bảo ngươi khắc ấn chương vừa rồi, biên khoản không thay đổi, chỉ cần ngươi đổi ấn văn kia một cái, ngươi sẽ khắc nội dung gì? Muốn ta xem, ấn tín của Trứu Kiếm tiên phủ cộng thêm những văn tự phiến diện này, nhiều văn tự lộn xộn như vậy, đọc chút sách, cùng lắm thì chính là chiếu chỉ trích trích, cùng lắm thì chính là dùng một phen. Không tính ra được bản lãnh thật sự, đệ tử Văn Thánh nhất mạch, một bụng học vấn, không nên chỉ giới hạn ở đó."
+Trình Thuyên nhận ấn phổ, tiện tay lật một trang, cười hắc hắc:
 
-Lần này đến phiên Trình Thuyên mở rộng tầm mắt, nhị chưởng quỹ kia trực tiếp lấy ra một chương trắng, cười nói: "Làm phiền Trình tiền bối chiếu cố chiến trường của ta một chút, đương nhiên chiến công vẫn tính cho ta."
+- Ngoài chuyện làm ăn, người chọn con dấu ngoài mặt là hợp mắt, thật ra trong lòng có điều gì đó. Ngươi vừa kiếm tiền, vừa nhờ đó nhìn được lòng người. Nhị chưởng quầy, buôn bán giỏi lắm.
 
-Có Trình Thuyên kia xuất kiếm hỗ trợ ngăn địch, vô cùng ổn định.
+- Nhìn lòng người thì phải cân nhắc, đẩy cửa tốt hay gõ cửa tốt hơn? Ta thấy đều không tốt.
 
-Trần Bình An thoải mái nhàn rỗi, thu hồi bốn thanh phi kiếm, trong đó ba thanh đều lướt vào hồ lô dưỡng kiếm tu dưỡng một lát, chỉ lấy phi kiếm Mười Lăm làm khắc đao, chỉ là chẳng những sửa lại ấn văn, ngay cả biên khoản con dấu cũng thay đổi.
+Trần Bình An phe phẩy quạt, tỏ vẻ tủi thân:
 
-Sau khi giao cho Trình Thuyên, Trình Lam ở trong lòng bàn tay, nâng lên nhìn, mặt không biểu cảm, gật đầu nói: "Tạm được."
+- Trình tiền bối đừng ỷ kiếm thuật huyền diệu, có thể tự thành một nhà giữa các kiếm tiên mà nói hươu nói vượn, ức hiếp vãn bối. Có điều lúc này tiền bối uống rượu đọc sách xuất kiếm, kiếm khí lật sách, giết yêu đưa rượu, thật có phong thái danh sĩ.
 
-Dường như con dấu mới tinh mà Trình Thuyên thích cũng không thật lòng thích đã được Trình Thuyên thu vào trong tay áo.
+Trình Thuyên tùy ý lật ấn phổ nhưng xuất kiếm không qua loa, Trần Bình An trở lại làm Bao Phục trai cũng không chậm kiếm nửa phần.
 
-Cố nhân càng là giai nhân, khẳng khái nhiều kỳ tiết.
+Lão nhìn thấy một con dấu, hơi dừng rồi cố ý lật qua. Không ngờ liếc mắt lại thấy tiểu vương bát đản không biết xấu hổ kia đang nhìn chằm chằm mình. Hắn mỉm cười như muốn nói ta hiểu, nhất định nhìn thấu không nói toạc, tiền bối không cần thẹn thùng.
 
-Thiếu niên lòng có một ngọn núi, chợt bị mây trộm đi.
+Trình Thuyên cũng chẳng sao, đưa tay vuốt ve dòng chữ. Đặc biệt hai chữ giai nhân cuối cùng khiến lão thổn thức:
 
-Ấn văn: Không cẩn thận.
+- Mũ cũ áo tơi, đường xưa núi xanh nước biếc, sương chiều mờ mịt, ánh đèn soi giai nhân[?].
 
-Trần Bình An không vội vàng xuất kiếm lần nữa, vẫn như cũ nhờ Trình Thuyên hỗ trợ quét dọn chiến trường, lẩm bẩm: "Trong lòng có mỹ hảo, không sợ bị người khác nhìn thấy."
+Lão tranh giành với Triệu Hạm cả đời, cũng không biết rốt cuộc nàng thích ai. Nàng chỉ nói ai bước lên Tiên Nhân cảnh trước thì nàng thích người đó. Khi ấy Trình Thuyên cảnh giới cao hơn, tư chất tốt hơn, cho nên nói nàng chắc chắn thích mình. Triệu Hạm lại luôn nói nàng dụng tâm khổ sở, muốn dùng chuyện ấy khích lệ đạo tâm của hắn. Mỗi người một lý lẽ, tranh giành vô số năm.
 
-Trần Bình An lấy cây quạt xếp bằng trúc ngọc học sinh Thôi Đông Sơn tặng cho, quạt gió cho mình, cũng giúp Trình lão tiền bối, cười ha ha nói: "Con dấu chế tạo riêng cho tiền bối, chất liệu thật tốt không nói, dưới ngòi bút, càng dụng tâm từng chữ, giá gốc không cao, một đồng Cốc Vũ tiền, cộng thêm Trình tiền bối là kiếm tiên, giảm hai phần, hiện tại lại giúp vãn bối giết địch, năm phần, chỉ cần năm đồng Tiểu Thử tiền!"
+Kiếm Khí Trường Thành từng có một nữ kiếm tiên tên Tống Vân Thải, phong thái tuyệt luân. Nàng cùng Trình Thuyên và Triệu Nhất Trúc đều xuất thân một ngõ nhỏ, ba người cùng trở thành kiếm tu thượng ngũ cảnh, kề vai chiến đấu nhiều năm. Ngõ nhỏ đồng thời xuất hiện ba kiếm tiên, tiếng tăm truyền đến cả Đảo Huyền sơn, Vũ Long tông, thậm chí Nam Bà Sa châu xa xôi.
 
-Trần Bình An lại thấp giọng nói: "Đổi lại là ta, muốn giảm giá cái gì, một đồng Cốc Vũ tiền thì một đồng."
+Trình Thuyên ném trả Kiếm Tiên Ấn Phổ, thuận miệng nói:
 
-Trình Thuyên không để ý tới người trẻ tuổi kia, lão kiếm tu thần sắc hoảng hốt, trên khuôn mặt tang thương chậm rãi hiện ra một chút ý cười, lẩm bẩm nói: "Năm đó nàng là nữ tử xinh đẹp nhất của Kiếm Khí Trường Thành chúng ta, nhìn rất đẹp."
+- Sau này làm kiếm tu, cũng đừng nhập thế quá sâu.
 
-Nói tới đây, Trình Thuyên nghiêm trang nói với Trần Bình An: "So với Trữ Diêu nhà ngươi còn muốn xuất sắc hơn chút."
+Trần Bình An cất ấn phổ. Hôm nay hai cuộc mua bán Bao Phục trai đều không thành, còn tốn hai bình rượu tiên gia, nhưng Trình Thuyên đã nói chuyện làm kiếm tu, thêm nữa chuyện bất quá tam, là dấu hiệu tốt. Hắn cười:
 
-Không ngờ người đọc sách trở mặt còn nhanh hơn lật sách.
+- Mượn lời chúc tiền bối, chờ thành kiếm tu rồi nói sau.
 
-Trần Bình An trực tiếp chửi ầm lên: "Thả mẹ ngươi cái rắm chó!"
+Hai người im lặng, mỗi người xuất kiếm. Tề Thú hơi hâm mộ nhị chưởng quầy: người này thật sự có thể trò chuyện với bất cứ ai.
 
-Trình Thuyên ngược lại tâm tình rất tốt, cảnh tượng quen thuộc, căn bản không sợ cái này, chỉ là uống rượu của người ta, lấy con dấu của người ta, rốt cuộc là không dễ mắng lại, cười nói: "Sao còn mắng chửi người ta."
+Một lúc lâu sau, Trình Thuyên bỗng nói:
 
-Trần Bình An hỏi: "Nếu ngươi đem cảnh giới đặt ở tu sĩ tam cảnh, ngươi thấy ta mắng hay không mắng ngươi?"
+- Theo ta thấy, bỏ qua quyền pháp pháp bảo, tiểu tử ngươi nhanh trí, đó mới là bản lĩnh dựa vào thân nhất. Nếu ta bảo ngươi khắc con dấu vừa rồi, biên khoản giữ nguyên, chỉ đổi ấn văn, ngươi sẽ khắc gì?
 
-Trình Thuyên mỉm cười nhắc nhở: "Nhị chưởng quỹ, nếu ngươi cứ không buông tha như vậy, ta sẽ không khách khí đâu."
+- Theo ta, những chữ trên ấn tín kiếm tiên và mặt quạt kia[?], đọc chút sách thì cùng lắm chỉ biết trích dẫn rồi dùng. Không tính là bản lĩnh thật sự. Đệ tử nhất mạch Văn Thánh, một bụng học vấn, không nên chỉ dừng ở đó.
 
-Tề Thú có chút bất đắc dĩ.
+Lần này đến lượt Trình Thuyên mở rộng tầm mắt. Nhị chưởng quầy trực tiếp lấy ra một phôi ấn, cười:
 
-Bên kia một già một trẻ, hai người cãi nhau, cãi ra khí thế hai trăm người kéo bè kéo lũ đánh nhau.
+- Làm phiền Trình tiền bối giúp trông chiến trường một lát, đương nhiên chiến công vẫn tính cho ta.
 
-May mà không chậm trễ xuất kiếm ngăn địch.
+Có Trình Thuyên xuất kiếm giúp ngăn địch, chiến trường vô cùng ổn định. Trần Bình An nhàn nhã thu bốn phi kiếm, ba thanh vào hồ lô dưỡng kiếm nghỉ ngơi, chỉ lấy Mười Lăm làm dao khắc. Hắn không chỉ sửa ấn văn mà đổi cả biên khoản.
 
-Điều này cũng bình thường, một vị là lão kiếm tu đã trải qua chém giết, một vị là nhị chưởng quỹ.
+Lão nhận lấy, đặt trong lòng bàn tay xem, mặt không đổi sắc gật đầu:
 
-Chuyện duy nhất Tề Thú không nghĩ tới, đó là hai bên thật sự có thể mắng.
+- Tạm được.
 
-Xem ra là Trần Bình An chiếm thượng phong, bởi vì một ít lời mắng chửi người, Trần Bình An là dùng ngôn ngữ quê nhà hoặc là nhã ngôn châu khác mắng ra miệng.
+Con dấu mới tinh trông như không thật sự được yêu thích ấy được lão cất vào tay áo.
 
-Trình Thuyên lại nghe không hiểu, còn phải đi đoán xem đối phương rốt cuộc mắng cái gì, Trần Bình An có đôi lúc ánh mắt thương hại, dùng phương ngôn nơi khác, khen người ta mắng người xen lẫn cùng một chỗ, ngẫu nhiên lại dùng ngôn ngữ Kiếm Khí Trường Thành nói lại một lần, Trình Thuyên muốn đối chọi gay gắt, liền lại đoán được lời nói kia là thật hay giả, cho nên có chút tình cảnh gian nan, một thân công lực mắng nhau nhiều năm với Triệu sa đà đi ra, khó tránh khỏi suy giảm nặng nề.
+Biên khoản viết:
+
+“Cố nhân càng là giai nhân, khẳng khái nhiều khí tiết.
+
+Thiếu niên trong lòng có một ngọn núi, bỗng bị mây trộm đi.”[?]
+
+Ấn văn: “Không cẩn thận”.
+
+Trần Bình An chưa vội xuất kiếm, vẫn nhờ Trình Thuyên quét dọn chiến trường, lẩm bẩm:
+
+- Trong lòng có điều tốt đẹp, không sợ người khác nhìn thấy.
+
+Hắn lấy quạt trúc ngọc học sinh Thôi Đông Sơn tặng, quạt cho mình và Trình tiền bối, cười ha ha:
+
+- Con dấu chế riêng cho tiền bối, chất liệu tốt không nói, từng chữ đều dụng tâm. Giá gốc không cao, một đồng tiền cốc vũ. Tiền bối là kiếm tiên giảm hai phần, bây giờ lại giúp vãn bối giết địch, giảm năm phần, chỉ cần năm đồng tiền tiểu thử!
+
+Hắn lại hạ giọng:
+
+- Đổi là ta, còn muốn giảm giá gì nữa? Một đồng tiền cốc vũ thì một đồng.
+
+Trình Thuyên không để ý hắn. Lão thần sắc hoảng hốt, trên khuôn mặt tang thương chậm rãi hiện ý cười:
+
+- Năm đó nàng là nữ tử xinh đẹp nhất Kiếm Khí Trường Thành chúng ta, nhìn rất đẹp.
+
+Lão nghiêm trang nói tiếp:
+
+- Còn xuất sắc hơn Ninh Diêu nhà ngươi một chút.
+
+Không ngờ người đọc sách trở mặt nhanh hơn lật sách. Trần Bình An lập tức chửi:
+
+- Thả mẹ ngươi cái rắm chó!
+
+Trình Thuyên lại vui vẻ. Cảnh tượng quen thuộc, lão căn bản không sợ. Chỉ là uống rượu, nhận con dấu của người ta, rốt cuộc khó mắng lại, bèn cười:
+
+- Sao còn mắng người?
+
+- Nếu ngươi đè cảnh giới xuống tam cảnh, ngươi xem ta có mắng không?
+
+Trình Thuyên mỉm cười nhắc:
+
+- Nhị chưởng quầy, nếu ngươi không chịu buông tha, ta sẽ không khách khí đâu.
+
+Tề Thú bất đắc dĩ. Một già một trẻ cãi nhau, cãi ra khí thế hai trăm người kéo bè đánh nhau. May mà không làm chậm xuất kiếm ngăn địch. Cũng bình thường, một người là lão kiếm tu trải qua chém giết, một người là nhị chưởng quầy.
+
+Chuyện duy nhất Tề Thú không ngờ là hai người thật sự rất biết mắng. Trần Bình An có vẻ chiếm thượng phong, bởi có những lời hắn dùng tiếng quê nhà hoặc nhã ngôn châu khác để mắng. Trình Thuyên nghe không hiểu, còn phải đoán đối phương mắng gì.
+
+Có lúc Trần Bình An nhìn lão đầy thương hại, dùng phương ngôn nơi khác trộn lời khen với lời mắng, thỉnh thoảng mới nói lại bằng tiếng Kiếm Khí Trường Thành. Trình Thuyên muốn đối chọi gay gắt lại phải đoán lời ấy thật hay giả, thành ra công phu cãi nhau nhiều năm với Triệu Hạm khó tránh suy giảm nặng nề.
 
 Rất náo nhiệt.
 
-Lúc Phạm Đại Triệt đưa rượu cho Trần Bình An, da đầu tê dại.
+Phạm Đại Triệt đưa rượu đến, nghe mà tê dại da đầu. Hắn chỉ tới một lần không dám tới nữa, nhờ Đổng Họa Phù tạm rút khỏi chiến trường nghỉ ngơi tiện thể đưa rượu. Đổng Họa Phù lại thích náo nhiệt, ngồi bên dựng tai nghe, vừa dưỡng kiếm vừa xem, cảm thấy học được không ít học vấn mới. Huống hồ công phu đổ thêm dầu vào lửa của hắn là thiên phú độc nhất, không ai học nổi.
 
-Phạm Đại Triệt chỉ đến một lần cũng không dám đến nữa, bảo Đổng Họa Phù tạm thời rút khỏi chiến trường nghỉ ngơi để đưa rượu. Đổng Họa Phù ngược lại thích phần nhiệt náo này, ngồi ở một bên, dựng thẳng tai lắng nghe, vừa có thể dưỡng kiếm, vừa có thể xem náo nhiệt, cảm thấy mình học được không ít học vấn mới. Huống chi Đổng Họa Phù lửa cháy đổ thêm dầu, phần công phu ủi lửa kia, là thiên phú độc nhất mà bất luận kẻ nào cũng không học được.
+Mười ngày trôi qua, hai quân chưa từng ngừng chiến, Trình Thuyên và Trần Bình An lại nghênh đón một lần đình chiến.
 
-Mười ngày trôi qua, hai quân đối chọi chưa từng ngưng chiến, Trình Thuyên và Trần Bình An lại nghênh đón lần nữa ngưng chiến.
+Thật ra người chịu dày vò nhất là Tề Thú. Trần Bình An thường lôi hắn ra nói, mở miệng một tiếng Tề huynh đệ của ta. Nào là tuổi còn trẻ, mới ngoài ba mươi đã là kiếm tu Nguyên Anh. Trình lão nhân muốn chút mặt mũi thì mau tránh xa Tề Thú.
 
-Kỳ thật Tề Thú mới là người chịu đủ dày vò nhất.
+Lão cảnh giới không cao đã đành, nghe nói chỉ có hai phi kiếm bản mạng, còn Tề huynh đệ có mấy thanh? Mấu chốt là mỗi thanh của Tề huynh đệ đều là cực phẩm ngàn năm khó gặp vạn năm không có, Trình lão nhân lấy gì so?
 
-Trần Bình An thường xuyên nói với hắn sự tình, mở miệng một tiếng Tề huynh đệ kia của ta như thế nào như thế nào, cái gì tuổi còn trẻ, ba mươi là tiểu tử, cũng đã là Nguyên Anh kiếm tu, Trình lão nhân ngươi muốn chút mặt mũi, thì nhanh chóng cách xa Tề Thú một chút. Trình lão nhân ngươi cảnh giới không cao còn chưa tính, nghe nói phi kiếm bản mạng cũng mới có hai thanh, Tề huynh đệ là mấy thanh phi kiếm? Mấu chốt là mỗi một thanh phi kiếm của Tề huynh đệ, đó đều là cực phẩm ngàn năm khó gặp vạn năm không có, Trình lão nhân ngươi làm sao so sánh được với người ta?
+Với tính tình Trình Thuyên, một khi tức giận, đừng nói Tề Thú, ngay cả mười tám đời tổ tông Tề gia cũng không tha.
 
-Với tính tình của Trình Thuyên, vừa lên đến đỉnh, đừng nói là mắng Tề Thú, ngay cả tổ tông mười tám đời của Tề gia cũng sẽ không bỏ qua.
+Lúc này lão cười:
 
-Lúc này Trình Thuyên cười nói: "Trần lão đệ, sau khi luận bàn với đệ, lão ca ta lại cãi nhau với người đàn bà lằng nhằng của Triệu đại ca, ổn rồi."
+- Trần lão đệ, sau khi luận bàn với đệ, lão ca ta lại cãi nhau với tên đàn bà lằng nhằng Triệu Hạm thì nắm chắc phần thắng rồi.
 
-Trần Bình An phe phẩy chiết phiến, mỉm cười nói: "Để lão tử nói một câu công đạo, một mình ta có thể mắng hai người các ngươi."
+Trần Bình An phe phẩy quạt, mỉm cười:
 
-Trình Thuyên trừng mắt nói: "Cho chút màu sắc là mở phường nhuộm đúng không? Lại so chiêu?!"
+- Để lão tử nói một câu công đạo, một mình ta có thể mắng cả hai người các ngươi.
 
-Trần Bình An nhìn như trầm mặc, nhưng tụ âm thành tuyến, lặng lẽ nói với Trình Thuyên.
+Trình Thuyên trừng mắt:
 
-Trình Thuyên tựa hồ đang cân nhắc lợi hại, cuối cùng gật đầu, nói với Tề Thú: "Thằng oắt con Tề gia mắt dài trên trán kia, Trình gia gia nhìn thấy căn cốt của ngươi thanh kỳ, tặng ngươi một cơ duyên như thế nào?"
+- Cho chút màu sắc là mở phường nhuộm? Lại so chiêu?!
 
-Tề Thú giả câm vờ điếc.
+Trần Bình An thoạt nhìn im lặng, nhưng tụ âm thành tuyến, lén nói với lão. Trình Thuyên cân nhắc một phen, cuối cùng gật đầu, nói với Tề Thú:
 
-Trình Thuyên cầm trong tay thêm hai chồng phù lục, đi tới chỗ Tề Thú.
+- Thằng nhóc Tề gia mắt mọc trên trán kia, Trình gia gia thấy căn cốt ngươi thanh kỳ, tặng ngươi một cơ duyên thế nào?
 
-Một lát sau, Trình Thuyên quay về chỗ cũ, không phải bên cạnh Trần Bình An, mà là giải đất đầu tường của nữ kiếm tiên Tạ Tùng Hoa và người đọc sách Lưu Tiện Dương.
+Tề Thú giả câm giả điếc. Trình Thuyên cầm thêm hai xấp phù đi tới chỗ hắn. Một lát sau lão trở lại vị trí của Tạ Tùng Hoa và Lưu Tiện Dương, không ngồi cạnh Trần Bình An nữa.
 
-Tề Thú lấy ra hai tấm phù lục, phân biệt là lộ dẫn phù cùng Quá Kiều Phù, cẩn thận đánh giá một phen, hai loại phù lục, phẩm trật còn cao hơn so với trong tưởng tượng, vẽ ở trên những lá bùa thô sơ kém này, thật sự là giày xéo phù lục, Tề Thú do dự một phen, rốt cuộc cùng Trần Bình An tiếng lòng nói: "Ngươi rốt cuộc đang tính toán cái gì?"
+Tề Thú lấy ra hai lá lộ dẫn phù và quá kiều phù, cẩn thận xem xét. Phẩm trật hai loại còn cao hơn hắn tưởng, vẽ trên giấy thô kém này thật giày xéo phù lục. Do dự một lát, hắn dùng tiếng lòng hỏi Trần Bình An:
 
-Trình Thuyên nói Tề Huyền săn thanh phi kiếm bản mạng Khiêu Châu kia, hiện giờ chưa luyện hóa đến cảnh giới xuất thần nhập hóa, số lượng không có, vẫn là kém chút uy thế, sau đó nói chút ít lời tiền bối Tề Thú không thể không nghiêm túc nhai nuốt dạy bảo, đều là Trình Thuyên và Ngự Kiếm Tâm Đắc của Triệu Tiêu, chưa hẳn hoàn toàn thích hợp để xuất kiếm cho Tề Thú, nhưng đối với tu sĩ Nguyên Anh rất dễ dàng rơi vào cảnh bất động như núi mà nói, cho dù là một chút ích lợi đại đạo cũng không thể khinh thường.
+- Rốt cuộc ngươi tính toán gì?
 
-Trừ cái đó ra, Trình Thuyên còn đề nghị Tề Thú đừng ngại làm ăn với Trần Bình An, sẽ không thua thiệt, thua lỗ thì tìm Triệu Tiêu đền tiền.
+Trình Thuyên vừa nói phi kiếm bản mạng Khiêu Châu của hắn chưa luyện đến xuất thần nhập hóa, số lượng tuy có nhưng uy thế vẫn thiếu một chút. Sau đó lão dạy mấy lời tiền bối mà Tề Thú không thể không suy ngẫm, đều là tâm đắc ngự kiếm của Trình Thuyên và Triệu Hạm.
 
-Trần Bình An cười nói: "Giúp người chính là giúp mình."
+Chúng chưa chắc hoàn toàn thích hợp với Tề Thú, nhưng đối với tu sĩ Nguyên Anh dễ rơi vào cảnh trì trệ bất động, dù chỉ một chút ích lợi đại đạo cũng không thể xem nhẹ.
 
-Trần Bình An bổ sung một câu, "Về phần có muốn cho Man Hoang thiên hạ một cái ngoài ý muốn nho nhỏ hay không, tùy ngươi. Ta chưa bao giờ làm ăn bám rễ, chú ý một cái ngươi tình ta nguyện, kiếm tiền vui vẻ, tiêu tiền vui vẻ."
+Ngoài ra, Trình Thuyên còn đề nghị hắn đừng ngại làm ăn với Trần Bình An, sẽ không thiệt. Nếu thiệt thì tìm Triệu Hạm đền tiền.
 
-Tề Thú lâm vào trầm tư.
+Trần Bình An cười:
 
-Phương án lúc trước của Trình Thuyên rất đơn giản, lại phức tạp.
+- Giúp người cũng là giúp mình. Còn có muốn cho Man Hoang thiên hạ một bất ngờ nho nhỏ không, tùy ngươi. Ta làm ăn chưa từng ép buộc, chú trọng đôi bên tình nguyện, kiếm tiền vui vẻ, tiêu tiền cũng vui vẻ.
 
-Đơn giản, là vì thanh phi kiếm Khiêu Châu tương lai có hi vọng tễ thân tiên binh kia, có thể hóa thành trăm ngàn thanh phi kiếm chân thật không sai, kiếm ý không giảm nửa điểm, nếu số lượng đủ rồi, vậy thì bổ sung một chút đồ vật thêm vào, giống như tăng thêm một loại bản mạng thần thông cho phi kiếm bản mạng.
+Tề Thú trầm tư. Phương án Trình Thuyên nói vừa đơn giản vừa phức tạp.
 
-Phức tạp, là cái gọi là "bồi bổ" hời hợt này, quá trình cực kỳ rườm rà, cần có người phụ tá mỗi một thanh phi kiếm phù lục, giữa phi kiếm cùng phi kiếm, hoàn hoàn xâu chuỗi, cần mỗi một thanh nhảy châu đều kết thành phù trận, cuối cùng toàn bộ phi kiếm nhảy châu, biến thành một tòa phù trận.
+Đơn giản vì Khiêu Châu có hy vọng bước vào hàng tiên binh tương lai có thể hóa thành hàng trăm hàng ngàn thanh phi kiếm thật, kiếm ý không giảm nửa phần. Nếu số lượng đủ, thêm vào chút gì đó, giống như tăng thêm một thần thông bản mạng cho phi kiếm.
 
-Trừ cái đó ra, Tề Thú còn có nỗi lo ngầm, lo lắng mất nhiều hơn được, sẽ làm Trần Bình An trong quá trình này, quá mức quen thuộc đối với phi kiếm bản mạng của mình.
+Phức tạp vì cái gọi là thêm vào ấy cực kỳ rườm rà. Cần phù lục phụ trợ từng thanh phi kiếm, nối chúng liên tiếp, mỗi thanh Khiêu Châu kết thành một phù trận, cuối cùng toàn bộ phi kiếm hợp thành một tòa phù trận lớn.
 
-Dù sao thanh phi kiếm nhảy châu này, so với bội kiếm Bán Tiên binh tổ truyền "Dòng nến cao" kia, càng là căn bản của đại đạo Tề Thú.
+Tề Thú còn lo được không bù mất, sợ quá trình ấy khiến Trần Bình An hiểu quá rõ phi kiếm bản mạng của mình. So với bội kiếm bán tiên binh tổ truyền Dòng Nến Cao[?], Khiêu Châu càng là căn bản đại đạo của hắn.
 
-Mặc kệ là liều mạng với người khác, hay là giết địch trên chiến trường, khi Tề Thú có thể điều khiển một ngàn thanh phi kiếm nhảy châu danh xứng với thực, là loại cảnh tượng nào?
+Bất kể liều mạng với người hay giết địch trên chiến trường, khi Tề Thú có thể khống chế một ngàn thanh Khiêu Châu danh xứng với thực sẽ là cảnh tượng thế nào? Kẻ địch lại cảm thấy ra sao?
 
-Người đối địch với hắn, lại có loại cảm thụ nào?
+Như chính Tề Thú đã nói, rời đầu tường, hắn và Trần Bình An là kẻ địch.
 
-Tựa như Tề Thú đã nói, rời khỏi đầu tường, hắn cùng Trần Bình An, chính là kẻ địch.
+Trần Bình An bỗng cười:
 
-Trần Bình An đột nhiên cười nói: "Ngươi có nghĩ tới hay không, lấy nội tình hùng hậu của Tề gia, chỉ cần nghĩ tới điểm này, trước khi ngươi học được môn thần thông phù lục này từ chỗ ta, ngươi chỉ cần có thể vẽ gáo, đập tiền mà thôi, lại có một loại thu hoạch lớn khai sinh? Là bị ta quen thuộc khiêu châu chỉ có thần thông này, tương đối thiệt thòi, vẫn là Tề thú có thêm một phần chiến lực thực tế, so ra kiếm, Tề huynh ơi Tề huynh, tự mình cân nhắc đi."
+- Ngươi có nghĩ tới không, với nội tình Tề gia, chỉ cần biết điểm này, trước khi học được thần thông phù lục từ ta, ngươi cứ chiếu theo mà làm, bỏ tiền ra là có thể có thu hoạch lớn[?]. Để ta quen thuộc thần thông Khiêu Châu là thiệt hơn, hay Tề Thú có thêm chiến lực thật sự là lợi hơn? Tề huynh tự cân nhắc.
 
-Tề Thú cúi đầu nhìn hai xấp phù lục chưa trả lại, cau mày nói: "Sau khi phá cảnh, hiện giờ ta có thể khống chế gần bảy trăm thanh phi kiếm Khiêu Châu, phù lục Hoàng Chỉ của ngươi thật sự có thể kết trận sao? Giá mỗi một tờ phù lục, tính như thế nào? Một khi chỉ là thủ đoạn gân gà, đến lúc đó đối đầu với kiếm tu Yêu tộc Thượng ngũ cảnh, sẽ bị tùy tiện phá tan? Quan trọng nhất, ngươi thật sự sẽ dốc túi truyền thụ, toàn bộ tinh diệu của một đạo phá phù trận với ta sao? Lui một vạn bước mà nói, ta là một kiếm tu thuần túy, đại chiến liên tiếp, còn làm sao tự mình đi học phù lục kia, nếu ngươi chỉ vẽ một cái bánh lớn, ta tiêu tiền lại không ăn, tính là chuyện gì?"
+Tề Thú cúi nhìn hai xấp phù chưa trả, nhíu mày:
 
-Trần Bình An chậc chậc nói: "Tề huynh không đủ rộng lượng. Cùng ta kết phường buôn bán, sẽ không thiệt thòi, chỉ có kiếm nhiều kiếm ít mà thôi. Cái này không phải ta tùy tiện nói, là sự thật ta làm các ngươi cũng nhìn thấy."
+- Sau khi phá cảnh ta có thể khống chế gần bảy trăm thanh Khiêu Châu. Phù giấy vàng của ngươi thật sự kết trận được sao? Mỗi tấm tính giá thế nào? Nếu chỉ là thủ đoạn vô dụng, gặp kiếm tu yêu tộc thượng ngũ cảnh sẽ bị tùy tiện phá tan thì sao?
 
-Cuối cùng Trần Bình An quay đầu, khép quạt xếp lại, vẻ mặt tiếc hận, lắc đầu thở dài nói: "Tề huynh, coi ta là đại địch sinh tử ngoài chiến trường, có xứng với kiếm tiên đại đạo mà Tề huynh đệ coi là vật trong túi không?"
+- Quan trọng nhất, ngươi thật sẽ dốc túi truyền hết tinh diệu phù trận cho ta? Lui một vạn bước, ta là kiếm tu thuần túy, đại chiến liên tiếp, còn làm sao tự học phù lục? Nếu ngươi chỉ vẽ bánh lớn, ta tiêu tiền mà không ăn được thì tính sao?
 
-Trần Bình An lấy quạt gấp một chiêu, mang hai xấp phù lục kia ngự về bên cạnh mình, cười nói: "Mua bán không thành nhân nghĩa, tặng không một câu thánh nhân dạy bảo của Tề huynh, "Quân tử kính trọng người trong lòng mình, mà không ngưỡng mộ người trên trời, là lấy ngày tiến thủ."
+Trần Bình An tặc lưỡi:
 
-Trình Thuyên cười hỏi bằng tiếng lòng: "Sinh ý đã thất bại như vậy?"
+- Tề huynh không đủ rộng lượng. Hợp tác làm ăn với ta sẽ không thiệt, chỉ khác kiếm nhiều hay ít. Đây không phải ta tùy tiện nói, mà là sự thật các ngươi đều thấy.
 
-Trần Bình An nói: "Nhân chi thường tình, đổi thành ta, cũng sẽ không tùy tiện đáp ứng."
+Hắn quay đầu khép quạt, tiếc nuối lắc đầu thở dài:
 
-Trình Thuyên gật đầu nói: "Chuyện phù trận, quả thật gân gà, Tề Thú không bị ngươi lừa, coi như có chút đầu óc."
+- Tề huynh coi ta là đại địch sinh tử ngoài chiến trường, có xứng với đại đạo kiếm tiên mà huynh coi là vật trong túi không?
 
-Trần Bình An cười nói: "Cũng không thể nói như vậy, phương pháp phù lục này của ta, cực kỳ không dễ có được, một khi thành, uy lực thật sự không nhỏ..."
+Hắn vẫy quạt gọi hai xấp phù về, cười:
 
-Trình Thuyên ngẩn người: "Đợi lát nữa, theo ý của ngươi, là thành hay không thành, ngươi cũng không có cam đoan?!"
+- Mua bán không thành còn nhân nghĩa. Tặng Tề huynh một lời thánh nhân dạy: “Quân tử kính trọng người trong lòng mình mà không ngưỡng mộ người trên trời, bởi vậy mỗi ngày tiến bộ.”[?]
 
-Trần Bình An đáp: "Ta với ngươi hoặc là tề thú, nói nhất định có thể lập tức sẽ thành sao? Hơn nữa, chuyện vẽ phù, chú trọng nhất là thiên tư, sau đó quen tay hay việc, thiên kinh địa nghĩa a, trước tiên lãng phí mấy trăm tấm phù lục thì đã sao, tề thú nhiều tiền, còn sợ chút tổn thất ấy? Con mẹ nó nếu lương tâm ta thiếu chút, trực tiếp lấy ra một chồng phù lục Hoàng Tỳ, đó mới gọi là thần tiên tiêu tiền cũng đau lòng."
+Trình Thuyên cười hỏi bằng tiếng lòng:
 
-Trình Thuyên cười ha ha nói: "Trần lão đệ, giúp người, tự mình luyện tập vẽ bùa, còn có thể kiếm tiền, nhất cử tam trúng, đánh được một bộ bàn tính tốt."
+- Làm ăn thất bại vậy sao?
 
-Trần Bình An cười tủm tỉm nói: "Cấu heo còn ngại heo quá béo?"
+- Nhân chi thường tình, đổi là ta cũng không tùy tiện đồng ý.
 
-Trình Thuyên không thể chi.
+Trình Thuyên gật đầu:
 
-Nhưng cuối cùng Trần Bình An nói: "Nhưng nhìn trận chiến lớn nhất trên đời này, ta sẽ thật tâm chờ mong Tề Thú xuất ra cả ngàn kiếm, cho dù còn chưa phải kiếm tu, chỉ cần nghĩ một chút hình ảnh kia thôi cũng sẽ cảm thấy mê mẩn."
+- Phù trận quả thật không mấy hữu dụng. Tề Thú không bị ngươi lừa, coi như có đầu óc.
 
-Quân tử kính trọng người trong lòng, mà không tôn trọng người trên trời, là lấy ngày tiến thủ.
+- Cũng không thể nói vậy. Phương pháp này của ta rất khó có được, một khi thành, uy lực thật sự không nhỏ...
 
-Câu thánh hiền dạy bảo này, đạo lý hay, thật ra xuất phát từ vị tiên sinh kia của Trần Bình An.
+Trình Thuyên ngẩn ra:
 
-Nếu có thể hâm mộ tất cả của người khác, đồng thời có thể trái lại càng kính người mình hơn, có thể tốt hơn hay không?
+- Khoan đã, ý ngươi là thành hay không, ngươi cũng không bảo đảm?!
 
-Về sau nghi hoặc nho nhỏ này, chút tâm đắc đọc sách bé nhỏ không đáng kể đó, nhất định phải nói với tiên sinh nhà mình một chút.
+- Ta từng nói với tiền bối hay Tề Thú là nhất định lập tức thành sao? Vẽ phù chú trọng thiên tư, sau đó quen tay hay việc, là lẽ đương nhiên. Trước tiên lãng phí mấy trăm tấm thì sao? Tề Thú nhiều tiền, còn sợ chút tổn thất ấy? Nếu lương tâm ta kém hơn một chút, trực tiếp lấy một chồng giấy phù hoàng tỳ ra, thần tiên tiêu tiền cũng phải đau lòng.
 
-Tề Thú hỏi: "Mỗi tấm phù lục giấy vàng, bán bao nhiêu tiền?"
+Trình Thuyên cười ha ha:
 
-Trần Bình An cài quạt xếp ở bên hông, đứng dậy khom lưng, hấp tấp chạy về phía Tề Thú bên kia, miệng lẩm bẩm: "Làm phiền Tề huynh giúp ta giết địch một lát, ta sẽ nói tỉ mỉ cho ngươi. Tóm lại ta có thể cam đoan, mua phù lục càng nhiều, giảm bớt sức mạnh thì càng lớn! Tình nghĩa huynh đệ ân oán rõ ràng như ta và ngươi, ngàn vàng khó mua!"
+- Trần lão đệ giúp người, tự luyện vẽ phù, còn có thể kiếm tiền, một công ba việc. Bàn tính đánh thật hay.
 
-Sau đó đến bên cạnh Tề Thú, Trần Bình An lại quay đầu hô một câu, "Trình lão ca, Tề huynh đệ, giúp đỡ một chút, xuất ra một chút phong phạm tiền bối. Nhiều nhất nhất nửa khắc, Tề huynh có thể trở về đầu tường."
+Trần Bình An cười tủm tỉm:
 
-Trần Bình An dẫn theo Tề Thú rời khỏi đầu tường, cùng nhau ngồi xổm trên lối đi ở góc tường, đem những lá bùa giấy vàng kia chất đống bên chân mình, tụ âm thành tuyến, nhẹ giọng nói: "Phù lục khác nhau, có giá khác nhau, Tề huynh không phải loại người tính toán chi li, cho nên ta trực tiếp đưa ra một cái giá đóng gói công bằng, giảm giá đôi, một ngàn lá bùa, không thiếu một lá, chỉ lấy ba đồng Cốc Vũ tiền của Tề huynh."
+- Mổ heo còn chê heo quá béo sao?[?]
 
-Tề Thú muốn đứng dậy rời đi.
+Trình Thuyên không biết đáp thế nào. Nhưng cuối cùng Trần Bình An nói:
 
-Một ngàn tờ giấy vàng chất liệu, ở Hạo Nhiên Thiên Hạ có thể tiêu mấy lượng bạc? Nhiều lắm mấy chục lượng.
+- Trên trận chiến lớn nhất đời này, ta thật lòng mong thấy Tề Thú xuất cả ngàn kiếm. Dù còn chưa phải kiếm tu, chỉ nghĩ đến cảnh ấy cũng đã mê mẩn.
 
-Cho dù đan sa vẽ bùa sử dụng quả thật tiêu hao không ít, nhưng mà lấy tính tình keo kiệt của Trần Bình An, có thể một hơi vẽ ra hơn ngàn tấm chu sa tiên gia, phẩm trật nhất định sẽ không quá tốt, lại có thể hao phí bao nhiêu đồng tiền Tuyết Hoa? Nhiều nhất chính là chi tiêu của mấy đồng tiền Tiểu Thử.
+“Quân tử kính trọng người trong lòng mình mà không ngưỡng mộ người trên trời, bởi vậy mỗi ngày tiến bộ.” Lời thánh hiền đạo lý rất hay ấy thật ra xuất phát từ tiên sinh của Trần Bình An.
 
-Trần Bình An không ngăn cản, chỉ là tự nói: "Bộ phù trận này của ta, có liên quan với tam sơn cửu hầu, đương nhiên không phải nguyên xi phong ấn, nói thật, ta hôm nay chút cảnh giới này, không có bản lãnh vẽ ra, nhưng mà căn bản phù trận, quả thật rất có lai lịch, có liên quan với thích thú. Trừ cái đó ra, ta khẳng định sẽ xuất ra tạo nghệ vẽ phù cả đời, không giấu một chút nào, có thể tiết kiệm cho Tề huynh một tấm phù lục là một tấm, đương nhiên, trước đó nói rõ, dù sao cũng là một tòa phù trận thất truyền đã lâu, không phải đơn giản vẽ bùa, một chút hao tổn, Tề huynh phải chuẩn bị tâm lý thật tốt. Về phần làm sao lấy phù ý phụ thân kiếm, lại là một môn tuyệt học độc môn rất giỏi."
+Nếu có thể hâm mộ những gì người khác có, đồng thời càng kính trọng chính mình, có phải sẽ tốt hơn không? Nghi hoặc nhỏ này, chút tâm đắc đọc sách không đáng kể này, sau nhất định phải nói với tiên sinh.
 
-Tề Thú một lần nữa ngồi xổm xuống tại chỗ.
+Tề Thú hỏi:
 
-Lên núi khó khăn ở gõ cửa gạch, vạn kim khó mua một thuật pháp.
+- Mỗi tấm phù giấy vàng bán bao nhiêu?
 
-Đây là quy củ tu hành trên núi.
+Trần Bình An cài quạt vào hông, đứng dậy khom lưng hấp tấp chạy tới:
 
-Tề Thú híp mắt cười nói: "Một ngàn tấm phù lục đã vẽ xong này, làm sao phụ tá thanh phi kiếm kia của ta? Chẳng lẽ ngay từ đầu ngươi đã nghĩ kỹ, muốn cùng ta làm vụ mua bán này, cho nên Trương Phù Lục cũng có bắn tên? Hơn nữa ngay cả ngươi và ta làm hàng xóm, cũng có thể sớm đoán được?"
+- Làm phiền Tề huynh giúp ta giết địch một lát, ta nói tỉ mỉ cho ngươi. Tóm lại ta bảo đảm, mua càng nhiều giảm giá càng lớn! Tình nghĩa huynh đệ ân oán rõ ràng như ngươi và ta, ngàn vàng khó mua!
 
-"Nhìn xem, Tề huynh lại lấy lòng quân tử độ bụng Thánh nhân, oan uổng chết ta rồi."
+Đến bên cạnh Tề Thú, hắn quay đầu gọi:
 
-Trần Bình An có chút thẹn thùng, cầm lấy một xấp lá bùa, lấy ngón tay gạt ra từng tờ từng tờ, thì ra trừ mấy tờ đầu đuôi, còn lại đều trống không, Trần Bình An bất đắc dĩ nói: "Con đường vẽ bùa, là khó khăn nhất để cầu tinh tế nhất, lần trước cùng Ly Chân giết đến trời đất tối tăm, tổn hại quá nhiều phù lục giá trị liên thành, ta bị thương rất nặng, ngã liên tục tam cảnh, Tề huynh bằng lương tâm nói, có thể tưởng tượng phần chịu tội này không? Sau đó, ta vẫn luôn phân thân không đủ thuật, lại phải luyện quyền, lại phải tu bổ cảnh giới, những lá bùa này, cũng chưa kịp vẽ. Cho nên lúc trước quên nói, phí công vẽ bùa này, cùng với mất đi nhiều chiến công giết yêu như vậy..."
+- Trình lão ca, giúp đỡ một chút, xuất ra phong phạm tiền bối. Nhiều nhất nửa khắc, Tề huynh sẽ trở lại đầu tường.
 
-Tề Thú cười lạnh nói: "Trình Thuyên giúp ngươi giết yêu, chiến công chạy không thoát."
+Trần Bình An dẫn Tề Thú rời đầu tường, cùng ngồi xổm bên lối đi dưới chân tường. Hắn chất phù giấy vàng bên chân, tụ âm thành tuyến nói nhỏ:
 
-Trần Bình An ồ một tiếng, "Vậy chỉ nói đến phí công vất vả vẽ bùa, Hạo Nhiên Thiên Hạ chúng ta đều có chú ý nhuận bút phí này, Tề huynh ý tứ là được, hai ba đồng Tiểu Thử tiền, mưa bụi."
+- Các loại phù giá khác nhau, Tề huynh không phải người tính toán chi li, nên ta đưa giá trọn gói công bằng, giảm giá hai phần[?]. Một ngàn lá, không thiếu một tờ, chỉ lấy ba đồng tiền cốc vũ.
 
-Tề Thú nói: "Kiếm Khí Trường Thành không có cách nói này."
+Tề Thú muốn đứng dậy. Một ngàn tờ giấy vàng ở Hạo Nhiên thiên hạ đáng mấy lượng bạc? Cùng lắm mấy chục lượng. Dù đan sa vẽ phù quả thật tiêu hao không ít, với tính keo kiệt của Trần Bình An, loại tiên gia chu sa đủ vẽ hơn ngàn tấm chắc chắn phẩm trật không cao, có thể tốn mấy đồng tiền tuyết hoa? Cùng lắm mấy đồng tiền tiểu thử.
 
-Trần Bình An nói: "Ba đồng tiền Cốc Vũ kia, thật sự không thể giảm giá thêm nữa."
+Trần Bình An không cản, chỉ tự nói:
 
-Tề Thú nói: "Ngươi có chủ tâm mổ lợn?"
+- Phù trận này liên quan đến Tam Sơn Cửu Hầu. Đương nhiên không phải phong ấn nguyên vẹn, nói thật cảnh giới hiện nay ta không vẽ nổi. Nhưng căn bản phù trận quả thật có lai lịch lớn, có liên quan đến Thích Thú[?].
 
-"Tề huynh, ta không cho phép ngươi chà đạp chính mình như thế, nói mình là oan đại đầu cũng tốt a."
+- Ngoài ra ta chắc chắn đem hết tạo nghệ vẽ phù cả đời ra, không giấu chút nào, tiết kiệm cho Tề huynh được một tấm là một tấm. Nói rõ trước, dù sao đây là phù trận thất truyền đã lâu, không đơn giản là vẽ bùa, chút hao tổn Tề huynh phải chuẩn bị tâm lý. Còn cách lấy phù ý phụ vào kiếm lại là một tuyệt học độc môn rất giỏi.
 
-Nói xong điều này, Trần Bình An hiếm khi sảng lãng cười ha hả, vỗ vỗ bả vai Tề Thú, "Nhớ tới một người bạn cũ hảo hảo tụ tán còn có thể nhớ tới gặp lại, Tề huynh nhất định sẽ giống như hắn, có thể vận khí vô cùng tốt, sống đến cuối cùng."
+Tề Thú ngồi xổm xuống lần nữa.
 
-Đầu vai Tề Thú bật ra tay của Trần Bình An, nhíu nhíu mày.
+Lên núi khó nhất là có được viên gạch gõ cửa, vạn vàng khó mua một thuật pháp. Đây là quy củ tu hành trên núi.
 
-Trần Bình An ngẩng đầu, nhìn chằm chằm Tề Thú, mỉm cười nói: "Quả nhiên không nhìn lầm Tề huynh, không cần ở trên chiến trường phân sinh tử."
+Hắn nheo mắt cười:
 
-Tề Thú hỏi: "Có ý gì?"
+- Một ngàn tấm phù đã vẽ này làm sao phụ trợ phi kiếm của ta? Chẳng lẽ ngay từ đầu ngươi đã định làm vụ mua bán này, vẽ phù đều có mục đích? Ngay cả chuyện ngươi và ta làm hàng xóm cũng đoán trước được?
 
-Trần Bình An cười nói: "Ngươi đoán đi."
+- Xem kìa, Tề huynh lại lấy lòng quân tử đo bụng thánh nhân, thật oan cho ta.
 
-Tề Thú nở nụ cười, "Ngươi không sợ ta tương kế tựu kế sao? Đừng quên, Khiêu Châu phi kiếm rất nhiều, ngươi vẫn như cũ không biết ta rốt cuộc có mấy thanh, ngươi chẳng lẽ có thể nhìn chằm chằm toàn bộ chi tiết chiến trường chỗ ta?"
+Trần Bình An hơi thẹn thùng, cầm một xấp phù dùng ngón tay lật ra. Thì ra trừ mấy tờ đầu và cuối, ở giữa đều trống không. Hắn bất đắc dĩ:
 
-Trần Bình An gật đầu nói: "Ta nhàn rỗi không có việc gì, ta còn rất lành nghề."
+- Vẽ phù khó nhất là cầu tinh tế. Lần trước ta đánh với Ly Chân đến trời đất tối tăm, tổn hại quá nhiều phù lục giá trị liên thành, bản thân trọng thương, liên tiếp rớt ba cảnh. Tề huynh nói bằng lương tâm, có tưởng tượng được nỗi khổ ấy không?
 
-Tề Thú nhớ tới một chuyện.
+- Sau đó ta phân thân không đủ, vừa phải luyện quyền vừa tu bổ cảnh giới, những lá phù này chưa kịp vẽ. Cho nên lúc trước quên nói, phí công vẽ phù, cùng chiến công giết yêu bị mất...
 
-Từ bên gia tộc lão tổ, nghe nói tất cả kiếm tiên Kiếm Khí Trường Thành trước đó không lâu đều nhận được một đạo mệnh lệnh cổ quái, ở giai đoạn khác nhau sẽ có kiếm tiên khác nhau tự xuất kiếm lưu lực.
+Tề Thú cười lạnh:
 
-Đây tuyệt đối không phải chuyện lão đại kiếm tiên nguyện ý làm.
+- Trình Thuyên giúp ngươi giết yêu, chiến công chạy không thoát.
 
-Nguyện ý đi theo địch, dám cả gan làm phản, tùy tiện.
+- Ồ, vậy chỉ tính phí vất vả vẽ phù. Hạo Nhiên thiên hạ chúng ta chú trọng nhuận bút, Tề huynh cứ tùy ý, hai ba đồng tiền tiểu thử là chuyện nhỏ.
 
-Chỉ cần ẩn tàng đủ sâu, cũng coi như là bản lĩnh, nhưng nếu không thể giấu kỹ, để lão đại kiếm tiên nhìn ra mánh khóe, vậy thì nhất định là một chữ chết.
+- Kiếm Khí Trường Thành không có cách nói này.
 
-Cho nên chắc chắn là có người ngoài đề nghị.
+- Ba đồng tiền cốc vũ kia thật sự không thể giảm nữa.
 
-Trừ cái đó ra, không ít kiếm tu trẻ tuổi đều từ bên kia y phường lấy được một loại phù lục cổ quái, có thể ẩn nấp thân hình.
+- Ngươi cố ý mổ heo?
 
-Dĩ vãng Kiếm Khí Trường Thành không phải không ai có thể vẽ ra loại phù lục này, mà là căn bản không có bất cứ kiếm tu nào cảm thấy có loại tất yếu này.
+- Tề huynh, ta không cho phép ngươi chà đạp bản thân như vậy. Nói mình là oan đại đầu cũng được mà.
 
-Có thể sẽ có một số kiếm tu muốn như thế, nhưng chỉ có thể chôn sâu ý nghĩ khiếp sợ này trong đầu.
+Nói xong, Trần Bình An hiếm khi cười sảng khoái, vỗ vai Tề Thú:
 
-Cho nên vẫn như cũ là có người ngoài có thể thuyết phục lão kiếm tiên, cưỡng ép để kiếm tu trẻ tuổi người dán phù này.
+- Nhớ tới một bằng hữu cũ, chia tay êm đẹp vẫn còn mong gặp lại. Tề huynh nhất định cũng giống hắn, có thể vận khí rất tốt, sống đến cuối cùng.
 
-Hơn nữa trên đầu thành, ngoại trừ mười người đỉnh phong và một số vị trí mấu chốt không thể chuyển động ra, còn lại đông đảo kiếm tiên đều bắt đầu lặng yên không một tiếng động thay phiên nhau đóng giữ vị trí.
+Tề Thú nhún vai hất tay hắn ra, nhíu mày. Trần Bình An ngẩng đầu nhìn hắn, mỉm cười:
 
-Tề Thú hỏi: "Là ngươi nói với lão đại kiếm tiên vài chuyện?"
+- Quả nhiên ta không nhìn lầm Tề huynh, không cần phân sinh tử trên chiến trường.
 
-Trần Bình An cười nói: "Hiện tại không riêng gì súc sinh của Man Hoang thiên hạ muốn ta chết, không ít kiếm tiên phải một lần nữa tìm đường lui cho mình, càng muốn ta chết."
+- Có ý gì?
 
-Tề Thú thần sắc cổ quái: "Ngươi không sợ chết như vậy sao? Ý đồ gì?"
+- Ngươi đoán đi.
 
-Trần Bình An lấy quạt xếp nhẹ nhàng gõ đầu vai mình, "Khi ta muốn chết, ngươi cũng không thể nghĩ ra được lộ số của ta, khi ta muốn sống, ngươi càng không thể nghĩ ra."
+Tề Thú cười:
 
-Tề Thú dứt khoát ngồi dưới đất, dựa lưng vào vách tường, đưa tay nói: "Lấy bầu rượu đến."
+- Ngươi không sợ ta tương kế tựu kế? Đừng quên Khiêu Châu có rất nhiều phi kiếm, ngươi vẫn không biết ta rốt cuộc có mấy thanh. Chẳng lẽ ngươi có thể nhìn hết mọi chi tiết chiến trường của ta?
 
-Trần Bình An ngồi ở một bên, ném qua một bầu Trúc Hải Động Thiên tửu, tự mình tháo xuống hồ lô dưỡng kiếm tạm thời còn dưỡng bốn thanh phi kiếm.
+Trần Bình An gật đầu:
 
-Nghe nói hồ lô dưỡng kiếm sắp thành thục rơi xuống đất ở Đảo Huyền sơn Xuân Phiên Trai kia, phẩm trật cũng rất cao, chỉ là giá quá đắt, hơn nữa sớm có tiền mà không mua được.
+- Ta nhàn rỗi không có việc gì, lại rất giỏi chuyện ấy.
 
-Tề Thú và Trình Thuyên nói: "Trình tiền bối, chờ một lát, ta uống thêm một bầu rượu."
+Tề Thú nhớ tới một chuyện. Từ lão tổ gia tộc, hắn nghe nói trước đó không lâu tất cả kiếm tiên Kiếm Khí Trường Thành đều nhận được một mệnh lệnh kỳ lạ: ở những giai đoạn khác nhau, các kiếm tiên khác nhau phải xuất kiếm giữ lại sức.
 
-Trần Bình An lập tức hô: "Tất cả chiến công trong công phu uống rượu của Tề huynh ta đều tính lên đầu ta."
+Đây tuyệt đối không phải chuyện lão đại kiếm tiên muốn làm. Muốn theo địch, dám làm phản thì tùy. Chỉ cần giấu đủ sâu cũng tính là bản lĩnh, nhưng nếu giấu không kỹ, để lão đại kiếm tiên nhìn ra manh mối thì chỉ có một chữ chết. Cho nên chắc chắn có người ngoài đề nghị.
 
-Tề Thú có chút bất đắc dĩ, lão tử là dùng lời Tâm Hồ Liên Y nói với Trình Thuyên.
+Ngoài ra, không ít kiếm tu trẻ nhận được từ y phường một loại phù kỳ lạ có thể ẩn thân. Trước kia không phải không ai ở Kiếm Khí Trường Thành vẽ được, mà căn bản không kiếm tu nào cảm thấy cần dùng. Có lẽ cũng có người muốn, nhưng chỉ dám chôn sâu ý nghĩ khiếp nhược ấy trong lòng.
 
-Tề Thú uống rượu, hỏi: "Món nợ cũ giữa ta và ngươi?"
+Vậy nên vẫn là người ngoài thuyết phục được lão kiếm tiên, cưỡng ép kiếm tu trẻ dán phù. Hơn nữa, ngoại trừ mười người đỉnh phong và một số vị trí quan trọng không thể di chuyển, đông đảo kiếm tiên trên đầu thành đã bắt đầu lặng lẽ thay phiên đổi vị trí trấn giữ.
 
-Trần Bình An cười nói: "Tề gia năm đó ỷ thế h**p người, chung quy là toàn bộ thủ đoạn bày ra trên mặt bàn, thật ra ta đều có thể tiếp nhận. Khí lực lớn, nắm tay cứng rắn, thẳng đến thẳng lui, cũng coi như một loại đạo lý khác lấy thành đối đãi người, đạo lý như vậy, ta mặc kệ thích hay không thích, chịu là được, bởi vì quá đơn giản, bớt lo lắng bớt, thậm chí có thể bù đắp sai lầm, bù đắp lẫn nhau, tăng tăng giảm giảm. Nếu đến lúc ta có thể ra quyền xuất kiếm, đủ loại đủ loại trước đó vẫn như cũ không tăng không giảm, vậy cũng đơn giản, một năm một mười, trả lại hết cho các ngươi là được. Tề Thú, rất nhiều chỗ khó thật sự, không phải ta khinh thường ngươi, đến Hạo Nhiên Thiên Hạ, mới gọi là lo lắng, phiền toái nhiều lắm, ngươi nếu về sau có cơ hội qua bên đó nhìn một chút, nhớ rõ kiềm chế một chút."
+Tề Thú hỏi:
 
-Tề Thú lắc đầu, "Ta không có hứng thú gì đối với Hạo Nhiên Thiên Hạ, trái lại rất muốn đi nội địa Man Hoang Thiên Hạ một chuyến, học A Lương kia, người mạnh nhất hỏi kiếm."
+- Là ngươi nói với lão đại kiếm tiên những chuyện này?
 
-Trần Bình An cười nói: "Trất kiếm đi nước, rời quê vạn dặm, không còn gì phải lo lắng, là kiếm tiên."
+Trần Bình An cười:
 
-Trần Bình An thu hồi hồ lô dưỡng kiếm, " Khởi công kiếm tiền."
+- Bây giờ không chỉ súc sinh Man Hoang thiên hạ muốn ta chết. Không ít kiếm tiên phải tìm đường lui cho mình càng muốn ta chết.
 
-Tề Thú tế ra bảy trăm ba mươi hai thanh phi kiếm nhảy châu, để dành ở chân tường bên này, mình thì phải quay trở lại đầu tường.
+Tề Thú thần sắc kỳ quái:
 
-Trần Bình An đột nhiên thấp giọng nói: "Nếu là toàn bộ phù lục mấu chốt, đều thay hoàng tỳ hoặc là phù chỉ tốt hơn, phù trận thêm kiếm trận, khó lường, Tề huynh tế kiếm ra đầu thành, uy lực còn không lớn bằng trời!"
+- Ngươi không sợ chết vậy sao? Rốt cuộc đồ cái gì?
 
-Tề Thú dừng bước, tò mò hỏi: "Vậy bao nhiêu tiền?"
+Trần Bình An lấy quạt gõ nhẹ vai mình:
 
-Trần Bình An nghĩ nghĩ, nhìn phía bắc, cười lên, "Tâm tình tốt lắm, chỉ nhận tiền thần tiên giống như ngươi."
+- Khi ta muốn chết, ngươi không đoán ra đường lối của ta. Khi ta muốn sống, ngươi càng không đoán ra.
 
-Tề Thú vừa quay người, liền nghe người nọ nói: "Năm viên mà thôi."
+Tề Thú dứt khoát ngồi dưới đất, dựa lưng vào tường, đưa tay:
 
-Tề Thú quay đầu.
+- Lấy rượu tới.
 
-Người nọ hỏi: "Tề huynh à, hai ta một phen thổ lộ tình cảm, còn không đáng giá hai đồng Cốc Vũ tiền?"
+Trần Bình An ngồi cạnh, ném cho hắn một bình Trúc Hải Động Thiên tửu, mình tháo hồ lô dưỡng kiếm đang tạm dưỡng bốn thanh phi kiếm xuống.
 
-Tề Thú nghiêm mặt lắc đầu trầm giọng nói: "Không đáng."
+Nghe nói hồ lô dưỡng kiếm sắp chín rụng ở Xuân Phiên trai Đảo Huyền sơn phẩm trật cũng rất cao, chỉ là giá quá đắt, từ lâu có tiền cũng không mua được.
 
-Người nọ bất đắc dĩ nói: "Tề huynh luôn xem thường mình như vậy, thật không tốt."
+Tề Thú dùng tiếng lòng nói với Trình Thuyên:
 
-Tề Thú nhảy lên đầu tường, nói một tiếng cảm ơn với tiền bối Trình Thuyên.
+- Trình tiền bối, chờ một lát, ta uống thêm bình rượu.
 
-Bên trong mật thất Trữ phủ.
+Trần Bình An lập tức gọi:
 
-Trần Bình An mở to mắt.
+- Chiến công trong lúc Tề huynh uống rượu đều tính lên đầu ta!
 
-Vậy mà phát hiện thể phách của mình hoàn chỉnh, lông tóc không tổn hao gì.
+Tề Thú bất đắc dĩ. Lão tử dùng tâm hồ liên y nói với Trình Thuyên mà.
 
-Trăm mối vẫn không có cách giải, Trần Bình An mơ mơ màng màng đi ra khỏi mật thất, tới diễn võ trường, dọc theo đường đi thiên địa yên lặng.
+Hắn uống rượu, hỏi:
 
-Không thấy Bạch ma ma lộ diện, đi thẳng đến Trảm Long nhai bên này, giống như trời đất bao la, cũng chỉ có một mình mình mà thôi.
+- Món nợ cũ giữa ta và ngươi?
 
-Trần Bình An ngẩng đầu nhìn lại, có người như khai thiên màn, đi vào diễn võ trường.
+Trần Bình An cười:
 
-Trần Bình An tâm ý khẽ động, khó hiểu có chút gian nan, một chỗ khí phủ chưa bao giờ cố ý mở, kích động không thôi, chỉ là loại cảm giác cổ quái này, giây lát lướt qua.
+- Năm đó Tề gia ỷ thế hiếp người, nhưng tất cả thủ đoạn đều bày trên mặt bàn, thật ra ta có thể tiếp nhận. Sức lớn, nắm đấm cứng, thẳng tới thẳng lui, cũng coi như một loại lấy thành đối đãi người.
 
-Người tới Ninh phủ là lão đại kiếm tiên, phân hồn phách xuất khiếu mà thôi.
+- Đạo lý ấy bất kể thích hay không, ta cứ chịu là được. Bởi nó quá đơn giản, bớt lo nghĩ, thậm chí có thể bù đắp lẫn nhau, tăng tăng giảm giảm. Đến khi ta có thể ra quyền xuất kiếm, nếu mọi chuyện trước đó vẫn không tăng không giảm, vậy cũng đơn giản, từng món trả lại các ngươi là được.
 
-Trần Bình An ôm quyền nói: "Tạ ơn lão đại kiếm tiên xuất kiếm, tạ ơn lão đại kiếm tiên che đậy thiên địa."
+- Tề Thú, rất nhiều chuyện thật sự khó khăn, không phải ta xem thường ngươi, mà đến Hạo Nhiên thiên hạ mới biết lo nghĩ phiền toái nhiều thế nào. Sau này có cơ hội qua đó, nhớ kiềm chế một chút.
 
-Trần Thanh Đô cười nói: "Xuất kiếm là thật, nhưng sao có thể che đậy thiên địa?"
+Tề Thú lắc đầu:
 
-Trần Bình An càng thêm nghi hoặc.
+- Ta không hứng thú với Hạo Nhiên thiên hạ, trái lại muốn đi sâu vào Man Hoang thiên hạ một chuyến, học A Lương hỏi kiếm kẻ mạnh nhất.
 
-Trần Thanh Đô nói: "Vạn năm qua, kiếm tu vô số, có bản mệnh phi kiếm lại không tự biết, thật đúng là không thường gặp."
+Trần Bình An cười:
 
-Trần Thanh Đô nở nụ cười, ngắm nhìn bốn phía, gật gật đầu: "Đặt mình trong đó, hay cho một con chim tước trong lồng."
+- Cầm kiếm đi xa, rời quê vạn dặm, không còn gì vướng bận, ấy là kiếm tiên[?].
 
-Trần Bình An giật mình.
+Hắn cất hồ lô:
 
-Trong lòng cực kỳ sảng khoái.
+- Khởi công kiếm tiền.
 
-Trần Thanh Đô hỏi: "Bắt giữ địch thủ, ở trong thiên địa, là đủ rồi? Thanh phi kiếm bản mạng thứ hai đâu?"
+Tề Thú tế ra bảy trăm ba mươi hai thanh Khiêu Châu, để lại bên chân tường, mình chuẩn bị trở lại đầu tường. Trần Bình An bỗng hạ giọng:
 
-Trong nháy mắt, trong thiên địa trừ Trần Bình An cùng Trần Thanh Đô ra, ngoài ra đều là phi kiếm, tầng tầng lớp lớp, vô số kể.
+- Nếu toàn bộ phù lục then chốt đều đổi sang hoàng tỳ hoặc giấy tốt hơn, phù trận thêm kiếm trận, không thể lường nổi. Tề huynh tế kiếm ra khỏi thành, uy lực há chẳng lớn bằng trời!
 
-Trong thiên địa của ta đều là chim lồng trong lồng.
+Tề Thú dừng bước, tò mò:
+
+- Vậy bao nhiêu tiền?
+
+Trần Bình An nghĩ một lát, nhìn về phía bắc, cười:
+
+- Tâm tình tốt, chỉ nhận tiền thần tiên bằng số kiếm của ngươi[?].
+
+Tề Thú vừa quay người đã nghe hắn nói:
+
+- Năm đồng mà thôi.
+
+Tề Thú quay lại. Người nọ hỏi:
+
+- Tề huynh, hai ta một phen thổ lộ tình cảm, còn không đáng hai đồng tiền cốc vũ sao?
+
+Tề Thú nghiêm mặt lắc đầu:
+
+- Không đáng.
+
+- Tề huynh luôn xem thường mình như vậy, thật không tốt.
+
+Tề Thú nhảy lên đầu tường, nói một tiếng cảm ơn với Trình Thuyên.
+
+Trong mật thất Ninh phủ, Trần Bình An mở mắt, phát hiện thể phách mình hoàn chỉnh, không tổn hao lông tóc. Hắn trăm mối không hiểu, mơ mơ màng màng đi ra mật thất đến diễn võ trường, dọc đường thiên địa yên lặng.
+
+Không thấy Bạch ma ma, hắn đi thẳng đến Trảm Long nhai, tựa như trời đất rộng lớn chỉ còn một mình mình.
+
+Trần Bình An ngẩng đầu, thấy có người như vén màn trời bước vào diễn võ trường. Tâm ý hắn khẽ động, cảm giác có chút gian nan khó hiểu. Một khí phủ chưa bao giờ cố ý mở bỗng kích động không thôi, nhưng cảm giác kỳ lạ ấy thoáng qua rồi mất.
+
+Người tới Ninh phủ là lão đại kiếm tiên, chẳng qua chỉ có một phân hồn xuất khiếu.
+
+Trần Bình An ôm quyền:
+
+- Tạ ơn lão đại kiếm tiên xuất kiếm, tạ ơn lão đại kiếm tiên che đậy thiên địa.
+
+Trần Thanh Đô cười:
+
+- Xuất kiếm là thật, nhưng sao có thể che đậy thiên địa?
+
+Trần Bình An càng nghi hoặc.
+
+- Vạn năm qua kiếm tu vô số, có phi kiếm bản mạng mà bản thân không biết, thật không thường gặp.
+
+Trần Thanh Đô cười, nhìn quanh rồi gật đầu:
+
+- Đặt mình trong đó, hay cho một con chim tước trong lồng.
+
+Trần Bình An giật mình, trong lòng cực kỳ sảng khoái.
+
+Trần Thanh Đô hỏi:
+
+- Bắt giữ địch thủ trong thiên địa này là đủ rồi sao? Thanh phi kiếm bản mạng thứ hai đâu?
+
+Trong nháy mắt, khắp thiên địa ngoài Trần Bình An và Trần Thanh Đô ra đều là phi kiếm, tầng tầng lớp lớp, vô số kể.
+
+Trong thiên địa của ta đều là chim tước trong lồng.
 
 Ta không phải kiếm tu, ai là kiếm tu?!
