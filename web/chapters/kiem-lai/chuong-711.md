@@ -1,341 +1,385 @@
 # Chương 711: Tùy tiện phá cảnh
 
-Lúc trước Trữ Diêu một mình xuất trận, tính toán dẫn đầu phá trận, tiền tuyến Yêu tộc cản trở không tiến lên, đợi Trữ Diêu giết xuyên qua trận hình, dẫn dắt sáu vị kiếm tu, đi vào phụ cận dòng sông màu vàng, đại quân Yêu tộc hai bên chiến trường lại đều đẩy nhanh xung trận, tận lực rời xa vị nữ tử "Kiếm tiên" xuất kiếm quá mức sắc bén này.
+Trước đó Ninh Diêu một mình xuất trận, định dẫn đầu phá trận. Đại quân Yêu tộc ở tiền tuyến bị ngăn trở, không thể tiến lên. Đợi nàng giết xuyên qua trận hình, dẫn sáu vị kiếm tu đến gần dòng sông màu vàng, đại quân Yêu tộc ở hai bên chiến trường lại đồng loạt tăng tốc xông lên, cố hết sức tránh xa vị nữ tử “kiếm tiên” xuất kiếm quá mức sắc bén này.
 
-Giờ khắc này Trữ Diêu hình như là đốc chiến quan " hỗ trợ áp trận", đại quân Yêu tộc liều mạng lao tới trước.
+Lúc này Ninh Diêu giống như một vị đốc chiến quan đang giúp bọn chúng áp trận, khiến đại quân Yêu tộc liều mạng lao về phía trước.
 
-Cho nên sau khi Phạm Đại Triệt ngự kiếm rời khỏi hai người, không hiểu sao lại biến thành một vị kiếm tu Kim Đan, một thân một mình đuổi giết đại quân Yêu tộc mênh mông.
+Thế là sau khi Phạm Đại Triệt ngự kiếm rời khỏi hai người, chẳng hiểu sao lại thành một kiếm tu Kim Đan đơn thương độc mã đuổi giết đại quân Yêu tộc mênh mông.
 
-Phạm Đại Triệt cảm thấy chỉ bằng việc này, sau này nên uống một bình rượu Thanh Thần sơn đắt tiền nhất, chiến công đầy đủ, rốt cuộc có thể không cần vay tiền Trần Tam Thu mua rượu.
+Phạm Đại Triệt cảm thấy chỉ bằng việc này, sau này mình phải uống một bình rượu Thanh Thần sơn đắt nhất mới được. Chiến công đã đủ, cuối cùng hắn cũng không cần vay tiền Trần Tam Thu để mua rượu nữa.
 
-Trần Bình An nhìn chiến trường phía trước, trận hình phía sau đại quân Yêu tộc càng thêm dày nặng chặt chẽ, lấy tốc độ cực nhanh chen chúc về phía trước, hơn nữa tu sĩ Yêu tộc cảnh giới càng cao, càng rời xa ba người bọn họ ở phía sau, đương nhiên trên thực tế, chỉ là vì rời xa Trữ Diêu một mình, hắn và Phạm Đại Triệt.
+Trần Bình An nhìn chiến trường phía trước. Trận hình phía sau của đại quân Yêu tộc càng thêm dày đặc, chen chúc lao lên với tốc độ cực nhanh. Tu sĩ Yêu tộc cảnh giới càng cao thì càng tránh xa ba người bọn họ. Đương nhiên, thật ra bọn chúng chỉ muốn tránh một mình Ninh Diêu mà thôi.
 
-Nói: "Kiếm tu hai bên, bởi vì chúng ta, áp lực sẽ lớn hơn không ít."
+Hắn nói:
 
-Trữ Diêu nói: "Vậy tranh thủ sớm một chút chạm trán với kiếm tu phía trước nhất. Cụ thể, nói như thế nào?"
+- Kiếm tu ở hai bên sẽ vì chúng ta mà chịu áp lực lớn hơn không ít.
 
-Trần Bình An dẫm lên trường kiếm của thanh kiếm phường kia, càng ngày càng quen ngự kiếm sát đất, nhanh chóng cuộn lên hai tay áo, "Lần này đổi ta mở trận, ngươi bọc hậu. Một khi có Kim Đan, Nguyên Anh Yêu tộc kia hiện thân, giao cho ngươi xử trí."
+Ninh Diêu nói:
 
-Trữ Diêu hỏi: "Không tính tế ra phi kiếm?"
+- Vậy thì tranh thủ sớm hội hợp với kiếm tu phía trước. Cụ thể định làm thế nào?
 
-"Chỉ ra quyền. Vừa vặn có thể đánh bóng bình cảnh võ đạo một chút."
+Trần Bình An giẫm lên thanh trường kiếm của kiếm phường, càng lúc càng quen với việc ngự kiếm sát mặt đất. Hắn nhanh chóng xắn hai tay áo lên:
 
-Trần Bình An nói: "Yên tâm, tốc độ khai trận, khẳng định không thể so với ngươi, nhưng mà so với chiến trường nơi khác, sẽ không chậm."
+- Lần này đổi thành ta mở đường, ngươi bọc hậu. Một khi Yêu tộc Kim Đan, Nguyên Anh hiện thân thì giao cho ngươi xử trí.
 
-Trữ Diêu gật đầu nói: "Vậy chỉ cần ra quyền."
+Ninh Diêu hỏi:
 
-Trần Bình An hít sâu một hơi, ngự kiếm như cầu vồng, sau khi đuổi theo Phạm Đại Triệt, dùng tiếng lòng nói: "Đại Triệt, ngươi ở giữa xuất kiếm, ta ở phía trước khai trận, trong lúc đó mặc kệ xuất hiện bất cứ tình huống gì, ngươi cũng không cần so đo, chỉ cần ngự kiếm đi về phía trước. Ta có lẽ không thể quá phân tâm chiếu cố ngươi, nhưng có Trữ Diêu Hậu điện, vấn đề hẳn là không lớn."
+- Không định tế ra phi kiếm sao?
 
-Phạm Đại Triệt trầm giọng nói: "Được!"
+- Chỉ ra quyền thôi, vừa khéo có thể mài giũa bình cảnh võ đạo một chút.
 
-Kỳ thật khi Nhị chưởng quỹ không tới câu "Đại Triệt a", Phạm Đại Triệt đã biết cần mình cẩn thận hơn.
+Trần Bình An nói:
 
-Trong nháy mắt, Trần Bình An mặc pháp bào hai món áo bào chợt nhanh hơn, thẳng tắp một đường, gào thét mà đi.
+- Yên tâm, tốc độ mở đường chắc chắn không bằng ngươi, nhưng so với chiến trường những nơi khác thì sẽ không chậm.
 
-Trên đường ngự kiếm, cự ly với đại quân Yêu tộc phía trước còn cách hơn trăm trượng, Trần Bình An đã kéo ra quyền giá, một cước giẫm đạp, trường kiếm dưới chân nghiêng nghiêng rơi xuống, đúng là không chịu nổi gánh nặng, thành dán sát đất bay vút, ở trong mắt Phạm Đại Triệt sau lưng, thân hình Trần Bình An biến mất tại chỗ trong nháy mắt, rõ ràng không dùng Phương thốn phù súc địa thành thốn kia, đã có hiệu quả của Phương thốn phù, chẳng lẽ tễ thân võ phu Kim Thân cảnh mới hơn một năm, đã phá bình cảnh, trở thành một vị tông sư viễn du cảnh?
+Ninh Diêu gật đầu:
 
-Trữ Diêu lúc này lựa chọn ngự kiếm, giải thích với Phạm Đại Triệt: "Hắn trước mắt vẫn chỉ là Kim Thân cảnh, vẫn chưa Viễn Du cảnh. Mặc ba món pháp bào, hôm nay đã không phải là bảo mệnh, cũng chỉ là vì áp chế quyền ý, hơn nữa ở trình độ nào đó kiếm khí áp thắng, ba thứ đấu đá lẫn nhau, coi như là một loại lịch luyện. Không khác gì võ tướng giang hồ kia suốt ngày cột cát trên chân."
+- Vậy ngươi cứ ra quyền.
 
-Trữ Diêu sở dĩ nguyện ý nói nhiều như vậy.
+Trần Bình An hít sâu một hơi, ngự kiếm như cầu vồng đuổi theo Phạm Đại Triệt, dùng tiếng lòng nói:
 
-Đương nhiên bởi vì có liên quan với Trần Bình An.
+- Đại Triệt, ngươi ở giữa xuất kiếm, ta mở đường phía trước. Trong lúc đó bất kể xảy ra chuyện gì, ngươi cũng không cần để ý, chỉ việc ngự kiếm tiến lên. Có lẽ ta không thể phân tâm chiếu cố ngươi quá nhiều, nhưng có Ninh Diêu bọc hậu, hẳn sẽ không có vấn đề lớn.
 
-Cùng Phạm Đại Triệt là bằng hữu chung của nàng và Trần Bình An, hơn nữa Trần Bình An chiếu cố Phạm Đại Triệt nhiều nhất, không đơn giản là vì cảnh giới Phạm Đại Triệt không đủ mà thôi, giống như ở trên người Phạm Đại Triệt, Trần Bình An có thể nhìn thấy rất nhiều bóng dáng của mình trong những năm tháng trước đây, tinh tế vỡ vụn, chắp vá lại sẽ tự nhiên mà thành, đặc biệt thân cận.
+Phạm Đại Triệt trầm giọng đáp:
 
-Chỉ là nguyên do cụ thể bên này, Trữ Diêu nghĩ mãi mà không rõ, tin tưởng về sau Trần Bình An rảnh rỗi, hoặc là Ẩn Quan đại nhân thật vất vả mới tranh thủ được lúc rảnh rỗi.
+- Được!
 
-Hắn tự nhiên sẽ nói cho nàng nghe.
+Thật ra khi nhị chưởng quỹ không gọi một tiếng “Đại Triệt à”, Phạm Đại Triệt đã biết mình cần cẩn thận hơn.
 
-Trữ Diêu lại nói: "Hắn năm xưa ở quê nhà lúc mới bắt đầu học quyền, trên đùi đã cột đầy đá vụn túi, lần đầu tiên ra ngoài du lịch, đã dùng tới nửa cân phù lục, tám lượng phù, hắn đã sớm quen như thế, bản thân cũng không biết mình toàn lực ra quyền, rốt cuộc sẽ như thế nào, nếu hắn cũng không biết ra quyền nặng bao nhiêu, nhanh bao nhiêu, như vậy đối thủ càng không rõ ràng."
+Trong nháy mắt, Trần Bình An mặc mấy lớp pháp bào tăng tốc, lao thẳng về phía trước.
 
-Trong lúc nói chuyện, Trữ Diêu bổ ra một kiếm, là một tu sĩ Kim Đan Yêu tộc trên chiến trường nơi khác, xa xa liếc nàng một cái, Trữ Diêu sinh cảm ứng, kiếm tiên trong tay, một đường qua đi, trên một đường, giống như cắt đậu hũ, nhất là tu sĩ Yêu tộc bị nhằm vào kia, thân hình nửa mở, hướng hai sườn phanh phanh phanh phân thây, một viên Kim Đan nổ tung, tai họa đến vô số cá trong ao.
+Còn cách đại quân Yêu tộc hơn trăm trượng, hắn đã bày quyền giá, giẫm mạnh một chân. Thanh trường kiếm dưới chân nghiêng xuống, dường như không chịu nổi sức nặng, bay vút sát mặt đất. Trong mắt Phạm Đại Triệt ở phía sau, thân hình Trần Bình An chợt biến mất tại chỗ. Rõ ràng hắn không dùng Phương Thốn phù để súc địa thành thốn, nhưng lại đạt tới hiệu quả tương tự. Chẳng lẽ mới bước vào Kim Thân cảnh hơn một năm, hắn đã phá bình cảnh, trở thành tông sư Viễn Du cảnh?
 
-Trữ Diêu không khỏi nhớ tới một chuyện nhỏ.
+Ninh Diêu lúc này cũng ngự kiếm, giải thích với Phạm Đại Triệt:
 
-Nhớ rõ năm đó vẫn là thiếu niên Trần Bình An, đeo hộp kiếm hòe mộc, chứa hai thanh kiếm, lần đầu tiên đến Kiếm Khí Trường Thành tìm nàng, khi hai người ở một mình, hắn thích tìm lời nói, nói rất nhiều chuyện phố phường thôn quê, ví dụ như thợ mộc đạn tuyến, thợ mộc lão sư phụ tay nghề tinh xảo, đường đạn rất chuẩn.
+- Trước mắt hắn vẫn chỉ là Kim Thân cảnh, chưa tới Viễn Du cảnh. Ba chiếc pháp bào mặc trên người hôm nay không phải để giữ mạng, mà là để áp chế quyền ý. Thêm vào đó kiếm khí cũng áp chế quyền ý ở một mức độ nhất định. Ba thứ tranh đấu với nhau, coi như một cách rèn luyện. Cũng giống võ phu giang hồ suốt ngày buộc túi cát vào chân.
 
-Trữ Diêu hiếm khi nhìn chiến trường sau một kiếm, rất giống như vậy.
+Ninh Diêu chịu nói nhiều như vậy, đương nhiên là vì chuyện này liên quan đến Trần Bình An.
 
-Phạm Đại Triệt căn bản không biết nên đáp lời như thế nào.
+Phạm Đại Triệt cũng là bằng hữu chung của nàng và Trần Bình An. Trần Bình An đặc biệt chiếu cố hắn, không chỉ vì cảnh giới của hắn chưa đủ cao. Dường như trên người Phạm Đại Triệt, Trần Bình An có thể nhìn thấy rất nhiều mảnh bóng dáng của mình trong những năm trước, vụn vặt chắp vá lại, tự nhiên cảm thấy thân thiết.
 
-Thật ra đứng ở bên cạnh Trữ Diêu, áp lực to lớn, lớn đến không cách nào tưởng tượng.
+Nguyên do cụ thể bên trong, Ninh Diêu vẫn nghĩ không rõ. Nàng tin rằng sau này khi Trần Bình An rảnh rỗi, hoặc khi Ẩn quan đại nhân khó khăn lắm mới tranh thủ được chút thời gian, hắn tự nhiên sẽ kể cho nàng nghe.
 
-Bạn tốt Trần Tam Thu, đã từng bí mật nói với Phạm Đại Triệt, khi hắn và những bằng hữu này, nếu như cảnh giới thấp hơn Trữ Diêu một tầng, kỳ thật còn tốt, nhưng một khi song phương là cảnh giới giống nhau, vậy thì thật sự sẽ hoài nghi nhân sinh. Ta thật sự cũng là kiếm tu sao? Cảnh giới này của ta không phải là giả chứ?
+Ninh Diêu lại nói:
 
-Chỉ bất quá lúc ấy Phạm Đại Triệt khoan thai uống rượu với Trần Tam Thu, nói lời bực tức, Trần Tam Thu lại ý cười đầy mặt.
+- Năm xưa lúc mới học quyền ở quê nhà, hắn đã buộc đầy túi đá vụn vào chân. Lần đầu ra ngoài du lịch, hắn dùng cả phù lục nửa cân, phù lục tám lạng. Hắn đã sớm quen như vậy, ngay cả bản thân cũng không biết khi mình dốc toàn lực ra quyền sẽ thế nào. Hắn không biết quyền của mình nặng bao nhiêu, nhanh bao nhiêu, đối thủ đương nhiên càng không biết.
 
-Nhị chưởng quầy từng nói, rượu chính là cần câu tốt nhất trên đời này, có thể câu được lời trong lòng tửu quỷ, nhất là Trúc Hải Động Thiên Tửu nhà ta, càng khó lường.
+Trong lúc nói chuyện, Ninh Diêu chém ra một kiếm. Một tu sĩ Kim Đan Yêu tộc ở chiến trường khác nhìn nàng từ xa, nàng lập tức cảm ứng được, bèn xuất kiếm. Kiếm quang đi qua, mọi thứ trên đường đều bị cắt đứt như đậu hũ. Đặc biệt là tu sĩ Yêu tộc bị nhắm đến kia, thân thể vỡ ra, phân thây về hai phía. Một viên Kim Đan nổ tung, liên lụy vô số kẻ xung quanh.
 
-Đại khái có thể trở thành bằng hữu với Trữ Diêu, chính là thiên chi kiêu tử như Trần Tam Thu, cũng sẽ cảm thấy vừa có áp lực, lại vừa đáng giá khoái ý uống rượu.
+Ninh Diêu không khỏi nhớ tới một chuyện nhỏ.
 
-Phạm Đại Triệt vừa cẩn thận từng li từng tí chú ý bốn phía chiến trường, kỳ thật trống rỗng, nhìn như không hề có nguy cơ, chỉ là Phạm Đại Triệt vẫn lo lắng dưới mặt đất có một số tu sĩ Yêu tộc ẩn giấu, sẽ đâm hắn một kiếm, hoặc là đập tới một kiện pháp bảo.
+Năm đó Trần Bình An vẫn còn là thiếu niên, đeo hộp kiếm gỗ hòe chứa hai thanh kiếm, lần đầu đến Kiếm Khí Trường Thành tìm nàng. Khi hai người ở riêng, hắn thích tìm chuyện để nói, kể rất nhiều chuyện phố phường thôn quê. Chẳng hạn như thợ mộc búng dây mực, tay nghề của lão sư phụ tinh xảo, đường mực búng ra rất thẳng.
 
-Trên chiến trường, chuyện như vậy rất nhiều.
+Ninh Diêu hiếm khi nhìn lại chiến trường sau một kiếm của mình. Lúc này nhìn lại, nàng cảm thấy rất giống đường mực kia.
 
-Phạm Đại Triệt từng tận mắt nhìn thấy một vị kiếm tu cùng lứa tuổi tư chất vô cùng tốt, một khi vô ý, bị một vị tu sĩ Bàn Sơn Yêu tộc ẩn th*n d*** lòng đất, sớm tính toán chuẩn chuẩn quỹ tích ngự kiếm, phá đất mà ra, kéo lấy hai mắt cá chân kiếm tu, trực tiếp xé đôi mắt cá chân của người sau thành hai nửa. Trên chiến trường, địch nhân chân chính đáng sợ nhất thường thường không phải loại cảnh giới bình cảnh, sát lực nghiền ép Yêu tộc cường hãn ở chiến trường nơi nào đó, cùng giằng co, trừ phi hẳn phải chết, còn có thể tránh đi mũi nhọn sắc bén., Càng thêm làm cho người ta kiêng kị, là những tu sĩ Yêu tộc ước nguyện ban đầu không phải chiến công, chỉ cầu hành nghề hành, ra tay âm hiểm, am hiểu ngụy trang, vĩnh viễn theo đuổi một đòn mất mạng, giết người trong vô hình, một đòn không trúng liền quyết đoán trốn xa, loại tu sĩ Yêu tộc này ở trên chiến trường càng thêm như cá gặp nước, sống lâu dài, lén lút du ngoạn ở các nơi chiến trường, từng chiến công chồng chất, thật ra vô cùng khả quan.
+Phạm Đại Triệt hoàn toàn không biết nên đáp lời thế nào.
 
-Nghe nói kiếm tiên thượng ngũ cảnh nhỏ tuổi nhất trong Man Hoang thiên hạ, đại yêu gọi là Thụ Thần kia, năm đó chính là dựa vào con đường âm hiểm này, từng bước quật khởi.
+Thật ra đứng bên cạnh Ninh Diêu, áp lực lớn đến mức khó tưởng tượng.
 
-Đáng sợ hơn là ở chỗ Thụ Thần dù trở thành kiếm tiên thượng ngũ cảnh, vẫn thích lén lút làm việc như thế, ẩn nấp khí tức đại yêu, cố ý áp chế khí tượng kiếm tiên, vẫn lấy tu sĩ Kim Đan Yêu tộc dấn thân vào chiến trường, tìm cơ hội hành động.
+Bạn tốt Trần Tam Thu từng lén nói với hắn, trong đám bằng hữu bọn họ, nếu cảnh giới thấp hơn Ninh Diêu một bậc thì còn tốt. Nhưng một khi hai bên cùng cảnh giới, người ta thật sự sẽ hoài nghi nhân sinh: Ta thật sự cũng là kiếm tu sao? Cảnh giới này của ta chẳng lẽ là giả?
 
-Chính bởi vì điều này, cho nên A Lương năm đó ở trong một trận chiến, tự mình tìm kiếm động tĩnh của Thụ Thần, cuối cùng bị A Lương tìm ra, xa xa đưa ra một kiếm, chỉ là bản thân thụ thần chính là kiếm tiên, lúc ấy lại dùng tới một đạo bùa hộ mệnh truyền đạo ân sư, cuối cùng có thể thoát khỏi chiến trường.
+Chỉ là lúc đó Trần Tam Thu vừa thong thả uống rượu với Phạm Đại Triệt, vừa nói lời oán trách, trên mặt lại đầy ý cười.
 
-Phạm Đại Triệt đột nhiên sửng sốt một chút.
+Nhị chưởng quỹ từng nói, rượu là cần câu tốt nhất trên đời, có thể câu được lời trong lòng tửu quỷ. Đặc biệt là rượu Trúc Hải động thiên nhà ta, càng khó lường hơn.
 
-Nhị chưởng quỹ nhà mình không phải cũng như thế sao? Hơn nữa có thể xem như tiêu chuẩn của tổ sư gia?
+Có lẽ được làm bằng hữu với Ninh Diêu, ngay cả thiên chi kiêu tử như Trần Tam Thu cũng vừa cảm thấy áp lực, vừa thấy đáng để uống rượu thật thống khoái.
 
-Chỉ là đáng tiếc trở thành Ẩn Quan Đại Nhân Kiếm Khí Trường Thành.
+Phạm Đại Triệt cẩn thận chú ý chiến trường bốn phía. Thật ra xung quanh trống trải, nhìn như không có nguy hiểm gì, nhưng hắn vẫn lo dưới đất có tu sĩ Yêu tộc ẩn nấp, bất ngờ đâm hắn một kiếm hoặc ném tới một món pháp bảo.
 
-Bằng không Nhị chưởng quầy cho dù không đảm nhiệm hộ trận kiếm sư của Phạm Đại Triệt hắn, tùy ý xuất hiện trên chiến trường nơi Trần Bình An, cộng thêm đã thành kiếm tu, bản thân lại là võ phu thuần túy, lại có năng lực khống chế chiến trường rất nhỏ, cùng với tính toán chuẩn xác đối với chiến trường nào đó địch ta, tin tưởng vô luận là chiến công tích góp, hay là tốc độ trưởng thành, cũng sẽ không thua kém Thụ Thần đại yêu kia nửa điểm.
+Trên chiến trường, chuyện như vậy xảy ra rất nhiều.
 
-Loại phong thái kiếm tiên kia của Trữ Diêu, đương nhiên kinh tâm động phách, làm cho người ta hướng tới.
+Phạm Đại Triệt từng tận mắt thấy một kiếm tu cùng lứa có tư chất vô cùng tốt, chỉ vì nhất thời sơ ý mà bị một tu sĩ Bàn Sơn Yêu tộc ẩn thân dưới đất tính chuẩn đường ngự kiếm. Yêu tộc kia phá đất chui lên, túm lấy hai mắt cá chân, trực tiếp xé đôi kiếm tu ấy.
 
-Nhưng vô luận kính sợ, ngưỡng mộ như thế nào, Trữ Diêu cũng chỉ là Trữ Diêu, người bạn cùng lứa tuổi toàn bộ Kiếm Khí Trường Thành, ai cũng không học được Trữ Diêu.
+Trên chiến trường, kẻ địch thật sự đáng sợ nhất thường không phải Yêu tộc cảnh giới cao, sát lực mạnh, có thể nghiền ép đối thủ ở một chiến trường. Gặp loại kẻ địch ấy, trừ khi đã rơi vào đường chết, còn có thể tránh mũi nhọn của chúng.
 
-Nhưng phong cách đối địch của nhị chưởng quỹ, thật ra ngay cả Phạm Đại Triệt cũng có thể học, chỉ cần có lòng, tận mắt nhìn thấy, nghe nhiều nhìn nhiều, là có thể biến hóa để bản thân sử dụng, tinh tiến tu vi, trên chiến trường chỉ cần có thêm một chút phần thắng, thường thường có thể giúp kiếm tu đánh giết ngoài ý muốn nào đó.
+Khiến người ta kiêng kỵ hơn là những tu sĩ Yêu tộc không chỉ cầu chiến công mà còn chuyên làm nghề ám sát[?]. Bọn chúng ra tay âm hiểm, giỏi ngụy trang, luôn tìm cách một đòn đoạt mạng, giết người trong vô hình. Một đòn không trúng thì quyết đoán bỏ chạy. Loại tu sĩ Yêu tộc này trên chiến trường càng như cá gặp nước, sống rất lâu, lén lút qua lại khắp nơi, tích lũy được chiến công hết sức khả quan.
 
-Trên chiến trường phía trước, Trần Bình An không ngự kiếm nữa, sau đó chủ động thân hãm trùng vây, rơi vào giữa một chỗ Yêu tộc kết trận dày nặng.
+Nghe nói kiếm tiên thượng ngũ cảnh trẻ tuổi nhất Man Hoang thiên hạ, đại yêu tên Thụ Thần kia, năm đó đã dựa vào con đường âm hiểm này mà từng bước quật khởi.
 
-Tư thế quyền mở rộng, một thân quyền ý mênh mông như sông lớn chảy xiết, cùng Trữ Diêu lúc trước lấy kiếm khí kết trận tiểu thiên địa, có hiệu quả như nhau.
+Đáng sợ hơn là sau khi trở thành kiếm tiên thượng ngũ cảnh, Thụ Thần vẫn thích lén lút hành sự như vậy. Hắn che giấu khí tức đại yêu, cố ý áp chế khí tượng kiếm tiên, vẫn lấy thân phận tu sĩ Kim Đan Yêu tộc tiến vào chiến trường, tìm cơ hội ra tay.
 
-Không cẩn thận, hoặc là người dám can đảm cận thân, trước là địch với quyền ý của ta.
+Chính vì thế, năm đó trong một trận chiến, A Lương đích thân tìm tung tích của Thụ Thần. Cuối cùng tìm được, A Lương cách xa xuất ra một kiếm. Chỉ là bản thân Thụ Thần cũng là kiếm tiên, lúc ấy lại dùng một đạo bùa hộ mệnh do ân sư truyền đạo ban cho, cuối cùng mới có thể thoát khỏi chiến trường.
 
-Một Yêu tộc thân thể trời sinh lớn như đình nghỉ mát, đã khai khiếu thành tu sĩ, hai vật bản mạng lại là chuyên môn dùng để chồng lên thần thông hộ thân, bằng vào thể phách trời sinh mạnh mẽ, hoành hành chiến trường.
+Phạm Đại Triệt đột nhiên ngẩn người.
 
-Kết quả trực tiếp bị Trần Bình An lấy quyền mở đường, cả người như một thanh trường kiếm, lập tức cắt nó làm hai nửa, máu tươi mãnh liệt lại bị quyền ý đánh tan, đánh lui.
+Nhị chưởng quỹ nhà mình chẳng phải cũng như vậy sao? Hơn nữa còn có thể coi là tiêu chuẩn tổ sư gia ấy chứ?
 
-Đánh người ngàn lần, không bằng đâm một cái.
+Chỉ đáng tiếc hắn đã trở thành Ẩn quan đại nhân của Kiếm Khí Trường Thành.
 
-Trần Bình An đối địch, chỉ một quyền.
+Nếu không, dù nhị chưởng quỹ không làm kiếm sư hộ trận cho Phạm Đại Triệt hắn, chỉ cần tùy ý xuất hiện trên chiến trường, với thân phận kiếm tu kiêm võ phu thuần túy, lại có khả năng khống chế chiến trường đến từng chi tiết và tính toán chính xác tình hình địch ta, tin rằng bất kể chiến công tích lũy hay tốc độ trưởng thành cũng sẽ không thua kém đại yêu Thụ Thần nửa điểm.
 
-Một người hãm trận, bốn phương tám hướng đều là địch khấu vờn quanh.
+Phong thái kiếm tiên của Ninh Diêu đương nhiên kinh tâm động phách, khiến người ta hướng tới.
 
-Vẫn như cũ dốc sức một quyền giết địch, thương tổn tới gốc rễ, đánh nát hồn phách của hắn.
+Nhưng bất kể kính sợ, ngưỡng mộ thế nào, Ninh Diêu cũng chỉ là Ninh Diêu. Những người cùng lứa tuổi ở Kiếm Khí Trường Thành không ai học được nàng.
 
-Mỗi một quyền nhìn như đều đang tiết kiệm khí lực, nhưng mà trên thực tế mỗi một quyền đều cực kỳ thế đại lực trầm, thẳng tiến không lùi, quyền ý thuần túy, loáng thoáng có thể khiến kiếm khí bốn phía chủ động tránh ra.
+Còn cách đối địch của nhị chưởng quỹ thì ngay cả Phạm Đại Triệt cũng có thể học. Chỉ cần có lòng, tận mắt chứng kiến, nghe nhiều nhìn nhiều, sẽ có thể vận dụng cho bản thân, khiến tu vi tinh tiến. Trên chiến trường, chỉ cần tăng thêm một phần thắng, thường thường đã có thể giúp kiếm tu sống sót qua một trận chém giết bất ngờ.
 
-Một vị tu sĩ Yêu tộc tránh không kịp, dáng người khôi ngô, thân cao hai trượng, vung đại chùy hướng kia nện xuống.
+Phía trước, Trần Bình An không ngự kiếm nữa, chủ động xông vào vòng vây, rơi xuống giữa một trận hình Yêu tộc dày đặc.
 
-Đối mặt Trữ Diêu trong truyền thuyết kia, có lẽ bất quá là chờ chết mà thôi, nhưng mà cùng "thiếu niên lang" trước mắt không có phi kiếm, chỉ có quyền pháp cực cao này, tốt xấu không thiếu tâm tư đánh một trận kia.
+Hắn mở rộng quyền giá, quyền ý mênh mông như sông lớn chảy xiết, có hiệu quả tương tự việc Ninh Diêu dùng kiếm khí tạo thành một tiểu thiên địa trước đó.
 
-Trần Bình An vươn một tay, để đại chuỳ đang nhằm vào đầu bổ xuống, cả người bị bóng ma bao phủ trong đó, cổ chân Trần Bình An thoáng dịch chuyển hơn tấc, đem cỗ kình đạo thật lớn kia dỡ xuống mặt đất, dù vậy, vẫn như cũ bị nện hai đầu gối chui vào đại địa.
+Kẻ nào không cẩn thận hoặc dám đến gần, trước hết phải đối địch với quyền ý của hắn.
 
-Có thể tránh né lại không né tránh, chọi cứng một búa nặng nề, đồng thời cố ý làm cho thân hình ngưng trệ một chút, chính là để cho tu sĩ Yêu tộc ẩn nấp bốn phía cảm thấy có cơ hội có thể lợi dụng.
+Một Yêu tộc thân thể trời sinh lớn như đình nghỉ mát, đã khai khiếu trở thành tu sĩ, hai vật bản mạng đều chuyên dùng để tăng cường thần thông hộ thân. Dựa vào thể phách mạnh mẽ trời sinh, nó tung hoành trên chiến trường.
 
-Một vị tu sĩ binh gia Yêu tộc mặc áo giáp tinh thiết phù giáp, hai tay cầm đao cận thân Trần Bình An, khí thế như cầu vồng, bổ chém mà tới.
+Kết quả Trần Bình An trực tiếp lấy quyền mở đường, cả người giống như một thanh trường kiếm, thoáng chốc cắt nó thành hai nửa. Máu tươi phun ra cũng bị quyền ý đánh tan, đẩy lùi.
 
-Còn có một vị tu sĩ Kim Đan một tay xuất ra tay áo, ném ra hai tấm phân biệt vẽ Ngũ Nhạc Chân Hình Đồ, giang hà uốn lượn phù lục màu vàng, lại duỗi ra một chưởng, trùng trùng điệp điệp nâng lên.
+Đánh người ngàn lần không bằng đâm một cái.
 
-Mặt đất bốn phía dưới chân Trần Bình An, đầu tiên là bị tu sĩ Kim Đan kia lấy thuật pháp kết băng, phong cấm phạm vi mấy chục trượng.
+Trần Bình An đối địch, chỉ dùng một quyền.
 
-Bùa chú núi cao chất liệu màu vàng, hiển hóa ra năm ngọn núi sắc thái khác nhau, chỉ to bằng nắm tay, bốn ngọn trong đó treo bên cạnh thiếu niên võ phu kia, chỉ có lá bùa Trung Nhạc đánh về phía đầu đối phương.
+Một mình hãm trận, bốn phương tám hướng đều là kẻ địch vây quanh, hắn vẫn dốc sức dùng một quyền giết địch, làm tổn thương căn bản, đánh nát hồn phách đối phương.
 
-Trần Bình An một tay chống đỡ đại chuỳ kia, nâng lên tay trái, trực tiếp nắm lấy pháp đao đen sì uế khí nồng đậm như mực kia, quyền ý trong suốt trong lòng bàn tay ma sát cùng ánh đao màu đen, ánh lửa văng khắp nơi.
+Mỗi quyền nhìn như đều tiết kiệm sức lực, nhưng thật ra đều cực kỳ nặng nề, một đi không trở lại. Quyền ý thuần túy thấp thoáng khiến kiếm khí bốn phía chủ động tránh ra.
 
-Cổ tay khẽ vặn, túm binh gia tu sĩ chết sống không muốn tuột tay ném đao đến trước người, đi va chạm đỉnh núi bỏ túi dùng kim phù tạo nên.
+Một tu sĩ Yêu tộc tránh không kịp, thân hình khôi ngô cao hai trượng, vung đại chùy nện xuống.
 
-Đã hoàn thành chức trách dụ địch của đập yêu tộc, đại chùy trong tay không thể đập xuống chút nào nữa, liền tạm thời thu hồi binh khí, vung cánh tay cao cao, muốn làm lại một lần nữa.
+Đối mặt với Ninh Diêu trong truyền thuyết, có lẽ nó chỉ có thể chờ chết. Nhưng với “thiếu niên” trước mắt không có phi kiếm, chỉ có quyền pháp cực cao này, ít nhất nó còn có tâm tư đánh một trận.
 
-Tu sĩ Yêu tộc Binh gia thấy thời cơ không ổn, vừa không muốn bị húc trúng, cũng không muốn bị đại chùy sau đó ngộ thương đập trúng, quyết đoán bỏ đao mà lui, một cước đá vào ngực thiếu niên kia, mượn thế lùi về phía sau.
+Trần Bình An đưa một tay đỡ đại chùy đang nện xuống đầu. Cả người hắn bị bóng chùy bao phủ, cổ chân khẽ dịch chuyển hơn một tấc, dẫn luồng kình lực khổng lồ xuống đất. Dù vậy, hai đầu gối hắn vẫn bị nện lún vào mặt đất.
 
-Ngay sau đó, Trần Bình An vốn luôn lấy quyền giá viên hầu Chu Liễm truyền lại, bỗng nhiên biến thành quyền giá đỉnh phong của Chủng Thu, "thiếu niên" cao gầy đầu vai hơi buông lỏng, lưng còng xuống lập tức khôi phục tư thế bình thường, quyền ý biến đổi, càng thêm hùng hậu, trực tiếp vỡ ra thuật pháp phong cấm bốn phía, nện một quyền ở trên nóc núi nhỏ kia, lúc quyền và đỉnh núi nhỏ chạm đến, kích động lên một trận gợn sóng quyền ý điên cuồng tứ tán, đem núi cao kia vỡ thành một mảng ánh sáng màu vàng bắn tung tóe ra.
+Có thể tránh mà không tránh, hắn cứng rắn chịu một chùy, đồng thời cố ý để thân hình ngưng trệ chốc lát, chính là muốn tu sĩ Yêu tộc ẩn nấp bốn phía cảm thấy có cơ hội ra tay.
 
-Tay trái còn nắm chặt pháp đao gần mũi đao Trần Bình An, cả người trượt ra sau, tránh thoát trọng chùy thứ hai của Yêu tộc khôi ngô đập xuống.
+Một tu sĩ Binh gia Yêu tộc mặc phù giáp tinh thiết, hai tay cầm đao tiếp cận, khí thế như cầu vồng bổ về phía hắn.
 
-Tay trái cầm đao thu hồi một chút, tay phải buông ra làm hình chưởng đao, một đao chém xuống, chặt pháp đao kia thành hai đoạn, khiến cho Yêu tộc binh gia vốn muốn chủ động nổ nát vật bản mệnh công phạt này, trộm gà không được còn mất nắm gạo. Ngược lại, máu tươi trong lòng phun ra, liếc mắt nhìn thiếu niên vẫn bị vây khốn trong trận pháp. Vị tu sĩ binh gia này lại trực tiếp ngự phong rời xa chiến trường này.
+Còn một tu sĩ Kim Đan vung tay áo, ném ra hai lá phù màu vàng, phân biệt vẽ Ngũ Nhạc chân hình đồ và sông ngòi uốn lượn, sau đó lại đưa một tay nâng lên.
 
-Chất liệu phù lục màu vàng hiển hóa ngưng tụ thành bốn tòa núi cao, tuy nhỏ, giờ phút này lơ lửng trên không trung, vẫn như cũ có khí tượng núi cao đứng sừng sững trên mặt đất không tầm thường.
+Mặt đất dưới chân Trần Bình An lập tức bị thuật pháp của tu sĩ Kim Đan kết băng, phong cấm phạm vi mấy chục trượng.
 
-Đem thiếu niên áo đen cùng cầm chùy vây quanh ở giữa trận pháp, chỉ là thiếu ngọn núi trung tâm kia, có chút không đủ.
+Lá bùa núi cao màu vàng hiện ra năm ngọn núi khác màu, chỉ lớn bằng nắm tay. Bốn ngọn lơ lửng bên cạnh thiếu niên võ phu, riêng ngọn Trung Nhạc đánh về phía đầu hắn.
 
-Cũng may một tấm phù lục màu vàng khác, đã hóa thành một đầu thủy giao dài đến mấy trượng, cuối cùng vẫn tạo thành bố cục sơn định thủy lưu chuyển.
+Trần Bình An một tay chống đại chùy, tay trái giơ lên trực tiếp nắm lấy pháp đao đen kịt, uế khí đậm đặc như mực. Quyền ý trong suốt nơi lòng bàn tay ma sát với ánh đao màu đen, tóe lửa khắp nơi.
 
-Yêu tộc khôi ngô bị liên lụy chỉ có thể liều mạng với thiếu niên kia, cũng không tiếc mạng nữa, trên chiến trường, hồn nhiên không sợ chết chắc chắn phải chết, chỉ là cũng có kẻ sợ chết càng chết hơn.
+Hắn khẽ vặn cổ tay, túm lấy tu sĩ Binh gia sống chết không chịu buông đao, ném về phía ngọn núi nhỏ do kim phù biến thành.
 
-Yêu tộc khôi ngô cầm đại chùy trong tay, hung tính đại phát, ở trong lao tù có một con thủy giao đánh giết tứ nhạc trận pháp, thẳng đến thiếu niên nắm đấm nặng đến không giảng đạo lý kia, có thể tới đó đổi mạng thì đổi mạng!
+Yêu tộc cầm chùy đã hoàn thành việc dụ địch, thấy đại chùy trong tay không thể nện xuống thêm chút nào, bèn tạm thu binh khí, giơ cao cánh tay, muốn nện thêm lần nữa.
 
-Cuối cùng đó là bị một quyền của thiếu niên kia đập nát ngực, ở trước đó, phù lục thủy giao kia nhiều lần va chạm, cũng đã đem vị Yêu tộc khôi ngô này mài mòn đến mức cốt nhục mơ hồ, nhắm chừng kết quả này, ngay cả Kim Đan Yêu tộc trước đó cũng không có dự liệu được, thế mà thành một hồi đạo hữu chết trước bần đạo cũng không sống nữa, bởi vì thiếu niên kia sau khi quyền giết Yêu tộc khôi ngô, mũi chân điểm một cái, nhảy lên cao cao, đè lại đầu người sau, đánh về phía thủy giao kia, lựa chọn Yêu tộc khôi ngô tự nổ tan Kim Đan, hồn phách thân thể cùng thủy giao kia tan thành tro bụi.
+Tu sĩ Binh gia thấy tình thế không ổn, vừa không muốn bị núi đâm trúng, vừa không muốn bị đại chùy ngộ thương, quyết đoán buông đao, đá một cước vào ngực thiếu niên, mượn thế lùi ra sau.
 
-Tu sĩ Kim Đan tập trung nhìn vào, thiếu niên kia kéo pháp bào vỡ vụn trên người ra, sau đó bên trong còn mặc một bộ pháp bào của phường.
+Ngay sau đó, Trần Bình An vốn luôn dùng quyền giá viên hầu do Chu Liễm truyền lại bỗng đổi sang quyền giá đỉnh phong của Chủng Thu. Đầu vai “thiếu niên” cao gầy hơi buông lỏng, tấm lưng còng lập tức trở lại bình thường. Quyền ý thay đổi, càng thêm hùng hậu, trực tiếp phá vỡ thuật pháp phong cấm bốn phía.
 
-Tấm da mặt kia cũng vỡ vụn không chịu nổi, liền bị thiếu niên tiện tay triệt tiêu, thu vào trong tay áo, ngay cả đại chuỳ trên mặt đất cũng biến mất không thấy, thu vào trong vật gang tấc.
+Hắn đánh một quyền lên đỉnh núi nhỏ. Quyền và núi vừa chạm nhau, quyền ý dấy lên từng đợt gợn sóng cuồn cuộn tản ra, đánh ngọn núi vỡ thành vô số mảnh sáng màu vàng.
 
-Tu sĩ Kim Đan không chút do dự, không quan tâm đến phù lục Tứ Nhạc nữa, thi triển một môn thuật pháp độc môn, hóa thành mấy làn khói xanh, chia nhau độn địa mà đi.
+Tay trái vẫn nắm gần mũi pháp đao, Trần Bình An trượt người ra sau, tránh được chùy thứ hai của Yêu tộc khôi ngô.
 
-Trần Bình An không cố ý đuổi giết vị tu sĩ Kim Đan này, bớt đi một chiếc pháp bào cản trở quyền ý của bản thân, quyền cương càng thêm dư thừa vài phần, đẩy bốn tòa núi cao cổ tay áo lung lay sắp đổ ra xa, trên đường chạy như điên về phía trước, xa xa đánh ra bốn quyền, bốn đạo kim quang sụp đổ ra, trong giây lát trên chiến trường liền tử thương gần trăm con Yêu tộc. Không có da mặt che giấu, đại quân Yêu tộc không biết là ai dẫn đầu hô lên hai chữ "Ẩn quan", đại quân vốn còn đang ở dưới đốc chiến ý đồ kết trận nghênh địch, ầm ầm chạy tán loạn.
+Hắn thu tay trái cầm đao về một chút, tay phải dựng thành chưởng đao, chém xuống, chặt pháp đao thành hai đoạn. Tu sĩ Binh gia vốn định chủ động cho vật bản mạng công phạt này nổ tung, kết quả trộm gà không được còn mất nắm gạo, ngược lại phun ra một ngụm máu tươi. Hắn liếc nhìn thiếu niên vẫn bị vây trong trận pháp, rồi trực tiếp ngự gió rời khỏi chiến trường.
 
-Sau đó Trần Bình An mở trận lộ tuyến, không là lao thẳng về phía trước nữa, mà là lựa chọn ở trên chiến trường vẽ ra một vòng tròn lớn, lại chếch về phía trước, càng chạy trốn càng nhanh, càng ra quyền giết trước.
+Bốn ngọn núi do phù lục màu vàng ngưng tụ, tuy nhỏ nhưng lúc này lơ lửng giữa không trung, vẫn có khí tượng núi cao sừng sững bất phàm.
 
-Một ngụm chân khí võ phu thuần túy, ra quyền không ngừng, đánh tới lúc sắp kiệt quệ, liền tìm cơ hội th* d*c, nếu là tình thế hiểm trở, vậy thì cố gắng chống đỡ một hơi.
+Chúng vây thiếu niên áo đen và Yêu tộc cầm chùy ở giữa, chỉ là thiếu ngọn núi trung tâm nên trận pháp có phần không trọn vẹn.
 
-Trên chiến trường, bốn phía gây thù hằn, có thể so với võ phu mười cảnh mớm quyền? Ứng phó cái sau, đó mới là mạng treo một đường thật sự, cái gọi là thể phách cứng cỏi, ở dưới một quyền động cái là chín cảnh đỉnh phong của võ phu mười cảnh, không phải cũng là giấy dán bình thường? Chỉ có thể dựa vào đoán, dựa vào đánh cược, dựa vào bản năng, càng tới gần người thông thần, tâm có linh tê tùy quyền đi.
+May mà lá phù màu vàng còn lại đã hóa thành một con thủy giao dài mấy trượng, cuối cùng vẫn tạo thành bố cục núi đứng yên, nước lưu chuyển.
 
-Đối với Trần Bình An mà nói, chỉ cần không có tử sĩ Nguyên Anh kiếm tu ẩn nấp ở bên cạnh.
+Yêu tộc khôi ngô bị liên lụy chỉ có thể liều mạng với thiếu niên kia, không còn tiếc mạng nữa. Trên chiến trường, kẻ không biết sợ chết chắc chắn sẽ chết, nhưng cũng có kẻ càng sợ chết thì chết càng nhanh.
 
-Cái gọi là một người hãm trận, chiến trường căn bản cũng không phải là chiến trường, vẫn là từng đôi chém giết.
+Nó cầm đại chùy, hung tính nổi lên, trong lao tù do trận pháp Tứ Nhạc và thủy giao tạo thành, lao thẳng tới thiếu niên có nắm đấm nặng đến không nói đạo lý kia. Có thể đổi mạng thì đổi mạng!
 
-Lý Nhị từng nói, trận đơn đấu năm đó thiếu chút nữa không cẩn thận đánh chết Tống Trường Kính, vị Đại Ly phiên vương tư chất, đương nhiên là tốt, nhưng lúc ấy nắm tay vẫn là quá nhẹ, chẳng qua Tống Trường Kính lúc ấy sở dĩ có thể ủng hộ lâu như vậy, chính là vì Tống Trường Kính không đơn thuần là người tập võ, càng là quân nhân sa trường chém giết đi ra, ở trên sa trường ma luyện quyền pháp lâu dài, tự nhiên mà vậy đã có một loại khí tượng "Sa trường vạn nhân địch", lại đánh cho hắn chịu đựng thấu triệt, phản phác quy chân, đối thủ chém giết, như địch thiên quân, sẽ bó tay bó chân.
+Cuối cùng nó bị thiếu niên đánh nát lồng ngực bằng một quyền. Trước đó thủy giao liên tục va chạm, cũng đã khiến thân thể nó máu thịt be bét.
 
-Hôm nay Trần Bình An đang ở chiến trường, chính là đang cầu loại cảnh giới tầng thứ nhất của khí tượng này, sơn thủy ngàn vạn tầng, người thật sự cận thân, lại có thể có bao nhiêu núi cao sông lớn?
+Có lẽ ngay cả tu sĩ Kim Đan Yêu tộc kia cũng không ngờ tới kết quả này: đạo hữu chết trước, bần đạo cũng không sống nổi[?]. Bởi sau khi đánh chết Yêu tộc khôi ngô, thiếu niên nhón chân nhảy cao, đè đầu nó đánh về phía thủy giao. Yêu tộc kia lựa chọn tự nổ Kim Đan, hồn phách và thân thể cùng thủy giao hóa thành tro bụi.
 
-Chỉ cần ra quyền đủ nặng, thân hình đủ nhanh, con mắt nhìn đủ chuẩn, đơn giản là lội qua sông suối, chậm rãi đi qua từng nơi một.
+Tu sĩ Kim Đan nhìn kỹ, thấy thiếu niên kéo chiếc pháp bào rách nát trên người xuống, bên trong vẫn còn mặc một chiếc pháp bào của phường[?].
 
-Ở sau đó, Trần Bình An đánh cho nổi hứng càng thêm thuần túy, hành tẩu cũng tốt, bay vút cũng thế, thời thời khắc khắc đều là lục bộ tẩu thung, ra quyền chỉ có ba thức Thiết Kỵ Tạc Trận, Thần Nhân Lôi Cổ và Vân Chưng Đại Trạch.
+Tấm da mặt cũng đã vỡ vụn, thiếu niên tiện tay gỡ xuống, thu vào tay áo. Ngay cả đại chùy trên mặt đất cũng biến mất, bị hắn thu vào vật gang tấc.
 
-Lý Nhị tuy là võ phu thập cảnh, nhưng đối với quyền lý, năm đó ở trong di chỉ tiên phủ Sư Tử phong mớ quyền, lại nói không nhiều, ngẫu nhiên nói ra vài câu, cũng thẳng thắn, nói đều là nghe Trịnh Đại Phong kia thường xuyên nhắc tới, Lý Nhị nói những lời này với Trần Bình An, có thể ngươi nghe có ích, dù sao vài câu quyền lý ngôn ngữ, cũng không phân lượng, ép không được người.
+Tu sĩ Kim Đan không hề do dự, không màng tới phù lục Tứ Nhạc nữa, thi triển thuật pháp độc môn, hóa thành mấy làn khói xanh chia nhau độn địa bỏ chạy.
 
-Trong đó có câu kia, trong mắt có địch thủ ra quyền, trong ý vô địch tức là thông thần, quyền pháp chí lớn, khắp nơi ở trong pháp, lúc nào pháp cũng không ngại.
+Trần Bình An không cố ý đuổi giết. Bớt đi một chiếc pháp bào cản trở quyền ý, quyền cương của hắn càng dư dả hơn mấy phần, đẩy bốn ngọn núi đang lung lay bên tay áo ra xa. Trên đường chạy như điên về phía trước, hắn cách không đánh ra bốn quyền. Bốn luồng kim quang nổ tung, trong nháy mắt khiến gần trăm Yêu tộc trên chiến trường tử thương.
 
-Lần này khai trận, Trần Bình An sẽ không lấy quyền hành hạ đến chết đối với các Yêu tộc hung hãn gào thét không thôi, cũng sẽ không lưu tình đối với tu sĩ Yêu tộc trẻ tuổi đầy sợ hãi, ánh mắt khẩn cầu kia.
+Không còn da mặt che giấu, chẳng biết ai trong đại quân Yêu tộc dẫn đầu hô lên hai chữ “Ẩn quan”. Đại quân vốn còn định kết trận nghênh địch dưới sự đốc chiến lập tức ầm ầm chạy tán loạn.
 
-Võ phu thuần túy, chỉ là ra quyền.
+Sau đó, Trần Bình An không tiếp tục mở đường thẳng về phía trước, mà chọn vẽ một vòng lớn trên chiến trường rồi chếch lên. Hắn càng chạy càng nhanh, không ngừng ra quyền giết địch.
 
-Thuật cao giả sống, quyền nhẹ người chết.
+Một hơi chân khí của võ phu thuần túy, ra quyền liên tục đến lúc sắp cạn kiệt thì tìm cơ hội thổ nạp. Nếu tình thế hiểm trở, hắn cố chống đỡ thêm một hơi.
 
-Trần Bình An võ phu trên chiến trường, vẻ mặt yên lặng, ánh mắt lạnh lùng.
+Trên chiến trường, bốn phía đều là kẻ địch, có thể so được với võ phu mười cảnh mớm quyền sao? Ứng phó với người sau mới thật sự là mạng treo một đường. Thể phách cứng cỏi đến đâu, dưới một quyền thường xuyên đạt tới đỉnh phong chín cảnh của võ phu mười cảnh, chẳng phải cũng giống như giấy dán hay sao?
 
-Trữ Diêu chỉ nhắc nhở Phạm Đại Tri một câu: "Đừng tới gần hắn."
+Chỉ có thể dựa vào đoán, dựa vào đánh cược, dựa vào bản năng, càng lúc càng đến gần cảnh giới thông thần, tâm ý tương thông, tùy quyền mà đi.
 
-Suy nghĩ của Trần Bình An càng ngày càng ít, trước kia đăm chiêu suy nghĩ đều bỏ xuống, vô hạn tiếp cận với loại cảnh giới "Quên ngã kỷ quyền" mà Lý Nhị gọi.
+Đối với Trần Bình An, chỉ cần không có tử sĩ kiếm tu Nguyên Anh ẩn nấp bên cạnh, chuyện một mình hãm trận này căn bản không phải đối mặt với cả chiến trường, mà vẫn là từng trận chém giết một chọi một.
 
-Không sử dụng Súc Địa Phù, càng không sử dụng lá thông, khụ lôi, thậm chí ngay cả lá thông có thể dẫn dắt thân hình cũng không có tế ra.
+Lý Nhị từng nói, trong trận đơn đấu năm đó lão suýt nữa không cẩn thận đánh chết Tống Trường Kính. Tư chất của vị phiên vương Đại Ly đương nhiên rất tốt, nhưng lúc ấy nắm đấm vẫn còn quá nhẹ.
 
-Về phần hai thanh phi kiếm lồng phi tước cùng Tỉnh Để Nguyệt, càng là có tác dụng lớn, tuyệt đối sẽ không sớm hiện thân.
+Sở dĩ Tống Trường Kính có thể chống đỡ lâu như vậy là vì hắn không đơn thuần là người tập võ, mà còn là quân nhân chém giết trên sa trường. Quyền pháp được mài giũa lâu ngày trên chiến trường, tự nhiên có khí tượng một người địch vạn người. Nếu đánh tới mức thấu triệt, phản phác quy chân, đối thủ chém giết với hắn sẽ có cảm giác như đối địch với thiên quân vạn mã, khó tránh khỏi bó tay bó chân.
 
-Đến giờ khắc này, Trần Bình An thậm chí đã hoàn toàn quên mình là kiếm tu, có bốn thanh phi kiếm, còn có hai thanh phi kiếm bản mạng.
+Hôm nay Trần Bình An ở trên chiến trường, chính là muốn cầu tầng cảnh giới đầu tiên của khí tượng ấy. Núi sông có ngàn vạn tầng, nhưng thật sự có thể tới gần người, lại được bao nhiêu núi cao sông lớn?
 
-Nơi đại quân Yêu tộc kết trận dày nặng nhất, người chưa tới quyền ý đã tới trước.
+Chỉ cần ra quyền đủ nặng, thân hình đủ nhanh, mắt nhìn đủ chuẩn, chẳng qua là lội qua từng con sông con suối, chậm rãi đi qua từng nơi mà thôi.
 
-Trữ Diêu vẫn đang tìm Kim Đan cảnh giới cao, Yêu tộc Nguyên Anh.
+Về sau Trần Bình An đánh đến nổi hứng, quyền ý càng thêm thuần túy. Bất kể đi bộ hay bay vút, mỗi bước đều là lục bộ tẩu thung, ra quyền chỉ dùng ba thức Thiết Kỵ Tạc Trận, Thần Nhân Lôi Cổ và Vân Chưng Đại Trạch.
 
-Phạm Đại Triệt vẫn không có việc lớn để làm, cũng may so với lúc trước Trữ Diêu mở trận, đoàn người đều chỉ là đi theo ngự kiếm, lần này Trần Bình An lấy quyền khai trận, cơ hội xuất kiếm của Phạm Đại Triệt nhiều hơn chút.
+Lý Nhị tuy là võ phu mười cảnh, nhưng năm đó mớm quyền ở di chỉ tiên phủ Sư Tử phong lại không nói nhiều về quyền lý. Thỉnh thoảng lão mới nói vài câu, cũng thẳng thắn bảo rằng đều là nghe Trịnh Đại Phong thường nhắc tới. Lão nói với Trần Bình An, có thể ngươi nghe sẽ thấy có ích, dù sao mấy câu quyền lý này cũng chẳng có sức nặng, không đè được người.
 
-Lúc trước Trữ Diêu một mình cầm kiếm, khởi trận quá nhanh.
+Trong đó có một câu: trong mắt có địch thủ mà ra quyền, trong ý không có địch thủ thì là thông thần. Quyền pháp đạt tới chỗ cao, khắp nơi đều ở trong pháp, bất cứ lúc nào pháp cũng không gây trở ngại[?].
 
-Hai cánh Nam Bắc hướng về chiến tuyến trái phải, hai nhóm kiếm tu chém giết ở hạ thành, cách con sông dài màu vàng này còn rất xa, cũng chưa đi đến một nửa lộ trình, hơn nữa càng về sau, tốc độ phá trận giết địch sẽ càng chậm, thậm chí rất có khả năng chưa tới một nửa, cần rút về Kiếm Khí Trường Thành, cùng nhóm kiếm tu thứ hai dưỡng sức khỏe ở trên đầu thành, thay nhau ra trận, ứng đối trận giằng co thi hài khắp nơi này.
+Lần mở đường này, Trần Bình An không dùng quyền hành hạ đến chết những Yêu tộc hung hãn gào thét, cũng không lưu tình với tu sĩ Yêu tộc trẻ tuổi đầy sợ hãi, ánh mắt cầu xin.
 
-Chiến trường rộng lớn giữa trường hà màu vàng và tường thành ở nơi khác, lập tức một nhóm kiếm tu đục trận nam hạ nhanh nhất, cũng khó khăn lắm mới đẩy mạnh đến nửa đường mà thôi, đó còn là bởi vì có kiếm tu Nguyên Anh Tề Thú hỗ trợ dẫn đầu mở đường.
+Võ phu thuần túy chỉ ra quyền.
 
-Bốn người trùng điệp lên núi về Bắc, mười mấy vị kiếm tu nam hạ trên chiến tuyến bên cạnh, một đầu một đuôi, chém giết đại quân Yêu tộc.
+Kẻ giỏi hơn thì sống, người quyền nhẹ thì chết.
 
-Bốn vị kiếm tu thiên tài tuổi còn trẻ, đứng ở một hàng, kéo giãn khoảng cách bảy tám chục trượng với nhau, không hề theo đuổi tốc độ đục trận cùng chiều sâu nữa, bắt đầu tận khả năng sát thương đại quân Yêu tộc nhiều hơn, cho nên bốn vị kiếm tu đều bắt đầu chân đạp trường kiếm, Trấn Nhạc, Hồng Trang, Kinh Thư, Tử Điện, lấy tư thái ngự kiếm, tế ra phi kiếm bản mạng của mình, một đường giết trở về Kiếm Khí Trường Thành.
+Trần Bình An ở trên chiến trường, vẻ mặt yên lặng, ánh mắt lạnh lùng.
 
-Phi kiếm bản mệnh của Trần Tam Thu tên là "Bạch lộc", một trong những thần thông bản mệnh của phi kiếm, là cảnh tượng Bạch lộc ngậm Chi, trên chiến trường sẽ xuất hiện một đầu bạch lộc lớn như ốc xá, ngậm linh chi tức là thanh phi kiếm bản mệnh của Trần Tam Thu, toàn thân bạch lộc kiếm quang tự nhiên, bốn phía như tuyết bay tán loạn, hơn nữa có thể tự chủ tụ lại linh khí, rất là thần dị.
+Ninh Diêu chỉ nhắc Phạm Đại Triệt một câu:
 
-Trên chiến trường, con bạch lộc toàn thân kiếm quang như tuyết tùy ý đánh loạn, sát lực cực lớn.
+- Đừng đến gần hắn.
 
-Tương truyền trước khi Trần Tam Thu thai nghén ra phi kiếm bản mạng, lúc còn nhỏ một hồi mộng say ngủ, trước khi bơi con nai, bốn chân quỳ xuống đất, chủ động nhận chủ.
+Suy nghĩ của Trần Bình An càng lúc càng ít, những điều từng suy tính trước kia đều được buông xuống, vô hạn tiếp cận cảnh giới “quên mình quên quyền” mà Lý Nhị nói tới.
 
-Cho nên nói Trần Tam Thu ở trong thế hệ trẻ tuổi Kiếm Khí Trường Thành, lấy phong lưu trứ danh, tuyệt đối là rất có tiền vốn.
+Hắn không dùng Súc Địa phù, cũng không dùng lá thông, phù khụ lôi, thậm chí ngay cả lá thông có thể dẫn dắt thân hình cũng không tế ra[?].
 
-Gia thế tốt, tính tình tốt, túi da tốt, nhân duyên tốt, tư chất căn cốt tốt, trừ thiếu gia Trần gia tửu phẩm hơi kém một chút, hầu như không bắt bẻ được gì.
+Về phần hai thanh phi kiếm Lung Trung Tước và Tỉnh Để Nguyệt, chúng còn có tác dụng lớn, tuyệt đối không thể sớm hiện thân.
 
-Mà thần vật như Bạch Lộc thường thường có chút liên quan đến văn vận hư vô mờ mịt, cho nên Trần Tam Thu có được "Kinh thư" một trong những thanh cổ kiếm áp thắng Bạch Ngọc Kinh của Đại Ly, hợp nhau lại càng tăng thêm sức mạnh. Bởi vì phi kiếm bản mạng của Trần Tam Thu là một trong số rất ít tồn tại quý hiếm có được hai loại thần thông bản mệnh, ngoại trừ tế ra phi kiếm, Bạch Lộc hiện thân ra, còn có thể vô hình trung tăng trưởng văn vận của Trần Tam Thu, cho nên Trần Tam Thu kỳ thật vừa là tiên thiên kiếm phôi, cũng là hạt giống đọc sách trời sinh.
+Đến lúc này, Trần Bình An thậm chí hoàn toàn quên mình là kiếm tu, có bốn thanh phi kiếm, trong đó có hai thanh phi kiếm bản mạng.
 
-Phải biết rằng ở Hạo Nhiên Thiên Hạ, Nho gia thánh nhân có được cảnh giới kiếm tiên, tam đại học cung, bảy mươi hai thư viện, hôm nay cũng chỉ có hai vị.
+Nơi đại quân Yêu tộc kết trận dày đặc nhất, người chưa tới, quyền ý đã tới trước.
 
-Đáng tiếc Trần Tam Thu sinh ở Kiếm Khí Trường Thành ít ỏi của người đọc sách, mấu chốt nhất là Trần Tam Thu còn họ Trần, không đi được tòa học thục khắp nơi, tiếng đọc sách lang thang tha hương.
+Ninh Diêu vẫn tìm kiếm Yêu tộc Kim Đan và Nguyên Anh cảnh giới cao.
 
-Kiếm tu có thể hái được danh hiệu thiên tài ở Kiếm Khí Trường Thành, thật ra mỗi người đều có chuyện xưa.
+Phạm Đại Triệt vẫn không có việc lớn để làm. May mà so với lúc Ninh Diêu mở đường, mọi người chỉ việc ngự kiếm theo sau, lần này Trần Bình An lấy quyền phá trận, hắn có nhiều cơ hội xuất kiếm hơn một chút.
 
-Chỉ cần là kiếm tu thích uống rượu, ai cũng có thể say bí tỉ, cho dù say chết cũng có lý do.
+Trước đó Ninh Diêu một mình cầm kiếm, phá trận quá nhanh.
 
-Trữ Diêu thủy chung không xa không gần đi theo Trần Bình An chỉ để ý ra quyền.
+Hai bên chiến tuyến, hai nhóm kiếm tu xuống khỏi thành chém giết còn cách dòng sông dài màu vàng rất xa, chưa đi được tới nửa đường. Hơn nữa càng về sau, tốc độ phá trận giết địch sẽ càng chậm. Thậm chí rất có thể chưa tới nửa đường, bọn họ đã phải rút về Kiếm Khí Trường Thành, thay phiên với nhóm kiếm tu thứ hai đang dưỡng sức trên đầu thành, ứng phó trận giằng co thây chất khắp nơi này.
 
-Trữ Diêu mơ hồ cảm giác được một cái ý tưởng của Trần Bình An, có thể một cái ý niệm ngay cả bản thân Trần Bình An cũng không phát hiện ra.
+Ở những nơi khác trên chiến trường rộng lớn giữa dòng sông màu vàng và tường thành, nhóm kiếm tu phá trận xuống phía nam nhanh nhất cũng chỉ vừa đến được nửa đường, đó còn là nhờ có kiếm tu Nguyên Anh Tề Thú dẫn đầu mở đường.
 
-Nếu ta quyền cao thiên ngoại, người ở chiến trường Kiếm Khí Trường Thành lấy Nam chiến trường, đối địch với Trần Bình An ta, không cần xuất kiếm, đều phải chết hết.
+Bốn người đang chém giết trở về phía bắc, cùng với mười mấy kiếm tu đi về phía nam ở chiến tuyến bên cạnh, một trước một sau đánh vào đại quân Yêu tộc.
 
-Trữ Diêu không cảm thấy như vậy không tốt, nhưng mà lại cảm thấy như vậy có thể không phải tốt nhất, đạo lý chỉ có một, hắn là Trần Bình An.
+Bốn vị kiếm tu thiên tài trẻ tuổi đứng thành một hàng, cách nhau bảy tám chục trượng, không còn theo đuổi tốc độ và khoảng cách phá trận, mà bắt đầu cố gắng sát thương đại quân Yêu tộc nhiều nhất có thể. Bọn họ đều giẫm lên trường kiếm Trấn Nhạc, Hồng Trang, Kinh Thư, Tử Điện, ngự kiếm tế ra phi kiếm bản mạng, giết một đường trở về Kiếm Khí Trường Thành.
 
-Cho nên Trữ Diêu hô một tiếng, "Trần Bình An."
+Phi kiếm bản mạng của Trần Tam Thu tên là Bạch Lộc. Một trong các thần thông bản mạng của nó là cảnh tượng bạch lộc ngậm cành linh chi. Trên chiến trường xuất hiện một con hươu trắng lớn như căn nhà, ngậm linh chi chính là thanh phi kiếm bản mạng của Trần Tam Thu. Toàn thân bạch lộc ánh kiếm lưu chuyển, bốn phía giống như tuyết bay, hơn nữa còn có thể tự tụ tập linh khí, hết sức thần dị.
 
-Trên chiến trường, Trần Bình An lập tức thu quyền dừng bước, quay đầu, có chút nghi hoặc.
+Trên chiến trường, bạch lộc toàn thân kiếm quang như tuyết mặc sức xông ngang húc dọc, sát lực cực lớn.
 
-Trong nháy mắt, kiếm tâm của Phạm Đại Triệt có chút bất ổn, chỉ là cảm giác kỳ quái lóe lên một cái rồi biến mất.
+Tương truyền trước khi Trần Tam Thu thai nghén được phi kiếm bản mạng, khi còn nhỏ hắn từng nằm mộng, thấy một con hươu đi tới, bốn chân quỳ xuống đất, chủ động nhận chủ.
 
-Trữ Diêu nói: "Tiếp tục ra quyền, ta ở phía sau."
+Cho nên Trần Tam Thu nổi tiếng phong lưu trong thế hệ trẻ Kiếm Khí Trường Thành, tuyệt đối là có vốn liếng.
 
-Trần Bình An sửng sốt một chút, không biết vì sao Trữ Diêu muốn nói những lời này, nhưng vẫn cười gật đầu.
+Gia thế tốt, tính tình tốt, dung mạo tốt, nhân duyên tốt, tư chất căn cốt cũng tốt. Ngoại trừ tửu phẩm của thiếu gia Trần gia hơi kém một chút, gần như không tìm được khuyết điểm.
 
-Pháp bào lúc trước mượn Bàng Nguyên Tể đã bị nghiền nát thu hồi, cái này trên người càng là vỡ nát đến không thu lại được, liền lấy quyền ý nhẹ nhàng đánh xơ xác, như bồ công anh bay tứ phương.
+Thần vật như Bạch Lộc thường có chút liên quan đến văn vận hư vô mờ mịt, cho nên Trần Tam Thu có được Kinh Thư, một trong những thanh cổ kiếm của Đại Ly dùng để áp thắng Bạch Ngọc Kinh, lại càng hợp nhau thêm mạnh.
 
-Không chỉ như thế, ngay cả chiếc thanh sam pháp bào Trữ phủ cũng thu hồi, vì thế Trần Bình An chỉ mặc một chiếc trường bào chất liệu tầm thường nhất.
+Phi kiếm bản mạng của hắn là một trong số rất ít tồn tại quý hiếm có hai loại thần thông bản mạng. Ngoài tế ra phi kiếm để Bạch Lộc hiện thân, nó còn có thể vô hình tăng trưởng văn vận của Trần Tam Thu. Vì vậy hắn vừa là tiên thiên kiếm phôi, vừa là hạt giống đọc sách trời sinh.
 
-Trần Bình An hít sâu một hơi, phun ra một ngụm máu bầm lớn, bất tri bất giác, trong phạm vi mấy chục trượng lấy hắn làm trung tâm, trên chiến trường đã không còn Yêu tộc còn sống.
+Phải biết rằng ở Hạo Nhiên thiên hạ, trong ba học cung và bảy mươi hai thư viện, thánh nhân Nho gia có được cảnh giới kiếm tiên hiện nay cũng chỉ có hai vị.
 
-Trần Bình An một tay run lên cổ tay, một tay nhẹ nhàng nắm chặt lại buông ra, hai tay lộ xương trắng, không thể bình thường hơn, đau là đương nhiên, chẳng qua loại cảm giác quen thuộc đã lâu không gặp này, ngược lại khiến hắn an tâm.
+Đáng tiếc Trần Tam Thu sinh ra ở Kiếm Khí Trường Thành, nơi người đọc sách ít ỏi. Quan trọng nhất là hắn còn họ Trần, không thể đến học thục với tiếng đọc sách vang xa kia[?].
 
-Không chịu chút đau, luyện quyền cái gì, tu cái gì mà được.
+Kiếm tu có thể giành được danh hiệu thiên tài ở Kiếm Khí Trường Thành, thật ra mỗi người đều có chuyện xưa của mình.
 
-Trần Bình An nhìn phương xa, cuối cùng nâng tầm mắt lên, mới phát hiện chữ to khắc trên đầu tường kia, không thể quen thuộc hơn.
+Chỉ cần là kiếm tu thích uống rượu, ai cũng có thể say bí tỉ. Cho dù say chết, cũng có lý do để uống.
 
-Mãnh liệt.
+Ninh Diêu từ đầu đến cuối vẫn đi theo Trần Bình An, không xa không gần, nhìn hắn chỉ chú tâm ra quyền.
+
+Nàng mơ hồ cảm nhận được một ý nghĩ của hắn, có lẽ ngay cả bản thân hắn cũng chưa phát hiện.
+
+Nếu quyền pháp của ta cao đến tận trời, vậy kẻ nào trên chiến trường phía nam Kiếm Khí Trường Thành đối địch với Trần Bình An ta, không cần xuất kiếm, đều phải chết hết.
+
+Ninh Diêu không cảm thấy như vậy là không tốt, nhưng lại cảm thấy có lẽ đó chưa phải tốt nhất. Đạo lý chỉ có một: hắn là Trần Bình An.
+
+Vì thế nàng gọi:
+
+- Trần Bình An.
+
+Giữa chiến trường, Trần Bình An lập tức thu quyền dừng bước, quay đầu lại, hơi nghi hoặc.
+
+Trong nháy mắt, kiếm tâm của Phạm Đại Triệt có chút bất ổn, chỉ là cảm giác kỳ lạ ấy thoáng qua rồi biến mất.
+
+Ninh Diêu nói:
+
+- Cứ tiếp tục ra quyền, ta ở phía sau.
+
+Trần Bình An ngẩn người, không biết vì sao nàng lại nói vậy, nhưng vẫn mỉm cười gật đầu.
+
+Chiếc pháp bào trước đó mượn của Bàng Nguyên Tể đã bị đánh nát rồi thu lại. Chiếc đang mặc trên người càng rách nát đến mức không thể thu về, hắn bèn nhẹ nhàng dùng quyền ý đánh tan, để nó bay khắp nơi như bồ công anh.
+
+Không chỉ thế, hắn còn thu cả chiếc thanh sam pháp bào của Ninh phủ, trên người chỉ còn lại một chiếc trường bào chất liệu bình thường nhất.
+
+Trần Bình An hít sâu một hơi, phun ra một ngụm lớn máu bầm. Bất tri bất giác, trên chiến trường trong phạm vi mấy chục trượng quanh hắn đã không còn Yêu tộc nào sống sót.
+
+Hắn một tay lắc cổ tay, một tay nhẹ nhàng nắm lại rồi buông ra. Hai bàn tay lộ cả xương trắng là chuyện không thể bình thường hơn. Đau đớn là đương nhiên, nhưng cảm giác quen thuộc đã lâu không gặp này ngược lại khiến hắn an tâm.
+
+Không chịu chút đau đớn, còn luyện quyền gì, tu hành gì nữa.
+
+Trần Bình An nhìn phương xa, cuối cùng nâng tầm mắt lên, mới phát hiện chữ lớn khắc trên đầu tường kia quen thuộc đến mức không thể quen thuộc hơn.
+
+Mãnh Liệt.
 
 Chữ viết thật sự rất khó coi.
 
-Trần Bình An theo bản năng ngẩng đầu nhìn phía màn trời.
+Trần Bình An theo bản năng ngẩng đầu nhìn màn trời.
 
-Có thể đến muộn, đừng không đến a.
+Có thể đến muộn, nhưng đừng không đến đấy.
 
-Cho dù chỉ là trở lại Kiếm Khí Trường Thành nửa quê nhà, liếc mắt nhìn một cái cũng tốt, về phần xuất hay không xuất kiếm, có thể tới rồi nói sau.
+Cho dù chỉ trở lại Kiếm Khí Trường Thành, nửa quê nhà của mình, nhìn một cái cũng tốt. Còn xuất kiếm hay không, đến rồi hẵng nói.
 
-Trần Bình An đưa tay chộp một cái, kết quả nhớ lại trường kiếm của kiếm phường đã sớm sụp đổ.
+Trần Bình An đưa tay chộp một cái, sau đó mới nhớ thanh trường kiếm của kiếm phường đã sớm vỡ nát.
 
-Liền từ trong vật gang tấc lấy ra thanh pháp đao của Nguyên Anh yêu tộc Bàn Sơn, hẹp dài sắc bén, bảo quang trong suốt.
+Hắn bèn lấy từ vật gang tấc ra thanh pháp đao của Yêu tộc Bàn Sơn Nguyên Anh, thân đao hẹp dài sắc bén, bảo quang trong suốt.
 
-Trần Bình An cầm thanh pháp đao đã vô chủ này, pháp bảo phẩm trật cực cao, hạng nhất, nhẹ nhàng ước lượng một phen, trọng lượng đủ, vậy thì tiếp tục khai trận.
+Trần Bình An cầm thanh pháp đao đã mất chủ, phẩm trật pháp bảo cực cao này, nhẹ nhàng ước lượng. Trọng lượng đủ rồi, vậy thì tiếp tục mở đường.
 
-Sau một lát.
+Một lát sau, Phạm Đại Triệt không nhịn được quay đầu nhìn phía sau.
 
-Phạm Đại Triệt không nhịn được quay đầu nhìn về phía sau.
+Ninh Diêu đang xoa đầu mày.
 
-Trữ Diêu đang xoa lông mày.
+Còn phía trước hai người, Trần Bình An đang cầm đao chém lung tung.
 
-Mà ở phía trước hai người, Trần Bình An đang cầm đao chém lung tung.
+Phạm Đại Triệt cảm thấy dáng vẻ ấy đại khái giống một tên trộm.
 
-Phạm Đại Triệt cảm thấy đại khái đây là tên trộm.
+Trong nháy mắt, Ninh Diêu xuất một kiếm.
 
-Trong nháy mắt.
+Không phải cứu Trần Bình An, cho dù kẻ đánh lén hắn là một tử sĩ kiếm tu Nguyên Anh ẩn nấp cực sâu.
 
-Trữ Diêu đưa ra một kiếm.
+Kẻ phối hợp với tử sĩ kia để ám sát Ninh Diêu chính là vị kiếm tiên Ngọc Phác cảnh tinh thông thuật ẩn nấp trước đó.
 
-Không phải đi cứu Trần Bình An, cho dù người đánh lén, là một vị kiếm tu Nguyên Anh thâm tàng bất lộ tử sĩ.
+Đạo lữ thần tiên bình thường trên núi, nếu là người có cảnh giới cao hơn, lúc này cho dù không đi cứu người cảnh giới thấp hơn, cũng khó tránh khỏi một thoáng do dự.
 
-Mà phối hợp với hắn, lựa chọn ám sát Trữ Diêu, chính là vị kiếm tiên Ngọc Phác cảnh tinh thông đạo ẩn nấp lúc trước.
-
-Thần tiên đạo lữ trên núi bình thường, nếu là người cảnh giới cao, lúc này lựa chọn, cho dù sẽ không đi cứu người cảnh giới thấp, cũng khó tránh khỏi sẽ có một tia do dự.
-
-Trữ Diêu lại không hề có tạp niệm, kiếm tâm ngược lại càng thêm trong suốt sáng sủa.
+Ninh Diêu lại không hề có tạp niệm, kiếm tâm trái lại càng thêm trong suốt sáng ngời.
 
 Nàng có thể giết địch, hắn có thể sống.
 
-Trữ Diêu tin tưởng mình, càng tin tưởng Trần Bình An.
+Ninh Diêu tin tưởng chính mình, càng tin tưởng Trần Bình An.
 
-Trữ Diêu vẫn luôn cố ý áp cảnh ở bình cảnh Kim Đan nhiều năm, trong khoảnh khắc, tùy tùy tiện tiện đã chen thân bình cảnh Nguyên Anh cảnh.
+Nàng vẫn luôn cố ý áp chế cảnh giới ở bình cảnh Kim Đan nhiều năm, trong khoảnh khắc tùy tiện bước vào Nguyên Anh cảnh[?].
 
-Trữ Diêu sau khi xuất kiếm, còn có thể phân tâm, liếc mắt nhìn đầu tường.
+Sau khi xuất kiếm, Ninh Diêu còn có thể phân tâm liếc nhìn đầu tường.
 
-Trần Thanh Đô chắp hai tay sau lưng đứng trên đầu tường, mặt mang ý cười.
+Trần Thanh Đô chắp hai tay sau lưng đứng trên đó, mặt mang ý cười.
 
-Ngụy Tấn ở bên cạnh cười khổ nói: "Lão đại kiếm tiên, vì sao cố ý áp chế Trữ Diêu phá cảnh?"
+Ngụy Tấn bên cạnh cười khổ hỏi:
 
-Trần Thanh Đô cười nói: "Không vội, không cần cố gắng tranh giành danh hiệu của những tên hư đầu Ba Não kia, trở thành vị Kiếm Tiên dưới ba mươi tuổi đầu tiên trong lịch sử, có cần không?"
+- Lão đại kiếm tiên, vì sao cố ý áp chế Ninh Diêu phá cảnh?
 
-Ngụy Tấn bốn mươi tuổi trở thành kiếm tiên vẫn không hiểu, "Trữ Diêu lại không phải là đốt cháy giai đoạn, thuộc loại thuận thế mà thành, lão đại kiếm tiên ngươi vận dụng kiếm đạo của cả kiếm khí Trường Thành, áp chế Trữ Diêu ở bình cảnh Nguyên Anh là vì sao?"
+Trần Thanh Đô cười nói:
 
-Trần Thanh Đô cười ha ha nói: "Ta là Ngụy Tấn?"
+- Không vội. Không cần cố tranh những danh hiệu hư danh kia. Trở thành vị kiếm tiên dưới ba mươi tuổi đầu tiên trong lịch sử, có cần thiết không?
+
+Ngụy Tấn trở thành kiếm tiên năm bốn mươi tuổi vẫn không hiểu:
+
+- Ninh Diêu lại không phải đốt cháy giai đoạn, mà là thuận thế tu thành. Lão đại kiếm tiên, vì sao ngài vận dụng kiếm đạo của cả Kiếm Khí Trường Thành áp chế nàng ở bình cảnh Nguyên Anh?
+
+Trần Thanh Đô cười ha ha:
+
+- Ta là Ngụy Tấn sao?
 
 Ngụy Tấn không phản bác được.
 
-Có chút hoài niệm thời gian của Tả Hữu tiền bối ở đầu tường.
+Hắn có chút hoài niệm khoảng thời gian Tả Hữu tiền bối ở trên đầu tường.
 
-Ý của lão đại Kiếm Tiên là, ngươi mới là Trần Thanh Đô?
+Ý của lão đại kiếm tiên là: Chẳng lẽ ngươi mới là Trần Thanh Đô?
 
-Trần Thanh Đô tiếp tục nói: "Áp thắng kiếm đạo? Vậy ngươi cũng quá coi thường Ninh nha đầu rồi."
+Trần Thanh Đô tiếp tục nói:
 
-Vị lão giả áo xám Man Hoang thiên hạ kia, mặc kệ đại chiến thảm liệt như thế nào, từ đầu đến cuối không nghe không hỏi, chỉ nhắm mắt dưỡng thần ở Giáp Tử Trướng.
+- Áp thắng kiếm đạo? Vậy ngươi quá coi thường Ninh nha đầu rồi.
 
-Lúc này ông lão mở mắt, trực tiếp cười nói với Trần Thanh Đô: "Làm hỏng quy củ rồi."
+Vị ông lão áo xám của Man Hoang thiên hạ kia, bất kể đại chiến thảm liệt thế nào, từ đầu đến cuối vẫn không nghe không hỏi, chỉ nhắm mắt dưỡng thần ở Giáp Tử trướng.
 
-Trần Thanh Đô đáp: "Không phục? Đến đầu tường đánh một trận?"
+Lúc này lão mở mắt, trực tiếp cười nói với Trần Thanh Đô:
+
+- Làm hỏng quy củ rồi.
+
+Trần Thanh Đô đáp:
+
+- Không phục? Đến đầu tường đánh một trận?

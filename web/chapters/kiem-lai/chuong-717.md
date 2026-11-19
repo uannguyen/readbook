@@ -1,429 +1,533 @@
 # Chương 717: Tuổi trẻ Chu Liễm
 
-Bên ngoài Thanh Phong thành, ở một sườn núi nhỏ rừng núi hoang vắng, dưới một gốc cây đào cô đơn, mắt to trừng mắt nhỏ.
+Bên ngoài Thanh Phong thành, trên một sườn núi hoang vắng, dưới gốc đào đứng lẻ loi, hai người mắt lớn trừng mắt nhỏ.
 
-Liễu Xích Thành hung hăng trừng mắt, không chậm trễ đưa tay lau vết máu trên mặt.
+Liễu Xích Thành hung hăng trừng mắt, đồng thời đưa tay lau máu trên mặt. Bộ đạo bào màu hồng của hắn có thể tranh sắc với hoa đào.
 
-Đạo bào màu hồng trên người Liễu Xích Thành, có thể khoe sắc với hoa đào.
+Vị dã tu Nguyên Anh bị bắt tới đây hiện nguyên hình, quả thật là một “thiếu niên” vóc dáng thấp bé, nhưng tóc đã trắng xóa, khuôn mặt già nua. Trên đai lưng bạch ngọc chạm hoa văn cầu long của hắn treo một chuỗi ngọc bội cổ và mấy chiếc bình nhỏ, trông rất kỳ lạ.
 
-Dã tu Nguyên Anh bị giam giữ đến tận đây, sau khi hiển lộ chân dung, đúng là "thiếu niên" dáng người thấp bé, nhưng tóc trắng xoá, khuôn mặt có vẻ già nua.
+Thân hình hắn lung lay sắp đổ, vẫn cố sức đứng thẳng, sợ chỉ cần nghiêng đầu lảo đảo một cái sẽ bị đạo nhân áo hồng trước mặt đánh chết bằng một chưởng.
 
-Chỗ thần kỳ, ở chỗ bên trên đai lưng bạch ngọc có hoa văn cầu long kia, treo một chuỗi ngọc bội cổ xưa cùng bình nhỏ.
+Tâm tình hắn lúc này giống như đang đứng trước một bàn tiệc thịnh soạn, sắp sửa ăn uống thỏa thuê thì bàn bị người ta lật tung. Chẳng những chưa kịp động đũa, hắn còn bị cái bàn đập cho vỡ đầu.
 
-Thân hình người này lung lay sắp đổ, vẫn như cũ kiệt lực duy trì tư thế đứng, sợ nghiêng đầu lắc chân một cái, liền bị đạo nhân mặc hồng bào trước mắt này một chưởng chụp chết.
+Đến tận bây giờ hắn vẫn không biết mình rơi cảnh giới thế nào. Từ bình cảnh Nguyên Anh, hắn rơi thẳng xuống tình cảnh thê thảm như vừa mới kết Kim Đan.
 
-Tâm trạng của hắn lúc này, tựa như đối mặt với một món ăn thịnh soạn, sắp ăn ngấu nghiến, cái bàn đột nhiên bị người ta xốc lên, không nói tới không đưa đũa ra, cái bàn kia còn đập vỡ u đầu hắn.
+Càng kỳ lạ hơn là đối phương thần thông quảng đại như vậy, hình như cũng bị trọng thương. Nhưng rõ ràng hắn chưa từng ra tay!
 
-Hắn cho đến giờ phút này, cũng không biết mình ngã ra thế nào! Từ bình cảnh Nguyên Anh rơi thẳng xuống cảnh tượng thảm đạm vừa kết kim đan.
+Năm xưa hắn cũng là một kẻ hào hùng chiếm cứ một phương, là thái thượng hoàng thật sự đứng sau mấy nước nhỏ. Hắn thích giấu thân phận đi tìm bảo vật khắp nơi, ở Bảo Bình Châu cũng có thanh danh không nhỏ.
 
-Càng kỳ quái hơn là vì sao đối phương thần thông quảng đại như thế, hình như cũng trọng thương? Vấn đề là ở chỗ mình căn bản cũng không có ra tay a?
+Hắn từng giao thủ với Lý Đoàn Cảnh của Phong Lôi viên, trúng mấy kiếm mà may mắn không chết; lại từng bị một vị lão thần tiên đạo môn của Thần Cáo tông đuổi giết hơn vạn dặm mà vẫn giữ được mạng.
 
-Hắn cũng từng là hào hùng hùng cứ một phương, thái thượng hoàng hoàn toàn xứng đáng đứng sau mấy nước nhỏ, thích che giấu thân phận tầm bảo khắp nơi, ở toàn bộ Bảo Bình châu đều có danh tiếng không nhỏ, từng giao thủ cùng Phong Lôi viên Lý Đoàn Cảnh, từng trúng mấy kiếm, may mắn chưa chết, bị một vị lão thần tiên đạo môn Thần Cáo tông đuổi giết hơn vạn dặm, vẫn như cũ không chết, năm xưa cùng Lưu lão Lưu Lão thành Thư Giản hồ vừa là địch vừa là bạn, từng cùng nhau xông xáo di chỉ tiên phủ bí cảnh Cổ Thục quốc., Phân chia không đều, bị Lưu lão thành cùng cảnh giới đánh mất nửa cái mạng, sau đó dù cho Lưu lão thành một bước lên trời, ông ta vẫn như cũ tập kích g**t ch*t mấy vị đệ tử đích truyền của Cung Liễu Đảo ra ngoài du lịch, Lưu lão thành tìm không được ông ta, chỉ có thể từ bỏ. Cả đời này của ông ta có thể nói là đặc sắc, chuyện cổ quái gì chưa từng trải qua, nhưng cũng không có như hôm nay làm cho người ta không hiểu được, đối phương là ai, ra tay như thế nào, vì sao lại tới nơi này, bản thân có thể thân tử đạo tiêu hay không...
+Năm xưa hắn và Lưu Lão Thành ở Thư Giản hồ vừa là địch vừa là bạn, từng cùng xông vào di chỉ tiên phủ trong bí cảnh Cổ Thục quốc. Vì chia chác không đều, hắn bị Lưu Lão Thành lúc ấy cùng cảnh giới đánh cho mất nửa cái mạng. Sau này, dù Lưu Lão Thành một bước lên trời, hắn vẫn tập kích giết chết mấy đệ tử đích truyền của đảo Cung Liễu ra ngoài du lịch. Lưu Lão Thành tìm không được hắn, chỉ đành bỏ qua.
 
-Liễu Xích Thành lắc lắc vết máu trên tay, mỉm cười nói: "Ta cảm ơn ngươi a."
+Cả đời hắn có thể nói là đặc sắc, chuyện cổ quái gì chưa từng trải qua? Nhưng chưa bao giờ hắn gặp chuyện khó hiểu như hôm nay. Đối phương là ai, ra tay thế nào, vì sao tới đây, bản thân hắn có mất mạng hay không... hắn đều không biết.
 
-Sơn trạch dã tu "thiếu niên" dung mạo kia, nhìn tiền bối là thần tiên đạo môn, liền hợp ý, chắp tay, nhẹ giọng nói: "Vãn bối Sài Bá Phù, đạo hiệu Long bá, tin tưởng tiền bối hẳn là có nghe thấy."
+Liễu Xích Thành vẩy máu trên tay, mỉm cười nói:
 
-Mấy bước co lại núi sông, hà kết mây lớn.
+- Ta phải cảm ơn ngươi đấy.
 
-Nói chính là vị Sơn Trạch Dã Tu Long Bá đại danh đỉnh đỉnh này, cực kỳ am hiểu ám sát cùng bỏ chạy, hơn nữa tinh thông thủy pháp công phạt, nghe đồn có chút tranh đấu đại đạo với Thư Giản hồ Lưu Chí Mậu, còn tranh đoạt một bộ bí kíp tiên gia có thể thông thiên, đồn đại hai bên ra tay tàn nhẫn, tận hết sức lực, thiếu chút nữa đánh cho óc văng khắp nơi.
+Vị sơn trạch dã tu mang dáng vẻ thiếu niên thấy tiền bối là thần tiên đạo môn, bèn lựa lời chắp tay nói:
 
-Liễu Xích Thành nghiến răng nghiến lợi nói: "Nghe nói đại gia ngươi. Lão tử tên là Liễu Xích Thành, người Bạch Thủy quốc, ngươi từng nghe chưa?"
+- Vãn bối Sài Bá Phù, đạo hiệu Long Bá, chắc hẳn tiền bối từng nghe qua.
 
-Sài Bá Phù kiên trì nói: "Vãn bối nông cạn vô tri, đúng là chưa từng nghe nói đại danh của tiền bối."
+Mấy bước co núi sông, hơi nước kết thành mây lớn[?].
 
-Liễu Xích Thành ngã ngồi trên mặt đất, lưng tựa cây đào, vẻ mặt suy sụp, "Cục đá nhặt phân gà, bên cạnh bùn nát đào phân chó, thật không dễ dàng gì tích góp ra một chút tu vi, một cái tát đánh không, không muốn sống nữa, ngươi đánh chết ta đi."
+Câu này nói về vị sơn trạch dã tu Long Bá danh tiếng lẫy lừng. Hắn cực kỳ giỏi ám sát và bỏ chạy, còn tinh thông thủy pháp dùng để công phạt. Nghe nói hắn từng tranh chấp đại đạo với Lưu Chí Mậu ở Thư Giản hồ, lại tranh đoạt một bộ bí kíp tiên gia có thể thông thiên. Hai bên ra tay tàn nhẫn, dốc hết sức lực, suýt nữa đánh đến óc văng khắp nơi.
 
-Sài bá không chút sứt mẻ, còn chưa đến mức ra vẻ mặt sợ hãi, càng không nói vài câu trung thành thành ý, đối mặt loại nhàn vân dã hạc tu vi cực cao, lại không có thanh danh gì này, kiêng kị nhất là tự cho là thông minh, vẽ rắn thêm chân.
+Liễu Xích Thành nghiến răng nói:
 
-Liễu Xích Thành bắt đầu nhắm mắt dưỡng thần, dùng đầu lần lượt gõ cây đào, nói thầm nói: "Đem cây đào chặt gãy, phá hỏng phong cảnh của hắn."
+- Nghe cái đầu ngươi! Lão tử tên Liễu Xích Thành, người Bạch Thủy quốc, ngươi từng nghe chưa?
 
-Sau đó Liễu Xích Thành hung hăng tát một cái ở trên mặt mình, giống như bị đánh tỉnh táo, tươi cười rạng rỡ, "Hẳn là cao hứng mới đúng, thế gian nào ta đại nạn không chết người như ta, tất có hậu phúc, tất có phúc hậu!"
+Sài Bá Phù đành đáp:
 
-Liễu Xích Thành đứng lên, từ uể oải không phấn chấn, nháy mắt biến thành hăng hái, thẳng lưng, vung tay áo, vê ra ba nén nhang, sau đó nhìn dã tu ngây ngốc đứng ở tại chỗ kia, lại bắt đầu mắt to trừng mắt nhỏ, "Còn không cút xa một chút, chậm trễ ta thắp hương bái thần tiên?"
+- Vãn bối nông cạn vô tri, quả thật chưa từng nghe đại danh của tiền bối.
 
-Liễu Xích Thành đột nhiên hít sâu một hơi, "Không được không được, phải giúp mọi người làm điều tốt, phải lấy lễ đãi người, phải giảng đạo lý người đọc sách."
+Liễu Xích Thành ngồi phịch xuống đất, dựa lưng vào cây đào, vẻ mặt suy sụp:
 
-Sài Bá Phù từng bước từng bước dịch chuyển, đến ngoài năm sáu trượng mới dám đứng lại.
+- Nhặt phân gà giữa đống đá, bới phân chó trong bùn nát[?], khó khăn lắm mới tích góp được chút tu vi, một cái tát đã đánh mất sạch. Không muốn sống nữa, ngươi đánh chết ta đi.
 
-Không có chút uất ức nào, Luyện khí sĩ xuất thân sơn trạch dã tu, có thể đi đến vị trí Sài Bá Phù này, ai không có chút lòng dạ.
+Sài Bá Phù không hề nhúc nhích, cũng không giả vờ sợ hãi hay nói vài câu tỏ lòng trung thành. Đối mặt với hạng nhàn vân dã hạc tu vi cực cao mà không có thanh danh này, kiêng kỵ nhất là tự cho mình thông minh, vẽ rắn thêm chân.
 
-Phong Lôi viên Lý Đoàn Cảnh từng mĩm cười nói, trên đời này tu tâm sâu nhất, không phải gia phả tiên sư, là dã tu, chỉ tiếc không thể không đi bàng môn thiên môn, bằng không đại đạo là khả kỳ nhất.
+Liễu Xích Thành nhắm mắt dưỡng thần, lấy đầu gõ vào thân đào hết lần này đến lần khác, lẩm bẩm:
 
-Liễu Xích Thành thu liễm suy nghĩ, vứt bỏ tạp niệm, bắt đầu lẩm bẩm, sau đó ngón tay chà xát đầu hương, chậm rãi châm lửa, Liễu Xích Thành nhìn như ba bái thiên địa.
+- Chặt gãy cây đào, phá hỏng phong cảnh của hắn.
 
-Kì thực bái một cái đối với mình có ân truyền đạo tổ sư đường Bạch Đế thành.
+Sau đó hắn hung hăng tát mình một cái, như thể đã được đánh cho tỉnh táo, tươi cười rạng rỡ:
 
-Hai bái vị nho sĩ thanh sam kia của cổ miếu đưa ra một kiếm, kiếm thuật cao, hạo nhiên chính khí thuần chính, cuộc đời ít thấy.
+- Phải vui mừng mới đúng. Trên đời người như ta đại nạn không chết, tất có hậu phúc, tất có hậu phúc!
 
-Ba bái vị "Trung niên đạo nhân" thiên uy mênh mông cuồn cuộn vừa rồi.
+Liễu Xích Thành đứng dậy, thoáng chốc từ uể oải biến thành hăng hái. Hắn thẳng lưng, phất tay áo lấy ra ba nén hương, rồi nhìn vị dã tu còn ngơ ngác đứng đó. Hai người lại mắt lớn trừng mắt nhỏ.
 
-Cố Xán cẩn thận chặt chẽ, thời điểm ngự phong, nhìn thấy Liễu Xích Thành cũng không cố ý che lấp khí tức, liền đáp xuống phụ cận cây đào sơn dã, đợi đến sau khi Liễu Xích Thành vái ba vái, mới nói: "Vạn nhất thì sao, cần gì chứ."
+- Còn không mau cút ra xa một chút, chậm trễ ta thắp hương bái thần tiên sao?
 
-Liễu Xích Thành im lặng không lên tiếng, đợi hương khói trong tay thiêu đốt hầu như không còn, lúc này mới khôi phục thần thái bình thường, cười hì hì nói: "Được rồi được rồi, ngươi cũng đừng xát muối lên vết thương của ta, ta lúc này đau lòng."
+Liễu Xích Thành đột nhiên hít sâu một hơi:
 
-Cố Xán căn bản không có mắt nhìn Dã Tu, nhưng câu nói thứ hai đã có thể thấy được bản tâm bản tính: "Giữ lại làm gì?"
+- Không được, không được, phải giúp người làm điều tốt, phải lấy lễ đãi người, phải giảng đạo lý của người đọc sách.
 
-Liễu Xích Thành cười hỏi: "Cố Xán, ngươi là muốn trở thành sư đệ của ta, hay là trở thành sư điệt?"
+Sài Bá Phù nhích từng bước, ra xa năm sáu trượng mới dám dừng lại.
 
-Cố Xán nói: "Đây không phải ta có thể chọn, nói hắn làm chi."
+Hắn không cảm thấy uất ức chút nào. Luyện khí sĩ xuất thân sơn trạch dã tu, có thể đi đến địa vị như hắn, ai mà không có chút lòng dạ?
 
-Cố Xán trong mấy năm nay, nếu là người xa lạ gặp mặt lần đầu, đều sẽ cảm thấy đây là một người đọc sách ôn lương kính cẩn, là người trẻ tuổi có gia giáo.
+Lý Đoàn Cảnh của Phong Lôi viên từng cười nói, người tu tâm sâu nhất trên đời không phải tiên sư có gia phả, mà là dã tu. Chỉ tiếc bọn họ không thể không đi đường ngang ngõ tắt, nếu không đại đạo của họ là đáng mong đợi nhất.
 
-Chỉ là Cố Xán cùng Liễu Xích Thành lần này dắt tay nhau đi về phương bắc, sớm chiều ở chung, mỗi người có đức hạnh gì, đối phương đều biết rõ trong lòng.
+Liễu Xích Thành gạt bỏ tạp niệm, lẩm bẩm một hồi, rồi dùng ngón tay xoa đầu hương châm lửa. Nhìn qua hắn đang vái trời đất ba lần.
 
-Cố Xán nói mình không nhớ hôm nay thù, đó là vũ nhục Liễu Xích Thành.
+Thật ra lần thứ nhất, hắn bái tổ sư đường Bạch Đế thành, nơi có ân truyền đạo với mình.
 
-Cố Xán gọn gàng dứt khoát nói: "Chính ngươi đã nói, Tề tiên sinh từng có đại ân với ngươi, tặng ngươi một câu kim ngọc lương ngôn, chỉ điểm mê tân phá bình phong, mới khiến ngươi thuận lợi chen thân thượng ngũ cảnh, ngươi còn từng hứa hẹn với Tề tiên sinh, về sau Trần Bình An bái phỏng Bạch Đế thành, ân tình kia của Tề tiên sinh, ngươi xem như thiếu Trần Bình An, cho nên ngươi nhất định sẽ có thiện ý. Hiện tại ngươi tự mình suy nghĩ lượng hậu quả. Hôm nay ngươi làm việc, một là vong ân phụ nghĩa, hai là kết thù cùng ta, Liễu Xích Thành ngươi thật không hổ là cao nhân Bạch Đế thành, làm việc tùy tâm sở dục, ta càng thêm chờ mong đối với Bạch Đế thành, đây đại khái là chuyện duy nhất hôm nay ngươi làm đúng."
+Lần thứ hai, hắn bái nho sĩ áo xanh đã xuất một kiếm ở ngôi miếu cổ. Kiếm thuật cao siêu, hạo nhiên chính khí thuần chính như vậy, cả đời hắn hiếm thấy.
 
-Cố Xán không lấy tiếng lòng bí mật nói chuyện với Liễu Xích Thành.
+Lần thứ ba, hắn bái vị “đạo nhân trung niên” vừa rồi, người có thiên uy mênh mông cuồn cuộn.
 
-Liễu Xích Thành liếc mắt nhìn Sài Bá Phù tâm sinh tử kia, thu hồi tầm mắt, bất đắc dĩ nói: "Ngươi cứ như vậy muốn huynh đệ Long Bá chết kiều kiều a?"
+Cố Xán cẩn thận ngự gió tìm tới, thấy Liễu Xích Thành không cố ý che giấu khí tức, bèn đáp xuống gần cây đào. Chờ hắn vái xong ba vái, Cố Xán mới nói:
 
-Cố Xán không nói gì.
+- Lỡ như thì sao? Cần gì phải thế.
 
-Liễu Xích Thành nhẫn nại giải thích: "Thứ nhất, chuyện hôm qua là chuyện hôm qua, chuyện ngày mai là chuyện ngày mai, ví dụ như Trần Bình An đến lúc đó muốn nói nhảm với ta, ta sẽ lôi sư huynh ra, Trần Bình An sẽ chết, vậy ta sẽ thuận nước đẩy thuyền, lại lấy ra ân tình Tề tiên sinh, tương đương cứu Trần Bình An một mạng, không phải trả lại ân tình?"
+Liễu Xích Thành không lên tiếng, chờ hương trong tay cháy gần hết mới khôi phục vẻ bình thường, cười hì hì:
 
-"Thứ hai, không nói kết quả hiện tại, ý nghĩ của ta lúc đó rất đơn giản, kết thù cùng ngươi, so với trợ giúp sư huynh đi ra một con đường lớn đăng đỉnh, Cố Xán, ngươi tự tính toán tính toán, nếu như ngươi là ta, sẽ chọn như thế nào?"
+- Được rồi, đừng xát muối lên vết thương nữa, ta đang đau lòng đây.
 
-"Cuối cùng, ta kính trọng hơn nữa sợ hãi sư huynh, nhưng mà ta yêu thích lại hoài niệm Bạch Đế thành, không hy vọng nó chỉ là một khối đá kê chân, cần có người xuất hiện, cho sư huynh một lý do thuyết phục mình."
+Cố Xán chẳng thèm nhìn vị dã tu, nhưng câu thứ hai đã để lộ bản tính:
 
-Cố Xán trừ câu nói sau cùng của Liễu Xích Thành ra thì đều nghe hiểu được hết.
+- Giữ hắn lại làm gì?
 
-Mặc kệ đạo lý Liễu Xích Thành, ở Cố Xán xem ra xiêu xiêu vẹo vẹo, quấn không quấy, đều là đạo lý Liễu Xích Thành thật lòng tán thành, Liễu Xích Thành đều là đang nói với tâm tư móc tim Cố Xán.
+Liễu Xích Thành cười hỏi:
 
-Cố Xán có thể không tán thành, nhưng phải lấy ra "đạo lý" không tán thành, nắm tay, đạo pháp, khẩu thanh thức, đều có thể.
+- Cố Xán, ngươi muốn làm sư đệ hay sư điệt của ta?
 
-Xét đến cùng, Liễu Xích Thành luôn luôn quan sát Cố Xán, suy nghĩ trong lòng, tầm mắt có thể đạt tới, là chỗ cao nhất của Bạch Đế thành, là sư huynh, cùng với những đồng môn khác cùng bối phận với Liễu Xích Thành.
+- Chuyện này đâu phải ta chọn được, nói làm gì.
 
-Liễu Xích Thành muốn thay sư phụ thu đồ đệ, kẻ địch lớn nhất, hoặc là nói quan ải, thật ra là những đồng môn này.
+Mấy năm nay, người lạ mới gặp Cố Xán đều cảm thấy hắn là một người đọc sách ôn hòa, cung kính, một người trẻ tuổi có gia giáo. Chỉ là lần này hắn cùng Liễu Xích Thành đi về phương bắc, sớm chiều ở chung, mỗi người có đức hạnh gì, đối phương đều biết rõ.
 
-Sài Bá Phù nghe mà lạnh cả sống lưng, trên đường tu hành, trải qua nhấp nhô, lần đầu tiên trong đời cảm thấy tuyệt vọng như thế.
+Nếu Cố Xán nói mình không ghi thù chuyện hôm nay, vậy là sỉ nhục Liễu Xích Thành.
 
-Ba chữ Bạch Đế thành, tựa như một ngọn núi đè ở tâm hồ, trấn áp Sài Bá Phù không thở nổi.
+Cố Xán nói thẳng:
 
-Thiên hạ cửu châu, sơn trạch dã tu ngàn ngàn vạn, Thánh Địa Đạo Trường trong lòng chỉ có một chỗ, đó chính là Trung Thổ Thần Châu Bạch Đế thành, thành chủ được công nhận là người đứng đầu ma đạo.
+- Chính ngươi từng nói Tề tiên sinh có đại ân với ngươi, tặng ngươi một câu vàng ngọc, chỉ đường phá chướng, giúp ngươi thuận lợi bước vào thượng ngũ cảnh. Ngươi còn hứa với Tề tiên sinh, sau này Trần Bình An đến Bạch Đế thành, ngươi sẽ coi ân tình của Tề tiên sinh là nợ Trần Bình An, nhất định có thiện ý với hắn. Bây giờ ngươi tự nghĩ xem hậu quả thế nào.
 
-Kết quả vị đạo nhân mặc hồng bào này, cùng một người trẻ tuổi, mở miệng một tiếng Bạch Đế thành, sư huynh sư đệ.
+- Việc ngươi làm hôm nay, thứ nhất là vong ân phụ nghĩa, thứ hai là kết thù với ta. Liễu Xích Thành, ngươi đúng là cao nhân Bạch Đế thành, làm việc tùy tâm sở dục. Ta càng mong chờ được đến Bạch Đế thành, có lẽ đó là chuyện duy nhất hôm nay ngươi làm đúng.
 
-Cho nên Sài Bá Phù đợi cho hai người trầm mặc xuống, mở miệng hỏi: "Liễu tiền bối, Cố Xán, ta làm sao mới có thể không chết?"
+Cố Xán không dùng tiếng lòng bí mật nói chuyện với Liễu Xích Thành.
 
-Người chân chính hỏi thăm, thật ra chỉ có người trẻ tuổi áo xanh cảnh giới không cao kia.
+Liễu Xích Thành liếc Sài Bá Phù đang thấp thỏm vì sống chết, rồi bất đắc dĩ nói:
 
-Nếu Liễu Xích Thành đã giam giữ hắn đến tận đây, ít nhất tính mạng không lo, nhưng mà Cố Xán thằng cha này, lại có chút thù mới hận cũ với mình.
+- Ngươi muốn huynh đệ Long Bá chết đến vậy sao?
 
-Tên Cố Xán này, Sài Bá Phù từng nghe nói, chủ yếu vẫn là bởi vì quan hệ với Tiệt Giang Chân Quân Lưu Chí Mậu, nghe đồn Cố Xán mấy năm trước làm đích truyền của Lưu Chí Mậu, một đứa nhỏ to xác có được một con thủy giao Nguyên Anh cảnh, giết được hưng khởi ở Thư Giản hồ, chỉ là sau đó không biết vì sao, đột nhiên yên lặng, thủy giao mất tích, Cố Xán cũng theo đó mai danh ẩn tích, sau đó toàn bộ Thư Giản hồ bị tu sĩ ngoại hương cưu chiếm tổ thước, trở thành hạt cảnh hạ tông của Đồng Diệp Châu Ngọc Khuê tông, thuận hưng nghịch vong, kiệt ngạo không thuần phục, nhắm chừng đều bị Chân cảnh tông cho ăn cá, nhận rõ đại thế, coi như ở trong Thư Giản hồ tắm thần tiên, rửa sạch dơ bẩn dã tu, lắc mình biến hóa, trở thành tiên sư phổ điệp tiên gia đầu chữ Bát kinh tông chính nhi.
+Cố Xán không đáp.
 
-Sài Bá Phù cảm thấy số phận gần đây của mình, thật sự là tệ hại tới cực điểm.
+Liễu Xích Thành kiên nhẫn giải thích:
 
-Sao lại gặp phải tiểu ma đầu này? Cố Xán làm sao có quan hệ dính líu với quá giang long như Liễu Xích Thành?
+- Thứ nhất, chuyện hôm qua là chuyện hôm qua, chuyện ngày mai là chuyện ngày mai. Ví như sau này Trần Bình An đến nói nhảm với ta, ta lôi sư huynh ra, hắn sẽ phải chết. Khi ấy ta thuận nước đẩy thuyền, đem ân tình của Tề tiên sinh ra nói, chẳng khác nào cứu Trần Bình An một mạng, không phải đã trả ân tình rồi sao?
 
-Liễu Xích Thành chỉ chỉ Cố Xán, "Sinh tử như thế nào, hỏi vị tiểu sư đệ tương lai này của ta."
+- Thứ hai, không nói đến kết quả bây giờ, ý nghĩ lúc ấy của ta rất đơn giản. Kết thù với ngươi hay giúp sư huynh mở ra một con đường lớn lên đỉnh, Cố Xán, nếu là ngươi thì chọn thế nào?
 
-Cố Xán đại đạo thành lại càng cao, Liễu Xích Thành trở về Bạch Đế thành sẽ càng thuận lợi.
+- Cuối cùng, ta vừa kính trọng vừa sợ hãi sư huynh, nhưng ta yêu mến và nhớ Bạch Đế thành, không mong nó chỉ là một hòn đá kê chân. Cần có người xuất hiện, cho sư huynh một lý do để tự thuyết phục mình.
 
-Cố Xán nói: "Chết rồi, thì không cần chết nữa."
+Ngoại trừ câu cuối cùng, Cố Xán đều nghe hiểu. Đạo lý của Liễu Xích Thành dù trong mắt hắn có quanh co sai lệch đến đâu, cũng đều là những điều Liễu Xích Thành thật lòng tin tưởng. Hắn đang nói hết tâm tư với Cố Xán.
 
-Liễu Xích Thành bật cười.
+Cố Xán có thể không đồng ý, nhưng phải đưa ra “đạo lý” để phản bác. Nắm đấm, đạo pháp hay lời nói đều được.
 
-Cách nói này, rất mới mẻ.
+Suy cho cùng, Liễu Xích Thành luôn quan sát Cố Xán, nhưng trong lòng và trong tầm mắt hắn là nơi cao nhất của Bạch Đế thành, là sư huynh và các đồng môn cùng bối phận. Hắn muốn thay sư phụ thu đồ đệ, kẻ địch lớn nhất, hay cửa ải khó vượt nhất, thật ra chính là những đồng môn ấy.
 
-Sài Bá Phù trầm giọng nói: "Cố Xán, vì sao ngươi phải hùng hổ dọa người? Cố ý giết ta? Cho dù ta có chút thù cũ với sư phụ ngươi, ngươi là dã tu, ta càng là, chút khúc mắc ấy, tính là gì?"
+Sài Bá Phù nghe mà lạnh sống lưng. Đường tu hành của hắn từng trải qua nhiều trắc trở, nhưng đây là lần đầu tiên trong đời cảm thấy tuyệt vọng như vậy.
 
-Liễu Xích Thành nghiền ngẫm nói: "Long Bá lão đệ, ngươi cùng Lưu Chí Mậu?"
+Ba chữ Bạch Đế thành tựa ngọn núi đè xuống tâm hồ, khiến hắn không thở nổi. Thiên hạ chín châu có ngàn vạn sơn trạch dã tu, nhưng thánh địa đạo trường trong lòng họ chỉ có một: Bạch Đế thành ở Trung Thổ Thần Châu. Thành chủ nơi ấy được công nhận là người đứng đầu ma đạo.
 
-Sài Bá Phù nói: "Vì tranh đoạt một bộ Tiệt Giang Chân Kinh..."
+Vậy mà đạo nhân áo hồng cùng người trẻ tuổi này cứ mở miệng là nói đến Bạch Đế thành, sư huynh sư đệ.
 
-Nói tới đây, Sài Bá Phù giật mình nói: "Cố Xán, chẳng lẽ Lưu Chí Mậu Chân coi ngươi là người kế thừa hương khói? Cũng học được bộ chân kinh kia, sợ ta ở bên cạnh ngươi, khắp nơi đại đạo tương xung, phá hỏng vận số của ngươi?"
+Đợi hai người im lặng, Sài Bá Phù mới hỏi:
 
-Sài Bá Phù lẩm bẩm: "Lưu Chí Mậu bụng dạ hẹp hòi, hận không thể đánh giết toàn bộ tu sĩ đồng đạo thiên hạ, sao có thể cam lòng truyền cho ngươi phương pháp đại đạo căn bản?"
+- Liễu tiền bối, Cố Xán, ta phải làm sao mới không chết?
 
-Cố Xán tự nhiên sẽ không nói toạc ra tin tức, năm đó Lưu Chí Mậu đối với chuyện bế quan phá cảnh nắm chắc không lớn, vô cùng có khả năng binh giải ly thế, bằng không Lưu Chí Mậu nào nguyện ý giao cho bộ thủy pháp chân kinh kia của Cố Xán, Cố Xán sao có thể bị chủ nhân chân chính Liễu Xích Thành của chân kinh tìm tới cửa.
+Người hắn thật sự hỏi là người trẻ tuổi áo xanh cảnh giới không cao kia. Liễu Xích Thành đã bắt hắn tới đây, ít nhất tính mạng hắn sẽ không nguy; nhưng Cố Xán lại có chút thù mới hận cũ với hắn.
 
-Liễu Xích Thành sau khi được Thôi Sàm tính kế, thoát vây, từng thu đệ tử ký danh, thiếu niên kia từng là đệ tử của Mễ lão ma, tên là Nguyên Điền Địa, chỉ tiếc Liễu Xích Thành tốn chút tâm tư, hiệu quả lại không tốt, cũng xấu hổ mang theo bên người, ném hắn ở một ngọn núi nhỏ, để thiếu niên tự sinh tự diệt, bên cạnh thiếu niên còn có tiểu hồ mị, Liễu Xích Thành khi ly biệt với bọn họ, đối với ký danh đệ tử không có bất cứ bố thí gì, trái lại tặng cho tiểu hồ mị một môn tu đạo chi pháp, hai món đồ vật hộ thân, nhưng nhắm chừng tu hành về sau của nàng, cũng cần cù không được đi đâu, về phần Nguyên Điền Địa có thể từ trên tay nàng học được môn đạo pháp kia hay không, hai bên cuối cùng lại có ân oán tình cừu như thế nào, Liễu Xích Thành không quan trọng, trên đường tu hành, nhưng xem tạo hóa.
+Sài Bá Phù từng nghe tên Cố Xán, chủ yếu vì quan hệ của hắn với Tiệt Giang Chân Quân Lưu Chí Mậu. Nghe nói mấy năm trước Cố Xán là đệ tử đích truyền của Lưu Chí Mậu, một đứa trẻ có con thủy giao Nguyên Anh, từng giết chóc thỏa thích ở Thư Giản hồ. Sau đó chẳng biết vì sao hắn đột nhiên im hơi lặng tiếng, thủy giao mất tích, bản thân cũng mai danh ẩn tích.
 
-Liễu Xích Thành không ngại làm dã nam nhân xinh đẹp cho nữ tử, nhưng mà không muốn làm dã phụ cho ai, năm xưa phụ một tay đối với tiểu hồ mị kia, không phải Liễu Xích Thành thương hại nàng gặp gỡ, mà là Liễu Xích Thành thương hại mình.
+Về sau toàn bộ Thư Giản hồ bị tu sĩ ngoại hương chiếm cứ, trở thành địa bàn của hạ tông Ngọc Khuê tông ở Đồng Diệp Châu. Thuận thì sống, nghịch thì chết; những kẻ kiêu ngạo không chịu khuất phục có lẽ đều bị Chân Cảnh tông ném cho cá ăn. Ai nhận rõ đại thế thì coi như được tắm một trận ở Thư Giản hồ, gột sạch thân phận dã tu, lắc mình biến thành tiên sư có gia phả đường đường chính chính.
 
-Liễu Xích Thành sau khi bỏ lại nguyên điền địa, một mình du lịch, chưa từng nghĩ đoạn Tiệt Giang Chân Kinh nọ của mình rơi vào trên tay dã tu Lưu Chí Mậu, xuất sắc còn không nhỏ, lăn lộn ra danh hiệu Tiệt Giang Chân Quân.
+Sài Bá Phù cảm thấy gần đây vận số của mình thật sự tệ đến cùng cực. Sao lại gặp phải tiểu ma đầu này? Cố Xán làm sao dính líu với con rồng qua sông như Liễu Xích Thành?
 
-Trên đường đời, luôn có lòng trồng hoa hoa không nở, vô tâm cắm liễu liễu xanh um.
+Liễu Xích Thành chỉ Cố Xán:
 
-Cố Xán nhìn thoáng qua Sài Bá Phù, đột nhiên cười nói: "Thôi đi, về sau đại đạo đồng hành, có thể luận bàn đạo pháp."
+- Sống hay chết, hỏi vị tiểu sư đệ tương lai này của ta.
 
-Nếu Liễu Xích Thành không muốn giết người, Cố Xán tự mình ra tay lại không nắm chắc lắm, vậy thì giữ lại bên người là được rồi.
+Thành tựu đại đạo của Cố Xán càng cao, Liễu Xích Thành trở về Bạch Đế thành sẽ càng thuận lợi.
 
-Liễu Xích Thành thật ra chướng mắt Sài Bá Phù chút cảnh giới này, mặc dù trở về Nguyên Anh cảnh, lại có thể thế nào, cho dù làm trâu làm ngựa cho Liễu Xích Thành hắn, đến Bạch Đế thành, ý nghĩa ra sao? Tu hành ở Bạch Đế thành, căn bản không phải con đường tu hành tiên gia môn phái tầm thường, cũng không chú ý cái gì ôm đoàn sưởi ấm, đồng khí liên chi.
+Cố Xán nói:
 
-Nguyên nhân thực sự của Liễu Xích Thành không giết người này, là hy vọng đại sư huynh bằng vào chút quan hệ nhân quả của Sài Bá phù cùng Lý Bảo Bình, tính toán thôi diễn, giúp đỡ đại sư huynh về sau cùng vị "Trung niên đạo sĩ" kia chơi cờ, cho dù Bạch Đế thành chỉ là có thêm một chút phần thắng, cũng là chuyện tốt bằng trời.
+- Chết rồi thì không cần chết nữa.
 
-Tin tưởng vào tính toán nhỏ nhặt của mình, kỳ thật sớm đã bị đạo nhân trung niên kia tính toán ở bên trong, không có việc gì, đến lúc đó đều để đại sư huynh đau đầu.
+Liễu Xích Thành bật cười. Cách nói này thật mới mẻ.
 
-Sư đệ tận bổn phận của sư đệ, sư huynh chơi cờ của sư huynh.
+Sài Bá Phù trầm giọng:
 
-Sau đó ba người đều không ngự phong, cùng nhau đi bộ về hướng Thanh Phong thành.
+- Cố Xán, vì sao ngươi cứ dồn ép, nhất định muốn giết ta? Ta có chút thù cũ với sư phụ ngươi, nhưng ngươi là dã tu, ta cũng vậy, chút khúc mắc ấy tính là gì?
 
-Liễu Xích Thành thuận miệng nói: "Long bá lão đệ, sáu vật bản mạng này của ngươi, hoa hòe loè loẹt, trong đó hai kiện phẩm cấp chỉ có tiêu chuẩn linh khí, sao lại thế này?"
+Liễu Xích Thành nghiền ngẫm hỏi:
 
-Sài Bá Phù cười khổ nói: "Sơn trạch dã tu, khởi đầu khó nhất, dã tu dưới ngũ cảnh, có thể có một hai món linh khí thành công luyện hóa thành vật bản mạng, đã là chuyện may mắn trời ban, đợi cảnh giới đủ, pháp bảo trong tay đủ nhiều, còn muốn mạnh mẽ thay đổi mấy vật bản mạng thâm căn cố đế, cùng đại đạo tính mạng liên quan, đi cũng được, chỉ là quá mức thương cân động cốt, sợ nhất kẻ thù kia biết được tin tức, bế quan bực này, không phải tự mình muốn chết sao? Cho dù không chết, chỉ là bị những tiên sư gia gia phả ăn no rửng mỡ chống đỡ, vụng trộm tới một tay, đánh gãy bế quan, cũng mất nhiều hơn được."
+- Long Bá lão đệ, ngươi với Lưu Chí Mậu có chuyện gì?
 
-Sài Bá Phù thở dài: "Nếu là trước khi kết Kim Đan, trêu chọc kẻ thù cảnh giới không cao, đổi vật bản mạng, vấn đề không lớn, đáng tiếc dã tu chúng ta có thể kết đan, sao có thể không trêu chọc chút kim đan cùng thế hệ, cùng một ít gia phả tiên sư bị đánh thì kêu cha gọi mẹ tìm tổ tông, có đôi khi, đưa mắt nhìn chung quanh, thật sự cảm thấy bốn phía tất cả đều là phiền toái cùng kẻ địch."
+- Vì tranh đoạt một bộ Tiệt Giang Chân Kinh...
 
-Tiên gia "Xuyến môn", trả thù cũng tốt, đi thân thích cũng thế, không thể so với trăm dặm đường xa kia là dân chúng phố phường đi xa, đất một châu lớn nữa, nhưng một khi đi đàm phán mở đàn tràng, thì rất nhỏ, linh khí phong thuỷ bảo địa hơi tốt một chút, địa đầu xà khắp nơi, danh sơn đại thủy đầm sâu, ai không bị đỉnh núi tiên gia chiếm cứ kinh doanh nhiều năm? Không phải đỉnh núi gia phả, chính là sơn thuỷ thần kỳ, dã tu sở dĩ khó có thành tựu, thật sự là thiên thời địa lợi nhân hòa cũng không có ưu thế.
+Nói tới đây, Sài Bá Phù giật mình:
 
-Liễu Xích Thành gật gật đầu, tỏ vẻ hiểu được.
+- Cố Xán, chẳng lẽ Lưu Chí Mậu thật sự coi ngươi là người kế thừa hương khói, còn truyền chân kinh kia cho ngươi? Ngươi sợ ta ở bên cạnh, đại đạo đôi bên xung khắc, phá hỏng vận số của ngươi?
 
-Cố Xán mỉm cười.
+Hắn lẩm bẩm:
 
-Sài Bá Phù ngây người một cái, đã bị Liễu Xích Thành đè đầu, tùy tay đánh nát Kim Đan, người sau ngã xuống đất, cả người đẫm máu, run rẩy không thôi.
+- Lưu Chí Mậu bụng dạ hẹp hòi, hận không thể giết hết tu sĩ đồng đạo trong thiên hạ, sao có thể cam lòng truyền cho ngươi phương pháp đại đạo căn bản?
 
-Lúc trước từ Nguyên Anh hạ cảnh đến Kim Đan, quá mức mơ hồ, Sài Bá Phù cũng không có bị tội quá nhiều, lần này từ Kim Đan ngã xuống Long Môn cảnh, chính là bị dày vò trong vạc dầu.
+Cố Xán đương nhiên không nói ra: năm đó Lưu Chí Mậu không nắm chắc chuyện bế quan phá cảnh, rất có thể phải binh giải lìa đời. Nếu không, sao hắn chịu giao bộ thủy pháp chân kinh kia cho Cố Xán, khiến Cố Xán bị chủ nhân thật sự của chân kinh là Liễu Xích Thành tìm tới cửa?
 
-Liễu Xích Thành cười nói: "Được rồi, hiện tại có thể an tâm đổi vật bản mạng, bằng không bình cảnh nguyên anh này của ngươi khó đánh vỡ. Long bá lão đệ, chớ cảm ơn ta."
+Sau khi bị Thôi Sàm tính kế rồi thoát vây, Liễu Xích Thành từng nhận một đệ tử ký danh. Thiếu niên tên Nguyên Điền Địa ấy từng là đệ tử của Mễ lão ma. Liễu Xích Thành bỏ chút tâm tư dạy dỗ, nhưng hiệu quả không tốt, hắn cũng ngại mang theo bên mình, bèn ném thiếu niên ở một ngọn núi nhỏ, mặc cho tự sinh tự diệt.
 
-Liễu Xích Thành xoay tròn một ngón tay, tùy tay kết trận, giúp đỡ Long Bá lão đệ che lấp khí tức.
+Bên cạnh Nguyên Điền Địa còn có một tiểu hồ mị. Khi chia tay, Liễu Xích Thành chẳng ban cho đệ tử ký danh thứ gì, trái lại tặng nàng một pháp môn tu đạo và hai món đồ hộ thân. Có điều tu hành về sau của nàng có lẽ cũng chẳng tiến được bao xa[?]. Nguyên Điền Địa có học được đạo pháp từ nàng hay không, cuối cùng hai người có ân oán tình thù thế nào, Liễu Xích Thành đều không quan tâm. Trên đường tu hành, tất cả tùy tạo hóa.
 
-Bạch Đế thành truyền thụ thuật pháp hỗn tạp, Liễu Xích Thành từng có một vị sư tỷ tư chất có thể xưng là kinh tài tuyệt diễm, lập xuống ý nguyện vĩ đại, phải học thành mười hai loại thuật pháp đại đạo mới bỏ qua.
+Liễu Xích Thành không ngại làm tình nhân cho nữ tử, nhưng không muốn làm cha cho ai. Năm đó giúp tiểu hồ mị một tay, không phải hắn thương xót cảnh ngộ của nàng, mà là thương xót chính mình.
 
-Kết quả qua mỗi trăm năm, sắc mặt vị sư tỷ kia liền khó coi một phần, đến cuối cùng trở thành người tính tình kém cỏi nhất Bạch Đế thành.
+Sau khi bỏ Nguyên Điền Địa lại, Liễu Xích Thành một mình du lịch. Hắn không ngờ một đoạn Tiệt Giang Chân Kinh của mình rơi vào tay dã tu Lưu Chí Mậu, người này còn dựa vào đó làm nên chuyện, có được danh hiệu Tiệt Giang Chân Quân.
 
-Sài Bá Phù ngồi xếp bằng, thân người nhỏ thiên địa khí tượng đại loạn, hôm nay Nguyên Anh, Kim Đan liên tiếp biến mất, vỡ nát, đã không nói cái gì đại đạo căn bản bị hao tổn, mạng sống trước rồi nói cái khác.
+Trên đường đời, có khi cố ý trồng hoa hoa chẳng nở, vô tâm cắm liễu liễu xanh um.
 
-Cố Xán ngồi xổm bên cạnh Sài Bá Phù, hỏi: "Ta rất ngạc nhiên, vì sao ngươi không giả bộ thành Hứa Hồn, chút giá họa vu oan ấy cũng không có? Dã tu làm sao? Ẩn tình trong đó là cái gì?"
+Cố Xán liếc Sài Bá Phù, đột nhiên cười nói:
 
-Cố Xán đưa tay đè lại đầu Sài Bá Phù, "Ngươi tu tập thủy pháp, ta trùng hợp học được Tiệt Giang Chân Kinh, nếu như mượn cơ hội này, lấy ra bản mạng nguyên khí cùng thủy vận của ngươi, lại tinh luyện mảnh vỡ Kim Đan của ngươi, đại bổ đạo hạnh, là chuyện tốt nước chảy thành sông. Nói đi, ngươi cùng Thanh Phong thành hoặc là Hồ quốc, đến cùng có sâu xa gì không thể lộ ra ngoài ánh sáng, có thể cho ngươi lần này giết người đoạt bảo, giảng đạo nghĩa như thế."
+- Thôi vậy, sau này cùng đi trên đường lớn, có thể luận bàn đạo pháp.
 
-Sài Bá Phù bộ dáng thiếu niên sắc mặt sầu thảm, mái tóc bạc lúc trước, tuy nhìn đã già nua, nhưng mà tóc sáng bóng, rạng rỡ tỏa sáng, là dấu hiệu sinh cơ tràn đầy, hiện nay hơn phân nửa sợi tóc sinh cơ khô héo, bị Cố Xán chỉ tiện tay đè đầu lại, liền có tóc rào rào rơi xuống, không đợi rơi xuống đất, ở giữa không trung đã dồn dập hóa thành tro tàn.
+Nếu Liễu Xích Thành không muốn giết người, Cố Xán tự mình ra tay lại không nắm chắc, vậy thì cứ giữ hắn bên cạnh.
 
-Cố Xán tăng thêm một chút lực đạo, lấy một trong những thuật pháp áp đáy hòm Tiệt Giang Chân Kinh kia bắt đầu trắng trợn cướp lấy vận nước của Sài Bá Phù. Sài Bá phù thân người tiểu thiên địa vốn hỗn loạn không chịu nổi, giống như hồng thủy trút xuống, thủ pháp của Cố Xán tựa như đục ra một lỗ thủng lớn ở trên đê đập lung lay sắp đổ, chỉ lấy thủy vận, thu vào trong túi, về phần luồng hồng thủy đó có thể thuận thế đánh vỡ toàn bộ đê đập hay không, khiến cho con đường tu hành của Sài Bá Phù càng thêm sương giá, cuộc đời này còn có cơ hội trở về Kim Đan, Nguyên Anh hay không, Cố Xán không quan tâm chút nào.
+Thật ra Liễu Xích Thành không để mắt đến chút cảnh giới của Sài Bá Phù. Dù hắn trở lại Nguyên Anh thì thế nào? Cho dù làm trâu làm ngựa cho Liễu Xích Thành, đến Bạch Đế thành có ý nghĩa gì? Tu hành ở Bạch Đế thành căn bản không giống môn phái tiên gia tầm thường, cũng chẳng coi trọng chuyện ôm đoàn sưởi ấm, đồng khí liên chi.
 
-Sài Bá Phù lập tức rút hết ra khỏi ống trúc, bắt đầu tiết lộ tin tức, "Vợ của ta và Hứa Hồn kia, năm xưa từng là sư huynh muội đồng môn! Cho nên ta vừa muốn hung hăng hố tên thành chủ Hứa Hồn này một phen, vừa không muốn để cho cả tòa Thanh Phong thành này tràn ngập nguy cơ, thế cho nên toàn bộ Hứa gia ngay cả cơ hội kêu oan cũng không có. Tiểu cô nương kia gặp nạn ở đây, Hứa Hồn làm chủ một thành, che chở bất lực, khó thoát tội, càng nhiều tội lỗi lại không có, nhưng nếu là ta giả trang Hứa Hồn ra tay đoạt bảo, lại cố ý không cẩn thận, để lại một nửa tính mạng của tiểu cô nương hoặc là Ngụy Bản Nguyên, Thanh Phong thành sẽ đoạn mất tiền đồ tông môn dự khuyết, ta không muốn toàn bộ tâm huyết của sư muội kia, phó mặc cho mọi chuyện..."
+Lý do thật sự Liễu Xích Thành không giết hắn là hy vọng đại sư huynh dựa vào chút nhân quả giữa Sài Bá Phù và Lý Bảo Bình để tính toán thôi diễn, giúp đại sư huynh sau này chơi cờ với vị “đạo sĩ trung niên” kia. Dù chỉ giúp Bạch Đế thành thêm một chút phần thắng, cũng là chuyện tốt bằng trời.
 
-Thời điểm đề cập vị sư muội kia, Sài Bá Phù trăm mối cảm xúc ngổn ngang, sắc mặt ánh mắt, rất có tiếc nuối bể dâu khó làm nước.
+Có lẽ chút tính toán ấy của hắn đã sớm nằm trong tính toán của đạo nhân trung niên. Không sao, đến lúc đó cứ để đại sư huynh đau đầu. Sư đệ làm tròn bổn phận của sư đệ, sư huynh chơi ván cờ của sư huynh.
 
-Liễu Xích Thành cười nói: "Si tình, thật sự là si tình, ta thích, khó trách vừa thấy đã hợp ý với Long Bá lão đệ, không nỡ giết."
+Sau đó ba người không ngự gió nữa, cùng đi bộ về phía Thanh Phong thành.
 
-Cố Xán suy nghĩ một chút, cười hỏi: "Con trai của Hứa Hồn kia?"
+Liễu Xích Thành thuận miệng hỏi:
 
-Sài Bá Phù cả giận nói: "Hứa Hồn cũng không phải kẻ ngốc, sao lại giúp ta nuôi con trai! Ta và sư muội, trong sạch thanh bạch, tiểu tử ngươi đừng có ngậm cát bắn bóng, miệng phun đầy phân!"
+- Long Bá lão đệ, sáu vật bản mạng của ngươi đủ kiểu hoa hòe hoa sói, trong đó hai món chỉ có phẩm cấp linh khí, là sao vậy?
 
-Lúc này Cố Xán mới thu hồi tay, nói: "Đáng tiếc."
+Sài Bá Phù cười khổ:
 
-Cố Xán đột nhiên lại vươn tay, tiếp tục chặn đường thủy vận, hinh thủ mảnh vỡ Kim Đan, hỏi: "Ngươi không coi Hứa Hồn là si tử, coi ta là kẻ ngốc? Nói đi, sư muội kia của ngươi, là cảnh giới cao hơn so với ngươi, hay là nắm nhược điểm của ngươi? Bằng không phần chân tình thực ý này của ngươi, qua rồi. Dã tu chuyện thông thường, đều có lý do, nếu tiểu tử kia không phải con trai ngươi, vậy lý do ngươi không đủ, nam nữ tình yêu? Ngươi muốn chân niệm không quên, Thanh Phong thành đại nạn lâm đầu, lúc hủy diệt, Hứa Hồn đoạt sư muội ngươi, ngươi đoạt thê nhi hắn nuôi dưỡng, thật sự sẽ làm không được?"
+- Sơn trạch dã tu khởi đầu gian nan nhất. Dã tu dưới ngũ cảnh có thể luyện hóa một hai món linh khí thành vật bản mạng đã là may mắn trời ban. Đợi cảnh giới đủ cao, pháp bảo trong tay đủ nhiều, muốn đổi vật bản mạng đã cắm rễ sâu, gắn với tính mạng đại đạo, không phải không được, nhưng quá tổn thương căn cơ.
 
-Sài Bá Phù mở mí mắt ra, tựa như là muốn nhìn rõ dung mạo của người trẻ tuổi này, cười khổ nói: "Mặc dù ta là dã tu, nhưng không cho rằng có phôi tu hoang dã trời sinh, Cố Xán Cố Xán, tiểu tử tốt, ngươi tính là một!"
+- Sợ nhất là kẻ thù biết tin. Bế quan như vậy chẳng phải tự tìm đường chết sao? Cho dù không chết, chỉ cần bị mấy tiên sư gia phả ăn no rửng mỡ lén tìm tới quấy phá, cắt ngang bế quan, cũng mất nhiều hơn được.
 
-Sài Bá Phù trầm mặc một lát: "Sư muội kia của ta, từ nhỏ đã lòng dạ thâm trầm, năm đó sau khi ta cùng nàng liên thủ hại chết sư phụ, ở trước khi nàng gả vào Hứa thị Thanh Phong thành, ta chỉ biết nàng có truyền thừa sư môn khác, cực kỳ mịt mờ, ta vẫn kiêng kị, tuyệt không dám trêu chọc."
+Hắn thở dài:
 
-Cố Xán quay đầu nhìn Liễu Xích Thành, cười nói: "Ta cảnh giới thấp, bị coi là kẻ ngốc không sao cả, còn ngươi thì sao? Còn cảm thấy vị Long bá lão đệ này một mảng si tình sao?"
+- Trước khi kết Kim Đan, nếu chỉ trêu chọc kẻ thù cảnh giới không cao, đổi vật bản mạng cũng không thành vấn đề. Đáng tiếc dã tu chúng ta đã có thể kết đan, sao tránh được chuyện gây thù với Kim Đan cùng thế hệ, với cả những tiên sư gia phả bị đánh là gọi cha gọi mẹ, tìm đến tổ tông? Có khi nhìn quanh, thật sự cảm thấy bốn phía toàn là phiền toái và kẻ địch.
 
-Liễu Xích Thành cười nói: "Không sao, ta vốn là kẻ ngốc."
+Tiên gia đến nhà nhau, dù để trả thù hay thăm hỏi, không giống dân chúng phố phường phải vượt trăm dặm đường xa. Một châu tuy rộng lớn, nhưng đối với người đi mở đạo tràng lại rất nhỏ. Nơi phong thủy linh khí hơi tốt đều có địa đầu xà; núi lớn sông sâu, nơi nào chẳng bị tiên gia chiếm cứ kinh doanh nhiều năm? Nếu không phải môn phái có gia phả thì cũng là thần linh núi sông. Dã tu khó thành tựu, thật sự vì thiên thời địa lợi nhân hòa đều không chiếm được.
 
-Lúc này Cố Xán mới thu tay lại, đứng lên, nhìn về phía Thanh Phong thành có hi vọng trở thành tiên gia tông tự đầu.
+Liễu Xích Thành gật đầu tỏ ý hiểu. Cố Xán mỉm cười.
 
-Sài Bá Phù tâm như tro tàn, bị tiểu vương bát đản Cố Xán giày vò như vậy, mình ngay cả Long Môn cảnh lúc này cũng phải đi khắp nơi lọt gió, may vá gian khổ.
+Sài Bá Phù còn chưa kịp hiểu thì đã bị Liễu Xích Thành đè đầu, tiện tay đánh vỡ Kim Đan. Hắn ngã xuống đất, cả người đẫm máu, run rẩy không ngừng.
 
-Cố Xán nói: "Không đi Thanh Phong thành, chúng ta trực tiếp trở về trấn nhỏ."
+Lúc trước từ Nguyên Anh rơi xuống Kim Đan quá đỗi mơ hồ, Sài Bá Phù không phải chịu nhiều đau đớn. Lần này từ Kim Đan rơi xuống Long Môn cảnh, hắn như bị dày vò trong vạc dầu.
 
-Liễu Xích Thành cười nói: "Tùy ngươi."
+Liễu Xích Thành cười nói:
 
-Cố Xán nói: "Đến quê nhà ta, khuyên ngươi kiềm chế một chút."
+- Được rồi, bây giờ ngươi có thể an tâm đổi vật bản mạng, nếu không bình cảnh Nguyên Anh của ngươi khó mà phá vỡ. Long Bá lão đệ, không cần cảm ơn ta.
 
-Sắc mặt Liễu Xích Thành khó coi đến cực điểm.
+Hắn xoay một ngón tay, tiện tay kết trận giúp Sài Bá Phù che giấu khí tức.
 
-Năm đó Trần Bình An, Tề Tĩnh Xuân, Lý Bảo Bình hôm nay, Lý Hi Thánh.
+Thuật pháp truyền thụ ở Bạch Đế thành rất hỗn tạp. Liễu Xích Thành từng có một vị sư tỷ tư chất kinh tài tuyệt diễm, lập chí phải học thành mười hai loại thuật pháp đại đạo mới thôi. Kết quả cứ qua một trăm năm, sắc mặt nàng lại khó coi thêm một phần, cuối cùng trở thành người có tính tình kém nhất Bạch Đế thành.
 
-Cộng thêm Cố Xán bên cạnh lười che lấp sát tâm đối với mình, nghe nói còn có Mã Khổ Huyền đầu nhập Chân Võ sơn, phiên vương trẻ tuổi Đại Ly Tống Mục...
+Sài Bá Phù ngồi xếp bằng, khí tượng tiểu thiên địa trong thân thể hỗn loạn. Hôm nay Nguyên Anh và Kim Đan liên tiếp biến mất, vỡ nát, hắn chẳng còn tâm trí nghĩ đến căn bản đại đạo bị tổn hại, giữ được mạng rồi tính sau.
 
-Toàn bộ mẹ hắn là người từ địa phương cái rắm lớn kia đi ra.
+Cố Xán ngồi xổm bên cạnh hỏi:
 
-Liễu Xích Thành lập tức thay đổi chủ ý, "Trước đi về phía bắc, sau đó ta cùng Long bá lão đệ, chờ ngươi ở ngay tại khu vực biên cảnh Ly Châu động thiên kia, sẽ không cùng ngươi đi trấn nhỏ."
+- Ta rất tò mò, vì sao ngươi không giả làm Hứa Hồn? Chút thủ đoạn vu oan giá họa ấy mà cũng không biết, còn làm dã tu gì nữa? Bên trong có ẩn tình gì?
 
-Cố Xán cười nói: "Chỉ cần kiềm chế một chút, kỳ thật không cần câu nệ như thế."
+Hắn đưa tay đè đầu Sài Bá Phù:
 
-Giọng điệu Liễu Xích Thành trầm trọng nói: "Vạn nhất thì sao, cần gì chứ."
+- Ngươi tu thủy pháp, ta vừa khéo học Tiệt Giang Chân Kinh. Nếu nhân cơ hội này lấy nguyên khí bản mạng và thủy vận của ngươi, lại luyện hóa mảnh vỡ Kim Đan, đạo hạnh của ta sẽ tăng tiến, đúng là chuyện tốt thuận theo tự nhiên. Nói đi, ngươi có quan hệ gì không thể lộ ra với Thanh Phong thành hay Hồ quốc, khiến lần này giết người đoạt bảo còn phải giữ đạo nghĩa như thế?
 
-Cố Xán hỏi: "Nếu như Lý Bảo Bình đi hướng Hồ quốc?"
+Sài Bá Phù sắc mặt thảm đạm. Trước đây mái tóc bạc của hắn tuy già nua nhưng sáng bóng, là dấu hiệu sinh cơ dồi dào. Bây giờ phần lớn tóc đã mất sinh cơ, bị Cố Xán đè đầu, tóc rụng rào rào, còn chưa chạm đất đã hóa thành tro.
 
-Liễu Xích Thành cười nói: "Tiểu cô nương kia không đơn giản như ngươi nhìn, chỉ nói thủ đoạn của chính nàng, Hồ quốc nho nhỏ, ai dám đưa tay, sẽ mất đuôi."
+Cố Xán tăng thêm chút sức, dùng một thuật pháp áp đáy hòm của Tiệt Giang Chân Kinh cướp lấy thủy vận của hắn. Tiểu thiên địa trong thân thể Sài Bá Phù vốn đã hỗn loạn như nước lũ trút xuống; thủ pháp ấy giống như đục một lỗ lớn trên con đê sắp vỡ. Cố Xán chỉ lấy thủy vận bỏ vào túi, chẳng quan tâm nước lũ có phá nát cả con đê, khiến đường tu hành của Sài Bá Phù càng thêm khốn đốn, hay đời này hắn còn cơ hội trở lại Kim Đan, Nguyên Anh hay không.
 
-Cố Xán sắc mặt âm trầm: "Liễu Xích Thành, ta tuy không rõ ràng lắm vì sao lúc trước ngươi sẽ thay đổi chủ ý, nhưng mà đừng quên lần này ta về quê nhà, đừng để ta đi một chuyến tổ trạch Lý thị phố Phúc Lộc."
+Sài Bá Phù lập tức khai hết:
 
-Liễu Xích Thành mỉm cười nói: "Ngươi a ngươi, cái thói quen trở mặt không nhận người này, dọa chết người."
+- Vợ Hứa Hồn và ta năm xưa là sư huynh muội đồng môn! Cho nên ta vừa muốn hãm hại tên thành chủ ấy, vừa không muốn cả Thanh Phong thành lâm nguy, khiến Hứa gia không có cơ hội kêu oan. Tiểu cô nương kia gặp nạn ở đây, Hứa Hồn làm thành chủ che chở bất lực, khó thoát tội, nhưng cũng không có thêm tội gì.
 
-Vừa nói đến đây là tức giận, Liễu Xích Thành cúi đầu nhìn về phía Sài Bá Phù còn ngồi trên mặt đất kia, nâng lên một cước, giẫm ở trên đầu Nguyên Anh "thiếu niên" kia, hơi tăng thêm lực đạo, mang cả người đối phương nện xuống mặt đất, chỉ lộ ra nửa cái đầu lộ ra, Sài Bá Phù không dám nhúc nhích, Liễu Xích Thành ngồi xổm xuống, tay áo bào hồng phấn rộng thùng thình cũng trải ra trên mặt đất, tựa như bỗng dưng mở ra một quyển mẫu đơn cực lớn dị thường kiều diễm, Liễu Xích Thành không kiên nhẫn nói: "Thêm cho ngươi một nén nhang công phu, đến lúc đó nếu còn không củng cố được Long Môn cảnh nho nhỏ, ta sẽ không che chở ngươi nữa."
+- Nếu ta giả làm Hứa Hồn đoạt bảo, lại cố ý để tiểu cô nương hay Ngụy Bản Nguyên giữ được nửa cái mạng, Thanh Phong thành sẽ mất tiền đồ trở thành tông môn dự khuyết. Ta không muốn tâm huyết của sư muội bị hủy hết...
 
-Cố Xán đột nhiên hỏi: "Ngươi đi Đảo Huyền sơn chưa?"
+Nhắc đến nàng, hắn trăm mối cảm xúc ngổn ngang, ánh mắt và vẻ mặt đầy tiếc nuối chuyện cũ không thể vãn hồi.
 
-Liễu Xích Thành cũng không ngẩng đầu lên, ngôn ngữ không chút nào che lấp, "Trừ phi đồng hành cùng sư huynh, nếu không căn bản không dám đi."
+Liễu Xích Thành cười:
 
-Quan hệ không lớn với cảnh giới cao thấp, mấu chốt là thân phận gốc gác của Liễu Xích Thành, không thích hợp tiếp cận Kiếm Khí Trường Thành.
+- Si tình, thật sự si tình! Ta thích, khó trách vừa gặp đã hợp ý Long Bá lão đệ, không nỡ giết.
 
-Cố Xán nói: "Liễu Xích Thành làm sao bây giờ?"
+Cố Xán nghĩ một lát, cười hỏi:
 
-Liễu Xích Thành nói: "Đến Bạch Đế thành, ta sẽ trả lại bộ túi da này cho hắn, vận khí tốt, hắn còn có cơ hội trở thành đồng môn với ngươi."
+- Con trai Hứa Hồn thì sao?
 
-Trong nhà tranh khe núi bên kia, Lý Bảo Bình và Ngụy Bản Nguyên cũng nhích người đi về hướng Hồ quốc kết minh với Thanh Phong thành.
+Sài Bá Phù giận dữ:
 
-Ngụy Bản Nguyên tự nhiên là cảm thấy chỗ luyện đan của mình quá mức nguy hiểm, đi Hứa thị Thanh Phong thành, tốt xấu gì cũng có thể khiến cô nàng bình thêm một tấm bùa hộ mệnh.
+- Hứa Hồn đâu phải kẻ ngốc, sao chịu nuôi con trai giúp ta! Ta và sư muội trong sạch thanh bạch, tiểu tử ngươi đừng ngậm máu phun người!
 
-Ngụy Bản Nguyên tế ra phù thuyền, cực kỳ lịch sự tao nhã, lúc ngự phong đi xa, bốn phía độ thuyền sinh ra nhiều đóa bích ngọc liên hoa hư vô mờ mịt, bỗng nhiên sinh ra, duyên dáng yêu kiều, sau đó chậm rãi tiêu tán, khiến cho nơi phù thuyền đi qua quay đầu nhìn lại, tựa như thuyền nhỏ đụng mở một đường thủy hồ sen.
+Cố Xán rút tay về:
 
-Lúc trước khi Lý Bảo Bình lên thuyền nhỏ, thừa dịp Ngụy gia gia dẫn đầu lên thuyền, đưa lưng về phía mình, hai chân khép lại, nhảy bật lên độ thuyền.
+- Đáng tiếc.
 
-Động tác dí dỏm đã lâu không gặp, hiển nhiên tâm tình không tệ.
+Nhưng hắn chợt vươn tay lần nữa, tiếp tục chặn lấy thủy vận, thu mảnh vỡ Kim Đan:
 
-Thấy đại ca, bảo vệ nơi Ngụy gia gia tu đạo, còn có thể gặp lại tiểu sư thúc.
+- Ngươi không coi Hứa Hồn là kẻ ngốc, lại coi ta là kẻ ngốc sao? Nói đi, sư muội của ngươi cảnh giới cao hơn ngươi hay nắm nhược điểm của ngươi? Nếu không, chút chân tình ấy quá mức rồi.
 
-Đợi Ngụy Bản Nguyên ngồi xuống một đầu thuyền nhỏ, Lý Bảo Bình đã đứng sẵn, không ngồi xuống, phong cảnh thật tốt, không nhìn thì uổng, cưỡi ngựa du lịch bình thường ngắm núi sông, cùng ngự phong quan sát đại địa, là cảnh trí khác nhau.
+- Dã tu làm việc đều có lý do. Nếu đứa trẻ kia không phải con ngươi, lý do của ngươi chưa đủ. Tình yêu nam nữ ư? Nếu ngươi mãi nhớ nàng, đến khi Thanh Phong thành gặp đại nạn, Hứa Hồn cướp sư muội của ngươi, ngươi cướp vợ con hắn nuôi dưỡng, thật sự không làm được sao?
 
-Ngụy Bản Nguyên cùng Lý Bảo Bình nói chút tin đồn nghe được, chân tướng như thế nào, nhắm chừng ngay cả con cháu Hứa thị cũng không rõ ràng bên trên hoàng lịch nhà mình, rốt cuộc viết cái gì.
+Sài Bá Phù mở mắt, như muốn nhìn rõ người trẻ tuổi trước mặt, cười khổ:
 
-Hồ quốc kia mấy vạn con hồ mị lớn nhỏ quần cư, con hồ ly bảy đuôi kia lánh đời không ra đời lâu, bảy trăm năm trước từng chia tách làm ba thế lực, một phe hy vọng dung nhập Thanh Phong thành cùng Bảo Bình châu, một phe hy vọng tranh thủ một tiểu thiên địa ngăn cách với thế giới, còn có một phe càng thêm cực đoan hơn, thế mà muốn hoàn toàn xé rách minh ước với Thanh Phong thành Hứa thị. Cuối cùng trên tay đương đại gia chủ Hứa Hồn của Thanh Phong thành, biến thành bố cục song phương giằng co, trong đó thế lực thứ ba bị vây quét, đánh giết cùng giam giữ, quét sạch, đây cũng là một con đường quan trọng Thanh Phong thành có thể cuồn cuộn không ngừng đẩy ra phù lục da cáo.
+- Dù là dã tu, ta vốn không tin trên đời có kẻ trời sinh đã xấu xa. Cố Xán, tiểu tử khá lắm, ngươi chính là một kẻ!
 
-Hơn nữa ở sau sự vụ vị phụ nhân kia quản lý, khai nguyên có thuật, phát tài có đạo, số lượng tổng thể hồ mị Hồ quốc được củng cố, nàng thay Thanh Phong thành ký kết mấy khế ước bí mật với Hồ quốc, một món trong đó, sớm đã là bí mật nửa công khai, đó là Hứa thị vẫn hướng Hồ quốc nghiêng vật tư tu hành, nhưng mà mỗi hồ mị chỉ cần phá cảnh thất bại, phải duy trì da cáo hoàn chỉnh, lấy cái này báo đáp Thanh Phong thành. Tiếp đó chính là Thanh Phong thành ở cảnh nội Hồ quốc, xây dựng tiện cho du khách thưởng ngoạn rất nhiều phủ đệ, xuống núi du lịch tiên sư, võ phu thuần túy hành tẩu giang hồ, người đọc sách phong độ nhẹ nhàng, đều là khách quý không cần mình bỏ tiền túi ra, vì chính là để hồ mị động lòng đ*ng t*nh.
+Hắn im lặng một lát rồi nói:
 
-Trong Hồ quốc, bị Hứa thị tỉ mỉ tạo ra phong cảnh thắng địa khắp nơi, vách núi lớn thư pháp đại gia khắc, bức tường đề thơ văn chương văn nhân mặc khách, tiên nhân cư ngụ cũ đắc đạo cao nhân nhiều vô số kể.
+- Sư muội ta từ nhỏ đã lòng dạ thâm trầm. Năm đó sau khi ta cùng nàng liên thủ hại chết sư phụ, trước khi nàng gả vào Hứa thị Thanh Phong thành, ta đã biết nàng còn có truyền thừa sư môn khác, hết sức bí ẩn. Ta luôn kiêng kỵ, tuyệt đối không dám trêu chọc.
 
-Ngụy Bản Nguyên cười nói: "Bản lĩnh kiếm tiền của Hứa thị rất lớn, chỉ là thanh danh không tốt lắm."
+Cố Xán quay sang Liễu Xích Thành, cười hỏi:
 
-Lý Bảo Bình ở Thanh Phong thành bên kia, mua chút tài tử giai nhân về thư sinh hồ tiên, bản khắc tinh xảo đẹp đẽ, hầu như không thua bản sao điện các vương triều thế tục, chỉ là nàng chưa chắc sẽ lật xem, tính về sau tặng cho Bùi Tiền, đối với giang hồ diễn nghĩa cùng sơn thủy thần quái, thật ra Lý Bảo Bình hôm nay không có bao nhiêu khát khao, so ra kém Bùi Tiền cùng Lý Hòe.
+- Ta cảnh giới thấp, bị coi là kẻ ngốc cũng không sao, còn ngươi thì sao? Vẫn thấy Long Bá lão đệ của ngươi một lòng si tình ư?
 
-Mấy năm nay, trừ ở thư viện học tập, Lý Bảo Bình không nhàn rỗi, hỏi Lâm Thủ Nhất và Tạ Tạ chút việc tu hành, lãnh giáo Vu Lộc một ít quyền lý.
+- Không sao, vốn dĩ ta là kẻ ngốc.
 
-Ba người này, tự nhiên biết gì nói nấy với Lý Bảo Bình.
+Cố Xán thu tay, đứng dậy nhìn Thanh Phong thành có hy vọng trở thành tông môn tiên gia.
 
-Ngẫu nhiên ở trên đường thấy Lý Hòe, ngược lại chính là nói chuyện phiếm danh xứng với thực.
+Sài Bá Phù lòng như tro tàn. Bị tiểu vương bát đản Cố Xán giày vò, ngay cả Long Môn cảnh hiện tại của hắn cũng thủng lỗ chỗ, vá víu hết sức gian nan.
 
-Hồ quốc ở một chỗ động thiên phúc địa vỡ nát, ghi lại lịch sử vụn vặt lẻ tẻ, nói không tỉ mỉ, phần nhiều là nói xuyên tạc hội nghị, không thể coi là thật.
+Cố Xán nói:
 
-Ngụy Bản Nguyên hạ xuống một phù thuyền ở một chỗ lối vào, là một tòa phường lâu bằng gỗ, treo tấm biển "liên miên", hai bên câu đối mất hơn phân nửa, vế dưới bảo tồn hoàn hảo, là "Thế gian có thêm một đôi si tình chủng", vế trên chỉ còn lại có ba chữ cuối "Ôn nhu hương", cũng có điển cố, nói là từng bị tiên nhân vân du đến đây một kiếm bổ đi, có người nói là Phong Lôi viên Lý Đoàn Cảnh kia, cũng có người nói là Phong Tuyết miếu Ngụy Tấn kia, về phần năm tháng có đúng hay không, vốn là muốn tìm niềm vui, ai sẽ nghiêm túc hơn.
+- Không đến Thanh Phong thành nữa, chúng ta trực tiếp về trấn nhỏ.
 
-Bài Phường lâu bên này người người nhốn nháo, lui tới rộn ràng, phần nhiều là nam tử, người đọc sách đặc biệt không ít, bởi vì Hồ quốc có một miếu một núi, tương truyền hai địa văn vận nồng đậm, tới đây tế bái thắp hương, cực kỳ linh nghiệm, dễ dàng khoa tràng đắc ý, về phần một số thư sinh nghèo cố ý thi đi đường vòng, mong kiếm chút lộ phí ở Hồ quốc, cũng là có, những giai nhân Hồ quốc kia, là người thiên vị thích đọc sách nổi danh thiên vị, còn có rất nhiều thư sinh chán nản cam tâm tình nguyện ở đây chết già nơi ôn nhu hương này, nhiều trường thọ, hồ tiên si tình cũng không phải là nói bừa, mỗi cẩn thận yêu nam tử qua đời, không cầu cùng năm cùng tháng, chỉ cầu cùng năm cùng tháng cùng tháng chết.
+- Tùy ngươi.
 
-Muốn đi Hồ quốc du lịch, quy củ cực thú vị, cần lấy thi từ văn chương để đổi lấy lộ phí, thi từ khúc phú tán văn, thậm chí là ứng thí văn chương, đều có thể, chỉ cần tài hoa cao, cho dù một bộ câu đối cũng không sao, nhưng nếu viết làm mấy vị hồ tiên chưởng nhãn cảm thấy khó coi, vậy cũng chỉ có thể dẹp đường hồi phủ, về phần có phải mời người lấy đao thay bút hay không, thì không sao cả.
+- Đến quê nhà ta, khuyên ngươi nên kiềm chế một chút.
 
-Không đưa ra được văn chương tốt, vậy cũng chỉ có thể tiêu tiền thần tiên.
+Sắc mặt Liễu Xích Thành khó coi đến cực điểm. Trần Bình An, Tề Tĩnh Xuân năm xưa, Lý Bảo Bình hôm nay, Lý Hi Thánh, thêm Cố Xán bên cạnh chẳng buồn che giấu sát tâm với hắn, nghe nói còn có Mã Khổ Huyền đầu nhập Chân Võ sơn, phiên vương trẻ tuổi Đại Ly Tống Mục... Mẹ nó, đều từ cái nơi bé bằng bàn tay ấy đi ra.
 
-Lý Bảo Bình liếc nhìn tòa lầu các cẩm tú cách cổng chào không xa, nhíu nhíu đầu lông mày, Thanh Phong thành Hứa thị cùng hồ quốc, là lấy cái này tích góp từng tí một văn vận? Tích tiểu thành đại, muốn làm cái gì? Lại có thể làm cái gì?
+Hắn lập tức đổi ý:
 
-Thanh Phong thành Hứa thị thấp kém, lấy đích nữ gả con vợ lẽ, cũng phải thông gia với Đại Ly Thượng Trụ quốc Viên thị kia, có phải Hứa thị có mưu đồ đối với triều đình Đại Ly tương lai, muốn để cho vị con em Hứa thị nào đó có thực lực gánh vác văn vận, chiếm cứ một chỗ, từng bước một vị cực nhân thần, cuối cùng nắm giữ bộ phận triều chính Đại Ly, trở thành dòng họ thượng trụ quốc kế tiếp hay không?
+- Cứ đi về phía bắc trước, sau đó ta và Long Bá lão đệ chờ ngươi ở ranh giới động thiên Ly Châu, không cùng ngươi vào trấn nhỏ.
 
-Lý Bảo Bình bắt đầu nhớ lại lần du lịch trấn nhỏ kia của mẹ con Hứa thị Thanh Phong thành, không được, phải hỏi ông nội một câu, trừ món Hủy Tử Giáp kia, mẹ con Hứa thị năm đó phải chăng thi triển thủ thuật che mắt, che giấu một số mưu tính thật sự nào đó.
+Cố Xán cười:
 
-Có một chuyện, tiểu sư thúc luôn không để ý, nhưng trong lòng Lý Bảo Bình luôn có một cục u nhỏ.
+- Chỉ cần kiềm chế một chút, thật ra không cần câu nệ như vậy.
 
-Đó chính là Bàn Sơn Viên và tiểu cô nương của Chính Dương sơn, năm đó ở trấn nhỏ mượn ở gia tộc Lý thị phố Phúc Lộc.
+Liễu Xích Thành nghiêm giọng:
 
-Nếu như sự tình chỉ là chuyện như vậy, ngược lại còn dễ nói, sợ là sợ những người trên núi âm mưu quỷ kế này, vòng tới vòng lui ngàn vạn dặm.
+- Lỡ như thì sao? Cần gì phải thế.
 
-Cha con Chu Hà Chu Lộc, nhị ca Lý Bảo Châm, đã hai việc, việc không thể qua ba bận.
+- Nếu Lý Bảo Bình đi Hồ quốc thì sao?
 
-Ngụy Bản Nguyên móc hai bút Tuyết Hoa tiền, mang theo Lý Bảo Bình cùng nhau vào Hồ quốc.
+- Tiểu cô nương ấy không đơn giản như ngươi thấy. Chỉ nói thủ đoạn của nàng, ở Hồ quốc nhỏ bé này, ai dám đưa tay ra sẽ phải mất đuôi.
 
-Lầu các bên kia, có vị phụ nhân lười biếng nằm úp sấp ở trên án thư đột nhiên ngẩng đầu, tâm tình vui vẻ, lập tức phi kiếm truyền tin đi hướng kiếm phòng Hứa thị Thanh Phong thành.
+Cố Xán trầm mặt:
 
-Rất nhanh có phi kiếm lược hồi, cho một phần hồ sơ thô sơ, từ ngữ cuối cùng của mật tín, không tính là uyển chuyển, muốn nàng đừng có suy nghĩ không an phận, viện đệ Sơn Nhai Thư, lại là cháu gái của Lý gia Nguyên Anh, đừng đi trêu chọc, hôm nay Thanh Phong thành đã là tông môn dự khuyết, không thể thêm chuyện. Điều này làm cho lòng phụ nhân sinh không vui, trên ngón tay mang một bộ nghĩa giáp thật dài, đem phong mật tín kia xé nát từng chút một, tuy trong lòng không cam lòng, nàng vẫn không dám làm trái quyết định của Thanh Phong thành, đành phải lười biếng nằm úp sấp về bàn.
+- Liễu Xích Thành, tuy ta không rõ vì sao lúc trước ngươi đổi ý, nhưng đừng quên lần này ta về quê. Đừng để ta phải đến tổ trạch Lý thị ở phố Phúc Lộc một chuyến.
 
-Chồi đào kia ở bên cạnh một thác nước Hồ quốc kết cỏ tranh tu hành, cái gọi là cơ duyên của Ngụy Bản Nguyên, là mầm đào vô tâm đi ngang qua thác nước, thế mà có một dải lụa bảy màu bảo quang phiêu đãng ở mặt nước, rất nhanh đã có một con Kim Đan Hồ Tiên vội vàng bay vút tới, muốn cướp cơ duyên với mầm đào, không ngờ bị dải lụa kia đánh cho da tróc thịt bong, thiếu chút nữa bị nhốt ở cổ tay trói chân lôi vào hồ sâu, đợi hồ tiên thất hồn lạc phách kia thoát đi, tơ lụa lại lơ lửng ở mặt nước, lúc lắc lúc ẩn lúc hiện cập bến, bị mầm đào nhặt lên, giống như tự nhận chủ, thành một cái đai lưng màu sắc rực rỡ của tỳ nữ Ngụy thị ngõ Đào Diệp này, chẳng những như thế, dưới sự dẫn dắt của nó, mầm đào còn ở một chỗ núi sâu sâu nhặt được một cành đào khô không bắt mắt, sau khi luyện hóa, lại là một món pháp bảo thâm tàng không lộ ra.
+Liễu Xích Thành mỉm cười:
 
-Trong một đêm, mầm đào liền trở thành người may mắn lớn nhất Hồ quốc mấy trăm năm qua.
+- Ngươi ấy à, cái thói trở mặt không nhận người thật dọa chết người.
 
-Cảnh nội Hồ quốc, không cho phép ngự phong đi xa, cũng không cho phép đi độ thuyền, chỉ có thể đi bộ, may mà Hồ quốc có ba lối vào, Ngụy Bản Nguyên chọn một chỗ cửa lớn cách nha đầu Đào Nha gần nhất, cho nên thuê một chiếc xe ngựa, sau đó cho cô gái chai thuê một con tuấn mã, một người tự mình làm mã phu lái xe, một người khoá đao cưỡi ngựa, dọc theo đường đi thuận tiện ngắm cảnh, đi một chút dừng một chút, cũng không tỏ ra hành trình buồn tẻ.
+Nói đến đây hắn lại tức giận, cúi nhìn Sài Bá Phù còn ngồi dưới đất, nhấc chân giẫm lên đầu hắn, hơi dùng sức nện cả người xuống đất, chỉ chừa nửa cái đầu. Sài Bá Phù không dám nhúc nhích.
 
-Đến thác nước giữa sườn núi bên kia, đã trổ mã chồi non mười phần thủy linh, khi nàng thấy Lý Bảo Bình hôm nay, khó tránh khỏi có chút tự ti mặc cảm.
+Liễu Xích Thành ngồi xổm xuống, tay áo hồng rộng thùng thình trải trên đất, tựa một đóa mẫu đơn cực lớn kiều diễm chợt nở. Hắn mất kiên nhẫn nói:
 
-Kết quả sau khi ba người uống trà, Lý Bảo Bình liền ôn chuyện xong, đứng dậy cáo từ rời đi, nói muốn về Bắc Quy, đi kinh thành Đại Ly một chuyến tìm bằng hữu, về phần con ngựa lúc trước ở lại bên khe suối khe núi kia, nuôi thả là được, bồi nàng một đường đi qua thiên sơn vạn thủy, cũng nên nghỉ ngơi một chút.
+- Cho ngươi thêm một nén hương. Đến lúc đó còn không củng cố được Long Môn cảnh nho nhỏ, ta sẽ không che chở ngươi nữa.
 
-Ngụy Bản Nguyên dở khóc dở cười, Đào Nha cũng trở tay không kịp.
+Cố Xán đột nhiên hỏi:
 
-Ngụy Bản Nguyên hỏi: "Con ngựa đổi dưới chân núi kia?"
+- Ngươi từng đi Đảo Huyền sơn chưa?
 
-Lý Bảo Bình vỗ đầu, cười nói: "Quên nói với Ngụy gia gia, ta hôm nay cũng là Luyện khí sĩ, cảnh giới không cao, nhưng có thể ngự phong."
+Liễu Xích Thành không ngẩng đầu, thẳng thắn đáp:
 
-Lý Bảo Bình lại bồi thêm một câu: "Ngự kiếm cũng được, tình huống bình thường không quá thích, gió lớn trên trời, vừa nói chuyện liền đau quai hàm."
+- Trừ khi đi cùng sư huynh, nếu không căn bản ta không dám.
 
-Lão nhân cùng Đào Nha hai mặt nhìn nhau.
+Chuyện này không liên quan nhiều đến cảnh giới, mấu chốt là thân phận lai lịch của hắn không thích hợp tới gần Kiếm Khí Trường Thành.
 
-Lý Bảo Bình nghĩ nghĩ, không muốn che đậy, "Ta có chút trang giấy, văn tự bên trên thân cận với ta, có thể miễn cưỡng biến thành một chiếc bùa thuyền. Chỉ là Mao tiên sinh hy vọng ta không cần dễ dàng lấy ra."
+Cố Xán hỏi:
 
-Ngụy Bản Nguyên bất đắc dĩ hỏi: "Còn nữa không?"
+- Liễu Xích Thành thì sao?
 
-Lý Bảo Bình lắc đầu nói: "Không còn, chỉ là học được từ bằng hữu chút quyền cước, cũng không phải võ phu thuần túy Ngự Phong cảnh, không thể chỉ bằng vào thể phách, đề khí đi xa."
+- Đến Bạch Đế thành, ta sẽ trả túi da này cho hắn. Nếu may mắn, hắn còn có cơ hội trở thành đồng môn của ngươi.
 
-Ngụy Bản Nguyên đứng dậy nói: "Vậy để Đào Nha đưa con rời khỏi Hồ quốc, bằng không Ngụy gia gia thật sự lo lắng."
+Ở nhà tranh trong khe núi, Lý Bảo Bình và Ngụy Bản Nguyên cũng lên đường đến Hồ quốc, nơi kết minh với Thanh Phong thành.
 
-Cảnh giới của Đào Nha, có lẽ tạm thời còn không bằng lão nhân, nhưng hai vật bản mạng của Đào Nha quá mức huyền diệu, công thủ vẹn toàn, đã hoàn toàn có thể coi là tu vi của một vị tu sĩ Kim Đan.
+Ngụy Bản Nguyên cảm thấy chỗ luyện đan của mình quá nguy hiểm, tới địa bàn Hứa thị ít nhất có thể thêm một tấm bùa hộ mệnh cho Bảo Bình.
 
-Lý Bảo Bình cười nói: "Thôi, không chậm trễ Đào Nha tỷ tỷ tu hành."
+Ông tế ra một chiếc phù thuyền hết sức thanh nhã. Khi thuyền ngự gió đi xa, chung quanh lần lượt nở ra những đóa sen bích ngọc hư ảo, duyên dáng rồi chậm rãi tan đi. Ngoảnh lại nhìn, tựa như thuyền nhỏ vừa rẽ một đường qua hồ sen.
 
-Nàng nháy mắt với Đào Nha tỷ tỷ.
+Lúc lên thuyền, nhân khi Ngụy gia gia đi trước quay lưng về phía mình, Lý Bảo Bình chụm hai chân nhảy bật lên. Đã lâu không thấy nàng làm động tác tinh nghịch ấy, hiển nhiên tâm tình nàng rất tốt: vừa gặp đại ca, giữ được nơi Ngụy gia gia tu đạo, lại sắp gặp tiểu sư thúc.
 
-Đào Nha ngầm hiểu, mặt ửng đỏ, càng thêm nghi hoặc, sao Tiểu Bảo Bình nhìn ra mình có nam tử ngưỡng mộ?
+Ngụy Bản Nguyên ngồi xuống một đầu thuyền, còn Lý Bảo Bình đứng ngắm cảnh. Phong cảnh đẹp như vậy không ngắm thì uổng; cưỡi ngựa du lịch nhìn núi sông và ngự gió nhìn xuống mặt đất là hai cảnh trí khác nhau.
 
-Nếu không có nam tử trong lòng, một nữ tử kết mao tu hành độc cư, thoa son làm cái gì?
+Ngụy Bản Nguyên kể cho nàng nghe vài tin đồn. Chân tướng thế nào, có lẽ ngay cả con cháu Hứa thị cũng không rõ chuyện cũ của nhà mình.
 
-Về phần lão nhân, nếu như Đào Nha tu hành, tự nhiên sẽ vô cùng để bụng, về phần chi tiết này, nơi nào sẽ để ý.
+Hồ quốc có mấy vạn hồ mị lớn nhỏ sống quần cư. Con hồ ly bảy đuôi kia lánh đời đã lâu; bảy trăm năm trước Hồ quốc chia thành ba phe: một phe muốn hòa nhập với Thanh Phong thành và Bảo Bình Châu, một phe muốn có một tiểu thiên địa ngăn cách với bên ngoài, phe cuối cùng cực đoan hơn, muốn xé bỏ minh ước với Hứa thị.
 
-Lý Bảo Bình từ biệt rời đi.
+Đến đời gia chủ Hứa Hồn, thế cục chỉ còn hai phe giằng co. Phe thứ ba bị vây quét, giết hoặc giam giữ sạch sẽ; đó cũng là một nguồn cung quan trọng giúp Thanh Phong thành liên tục làm ra phù lục da cáo.
 
-Từ nam đến bắc, trèo non lội suối, xuyên qua Hồ quốc, trên nửa đường rơi xuống một trận tuyết lớn lông ngỗng, nữ tử trẻ tuổi mặc áo bông đỏ đứng ở cạnh một con đường núi đá sạn, vươn tay hà hơi.
+Sau khi vị phu nhân kia quản lý sự vụ, nàng biết mở nguồn thu, có cách phát tài, số hồ mị ở Hồ quốc được duy trì. Nàng thay Thanh Phong thành ký mấy khế ước bí mật với Hồ quốc. Một điều trong đó đã gần như công khai: Hứa thị cung cấp vật tư tu hành, nhưng hồ mị phá cảnh thất bại phải giữ nguyên bộ da cáo để báo đáp Thanh Phong thành.
 
-Hiệp đao cùng hồ lô dưỡng kiếm bên hông nữ tử, cùng đại tuyết tương ứng.
+Thanh Phong thành còn xây nhiều phủ đệ trong Hồ quốc cho du khách thưởng ngoạn. Tiên sư xuống núi du lịch, võ phu thuần túy hành tẩu giang hồ và người đọc sách phong nhã đều là khách quý không cần bỏ tiền túi, cốt để hồ mị động lòng động tình.
 
-Cho nên khoảnh khắc đó, phảng phất cả thiên địa chỉ có hai màu, trắng trong, tuyệt sắc nữ tử.
+Hứa thị dày công tạo nên nhiều thắng cảnh ở Hồ quốc: vách núi có chữ của thư pháp đại gia, tường đề thơ văn của văn nhân mặc khách, nơi tiên nhân và cao nhân đắc đạo từng cư ngụ, nhiều không kể xiết.
+
+Ngụy Bản Nguyên cười nói:
+
+- Hứa thị rất giỏi kiếm tiền, chỉ là thanh danh không tốt lắm.
+
+Lý Bảo Bình từng mua ở Thanh Phong thành mấy cuốn truyện tài tử giai nhân, thư sinh hồ tiên, bản khắc tinh xảo gần bằng sách do vương triều thế tục khắc in. Chưa chắc nàng sẽ đọc, định sau này tặng Bùi Tiền. Bây giờ nàng không còn say mê chuyện giang hồ diễn nghĩa và thần quái núi sông bằng Bùi Tiền hay Lý Hòe.
+
+Mấy năm nay, ngoài học ở thư viện, nàng cũng không nhàn rỗi, thường hỏi Lâm Thủ Nhất và Tạ Tạ chuyện tu hành, thỉnh giáo Vu Lộc quyền lý. Cả ba tự nhiên biết gì nói nấy. Thỉnh thoảng gặp Lý Hòe trên đường thì hai người mới thật sự chỉ nói chuyện phiếm.
+
+Hồ quốc nằm trong một động thiên phúc địa đã vỡ. Những ghi chép về lịch sử nơi này lẻ tẻ, không tường tận, phần nhiều là suy diễn xuyên tạc, không thể coi là thật.
+
+Ngụy Bản Nguyên đáp thuyền xuống một lối vào, nơi có tòa cổng lầu bằng gỗ treo biển “Liên Miên”. Đôi câu đối hai bên đã mất hơn nửa, vế dưới còn nguyên: “Thế gian có thêm một đôi si tình chủng”; vế trên chỉ còn ba chữ cuối “ôn nhu hương”.
+
+Theo điển cố, có tiên nhân vân du đến đây từng dùng một kiếm chém mất phần còn lại. Có người bảo đó là Lý Đoàn Cảnh của Phong Lôi viên, có người bảo là Ngụy Tấn của miếu Phong Tuyết. Năm tháng có khớp hay không, dù sao cũng chỉ kể cho vui, ai lại đi so đo.
+
+Trước cổng người qua lại tấp nập, phần lớn là nam tử, đặc biệt nhiều người đọc sách. Hồ quốc có một ngôi miếu và một ngọn núi, tương truyền văn vận ở cả hai nơi đều nồng đậm, đến thắp hương tế bái rất linh nghiệm, dễ đỗ đạt trên trường thi.
+
+Cũng có thư sinh nghèo cố ý đi đường vòng đến đây kiếm lộ phí. Giai nhân Hồ quốc nổi tiếng thiên vị người đọc sách; nhiều thư sinh sa sút cam lòng sống đến già trong ôn nhu hương. Họ phần nhiều sống lâu, còn chuyện hồ tiên si tình cũng không phải nói bừa: khi nam tử mình yêu qua đời, nàng không cầu cùng sinh, chỉ cầu cùng chết[?].
+
+Quy củ du ngoạn Hồ quốc rất thú vị: phải dùng thơ văn đổi lộ phí. Thơ, từ, khúc, phú, tản văn hay cả văn ứng thí đều được; có tài thì chỉ một đôi câu đối cũng đủ. Nếu mấy vị hồ tiên giám định thấy văn chương khó coi thì đành quay về. Có nhờ người viết hộ hay không cũng chẳng sao; không đưa ra được văn hay thì chỉ đành trả tiền thần tiên.
+
+Lý Bảo Bình nhìn lầu các cẩm tú cách cổng không xa, khẽ nhíu mày. Hứa thị và Hồ quốc dựa vào đây tích góp văn vận, tích ít thành nhiều, rốt cuộc muốn làm gì, lại có thể làm gì?
+
+Hứa thị hạ mình, đem đích nữ gả cho con vợ lẽ để kết thông gia với Viên thị Thượng Trụ quốc Đại Ly. Phải chăng họ mưu tính chuyện triều đình sau này, muốn một con cháu Hứa thị đủ sức gánh văn vận chiếm lấy một chỗ, từng bước lên địa vị cực cao, nắm một phần triều chính và trở thành dòng họ Thượng Trụ quốc kế tiếp?
+
+Lý Bảo Bình nhớ lại lần mẹ con Hứa thị đến trấn nhỏ năm ấy. Nàng phải hỏi ông nội xem ngoài món Hủy Tử Giáp, hai người có dùng thủ thuật che mắt, giấu mưu tính nào khác hay không.
+
+Có một chuyện tiểu sư thúc luôn không để ý, nhưng trong lòng nàng vẫn có một khúc mắc: năm đó Bàn Sơn Viên và tiểu cô nương Chính Dương sơn từng ở nhờ nhà Lý thị phố Phúc Lộc.
+
+Nếu chỉ có vậy thì còn dễ nói, chỉ sợ âm mưu của người trên núi vòng vèo ngàn vạn dặm. Cha con Chu Hà, Chu Lộc và nhị ca Lý Bảo Châm đã là hai chuyện; sự bất quá tam.
+
+Ngụy Bản Nguyên lấy ra hai khoản tiền tuyết hoa, dẫn Lý Bảo Bình vào Hồ quốc.
+
+Trong lầu các, một phụ nhân đang lười biếng nằm trên bàn chợt ngẩng đầu, tâm tình vui vẻ, lập tức dùng phi kiếm truyền tin đến kiếm phòng Hứa thị. Phi kiếm nhanh chóng trở về cùng một phần hồ sơ sơ lược.
+
+Cuối mật thư viết không mấy uyển chuyển: bảo nàng đừng có ý nghĩ không an phận. Người kia là đệ tử thư viện Sơn Nhai, lại là cháu gái của Lý gia Nguyên Anh, đừng đi trêu chọc. Thanh Phong thành nay đã là tông môn dự khuyết, không thể gây thêm chuyện.
+
+Phụ nhân không vui, dùng bộ móng giả dài trên tay xé nát mật thư từng chút một. Tuy không cam lòng, nàng vẫn không dám trái quyết định của Thanh Phong thành, đành lười biếng nằm trở lại trên bàn.
+
+Đào Nha kết một căn nhà tranh tu hành cạnh thác nước ở Hồ quốc. Cơ duyên mà Ngụy Bản Nguyên nhắc tới là khi nàng vô tình đi ngang thác nước, thấy một dải lụa bảy màu tỏa bảo quang trôi trên mặt nước.
+
+Một hồ tiên Kim Đan vội vàng bay tới tranh đoạt, không ngờ bị dải lụa đánh cho da tróc thịt bong, suýt nữa bị trói tay chân kéo xuống hồ sâu. Sau khi hồ tiên thất hồn lạc phách bỏ chạy, dải lụa lại lững lờ trôi vào bờ, được Đào Nha nhặt lên. Nó như tự nhận chủ, trở thành đai lưng rực rỡ của vị tỳ nữ Ngụy thị ngõ Đào Diệp.
+
+Không chỉ vậy, theo chỉ dẫn của nó, nàng còn nhặt được một cành đào khô không bắt mắt trong núi sâu. Sau khi luyện hóa mới biết đó là một pháp bảo giấu kín huyền cơ. Chỉ qua một đêm, Đào Nha trở thành người may mắn nhất Hồ quốc trong mấy trăm năm.
+
+Trong Hồ quốc không được ngự gió hay đi thuyền, chỉ có thể đi bộ. May mà nơi này có ba lối vào, Ngụy Bản Nguyên chọn cửa gần Đào Nha nhất, thuê một chiếc xe ngựa và một con tuấn mã cho Bảo Bình. Ông tự mình đánh xe, nàng đeo đao cưỡi ngựa, dọc đường vừa đi vừa ngắm cảnh, thỉnh thoảng dừng lại, cũng không buồn tẻ.
+
+Đến thác nước giữa sườn núi, Đào Nha nay đã trổ mã xinh đẹp nhìn thấy Lý Bảo Bình, khó tránh khỏi có chút tự ti.
+
+Nhưng sau khi ba người uống trà, Lý Bảo Bình ôn chuyện xong liền đứng dậy cáo từ. Nàng muốn tiếp tục đi về phía bắc, đến kinh thành Đại Ly tìm bằng hữu. Con ngựa để lại bên khe núi cứ thả cho nó nghỉ ngơi; nó đã theo nàng qua ngàn núi vạn sông, cũng nên được nghỉ rồi.
+
+Ngụy Bản Nguyên dở khóc dở cười, Đào Nha cũng không kịp trở tay. Ông hỏi:
+
+- Còn con ngựa đổi dưới chân núi thì sao?
+
+Lý Bảo Bình vỗ đầu, cười nói:
+
+- Quên nói với Ngụy gia gia, bây giờ cháu cũng là luyện khí sĩ. Cảnh giới không cao, nhưng có thể ngự gió.
+
+Nàng nói thêm:
+
+- Ngự kiếm cũng được, nhưng bình thường cháu không thích lắm. Trên trời gió lớn, vừa nói chuyện đã đau quai hàm.
+
+Lão nhân và Đào Nha nhìn nhau. Lý Bảo Bình nghĩ một chút, không muốn giấu giếm:
+
+- Cháu có mấy tờ giấy, chữ viết trên đó gần gũi với cháu, miễn cưỡng có thể biến thành một chiếc phù thuyền. Chỉ là Mao tiên sinh mong cháu đừng dễ dàng lấy ra.
+
+Ngụy Bản Nguyên bất đắc dĩ hỏi:
+
+- Còn gì nữa không?
+
+Lý Bảo Bình lắc đầu:
+
+- Không còn. Cháu chỉ học được chút quyền cước từ bằng hữu, cũng không phải võ phu thuần túy Ngự Phong cảnh, không thể chỉ dựa vào thể phách đề khí đi xa.
+
+Ngụy Bản Nguyên đứng dậy:
+
+- Vậy để Đào Nha đưa cháu ra khỏi Hồ quốc, nếu không Ngụy gia gia thật sự không yên tâm.
+
+Cảnh giới Đào Nha có lẽ tạm thời còn kém ông, nhưng hai vật bản mạng quá huyền diệu, công thủ vẹn toàn, hoàn toàn có thể coi như tu sĩ Kim Đan.
+
+Lý Bảo Bình cười:
+
+- Thôi ạ, đừng làm chậm trễ Đào Nha tỷ tỷ tu hành.
+
+Nàng nháy mắt với Đào Nha. Đào Nha hiểu ý, mặt hơi đỏ, càng thêm nghi hoặc: sao Tiểu Bảo Bình nhìn ra mình có nam tử ngưỡng mộ?
+
+Một nữ tử kết nhà tranh tu hành một mình, nếu không có người trong lòng thì thoa son làm gì? Ngụy Bản Nguyên rất để tâm đến việc tu hành của Đào Nha, nhưng sao để ý đến chi tiết ấy.
+
+Lý Bảo Bình từ biệt ra đi. Nàng trèo non lội suối xuyên qua Hồ quốc từ nam đến bắc. Giữa đường, tuyết lớn như lông ngỗng rơi xuống. Nữ tử trẻ tuổi mặc áo bông đỏ đứng bên đường núi trải đá, đưa tay lên hà hơi.
+
+Hiệp đao và hồ lô dưỡng kiếm bên hông nàng nổi bật giữa trời tuyết. Trong khoảnh khắc ấy, dường như đất trời chỉ còn tuyết trắng và nữ tử tuyệt sắc.
 
 Kinh thành Nam Uyển quốc, Ngẫu Liên phúc địa.
 
-Một thiếu nữ đứng lên, đi về phía sân, kéo ra quyền giá, sau đó nói với tiểu cô nương chống cằm ngồi trên lan can kia: "Hạt gạo nhỏ, ta muốn ra quyền, ngươi đi ngõ Trạng Nguyên bên kia dạo chơi, thuận tiện mua chút hạt dưa."
+Một thiếu nữ đứng dậy đi ra sân, bày quyền giá, rồi nói với tiểu cô nương đang chống cằm ngồi trên lan can:
 
-Tiểu cô nương áo đen có chút không tình nguyện, "Ta liền nhìn xem, không lên tiếng, trong túi còn có chút hạt dưa."
+- Hạt Gạo Nhỏ, ta sắp xuất quyền. Ngươi sang ngõ Trạng Nguyên dạo chơi, tiện thể mua ít hạt dưa đi.
 
-Thật ra vẫn là chỗ chức trách, hộ pháp bên phải Lạc Phách Sơn, còn kiêm nhiệm phó đà chủ phân đà, thời điểm này sao có thể không giúp Bùi Tiền hộ trận?
+Tiểu cô nương áo đen có chút không tình nguyện:
 
-Thiếu nữ trừng mắt nói: "Một quyền này của ta đưa ra, không nhẹ không nặng, trả được?! Võ vận cũng không có mắt, ào ào liền sáp lại, giống như trên trời hạ dao, đêm nay ăn một chậu cá dưa chua lớn bao nhiêu?"
+- Ta chỉ đứng xem thôi, không lên tiếng đâu. Trong túi còn ít hạt dưa nữa.
 
-Chu Mễ Lạp vội vàng đứng dậy nhảy xuống lan can, cầm đòn gánh nhỏ và Hành Sơn trượng, chạy ra thật xa, đột nhiên dừng bước quay đầu hỏi: "Mua mấy cân hạt dưa?! Nghe Noãn Thụ tỷ tỷ nói, mua nhiều thì rẻ, mua ít thì mua ít."
+Thật ra đây là trách nhiệm của nàng. Hữu hộ pháp núi Lạc Phách kiêm phó đà chủ phân đà, lúc này sao có thể không hộ trận cho Bùi Tiền?
 
-Bùi Tiền bất đắc dĩ nói: "Tùy ngươi."
+Thiếu nữ trừng mắt:
 
-Chu Mễ cau mày, giơ đòn gánh nhỏ lên cao: "Vậy thì chọn một cái túi nhỏ bằng đòn gánh nhỏ?"
+- Một quyền này của ta không nhẹ không nặng, ngươi chịu nổi sao[?]? Võ vận không có mắt, ào ào xông tới như dao từ trên trời rơi xuống. Tối nay còn muốn ăn một chậu cá dưa chua lớn không?
 
-Tiểu cô nương cảm thấy mình đã thông minh đến mức vô pháp vô thiên.
+Chu Mễ Lạp vội đứng dậy nhảy xuống lan can, cầm đòn gánh nhỏ và gậy leo núi chạy ra xa. Nàng chợt dừng bước quay đầu hỏi:
 
-Bùi Tiền gật gật đầu, trên thực tế nó đã không thể nói thành lời.
+- Mua mấy cân hạt dưa? Nghe Noãn Thụ tỷ tỷ nói, mua nhiều thì rẻ, mua ít thì mua ít[?].
 
-Chu Mễ hạt nhìn Bùi Tiền, hiểu được nặng nhẹ, lập tức mũi chân điểm một cái, trực tiếp nhảy ra khỏi tường viện.
+Bùi Tiền bất đắc dĩ:
 
-Sau khi hạt gạo rời khỏi.
+- Tùy ngươi.
 
-Bùi Tiền bước ra một bước, dậm mạnh xuống đất, hầu như cả tòa kinh thành Nam Uyển quốc đều theo đó chấn động, có thể có hiện tượng lạ này, tự nhiên không phải một vị võ phu ngũ cảnh, động tĩnh có thể một cước giẫm ra, càng nhiều là quyền ý, tác động đến chân núi vận chuyển đường thủy, ngay cả long mạch Nam Uyển quốc kia cũng không buông tha.
+Chu Mễ Lạp nhíu mày, giơ đòn gánh nhỏ lên cao:
 
-Bùi Tiền hai cánh tay vặn vặn tư thế, quyền chiêu cực kỳ quái, hơi tạm dừng, một quyền nhẹ nhàng đánh ra Thần Nhân Lôi Cổ Thức.
+- Vậy mua một túi nhỏ bằng đòn gánh nhỏ nhé?
 
-Sau một lát, cả người Bùi Tiền đã như là người theo quyền đi, bị quyền ý liên lụy, hoặc như là quyền ra tùy tâm, chính là phải đi chỗ cao nhất đưa một cú đấm cuối cùng mới bỏ qua, thiếu nữ thế mà lại nháy mắt cất cao, một bước đạp trên không trung, sau đó từng bước chạy như bay về phía màn trời, thân hình nhanh như sấm đánh, cuối cùng đến chỗ trên màn trời ngó sen phúc địa, hình như là chỗ mặt trời lơ lửng kia, Bùi Tiền rốt cuộc đánh ra một cú đấm cuối cùng.
+Tiểu cô nương cảm thấy mình đã thông minh đến mức vô pháp vô thiên. Bùi Tiền gật đầu, thật ra đã không nói nên lời.
 
-Một quyền qua đi.
+Chu Mễ Lạp nhìn Bùi Tiền, biết nặng nhẹ, lập tức nhón chân nhảy qua tường viện.
 
-Dưới chân thiếu nữ là một mặt trời bao la màu vàng, biển mây ầm ầm tứ tán.
+Sau khi nàng đi, Bùi Tiền bước ra, giậm mạnh xuống đất. Gần như cả kinh thành Nam Uyển quốc đều chấn động. Một võ phu ngũ cảnh đương nhiên không thể chỉ giậm chân mà gây ra động tĩnh ấy; chủ yếu là quyền ý của nàng tác động đến vận nước dưới chân núi, ngay cả long mạch Nam Uyển quốc cũng không bỏ qua.
 
-Gần như toàn bộ Luyện khí sĩ bước lên con đường tu hành Ngẫu Liên, hơn nữa dẫn đầu chen thân trung ngũ cảnh kia, đều theo bản năng ngẩng đầu nhìn về phía nơi nào đó trên màn trời.
+Bùi Tiền xoay hai cánh tay thành tư thế cực kỳ kỳ lạ, hơi dừng lại, nhẹ nhàng đánh ra một quyền Thần Nhân Lôi Cổ thức.
 
-Lại có những anh linh, quỷ mị tinh quái do tòa phúc địa mới này ứng vận mà sinh, cũng đều không hẹn mà cùng, mờ mịt nhìn trời.
+Một lát sau, toàn thân nàng như người đi theo quyền, bị quyền ý kéo đi, lại như quyền theo ý mà ra, nhất định phải lên chỗ cao nhất đánh cú cuối cùng mới chịu thôi. Thiếu nữ chợt vọt lên, một bước đạp giữa không trung, rồi từng bước chạy thẳng về phía màn trời, thân hình nhanh như sấm chớp.
 
-Cùng lúc đó, võ miếu Đại Ly, võ miếu một châu Bảo Bình, một ít võ miếu lớn tám châu còn lại của Hạo Nhiên Thiên Hạ đều có cảm ứng.
+Cuối cùng đến nơi mặt trời dường như đang treo trên màn trời Ngẫu Liên phúc địa, Bùi Tiền mới đánh ra quyền cuối cùng.
 
-Tám đạo võ vận điên cuồng ùa về phía Bảo Bình châu, cuối cùng tụ lại hợp nhất với cỗ võ vận Bảo Bình châu kia, đụng vào chiếc ô Đồng Diệp bị sơn quân Ngụy Bách nắm kia.
+Một quyền qua đi, dưới chân nàng là mặt trời vàng rực rộng lớn, biển mây ầm ầm tản ra bốn phía.
 
-Các đại võ miếu của Đại Ly, nhất là tòa võ miếu kia của mộ thần tiên cách Lạc Phách sơn gần nhất, thần linh kim thân chủ động hiện thân, hướng Lạc Phách sơn bên kia khom lưng ôm quyền.
+Gần như tất cả luyện khí sĩ đã bước lên đường tu hành trong phúc địa, cùng những người đi đầu đã vào trung ngũ cảnh, đều vô thức ngẩng đầu nhìn về một nơi trên màn trời. Những anh linh, quỷ mị tinh quái ứng vận mà sinh trong phúc địa mới này cũng cùng ngơ ngác nhìn trời.
 
-Ngụy Bách một thân trường bào tuyết trắng bay phất phới, kiệt lực ổn định thân hình, hai chân cắm rễ đại địa, thế mà trực tiếp vận chuyển sơn hà thần thông, đem mình cùng toàn bộ Phi Vân sơn dính vào nhau, lúc trước còn muốn giúp đỡ khí tượng che lấp, lúc này còn che cái rắm, chỉ cần đứng vững thân hình cầm Đồng Diệp tán, cũng đã khiến Ngụy Bách cố hết sức, vị đại sơn quân một châu này lúc trước còn không rõ vì sao Chu Liễm muốn mình cầm Đồng Diệp châu, lúc này Ngụy Bách vừa tức vừa cười nói: "Chu Liễm! Con mẹ nó chứ!"
+Cùng lúc đó, võ miếu Đại Ly, võ miếu Bảo Bình Châu và một số võ miếu lớn của tám châu còn lại ở Hạo Nhiên thiên hạ đều có cảm ứng.
 
-Mặc kệ Ngụy Sơn Quân liên tục mở mấy buổi dạ du yến, thanh danh như thế nào, chỉ nói phong độ thần tiên, vậy thật sự là tuyệt hảo, không biết bao nhiêu nữ tử thần linh, tiên tử, gặp là ái mộ.
+Tám luồng võ vận điên cuồng ùa về Bảo Bình Châu, cuối cùng hợp với võ vận nơi này, đâm vào chiếc ô Đồng Diệp trong tay sơn quân Ngụy Bách.
 
-Về phần lão quản sự Lạc Phách Sơn kia, vẫn là thôi đi, gặp qua dung mạo liền quên, nhiều nhất nhớ rõ thân phận.
+Thần linh kim thân ở các võ miếu Đại Ly, nhất là võ miếu tại mộ thần tiên gần núi Lạc Phách nhất, chủ động hiện thân, hướng về núi Lạc Phách khom người ôm quyền.
 
-Chu Liễm đứng ở bên kia trúc lâu, cười tủm tỉm hai tay chắp sau lưng, võ vận trong thiên địa mãnh liệt, mênh mông cuồn cuộn lao thẳng tới Lạc Phách Sơn, Chu Liễm cho dù có quyền ý hộ thân, trường sam vẫn như cũ bị Hạo Nhiên Võ Vận như vô số phi kiếm nhỏ bé dày đặc quấy cho vỡ vụn không chịu nổi, lâu ngày, tấm da mặt che phủ nhiều năm trên mặt Chu Liễm cũng theo đó bong ra từng chút, cuối cùng lộ ra chân dung.
+Trường bào trắng như tuyết của Ngụy Bách tung bay. Hắn cố sức giữ thân hình, hai chân cắm rễ xuống đất, thậm chí vận dụng thần thông núi sông, gắn mình với cả Phi Vân sơn. Ban đầu hắn còn muốn giúp che giấu khí tượng, bây giờ còn che cái gì nữa? Chỉ đứng vững cầm ô Đồng Diệp đã khiến hắn hết sức.
 
-Chu Liễm vươn hai ngón tay, vân vê một lọn tóc nơi thái dương, nheo mắt mà cười.
+Trước đó Ngụy Bách còn không hiểu vì sao Chu Liễm bảo mình cầm ô. Lúc này vị đại sơn quân một châu vừa tức vừa buồn cười, chửi:
 
-Tuổi trẻ Chu Liễm, dung nhan như vậy, có thể say lòng mỹ nhân.
+- Chu Liễm! Con mẹ ngươi!
+
+Bất kể Ngụy sơn quân liên tiếp mở mấy buổi dạ du yến có thanh danh thế nào, chỉ nói phong độ thần tiên thì thật sự tuyệt hảo, chẳng biết bao nhiêu nữ thần linh và tiên tử gặp hắn liền sinh lòng ái mộ.
+
+Còn vị lão quản sự núi Lạc Phách kia thì thôi, người ta gặp rồi cũng quên dung mạo, nhiều lắm nhớ được thân phận.
+
+Chu Liễm đứng bên lầu trúc, cười tủm tỉm, hai tay chắp sau lưng. Võ vận trong trời đất cuồn cuộn xông thẳng đến núi Lạc Phách. Dù có quyền ý hộ thân, trường sam của lão vẫn bị võ vận Hạo Nhiên như vô số phi kiếm nhỏ bé dày đặc xé rách tơi tả.
+
+Dần dần, lớp da che mặt bao năm của Chu Liễm cũng bong ra từng chút, cuối cùng để lộ dung mạo thật.
+
+Chu Liễm đưa hai ngón tay vê một lọn tóc bên thái dương, nheo mắt mỉm cười.
+
+Chu Liễm thời trẻ có dung nhan khiến mỹ nhân say lòng.
