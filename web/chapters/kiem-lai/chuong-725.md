@@ -1,309 +1,349 @@
 # Chương 725: Đi rồi còn trở lại
 
-Nam nhân giang hai tay, lòng bàn tay hướng lên trên, nhẹ nhàng lắc hai cái.
+Hán tử dang hai tay, ngửa lòng bàn tay lên, nhẹ nhàng lắc hai cái.
 
-Xa cách lâu ngày gặp lại, ý bảo người trong nhà Kiếm Khí Trường Thành, nhất là tỏ vẻ một chút biểu thị đối với các cô nương tốt mình luôn tâm tâm niệm niệm.
+Xa cách lâu ngày, nay gặp lại, tất nhiên phải chào hỏi người nhà trên Kiếm Khí Trường Thành. Nhất là với những cô nương tốt mà hắn vẫn hằng nhớ mong, thế nào cũng phải tỏ chút lòng thành.
 
-Cả tòa Kiếm Khí Trường Thành vốn đang yên lặng, phía trên đầu tường nhất thời huýt sáo, tiếng huýt sáo nổi lên bốn phía.
+Cả tòa Kiếm Khí Trường Thành vốn đang yên lặng, nhất thời trên đầu thành đâu đâu cũng vang lên tiếng huýt sáo.
 
-Nữ tử đại kiếm tiên Lục Chi cúi mặt xuống, lười nhìn nam nhân kia, nàng thật sự không có mắt nhìn.
+Nữ đại kiếm tiên Lục Chi cúi mặt, chẳng buồn nhìn hán tử kia. Nàng thật sự nhìn hết nổi rồi.
 
-Nam nhân quay lưng về phía tường thành gật đầu, rất hài lòng, mình vẫn được hoan nghênh như vậy.
+Hán tử quay lưng về phía tường thành, gật gù hài lòng. Mình vẫn được hoan nghênh như trước.
 
-Bên ngoài chiến trường, Kiếm Khí Trường Thành chính là đứa trẻ ven đường, hán tử gặp tửu quỷ đổ khách cộng thêm đại quang côn, đều sẽ gọi một tiếng A Lương chó má.
+Ngoài chiến trường, từ đứa trẻ ven đường cho tới bợm rượu, con bạc và đám trai già độc thân ở Kiếm Khí Trường Thành, gặp hắn đều gọi một tiếng “A Lương chó má”.
 
-Trên chiến trường, nam nhân kia, chính là A Lương, chỉ là A Lương.
+Trên chiến trường, hán tử ấy là A Lương.
 
-A Lương tầm mắt dao động, liếc vài lần những quân trướng rải rác các nơi, cất cao giọng nói: "Đừng do dự, đến mấy người có thể đánh!"
+Chỉ là A Lương.
 
-Một hán tử râu quai nón xoay người, nhìn thẳng tên kia, trầm giọng nói: "Ta đến."
+A Lương đưa mắt nhìn qua mấy tòa quân trướng rải rác khắp nơi rồi cất giọng:
 
-A Lương chưa xoay người chỉ quay đầu, nhìn về phía Lưu Xoa một mình đứng ở một bên dòng sông dài màu vàng, năm đó cực kỳ hợp ý, hai bên cũng địch cũng bạn. A Lương chậm rãi xoay người, chà xát tay cười nói: "Hảo huynh đệ thương lượng? Trước tiên mấy người có thể đánh không mạnh, giúp ta làm nóng tay? Cao thủ như ngươi, ta đánh không được mấy người đâu."
+“Đừng chần chừ nữa, kiếm mấy kẻ biết đánh nhau ra đây!”
 
-Lưu Xoa đeo bội đao mặt không biểu cảm, "Chờ ngươi đã lâu. Vì sao vẫn không thể tìm được một thanh kiếm tiện tay?"
+Một hán tử râu quai nón xoay người, nhìn thẳng về phía hắn, trầm giọng nói:
 
-Hai lòng bàn tay A Lương siết chặt, nhẹ nhàng vặn cổ tay, đã ra sân chính là trận đánh ác liệt, vậy cũng chỉ có thể tự mình làm nóng tay trước.
+“Ta đến.”
 
-Ngón cái Lưu Xoa nhẹ nhàng để ở chuôi đao, nhẹ nhàng đẩy, trong khoảnh khắc, Lưu Xiên đã lướt qua dòng sông dài màu vàng, tới trước người A Lương, bổ xuống một đao.
+A Lương ngoái đầu. Lưu Xoa đứng một mình bên dòng sông vàng. Năm đó hai người rất hợp ý nhau, vừa là địch, vừa là bằng hữu. A Lương chậm rãi xoay hẳn người lại, xoa tay cười nói:
 
-Trên chiến trường, từ đó về sau, căn bản không thấy thân ảnh của hai người, chỉ khuấy động lên từng vòng gợn sóng kinh người tựa như núi cao nện vào hồ lớn, mỗi một tầng gợn sóng trong nháy mắt khuếch tán ra bốn phía, đều như kiếm thuyền Mặc gia triển khai một vòng b*n r*, phi kiếm tinh mịn, nhiều vô số kể.
+“Huynh đệ tốt, thương lượng chút được không? Kiếm mấy kẻ biết đánh mà chẳng mạnh lắm cho ta nóng tay trước. Cao thủ như ngươi, ta đánh chẳng nổi mấy người đâu.”
 
-Sau khi A Lương Hào từ trên trời giáng xuống, đại quân Yêu tộc trong phạm vi trăm dặm, không chết, đều đang khẩn cấp rút lui, đốc chiến quan các đại quân trướng đều không có bất cứ ngăn trở nào.
+Lưu Xoa đeo đao bên hông, vẻ mặt không chút thay đổi.
 
-Trên mặt đất, nương theo từng tiếng sấm nổ vang, xuất hiện từng cái hố to lớn cách xa nhau.
+“Ta chờ ngươi lâu rồi. Sao đến giờ vẫn chưa tìm được một thanh kiếm vừa tay?”
 
-Sau khi tất cả hố lõm xuất hiện, bốn phía hoàn toàn không có sinh cơ, thân thể, hồn phách, tu sĩ Yêu tộc, sau khi rơi xuống đất hóa thành binh khí bột mịn, trọng bảo trên núi, cùng với cát vàng bụi bặm kia đều bị kiếm khí ngưng tụ không tiêu tan bao phủ, giống như bỗng dưng xuất hiện từng tòa từng tòa kiếm trận thiên nhiên ngưng tụ, kiếm ý dày đặc, cắn giết vạn vật.
+A Lương nắm hai bàn tay lại, vặn nhẹ cổ tay. Vừa ra trận đã phải đánh một trận ác liệt, vậy thì đành tự làm nóng tay trước thôi.
 
-Đều là dư vị kiếm khí do hai vị kiếm tu giao thủ trong nháy mắt mang đến.
+Lưu Xoa đặt ngón cái lên chuôi đao, nhẹ nhàng đẩy. Chỉ trong khoảnh khắc, hắn đã vượt qua dòng sông vàng, tới ngay trước mặt A Lương, bổ xuống một đao.
 
-Mỗi kiếm tu đứng sừng sững trên đỉnh một tòa thiên hạ kiếm đạo, mạnh mẽ đánh ra một phen thiên địa dị tượng.
+Từ đó chẳng còn thấy bóng dáng hai người trên chiến trường. Chỉ thấy từng vòng kiếm khí dội ra, tựa như núi cao nện xuống hồ lớn. Mỗi vòng vừa lan ra bốn phía đã giống một lượt bắn của kiếm thuyền Mặc gia, phi kiếm nhỏ mảnh, dày đặc không sao đếm xuể.
 
-Một tòa quân trướng tương đối tiếp cận hai người, bị một sợi dây dài trong nháy mắt cắt đứt ra, mấy vị tu sĩ tránh không kịp, chết như thế nào cũng không biết.
+Từ lúc A Lương giáng xuống từ trên trời, đại quân yêu tộc trong vòng trăm dặm, kẻ nào còn sống đều đang vội vàng rút lui. Đốc chiến quan các quân trướng lớn cũng mặc cho bọn chúng chạy.
 
-Lưu Xoa đứng ở đỉnh chóp quân trướng bị chia làm hai, quân trướng dưới chân vẫn chưa sụp đổ, tu sĩ trong trướng đã tan tác như chim muông.
+Mỗi khi có một tiếng nổ như sấm, trên mặt đất lại hiện ra một cái hố lớn. Hố này cách hố kia rất xa. Quanh mỗi cái hố, sinh cơ lập tức tắt sạch. Thân xác và hồn phách tu sĩ yêu tộc, binh khí rơi xuống đất hóa thành bột mịn, trọng bảo trên núi, cả cát vàng bụi đất, thảy đều bị kiếm khí tụ mãi chẳng tan bao phủ. Nhìn qua tựa như từng tòa kiếm trận tự nhiên mọc lên, kiếm ý dày đặc, cắn xé vạn vật.
 
-Ngoài vài dặm, A Lương dừng thân hình, đưa tay chộp một cái, đem một thanh phi kiếm kiếm của kiếm tu thượng ngũ cảnh nắm ở lòng bàn tay, đầu tiên là siết chặt, sau đó lấy hai ngón tay chống đỡ mũi kiếm cùng chuôi kiếm của phi kiếm, tăng thêm lực đạo, đem nó đè ép ra một độ cong khoa trương.
+Đó đều là kiếm khí còn sót lại sau một thoáng giao thủ của hai người. Mỗi người đứng trên đỉnh kiếm đạo của một tòa thiên hạ, cứ thế đánh ra một phen dị tượng giữa trời đất.
 
-Thanh phi kiếm này nhỏ như lông trâu, cực kỳ yếu ớt, mấu chốt là có thể lần theo dòng sông thời gian ẩn nấp dài lướt, xem bộ dáng là vị Kiếm Tiên cực kỳ am hiểu ám sát.
+Một tòa quân trướng ở tương đối gần bị một đường kiếm mảnh cắt làm đôi trong nháy mắt. Mấy tu sĩ tránh không kịp, đến chết cũng chẳng biết mình chết thế nào.
 
-Trong chớp mắt, phi kiếm thế mà bị hai ngón tay A Lương ép hầu như đầy tháng, phi kiếm rốt cuộc không phải đại cung, ở lúc sắp căng đứt, nơi xa vang lên một tiếng kêu không dễ phát hiện, trả giá thật lớn, lấy bí thuật nào đó mạnh mẽ thu đi thanh phi kiếm bản mạng bị hai ngón tay của A Lương cầm cố kia, sau đó khí tức nháy mắt chạy xa, một đòn không thành thì phải rời xa chiến trường, nào ngờ ở trên đường lui, một nam nhân xuất hiện ở phía sau hắn, đưa tay đè lại đầu hắn, kiếm ý như nước dội vào đầu, A Lương kéo một cái về phía sau, để cho thân thể hắn ngửa ra sau, A Lương cúi đầu nhìn khuôn mặt của thi thể kiếm tiên kia, "Ta nói không phải là tiểu vương bát đản kia của thụ thần, chỉ cần trên chiến trường có ta, vậy đời này hắn cũng không có lá gan xuất kiếm."
+Lưu Xoa đứng trên nóc tòa quân trướng ấy. Trướng dưới chân hắn đã bị xẻ đôi mà vẫn chưa đổ, người bên trong thì đã tan tác như chim muông.
 
-Thi thể kia bị A Lương nhẹ nhàng đẩy ra, ngã ở ngoài mấy chục trượng, nặng nề ngã xuống đất.
+Ngoài mấy dặm, A Lương dừng lại, đưa tay chộp lấy một thanh phi kiếm của kiếm tu thượng ngũ cảnh. Hắn nắm chặt một lúc, rồi lấy hai ngón tay giữ lấy mũi và chuôi kiếm, dùng sức ép thanh kiếm cong vồng lên.
 
-Một phương hướng khác, trên mặt đất bỗng nhiên bay lên một cột sáng tuyết trắng, hồn phách Yêu tộc Kiếm tiên bỏ túi da không cần, tính cả Kim Đan, Nguyên Anh bị hồn phách bao vây kín mít, bị cột sáng ẩn chứa vô tận kiếm đạo chân ý kia xông qua, không thể lưu lại bất cứ dấu vết gì.
+Phi kiếm nhỏ như sợi lông trâu, hết sức mảnh mai. Điều đáng kể là nó có thể nương theo dòng sông thời gian mà lặng lẽ lướt đi. Xem ra chủ nhân thanh kiếm là một vị kiếm tiên rất thạo việc ám sát.
 
-Trong lúc tạm dừng ngắn ngủi này, A Lương nhìn quanh, sương trắng mờ mịt, hiển nhiên đã hãm thân giữa tiểu thiên địa của vị đại yêu nào đó.
+Chớp mắt, phi kiếm đã bị hai ngón tay A Lương ép cong gần thành một vầng trăng tròn. Phi kiếm rốt cuộc đâu phải cây cung. Ngay lúc kiếm sắp gãy, ở đằng xa vang lên một tiếng kêu rất khẽ. Vị kiếm tiên kia phải trả giá không nhỏ, dùng bí thuật cưỡng ép thu về thanh phi kiếm bản mạng đang bị giữ giữa hai ngón tay A Lương. Khí tức của hắn lập tức biến ra xa. Một đòn không trúng thì phải lập tức rời khỏi chiến trường.
 
-"Trò vặt, hù dọa ta à? Sao ngươi biết ta nhát gan? Cũng đúng, ta là người thấy cô nương sẽ đỏ mặt." A Lương giống như khẽ tay sưởi ấm, lấy hắn làm tâm, sương trắng tự động tan đi.
+Nào ngờ trên đường rút lui, sau lưng hắn bỗng có thêm một người. A Lương đưa tay ấn đầu hắn xuống, kiếm ý như nước dội thẳng xuống đỉnh đầu. A Lương kéo nhẹ ra sau cho thân thể hắn ngửa lên, cúi đầu nhìn mặt thi thể vị kiếm tiên nọ.
 
-Trên chiến trường giữa thiên địa chỉ có hai màu đen trắng, xuất hiện chân thân của một con quái vật khổng lồ, hùng cứ một phương, tọa trấn thiên địa, đang quan sát kiếm khách nhỏ bé như điểm đen kia.
+“Ta đã bảo chẳng thể nào là tên nhãi khốn kiếp bên Thụ Thần [?]. Trên chiến trường có ta, đời này nó cũng chẳng có gan xuất kiếm.”
 
-A Lương ngẩng đầu nhìn, sửng sốt một phen, một con thật lớn.
+A Lương khẽ đẩy một cái, thi thể văng ra ngoài mấy chục trượng rồi rơi nặng nề xuống đất.
 
-Hắn hỏi một vấn đề rất chân thành: "Ta còn không quen biết ngươi, ngươi làm sao dám đến?"
+Ở một hướng khác, từ mặt đất bỗng vọt lên một cột sáng trắng như tuyết. Vị kiếm tiên yêu tộc đã bỏ thân xác, hồn phách bọc kín lấy Kim Đan và Nguyên Anh định trốn đi. Cột sáng chứa kiếm đạo chân ý vô tận quét qua, chẳng còn lưu lại chút dấu vết nào.
 
-Đạo lý rất đơn giản, trừ những tồn tại ở Anh Linh điện có được cổ tỉnh vương tọa, còn lại Yêu tộc chưa từng đối mặt với A Lương hắn, từng giao thủ, như vậy ở Man Hoang thiên hạ, thì không có tư cách được xưng là đại yêu. Đã không phải đại yêu, ở trong mắt A Lương hắn, "Đủ xem" không?
+Trong thoáng ngừng tay, A Lương nhìn quanh, thấy sương trắng mờ mịt. Hiển nhiên hắn đã lọt vào tiểu thiên địa của một vị đại yêu nào đó.
 
-Con quái vật khổng lồ kia bị A Lương nhận định là "Yêu tộc không biết tên", vừa muốn khống chế thiên địa thần thông, ý đồ nghiền sát A Lương nổi danh lâu năm ở Man Hoang thiên hạ kia.
+“Có mỗi trò vặt này mà cũng muốn dọa ta? Sao ngươi biết ta nhát gan? Ừ, cũng phải, gặp cô nương là ta đỏ mặt.”
 
-Nào ngờ từ trên đỉnh đầu Yêu tộc chân thân, từ trên xuống dưới, xuất hiện một đường màu trắng thẳng tắp, tựa như bị người ta lấy trường kiếm chém làm hai nửa.
+A Lương khẽ xoa hai tay như đang sưởi ấm. Sương trắng tự động tan ra quanh hắn.
 
-Chung quy là ở trong tiểu thiên địa của tu sĩ Yêu tộc Tiên Nhân cảnh này, tuy nháy mắt bị thương tổn tới căn bản, dời đi chiến trường không khó, chỉ là chân thân vừa mới ngừng lại thanh thế, khó khăn chống đỡ đạo ánh sáng trường tuyến kia mang đến kiếm ý mãnh liệt, đã xuất hiện ở rìa tiểu thiên địa, cố gắng kéo giãn khoảng cách xa nhất với A Lương kia, chỉ là nó như thế nào cũng không nghĩ đến giữa cả tòa thiên địa, chẳng những trên ranh giới tiểu thiên địa, ngay cả ánh sáng bên ngoài tiểu thiên địa kia cũng xuất hiện lấy hàng ngàn để tính, xuyên qua thiên địa, giống như cả tòa tiểu thiên địa, đều biến thành tiểu thiên địa của người nọ.
+Giữa trời đất chỉ còn hai màu đen trắng, một con quái vật khổng lồ hiện ra chân thân. Nó chiếm cứ một phương, trấn giữ cả tòa thiên địa, cúi nhìn kiếm khách nhỏ như một chấm đen bên dưới.
 
-Một rừng kiếm vạn kiếm cắm trên mặt đất.
+A Lương ngẩng đầu, thoáng ngẩn ra. Con này thật lớn.
 
-Cuối cùng bị mấy chục đạo kiếm quang gắt gao bám chặt lấy chân thân đại yêu, đừng nói di chuyển thân thể, chỉ cần tâm niệm khẽ động, đã có đau đớn quặn lòng. Nó kinh hãi phát hiện trong tiểu thiên địa của mình cũng là tình cảnh thê thảm không thể trốn thoát.
+Hắn thành thật hỏi một câu:
 
-A Lương căn bản không để ý tới vị yêu vật Tiên Nhân cảnh này.
+“Ta còn chẳng biết ngươi là ai, sao ngươi dám tới?”
 
-Tòa tiểu thiên địa này của đối phương giòn như đồ sứ, giống như bị kiếm tu lấy mũi kiếm nhẹ nhàng dập một cái, chính là kết cục phá thành mảnh nhỏ.
+Đạo lý rất đơn giản. Trừ những vị có vương tọa giếng cổ ở Anh Linh điện, yêu tộc nào ở Man Hoang Thiên Hạ chưa từng đối mặt, chưa từng giao thủ với A Lương hắn, vậy thì chưa đủ tư cách gọi là đại yêu. Đã chưa phải đại yêu, vào mắt A Lương được sao?
 
-Sau khi thiên địa khôi phục tỉnh táo, A Lương chiếm chỗ làm khởi đầu, vô số luồng kiếm quang ùn ùn trào ra, tựa như một cái vòng tròn thật lớn không ngừng mở rộng, trong phạm vi mấy chục dặm, nhất cử đãng không.
+Con quái vật khổng lồ bị A Lương xem là hạng vô danh kia vừa định vận thần thông của tiểu thiên địa, nghiền chết vị kiếm khách đã thành danh từ lâu ở Man Hoang Thiên Hạ. Nào ngờ từ đỉnh đầu chân thân của nó, một vệt trắng hiện ra, chạy thẳng xuống dưới, tựa như có người lấy trường kiếm xẻ nó làm đôi.
 
-Lưu Xoa lúc trước đứng ở đỉnh chóp quân trướng, ngăn cản những kiếm quang đó cũng không khó, giờ phút này biến thành huyền đình trên không trung, lại trở thành tồn tại duy nhất giằng co với A Lương trên chiến trường.
+Rốt cuộc đây vẫn là tiểu thiên địa của vị tu sĩ Tiên Nhân cảnh ấy. Tuy chỉ trong chớp mắt đã bị thương tới căn bản, nó muốn đổi chỗ giao chiến cũng chẳng khó. Nó vừa gắng đứng vững, chật vật chống đỡ kiếm ý mãnh liệt từ đường sáng trắng kia, đã dời chân thân ra tận rìa tiểu thiên địa, cố kéo xa A Lương hết mức có thể.
 
-Hắn ta lạnh nhạt nói: "Khuyên một câu, ai cũng đừng xen vào."
+Nó đâu ngờ cả trong lẫn ngoài ranh giới tiểu thiên địa đã hiện ra hàng ngàn vệt sáng xuyên qua trời đất. Cả tòa tiểu thiên địa tựa như đã đổi chủ.
 
-Cho dù nguyện ý chịu chết, tốt xấu cũng phải mang đến cho A Lương kia một chút thương thế.
+Vạn kiếm cắm xuống đất, dày như rừng.
 
-Lưu Xoa thu đao vào vỏ, đưa tay vòng ra sau, rút kiếm ra khỏi vỏ, cầm kiếm trong tay.
+Cuối cùng, mấy chục luồng kiếm quang ghim chặt chân thân đại yêu. Đừng nói đến nhúc nhích, chỉ cần vừa động ý nghĩ đã đau thấu ruột gan. Nó kinh hãi nhận ra mình mắc kẹt ngay trong tiểu thiên địa của mình, chẳng còn đường thoát.
 
-Ở Man Hoang thiên hạ, hành tẩu bốn phương, cơ hội xuất kiếm gần như không có, cho nên Lưu Xoa mới chờ mong gặp lại A Lương, vốn tưởng sẽ là ở Hạo Nhiên Thiên Hạ, không ngờ nam nhân này thế mà liên tục phá cấm chế hai tòa đại thiên hạ, trực tiếp quay về Kiếm Khí Trường Thành.
+A Lương chẳng buồn để ý tới con yêu vật Tiên Nhân cảnh kia. Tiểu thiên địa của nó giòn như đồ sứ, tựa như kiếm tu chỉ cần lấy mũi kiếm gõ nhẹ một cái là vỡ tan.
 
-A Lương đưa tay, từ trên chiến trường phía bắc trường hà màu vàng, xa xa khống chế một trường kiếm kiểu dáng Kiếm Phường quay về, sau khi bị hắn nắm trong tay, cân nhắc một phen, nhẹ nhàng một chút, thở dài, thế mà ngay cả Kiếm Phường cũng bị ép ăn bớt ăn xén nguyên vật liệu, trận chiến này quả thật đánh có chút thảm thiết.
+Khi trời đất trong trở lại, vô số luồng kiếm quang từ chỗ A Lương đứng ùn ùn tuôn ra, hợp thành một vòng tròn khổng lồ không ngừng lan rộng, quét sạch mọi thứ trong vòng mấy chục dặm.
 
-Lúc trước Lưu Xoa gặp mặt chính là đâm một đao vào mặt hắn, quá không nói đạo nghĩa giang hồ.
+Lưu Xoa đứng trên nóc quân trướng ban nãy, muốn cản những luồng kiếm quang ấy cũng chẳng khó. Lúc này hắn lơ lửng giữa không trung, lại là người duy nhất trên chiến trường đối mặt với A Lương.
 
-A Lương liền trả lại một kiếm của hán tử râu quai nón kia.
+Hắn lạnh nhạt nói:
 
-Một kiếm lẫn nhau qua đi.
+“Khuyên các ngươi một câu, đừng ai xen vào.”
 
-A Lương lùi lại đụng vào trong mây, cả tòa biển mây trên không Kiếm Khí Trường Thành bị quấy nát, như xé rách bay tán loạn.
+Cho dù có lòng muốn chết, ít ra cũng phải khiến A Lương chịu chút thương tích.
 
-A Lương lui về phía sau một cước, đạp mạnh trên không, dừng thân hình.
+Lưu Xoa tra đao vào vỏ, vòng tay ra sau lưng, rút kiếm ra cầm trong tay.
 
-Lưng Lưu Xoa đụng nát cả tòa đại địa, thân hãm sâu trong lòng đất, không thấy tung tích, dưới đất vang lên liên tiếp tiếng sấm nặng nề.
+Đi khắp Man Hoang Thiên Hạ, hắn hầu như chẳng có dịp xuất kiếm. Bởi vậy Lưu Xoa mới mong gặp lại A Lương. Vốn tưởng sẽ gặp nhau ở Hạo Nhiên Thiên Hạ, ai ngờ hán tử này lại phá liền cấm chế của hai tòa đại thiên hạ, trở thẳng về Kiếm Khí Trường Thành.
 
-Hai người lần lượt lấy tốc độ nhanh hơn đưa ra kiếm thứ hai, A Lương từ biển mây bên kia nghiêng xuống đất, Lưu Xoa hiện thân trên mặt đất.
+A Lương đưa tay, từ xa gọi một thanh trường kiếm kiểu Kiếm Phường từ chiến trường phía bắc dòng sông vàng tới. Cầm kiếm trong tay, hắn ước lượng sức nặng, thấy hơi nhẹ, bèn thở dài. Đến Kiếm Phường cũng buộc phải bớt xén vật liệu, đủ thấy trận này đánh thảm liệt đến mức nào.
 
-Đều là một đường thẳng đi cùng một kiếm đưa ra.
+Lưu Xoa vừa gặp đã bổ một đao ngay trước mặt hắn, thật chẳng nói đạo nghĩa giang hồ gì cả.
 
-Lúc này đây thân hình song phương rút lui xa hơn.
+A Lương bèn trả hán tử râu quai nón một kiếm.
 
-A Lương thế mà trực tiếp bị một kiếm đánh lui đến biển mây chỗ cao nhất Kiếm Khí Trường Thành, giũ ra một đóa hoa kiếm, tùy ý đánh tan kiếm ý còn sót lại trên thân Lưu Xoa, cười nói với lão đạo nhân tọa trấn màn trời kia: "Ông bạn già, hai mươi năm không gặp, những tiểu nha đầu Kiếm Khí Trường Thành chúng ta năm xưa treo nước mũi, đều là từng đại cô nương trưởng thành như hoa như ngọc nhỉ? Có biết các nàng còn có một A Lương thúc thúc xa nhà hay không?"
+Hai người đổi nhau một kiếm. A Lương lùi thẳng vào trong mây. Cả biển mây trên Kiếm Khí Trường Thành bị khuấy nát, tựa như bị xé ra rồi văng đi khắp hướng. Hắn dời một chân ra sau, đạp mạnh vào khoảng không, thân hình mới dừng lại.
 
-Lão đạo sĩ kéo lấy đuôi đuôi của mình, đổi một cánh tay khác, nắm lấy cây phất bị hao tổn nghiêm trọng, mặt mỉm cười, dùng tiếng địa phương Thanh Minh Thiên Hạ mắng một câu.
+Lưng Lưu Xoa đâm vỡ mặt đất. Hắn lún sâu vào lòng đất, không còn thấy bóng dáng đâu, chỉ nghe bên dưới liên tiếp nổi lên tiếng sấm trầm đục.
 
-Sau một phen hàn huyên khách sáo "đạo sổ chu đáo" của hai bên, A Lương liền chợt lóe rồi biến mất.
+Kiếm thứ hai của cả hai còn nhanh hơn kiếm trước. A Lương từ biển mây lao xiên xuống, Lưu Xoa lại hiện thân trên mặt đất. Cả hai cùng lao tới theo một đường thẳng, mỗi người đưa ra một kiếm.
 
-Cả tòa biển mây bị kiếm ý kéo theo, theo đó kịch liệt đung đưa, Thánh Nhân Đạo Môn ngồi xếp bằng có chút bất đắc dĩ, vươn một tay, nhẹ nhàng đè lại biển mây, lúc này biển mây mới ngừng chấn động cuồn cuộn.
+Lần này hai người văng ra xa hơn.
 
-A Lương giơ cánh tay lên cao cao, như đứa trẻ chưa từng học kiếm, vung kiếm chém một phát mà thôi.
+A Lương bị một kiếm đánh lui tới tầng biển mây cao nhất trên Kiếm Khí Trường Thành. Hắn vẩy mũi kiếm, nở ra một đóa hoa kiếm, tiện tay đánh tan kiếm ý Lưu Xoa còn vương lại trên người rồi cười nói với lão đạo nhân trấn giữ màn trời:
 
-Đánh cho Lưu Xoa cả người lẫn kiếm lần nữa biến mất thân hình, lui vào sâu trong lòng đất.
+“Lão bằng hữu, hai mươi năm chẳng gặp. Mấy nha đầu nước mũi lòng thòng bên Kiếm Khí Trường Thành của chúng ta năm xưa, bây giờ chắc đã lớn thành các cô nương xinh như hoa cả rồi nhỉ? Chẳng biết các nàng còn nhớ có một A Lương thúc thúc đi xa nhà không?”
 
-A Lương một lần này lại nửa bước không lui, chỉ là trường kiếm trong tay cũng vỡ nát tiêu tán.
+Lão đạo sĩ kéo lại đuôi cây phất trần [?], đổi sang tay kia cầm cây phất trần đã hư hại nặng, mỉm cười dùng tiếng địa phương Thanh Minh Thiên Hạ mà mắng một câu.
 
-Loại chiến trường này, dù cho chỉ có hai người giằng co.
+Hai bên hàn huyên, “lễ số chu toàn”, xong thì bóng A Lương lóe lên rồi biến mất.
 
-Vẫn như cũ ai cũng không muốn tới gần.
+Cả biển mây bị kiếm ý kéo theo, chao đảo dữ dội. Vị thánh nhân Đạo môn ngồi xếp bằng hơi bất đắc dĩ, vươn một tay nhẹ nhàng ấn xuống. Biển mây cuồn cuộn lúc ấy mới chịu yên.
 
-Trừ phi lão giả áo xám đứng ngoài Giáp Tử trướng quan chiến kia ra lệnh một tiếng, để mấy vị đại yêu vương tọa triển khai vây giết nam nhân kia.
+A Lương giơ tay lên cao, tựa như một đứa trẻ chưa từng học kiếm, cứ thế vung kiếm chém xuống.
 
-Chỉ là lão giả áo xám lại chỉ thờ ơ lạnh nhạt.
+Lưu Xoa cả người lẫn kiếm lại bị đánh sâu vào lòng đất, mất hút. Lần này A Lương không lùi nửa bước, chỉ có thanh trường kiếm trong tay vỡ nát rồi tiêu tan.
 
-Một ít đại yêu Vương Tọa vốn đang rục rịch, liền tự bỏ đi ý niệm ra tay trước.
+Trên chiến trường như thế, dù chỉ có hai người đối đầu, vẫn chẳng ai muốn tới gần.
 
-Dù sao Lưu Xoa kia còn chưa xuất toàn lực.
+Trừ phi lão nhân áo xám đang đứng quan chiến ngoài Giáp Tử trướng lên tiếng, lệnh cho mấy vị đại yêu vương tọa vây giết hán tử kia. Nhưng lão chỉ dửng dưng đứng nhìn. Mấy vị đại yêu vương tọa vốn đã rục rịch cũng tự bỏ ý định ra tay trước.
 
-Hai tay A Lương không có kiếm đều tự bấm tay niệm thần chú, trên chiến trường, hai dòng lũ kiếm khí điên cuồng ùa vào phương vị Lưu Xoa lui lại, phân biệt ẩn chứa kiếm khí trường hà cùng kiếm đạo chân ý Man Hoang thiên hạ, hùng hậu vô cùng, hai đạo kiếm khí, tựa như hai con giao long đi sông, lao vào phía dưới.
+Dù sao Lưu Xoa vẫn chưa dùng hết sức.
 
-Mặt đất trong phạm vi trăm dặm ầm ầm sụp đổ.
+A Lương không còn kiếm trong tay, hai tay cùng bấm quyết. Trên chiến trường, hai dòng kiếm khí cuồn cuộn đổ về phía Lưu Xoa vừa lui xuống. Một dòng mang khí tức của dòng sông kiếm khí, dòng kia chứa kiếm đạo chân ý của Man Hoang Thiên Hạ. Cả hai hùng hậu vô cùng, tựa như hai con giao long xuôi sông, cùng lao xuống dưới.
 
-A Lương vốn cách mặt đất chỉ mấy trượng, đã biến thành treo ở trời cao.
+Mặt đất trong vòng trăm dặm ầm ầm sụp đổ. A Lương vốn chỉ cách đất vài trượng, thoắt cái đã thành treo mình trên cao.
 
-Yêu tộc thượng ngũ cảnh đều quan sát mà đi.
+Đám yêu tộc thượng ngũ cảnh đều đưa mắt nhìn xuống.
 
-Lưu Xoa đứng ở trên "Đại địa" thấp hơn chiến trường trăm trượng, một tay chắp sau lưng, một tay hai ngón tay bấm quyết, hán tử râu quai nón lập tức trong tay cũng không cầm kiếm, trước người lại có bội kiếm hiển hóa ra một cái khay ngọc trắng như tuyết, mỏng manh trong suốt, ánh sáng rực rỡ phun ra, như một vầng trăng sáng nhân gian dần dần dâng lên, chặn ngân hà trên trời hai luồng kiếm khí hồng lưu kia.
+Lưu Xoa đứng trên mặt “đất” thấp hơn chiến trường cả trăm trượng. Hắn chắp một tay sau lưng, hai ngón tay kia bấm quyết. Kiếm đã rời tay, hóa thành một đĩa ngọc trắng như tuyết ngay trước mặt, mỏng đến trong suốt. Ánh sáng rực rỡ tuôn ra, tựa vầng trăng nhân gian dần dâng lên, đón lấy hai dòng kiếm khí như ngân hà từ trên trời đổ xuống.
 
-Hai đạo kiếm khí thác nước trút xuống, đụng vào trên vầng trăng tròn trắng muốt kia.
+Hai thác kiếm khí đâm sầm vào vầng trăng tròn trắng muốt. Dưới đất, sau lưng Lưu Xoa, đất đá dưới chân núi vẫn không ngừng nứt vỡ.
 
-Sau lưng Lưu Xoa dưới mặt đất, đất đai trên chân núi vẫn đang không ngừng nứt vỡ.
+Kiếm khí tỏa ra bốn phía. Nhiều địa tiên yêu tộc cảnh giới chưa cao ở ngoài xa dùng thần thông chưởng quan sơn hà nhìn vào, chỉ chốc lát đã thấy hai mắt đau nhói, tựa người phàm nhìn thẳng mặt trời. Bọn chúng đành thu thần thông lại, chẳng dám nhìn thêm vào tòa “tiểu thiên địa” mà hai người vừa đánh ra.
 
-Kiếm khí tứ tán, rất nhiều tu sĩ Yêu tộc Địa tiên cảnh giới không cao ở xa xa, lấy chưởng quan sơn hà thần thông nhìn một lát, liền cảm thấy hai mắt đau đớn, như phàm phu tục tử nhìn thẳng ánh nắng, chỉ đành thu hồi thần thông, không dám tiếp tục nhìn chăm chú "Tiểu thiên địa" bị song phương cứng rắn đánh ra nữa.
+Lưu Xoa mặc áo gai vải thô, hai tay áo bay phần phật. Hán tử râu quai nón ngẩng đầu nói:
 
-Lưu Xoa mặc một bộ áo gai vải thô, ống tay áo phiêu đãng bay phất phới, hán tử râu quai nón ngửa đầu nói: "Đi thiên ngoại thiên, đánh giết chút hóa ngoại thiên ma, kết quả chỉ là như vậy? Hay là đạo lão nhị kia, đạo pháp không cao, hữu danh vô thực?"
+“Lên thiên ngoại thiên giết mấy con hóa ngoại thiên ma, rốt cuộc chỉ được có thế thôi à? Hay là Đạo Lão Nhị kia đạo pháp chẳng cao, chỉ được cái danh?”
 
-A Lương cười nói: "Là bằng hữu mới nói với ngươi câu thật lòng, ngươi nếu thật cảm thấy như vậy, như vậy ngươi sẽ chết."
+A Lương cười nói:
 
-Lưu Xoa lắc đầu, thu hồi thanh kiếm kia, sau khi cầm kiếm trong tay, tùy ý để hai đạo kiếm khí như nước lũ đánh về phía mình.
+“Là bằng hữu ta mới nói thật. Ngươi mà thật sự nghĩ như vậy thì sẽ chết đấy.”
 
-Hán tử râu quai nón không tụ lực nữa, bắt đầu tận lực thu liễm kiếm khí.
+Lưu Xoa lắc đầu, thu kiếm về tay rồi mặc cho hai dòng kiếm khí xông thẳng tới. Hắn thôi tụ lực, bắt đầu thu kiếm khí của mình lại hết mức.
 
-Vững như bàn thạch, mặc cho kiếm khí của ngươi như hồng thủy, kiếm đạo của bản thân Lưu Xoa, lại là núi cao nguy nga, hai dòng kiếm khí mênh mông cuồn cuộn, sau khi kích động va chạm với thể phách Lưu Xoa, tự đi vòng qua, kích khởi bọt sóng kiếm khí cao mấy chục trượng.
+Kiếm đạo của Lưu Xoa vững tựa núi cao. Mặc cho hai dòng kiếm khí cuồn cuộn như nước lũ đập vào thân thể hắn, rốt cuộc chúng vẫn phải vòng sang hai bên, bắn lên từng đợt sóng kiếm khí cao mấy chục trượng.
 
-Chỉ là hoặc nghe nói, hoặc chính mắt chứng kiến qua rất nhiều kiếm khí trái phải, có một không hai mấy tòa thiên hạ, sau khi rèn luyện ở Kiếm Khí Trường Thành, thậm chí đã có thể mang kiếm ý thuần túy của bản thân ngưng tụ thành thực chất.
+Kiếm khí của Tả Hữu, dù từng nghe kể hay tận mắt trông thấy, cũng biết là độc nhất trong mấy tòa thiên hạ. Qua một phen rèn luyện ở Kiếm Khí Trường Thành, hắn thậm chí đã có thể ngưng kiếm ý thuần túy của mình thành thực chất.
 
-Nhưng Lưu Xoa lúc này lại lấy kiếm đạo ngưng tụ thành chân thân.
+Còn Lưu Xoa lúc này lại ngưng cả kiếm đạo thành chân thân.
 
-A Lương cười cười.
+A Lương mỉm cười.
 
-Sau đó giữa hắn và hán tử râu quai nón xuất hiện một dòng sông thời gian hư vô mờ mịt nhất thế gian, sau khi nó hiện thế, toả sáng ra màu sắc sáng rọi lưu ly.
+Giữa hắn và hán tử râu quai nón bỗng hiện ra thứ hư vô mờ mịt nhất thế gian, một dòng sông thời gian. Vừa hiện thế, cả dòng sông đã tỏa ánh lưu ly rực rỡ.
 
-Cả dòng sông dài như một thanh phi kiếm khổng lồ, vặn chuyển, cuốn lấy Lưu Xoa, giống như tự dưng đặt mình vào trong vỏ kiếm của người khác, người khác lại tra kiếm vào vỏ.
+Dòng sông dài tựa một thanh phi kiếm khổng lồ, xoay mình cuốn lấy Lưu Xoa. Hắn như bỗng dưng đứng trong vỏ kiếm của người khác, mà người ấy lại đang tra kiếm vào vỏ.
 
-Dòng sông thời gian vốn phù hợp nhất với thiên địa đại đạo, không biết sau khi bị A Lương kéo ra như thế nào, bắt đầu bị đại đạo của Man Hoang thiên hạ bài xích, khiến quanh dòng sông thời gian xuất hiện khí tượng áp thắng vô số đại đạo chân ý, chỗ giáp giới của hai bên, không ngừng có dòng sông thời gian bảy màu lưu ly như băng vụn vỡ nát, nhưng cả dòng sông thời gian tuy bị đè ép, lại càng ngày càng chắc chắn chặt chẽ, như trong thiên địa bỗng nhiên xuất hiện một thanh trường kiếm lấy Lưu Ly Kim Thân Phi Thăng cảnh chế tạo mà thành.
+Dòng sông thời gian vốn phù hợp với đại đạo trời đất hơn cả. Chẳng biết A Lương dùng cách nào kéo nó ra, khiến đại đạo Man Hoang Thiên Hạ bắt đầu bài xích nó. Vô số đại đạo chân ý từ bốn phía đè xuống. Ven rìa dòng sông, ánh lưu ly bảy sắc không ngừng vỡ ra như băng vụn. Thế nhưng càng bị ép, cả dòng sông lại càng rắn chắc, tựa như giữa trời đất vừa có thêm một thanh trường kiếm đúc bằng lưu ly kim thân của tu sĩ Phi Thăng cảnh.
 
-Lão giả áo xám tán thưởng một tiếng, "Thủ đoạn tốt."
+Lão nhân áo xám buông một tiếng khen:
 
-Ở nơi nào đó quân trướng, người đọc sách một lòng chỉ dạy đệ tử sách thánh hiền, hai tai không nghe chuyện ngoài cửa sổ, cũng ngẩng đầu, cẩn thận xem xét chiến trường nơi xa.
+“Thủ đoạn hay.”
 
-A Lương ngẩng đầu lên.
+Trong một tòa quân trướng nào đó, người đọc sách vốn chỉ một lòng dạy đệ tử sách thánh hiền, hai tai chẳng nghe chuyện ngoài cửa sổ, cũng ngẩng đầu chăm chú nhìn chiến trường đằng xa.
 
-Chân thân tạm thời bị giam giữ, kiếm đạo dần dần bị hao mòn, Lưu Xoa đương nhiên sẽ không đơn giản như vậy mà khoanh tay chịu chết.
+A Lương ngẩng đầu.
 
-Một pháp tướng sừng sững ở trong thiên địa, chỉ có nửa thân thể hiển lộ ra đại địa, lấy tư thế hai tay cầm kiếm, hạ xuống, mũi kiếm chỉ thẳng A Lương, nháy mắt đã tới trước mặt.
+Chân thân tạm thời bị giam giữ, kiếm đạo lại đang dần bị mài mòn. Lưu Xoa đương nhiên chẳng chịu khoanh tay chờ chết.
 
-Tại di chỉ quân trướng lúc trước, cũng xuất hiện một Lưu Xoa, hai ngón khép lại, lấy kiếm ý ngưng tụ ra một thanh trường kiếm.
+Một pháp tướng sừng sững giữa trời đất, chỉ nửa người nhô lên khỏi mặt đất. Pháp tướng cầm kiếm bằng hai tay, chúc mũi kiếm thẳng về phía A Lương, trong nháy mắt đã tới trước mặt hắn.
 
-Sớm nhất A Lương từng mĩm cười nói, cao thủ như Lưu Xoa, mình đánh không được mấy người.
+Ở chỗ tòa quân trướng ban nãy, lại có thêm một Lưu Xoa. Hắn khép hai ngón tay, ngưng kiếm ý thành một thanh trường kiếm.
 
-Nhưng kiếm đạo chân thân, ngoài thân Dương Thần cộng thêm một Lưu Xoa Âm Thần đi xa, chia ra làm ba, rốt cuộc không bằng ba Lưu Xoa đỉnh phong.
+Ban đầu A Lương từng cười nói, cao thủ như Lưu Xoa thì hắn đánh chẳng nổi mấy người. Thế nhưng chân thân ngưng bằng kiếm đạo, thân ngoại thân Dương Thần và Âm Thần đi xa, gộp lại cũng chẳng thể bằng ba Lưu Xoa ở thời đỉnh phong.
 
-A Lương chưa bao giờ đánh chỉ có thể chịu đòn.
+Xưa nay A Lương đánh nhau chưa từng chỉ có nước chịu đòn. Kể cả khi đối thủ là Đổng Tam Canh của Kiếm Khí Trường Thành, Lưu Xoa của Man Hoang Thiên Hạ ngay trước mắt, hay cái tên vô địch mặt dày chẳng biết xấu hổ ở Thanh Minh Thiên Hạ.
 
-Cho dù là trong đối thủ đánh nhau, có Đổng Tam Canh Kiếm Khí Trường Thành, cũng có vị Lưu Xoa trước mắt của Man Hoang Thiên Hạ này. Còn có tên thối không biết xấu hổ vô địch kia của Thanh Minh Thiên Hạ.
+Ngay sau đó, sau lưng pháp tướng Lưu Xoa xuất hiện một pháp tướng cao đến mức có thể gọi là đầu đội trời, chân đạp đất. Pháp tướng ấy đưa một tay đè đầu đối phương, nện thẳng xuống đất.
 
-Trong nháy mắt tiếp theo.
+Trước khi rời Kiếm Khí Trường Thành, A Lương vẫn muốn nói cho Lưu Xoa một chuyện. Có thanh kiếm vừa tay hay không đương nhiên cũng quan trọng đôi chút. Chỉ cần đối thủ cũng chẳng có được một thanh trong số những thanh tiên kiếm kia, vậy thì chuyện này chẳng quan trọng lắm.
 
-Một pháp tướng khoa trương có thể xưng là đỉnh thiên lập địa xuất hiện ở sau lưng pháp tướng Lưu Xoa, một tay đè đầu người sau, mang đầu đập vào đại địa.
+Trước kia hai người gặp nhau ngoài chiến trường, A Lương là bằng hữu của Lưu Xoa, bởi vậy hắn ngại nói ra.
 
-Trước khi rời khỏi Kiếm Khí Trường Thành, A Lương vẫn muốn nói cho Lưu Xoa, mình có kiếm tiện tay hay không, có chút quan hệ, nhưng chỉ cần đối thủ cũng không có một trong những tiên kiếm, vậy thì quan hệ không lớn.
+Ăn nói thẳng quá, dễ chẳng còn bằng hữu.
 
-Trước kia không ở chiến trường gặp nhau, là bạn của Lưu Xoa, cho nên A Lương ngại ngùng nói cái này.
+Cũng lúc ấy, “A Lương” một tay ghì chặt đầu pháp tướng Lưu Xoa, tay kia cầm kiếm chém xuống. Trên đường kiếm đi qua, vừa khéo có tám tòa quân trướng.
 
-Ngôn ngữ quá ngay thẳng, dễ dàng không có bằng hữu.
+Ba vị đại yêu vương tọa là Bạch Oánh, lão nhân vác trường côn và thần nhân mặc giáp vàng lần lượt ra tay cản một kiếm ấy.
 
-Đồng thời, "A Lương" một tay đè lại đầu Lưu Xoa pháp tướng kia, một tay khác cầm kiếm, chém xuống một cái, trên một đường, vừa vặn tồn tại tám tòa quân trướng.
+A Lương cợt nhả nói:
 
-Ba vị đại yêu Vương Tọa, Bạch Oánh, lão giả khiêng trường côn, thần nhân mặc giáp vàng, lần lượt ra tay ngăn cản một kiếm kia.
+“Chuồn đây.”
 
-A Lương cợt nhả nói: "Chạy rồi."
+Dòng sông thời gian bị hắn ngưng thành trường kiếm bỗng vỡ ra.
 
-Dòng sông thời gian bị A Lương ngưng tụ thành một thanh trường kiếm kia vỡ ra.
+Từ chỗ thân ngoại thân của Lưu Xoa, một đạo kiếm quang ầm ầm lao về phía Kiếm Khí Trường Thành, đến cả dòng sông vàng cũng bị một kiếm xuyên thủng.
 
-Chỗ ngoại thân Lưu Xoa, một đạo kiếm quang ù ù cạc cạc lao về phía tường thành Kiếm Khí Trường Thành.
+Kiếm quang tan đi, có người áp sát mặt thành, chậm rãi trượt xuống.
 
-Ngay cả dòng sông màu vàng kia cũng bị một kiếm xuyên thủng.
+Lão nhân áo xám đi tới chỗ chân thân Lưu Xoa, liếc thấy khóe miệng hán tử râu quai nón rỉ ra một tia máu, bèn cười nói:
 
-Sau khi kiếm quang tiêu tán, có người ghé vào trên tường thành, chậm rãi trượt xuống.
+“Bởi vậy mới bảo, lần sau xuất kiếm thì đừng ngập ngừng.”
 
-Lão giả áo xám đi tới chân thân Lưu Xoa bên kia, liếc hán tử râu quai nón khóe miệng chảy ra tơ máu, cười nói: "Cho nên nói lần sau xuất kiếm, đừng nhăn nhó."
+Lưu Xoa gật đầu.
 
-Lưu Xoa gật gật đầu.
+Âm Thần hóa thành pháp tướng xuất khiếu đi xa và thân ngoại thân Dương Thần vừa trả lại cho A Lương một kiếm, cả hai đều là của cùng một người.
 
-Âm Thần pháp tướng xuất khiếu đi xa, cùng dương thần thân ngoại thân trả lại một kiếm kia của A Lương, đều thuộc về một người.
+Còn hán tử được một kiếm “đưa” về tường thành kia, vừa khéo bắt đầu trượt từ chữ “Mãnh”, một đường xuống đất. Giữa chừng hắn còn lén nhổ một ngụm nước bọt vào lòng bàn tay, nghiêng đầu sang trái rồi sang phải, cẩn thận vuốt tóc, sửa lại tóc mai. Đánh nhau với người ta cũng phải có cái để theo đuổi chứ. Theo đuổi gì à? Đương nhiên là phong thái rồi.
 
-Mà hán tử bị một kiếm "đưa đến" trên tường thành kia, khởi đầu vừa vặn là ở trên chữ "Mãnh" kia, một đường trượt xuống đất, trong lúc đó không quên vụng trộm nhổ ngụm nước miếng ở lòng bàn tay, đầu chuyển động trái phải, thật cẩn thận v**t v* tóc tai cùng thái dương, đánh nhau với người ta, có theo đuổi, theo đuổi cái gì? Tự nhiên là phong thái.
+Hắn nhớ bên Đảo Huyền sơn hình như có một cô nương nhỏ bán rượu ở Hoàng Lương phúc địa. Năm đó nàng nói thế nào nhỉ? Hình như vừa trông thấy dung nhan hắn, trong lòng nàng bỗng nhảy ra một con nai con, co chân chạy loạn khắp nơi.
 
-Nhớ rõ Đảo Huyền sơn bên kia, hình như có một tiểu cô nương bán rượu ở Hoàng Lương Phúc Địa, năm đó nàng nói như thế nào, tựa như là sau khi nói nhìn thấy dung nhan hắn, tựa như trong lòng bỗng nhiên thoát ra một con nai con, ở trên con đường tâm lộ của nàng nhanh chân chạy loạn.
+Lời thật lòng như thế, hắn có thể nhận. Còn lòng ái mộ của các cô nương thì thôi vậy.
 
-Những lời tâm huyết này, có thể nhận lấy, về phần tình cảm các cô nương ái mộ, coi như xong.
+Đến một góc của chữ lớn ấy, hán tử bỗng dừng giữa không trung, bước tới một bước, cười gọi một lão kiếm tu đang nhìn mình với vẻ mặt cổ quái:
 
-Nam nhân ở một góc nào đó của chữ to đó, đột nhiên huyền đình thân hình, bước về phía trước một bước, hắn cười hô với một lão kiếm tu vẻ mặt cổ quái: "Đây không phải Ân lão ca chúng ta sao, nhìn cái gì chứ? Nhìn thêm vài lần, có thể tăng mấy cảnh giới?"
+“Đây chẳng phải Ân lão ca của chúng ta sao? Nhìn gì thế? Nhìn thêm vài lần thì lên được mấy cảnh giới?”
 
-Một bàn tay đánh vào trên bờ vai nẳm lão kiếm tu Nguyên Anh, hán tử thầm oán nói: "Ân lão ca, thật không phải lão đệ nói ngươi a, mấy năm nay thừa dịp ta không có ở đây, chỉ lo nhìn tiểu cô nương thôi sao? Bằng không sao còn không có lên ngũ cảnh?"
+Hắn vỗ một cái lên vai lão kiếm tu Nguyên Anh cảnh, giọng đầy oán trách:
 
-Đầu vai lệch một cái, một trận đau đớn, đối phương ra tay không chút khách khí, Ân Trầm lấy khó giao tiếp với Kiếm Khí Trường Thành vẫn mặt căng cứng, chết sống không nói lời nào.
+“Ân lão ca, lão đệ chẳng muốn nói ngươi đâu. Có phải mấy năm ta đi vắng, ngươi chỉ mải ngắm các cô nương không? Bằng không sao vẫn chưa lên được thượng ngũ cảnh?”
 
-Hai tay A Lương vỗ mạnh lên má lão kiếm tu, trừng to mắt, dùng sức lắc, vội vàng hỏi: "Ân lão ca, Ân lão ca, ta là ai cũng không thể nhận ra? Có phải ngươi ngốc rồi hay không..."
+Cái vỗ vai chẳng chút khách khí, khiến vai Ân Trầm lệch hẳn sang một bên, đau điếng. Ân Trầm vốn nổi tiếng khó gần ở Kiếm Khí Trường Thành, lúc này vẫn căng mặt, sống chết không nói tiếng nào.
 
-Ân Trầm bất đắc dĩ nói: "Biết, ta chỉ là nhất thời nửa khắc, tâm tình quá kích động, nói không ra lời."
+A Lương vỗ hai tay lên má lão kiếm tu, trừng mắt, lắc mạnh đầu lão, cuống quýt hỏi:
 
-A Lương buông tay, thu liễm ý cười, nói: "Cuối cùng còn thừa lại mấy gương mặt quen thuộc, trách ta, trách ta tới muộn. Luôn như vậy, từng đi ngang qua bỏ lỡ."
+“Ân lão ca, Ân lão ca, đến ta là ai ngươi cũng chẳng nhận ra ư? Ngươi ngẩn người rồi đấy à…”
 
-Ân Trầm trong lòng biết không ổn, quả nhiên ngay sau đó đã bị A Lương siết cổ, bị tên vương bát đản này kẹt ở dưới nách, giãy thoát không ra, còn phải chịu những lời nói nước bọt kia, "Ân lão ca, vừa thấy ngươi vẫn là bộ dáng lão lưu manh, ta đau lòng."
+Ân Trầm bất đắc dĩ đáp:
 
-A Lương đột nhiên buông lão kiếm tu, một bước bước ra ngoài đầu tường, bay về phía đầu tường bên kia, cuối cùng tới bên cạnh lão đại kiếm tiên.
+“Ta nhận ra. Chỉ là nhất thời kích động quá, chẳng nói nên lời.”
 
-Trên đầu thành, Ngụy Tấn ôm quyền cười nói: "A Lương tiền bối."
+A Lương buông tay, thu lại ý cười.
 
-A Lương vỗ vỗ bả vai Ngụy Tấn, đau lòng nói: "Gặp cái gì, không phải vẫn là lưu manh sao."
+“Cuối cùng vẫn còn mấy gương mặt quen. Trách ta, trách ta về muộn. Lần nào cũng vậy, cứ đi ngang qua rồi bỏ lỡ.”
 
-A Lương ngồi xếp bằng, mặt hướng về phía nam, vẻ mặt hiếm khi nghiêm túc hẳn lên.
+Ân Trầm vừa thấy không ổn thì quả nhiên đã bị thằng khốn ấy kẹp cổ dưới nách, giãy mãi không ra. Lão còn phải nghe nó lải nhải ngay bên tai:
 
-Dù bị hắn quấy rối như vậy, bất quá chỉ là an bình chốc lát, trận kế tiếp vẫn là tiếp tục đánh, người vẫn là tiếp tục chết.
+“Ân lão ca, vừa gặp đã thấy ngươi vẫn cái dáng lão lưu manh ấy, ta đau lòng quá.”
 
-Trên chiến trường, vẫn chém giết như trước.
+A Lương đột nhiên buông lão kiếm tu ra, bước khỏi đầu tường, bay sang bên kia, tới chỗ lão đại kiếm tiên.
 
-Trần Thanh Đô đứng ở bên cạnh A Lương, cười hỏi: "Chẳng lẽ tòa Bạch Ngọc Kinh kia của Thanh Minh thiên hạ, không có mấy đạo cô mũ vàng bộ dạng đẹp, như vậy không giữ được người?"
+Trên đầu thành, Ngụy Tấn ôm quyền cười nói:
 
-A Lương chỉ chỉ biển mây đỉnh đầu, sau đó một tay chống cằm, nhìn ra xa chiến trường, một tay để ở ngực, yên lặng điều dưỡng khí tức, lời nói ngoài miệng lại không thành thật, "Có, sao lại không có, chỉ là ở dưới Bạch Ngọc Kinh lộ một mặt, chỉ là hai sư muội của lão bạn già kia ở Bạch Ngọc Kinh, xem ánh mắt ta muốn ăn thịt người, càng miễn bàn tiên tử của ả, hành tẩu thiên hạ, việc này là phiền lòng người nhất."
+“A Lương tiền bối.”
 
-Trần Thanh Đô cười ha ha.
+A Lương vỗ vai Ngụy Tấn, đau lòng nói:
 
-A Lương hỏi: "Tiểu tử đó thương thế như thế nào? Ta lúc ấy chỉ là xa xa liếc mắt, tương đối cổ quái, nhìn không rõ lắm."
+“Gặp gỡ gì chứ, chẳng phải vẫn là một tên lưu manh sao [?].”
 
-Trần Thanh thuận miệng nói: "Dù sao cũng cõng lại cho Trữ nha đầu, không chết được, loại chuyện nửa chết nửa sống này chỉ cần quen thói là được."
+Hắn ngồi xếp bằng, quay mặt về phía nam, vẻ mặt hiếm khi nghiêm túc hẳn lên.
 
-A Lương nói: "Rốt cuộc chỉ là người trẻ tuổi, hay là người từ bên ngoài đến, lão đại kiếm tiên thân là trưởng bối, ít nhiều che chở người ta một chút, tiểu tử này trừ thích Ninh nha đầu, thật ra căn bản không nợ Kiếm Khí Trường Thành cái gì. Ỷ lão bán lão, không phải thói quen tốt."
+Hắn có tới quấy rối một phen thì cũng chỉ đổi lấy chút yên ổn chốc lát. Trận sau vẫn phải đánh, người vẫn sẽ chết.
 
-Trần Thanh Đô cười nói: "Ngươi dạy ta cách làm người hay là dạy ta kiếm thuật?"
+Ngoài chiến trường, hai bên vẫn chém giết như trước.
 
-A Lương đứng lên, nhỏ giọng nói: "Ta là người không tốt nhất là làm thầy cho người ta, nhưng nếu lão đại kiếm tiên nhất định phải học, ta sẽ cố mà dạy một giáo."
+Trần Thanh Đô đứng cạnh A Lương, cười hỏi:
 
-Ngụy Tấn rất là bội phục.
+“Chẳng lẽ trên Bạch Ngọc Kinh của Thanh Minh Thiên Hạ chẳng có mấy đạo cô mũ vàng xinh đẹp, đến ngươi cũng chẳng giữ chân nổi?”
 
-Vô luận là lúc trước xuất kiếm, hay là ngôn ngữ lúc này, không hổ là A Lương tiền bối.
+A Lương chỉ lên biển mây trên đầu. Hắn chống cằm nhìn về phía chiến trường xa, tay kia đặt lên ngực, lặng lẽ điều hòa khí tức. Ngoài miệng vẫn chẳng chịu nói thật:
+
+“Có chứ, sao lại không. Ta chỉ ló mặt dưới Bạch Ngọc Kinh một lần, thế mà hai sư muội của lão bằng hữu kia nhìn ta như muốn ăn tươi nuốt sống, huống hồ các tiên tử khác [?]. Đi khắp thiên hạ, chuyện này phiền lòng nhất.”
+
+Trần Thanh Đô cười ha hả.
+
+A Lương hỏi:
+
+“Thằng nhóc ấy bị thương thế nào rồi? Ban nãy ta chỉ liếc qua từ xa, thấy có gì khá lạ, nhìn chẳng rõ lắm.”
+
+Trần Thanh Đô thuận miệng đáp:
+
+“Dù sao cũng đã được Ninh nha đầu cõng về, chết chẳng được. Chuyện sống dở chết dở ấy, quen rồi là được.”
+
+A Lương nói:
+
+“Dù sao hắn vẫn còn trẻ, lại là người từ nơi khác đến. Lão đại kiếm tiên là trưởng bối, ít nhiều cũng nên che chở người ta một chút. Thằng nhóc ấy ngoài chuyện thích Ninh nha đầu ra, vốn chẳng nợ Kiếm Khí Trường Thành cái gì. Cậy già lên mặt, thói quen ấy chẳng tốt đâu.”
+
+Trần Thanh Đô cười hỏi:
+
+“Ngươi đang dạy ta cách làm người hay dạy ta kiếm thuật?”
+
+A Lương đứng lên, nói khẽ:
+
+“Ta dở nhất là làm thầy người khác. Nhưng nếu lão đại kiếm tiên nhất định muốn học, ta cũng đành gắng gượng dạy một phen.”
+
+Ngụy Tấn rất bội phục. Từ một kiếm ban nãy đến mấy câu vừa rồi, quả nhiên đều không hổ là A Lương tiền bối.
 
 Lão nhân liếc xéo A Lương.
 
-Đầu tường chấn động, A Lương đã không ở tại chỗ, chuồn mất.
+Đầu tường chấn động. A Lương đã chuồn mất.
 
-Chỉ là phương hướng A Lương tiền bối chạy trốn, có phải sai rồi hay không?
+Có điều, A Lương tiền bối hình như chạy nhầm hướng rồi thì phải?
 
-Dù là Ngụy Tấn cũng trợn mắt há hốc mồm, nhịn không được hỏi: "Lão đại kiếm tiên, đây là?"
+Ngay cả Ngụy Tấn cũng ngẩn người, không nhịn được hỏi:
 
-Trần Thanh Đô nhìn Ngụy Tấn: "Nhìn không ra? Đánh nhau à."
+“Lão đại kiếm tiên, chuyện này là…”
 
-Ngụy Tấn không phản bác được.
+Trần Thanh Đô nhìn Ngụy Tấn:
 
-Trần Thanh Đô lại liếc đạo cầu vồng bắt đầu treo ở đầu tường, A Lương đi quá mức tấn mãnh, cười hỏi: "Năm đó hắn du lịch Bảo Bình châu, chưa từng nói với ngươi, hắn thích nhất bị một đám Phi Thăng cảnh vây đánh?"
+“Nhìn chẳng ra sao? Đi đánh nhau đấy.”
 
-Ngụy Tấn trầm mặc một lát, vẻ mặt cổ quái, "Năm đó A Lương cùng vãn bối nói, hắn ở Kiếm Khí Trường Thành kiếm tiên như mây kia, cũng tính là có thể đánh, dù sao khẳng định có thể xếp vào năm mươi hạng đầu, còn bảo ta ngàn vạn đừng cảm thấy hắn là đang thổi phồng, rất... nói chắc như đinh đóng cột."
+Ngụy Tấn cứng họng.
 
-Cho nên Ngụy Tấn ngay từ đầu còn tưởng gặp kẻ lừa gạt, nhưng may mà A Lương tiền bối lúc ấy giải thích cùng cảm ngộ về kiếm đạo, nhìn như nói hươu nói vượn, lại vừa vặn khiến Ngụy Tấn hưởng lợi lớn, hắn lúc này mới nhịn xuống không ra kiếm thử, ở sau đó, liền có cái gọi là ván bài nhỏ A Lương tiền bối kia, Ngụy Tấn thua mất hồ lô dưỡng kiếm kia, sau đó bắt đầu bế quan, quả nhiên thuận lợi chen thân thượng ngũ cảnh. Sau khi xuất quan, Ngụy Tấn tự nhiên mà vậy, tràn ngập lòng hướng tới đối với Kiếm Khí Trường Thành, muốn tận mắt nhìn một cái, tương đương có được năm mươi kiếm khí Trường Thành của A Lương tiền bối, rốt cuộc là chỗ như thế nào.
+A Lương đi quá nhanh, trên đầu tường lúc này mới hiện ra một vệt cầu vồng. Trần Thanh Đô liếc nhìn vệt sáng ấy, cười hỏi:
 
-Trần Thanh Đô đột nhiên nói: "Trừ luôn tự cho mình là kiếm khách, A Lương còn là một người đọc sách."
+“Năm đó hắn du lịch Bảo Bình Châu, chưa kể cho ngươi rằng hắn thích nhất là bị một đám Phi Thăng cảnh vây đánh à?”
 
-Nam nhân kia thân hình đi xa, trực tiếp lướt qua trường hà màu vàng kia, sau khi hắn rơi mạnh xuống đất, đại quân Yêu tộc xung quanh sau một chút kinh ngạc, lập tức lui tán như thủy triều, liều mạng chạy trốn, nhanh chân chạy như điên, ngự phong ngự kiếm, đều có.
+Ngụy Tấn im lặng một lúc, vẻ mặt cổ quái.
 
-Đồ chó hoang lại tới nữa rồi!
+“Năm đó A Lương tiền bối bảo với vãn bối, ở Kiếm Khí Trường Thành kiếm tiên nhiều như mây, hắn cũng xem như đánh được, chắc chắn xếp vào năm mươi hạng đầu. Hắn còn dặn ta chớ tưởng hắn khoác lác. Lúc nói cứ như đinh đóng cột vậy.”
 
-Nam nhân ngẩng cao đầu, hai tay vuốt tóc, tự hỏi tự đáp: "Còn có thể đẹp trai hơn sao? Không khoác lác, thật lòng không thể!"
+Bởi thế lúc đầu Ngụy Tấn còn tưởng mình gặp kẻ lừa gạt. May là những lời A Lương nói về kiếm đạo nghe qua tưởng như nói hươu nói vượn, lại vừa khéo giúp hắn được lợi rất nhiều. Lúc ấy Ngụy Tấn mới nhịn được, chẳng xuất kiếm thử sức.
 
-Trong lúc nói chuyện, lấy hắn làm tâm điểm, xuất hiện một vòi rồng lục địa, càng lúc càng lớn, cuối cùng che khuất bầu trời, là vô số kiếm ý ngưng tụ mà thành phi kiếm đang kết trận.
+Về sau có cái gọi là ván cược nhỏ của A Lương tiền bối. Ngụy Tấn thua mất hồ lô dưỡng kiếm, rồi bắt đầu bế quan, quả nhiên thuận lợi bước vào thượng ngũ cảnh. Sau khi xuất quan, hắn càng mong được tận mắt xem Kiếm Khí Trường Thành, nơi có đến năm mươi người đánh được như A Lương tiền bối [?], rốt cuộc là chốn thế nào.
 
-Kiếm trận hoàn toàn không chịu đại đạo Man Hoang thiên hạ áp thắng.
+Trần Thanh Đô đột nhiên nói:
 
-Sau khi rời xa Kiếm Khí Trường Thành, phi thăng đến thiên ngoại thiên, quyền giết hóa ngoại thiên ma vô số kể, còn muốn liều mạng với Đạo Lão Nhị, kiếm đạo vốn đã đăng đỉnh, cao hơn một tầng, có thể thông thiên.
+“A Lương vẫn thường tự nhận là kiếm khách. Hắn còn là một người đọc sách.”
+
+Hán tử kia đã đi xa, lướt thẳng qua dòng sông vàng. Hắn vừa đáp mạnh xuống đất, đại quân yêu tộc chung quanh hơi sửng sốt rồi lập tức rút đi như thủy triều. Kẻ co cẳng chạy, kẻ ngự gió, kẻ ngự kiếm, đứa nào cũng liều mạng tháo thân.
+
+Đồ chó hoang lại tới rồi!
+
+Hán tử ngẩng cao đầu, hai tay vuốt tóc, tự hỏi tự đáp:
+
+“Còn có thể tuấn tú hơn được nữa không? Chẳng khoác lác đâu, thật lòng là hết mức rồi!”
+
+Trong lúc hắn nói, một cơn lốc nổi lên từ chỗ hắn đứng, càng lúc càng lớn, cuối cùng che kín cả bầu trời. Đó là vô số phi kiếm ngưng từ kiếm ý đang kết trận.
+
+Kiếm trận ấy chẳng hề chịu đại đạo Man Hoang Thiên Hạ áp chế.
+
+Từ lúc rời Kiếm Khí Trường Thành, hắn phi thăng lên thiên ngoại thiên, lấy quyền đánh chết không biết bao nhiêu hóa ngoại thiên ma, còn định liều mạng với Đạo Lão Nhị. Kiếm đạo vốn đã tới đỉnh, nay bước thêm một tầng, có thể thông thiên.

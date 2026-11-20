@@ -1,233 +1,179 @@
 # Chương 723: Chim tước trong lồng
 
-Trần Bình An một đường một mình hướng nam đục trận, nơi đi đến, thuật pháp, linh khí trút xuống, rơi xuống từng đợt mưa to giàn giụa.
+Trần Bình An một mình đánh xuyên trận địa về phía nam. Hắn đi tới đâu, thuật pháp và linh khí trút xuống tới đó, hết trận mưa lớn này đến trận khác.
 
-Sau đó Trần Bình An rốt cuộc đụng phải một cọng rơm cứng, là một vị hán tử thấp bé mặc giáp xích đỏ tươi, đội một chiếc mũ tử kim cánh phượng, có hai cái lông chim dài, giống như trang phục hoa mỹ trên những sân khấu kịch phố phường của Hạo Nhiên Thiên Hạ.
+Rốt cuộc hắn cũng gặp phải một đối thủ khó nhằn. Đó là một hán tử thấp bé mặc giáp xích đỏ tươi, đầu đội mũ tử kim cánh phượng cắm hai chiếc lông chim dài. Bộ dạng ấy trông chẳng khác nào đào kép ăn vận lộng lẫy trên sân khấu phố phường Hạo Nhiên Thiên Hạ.
 
-Dám rêu rao khắp nơi như vậy trên chiến trường Kiếm Khí Trường Thành, trừ không sợ chết, khẳng định còn có tư cách không sợ chết, vị tu sĩ Yêu tộc này thân hình cực nhanh, gần như là Súc Địa Phù, trong nháy mắt đã từ vài dặm bên ngoài, đi tới bên cạnh Trần Bình An, một quyền trực tiếp phá vỡ quyền ý hùng hậu che chở quanh thân Trần Bình An, nện ở trên huyệt Thái Dương Trần Bình An, đánh cho Trần Bình An bay ngang đi mấy chục trượng.
+Dám phô trương như vậy trên chiến trường Kiếm Khí Trường Thành, vị tu sĩ Yêu tộc này hẳn có chỗ dựa để chẳng sợ chết. Thân pháp của hắn nhanh gần bằng Súc Địa Phù. Mới đó còn cách mấy dặm, chớp mắt đã tới bên cạnh Trần Bình An. Một quyền xuyên qua tầng quyền ý dày đặc hộ thân, nện thẳng vào huyệt thái dương, đánh văng Trần Bình An đi mấy chục trượng.
 
-Trần Bình An vỗ một chưởng xuống đất, phiêu nhiên xoay tròn, đứng dậy, người sau như bóng với hình, trao đổi một quyền với Trần Bình An.
+Trần Bình An vỗ một chưởng xuống đất, nhẹ nhàng xoay người đứng dậy. Hán tử kia đã bám theo như hình với bóng. Hai người lại đổi một quyền.
 
-Hai bên hầu như đồng thời trượt ra ngoài, ở trên mặt đất cày ra một khe rãnh không quá đầu gối, người sau run lên cổ tay phải vung ra nắm tay, hai ngón tay trái giật xuống một cái linh tử, mở miệng nói, thế mà lại là phương ngôn của Kiếm Khí Trường Thành, "Ngươi chính là ẩn quan mới? Võ phu viễn du cảnh? Nắm tay không nhẹ, khó trách có thể thua Tào Từ ba trận trước, lại thắng Úc Tầm Phu ba trận."
+Cả hai gần như cùng lúc trượt về sau, chân cày trên mặt đất một đường rãnh sâu chưa tới đầu gối. Hán tử lắc cổ tay phải, xòe nắm đấm, rồi dùng hai ngón tay trái kéo một chiếc lông trên mũ xuống. Vừa mở miệng, hắn đã cất giọng địa phương của Kiếm Khí Trường Thành: “Ngươi là Ẩn Quan mới? Võ phu Viễn Du cảnh? Nắm đấm cũng có sức đấy. Khó trách thua Tào Từ ba trận rồi lại thắng Úc Tầm Phu ba trận.”
 
-Hắn nâng tay phải lên, ý bảo đại quân Yêu tộc vây giết đều lui về phía sau, mang chiến trường tặng cho ẩn quan trẻ tuổi của mình cùng Kiếm Khí Trường Thành.
+Hắn giơ tay phải ra hiệu cho đại quân Yêu tộc đang vây giết lui hết về sau, nhường chỗ cho hắn và vị Ẩn Quan trẻ tuổi của Kiếm Khí Trường Thành.
 
-Trần Bình An vươn ngón tay cái, lau đi tơ máu khóe miệng, lại lấy lòng bàn tay day day huyệt Thái Dương ở một bên, lực đạo thực không nhỏ, đối thủ hẳn là vị Sơn Điên cảnh, cảnh giới võ phu Yêu tộc, dựa vào ưu thế thể phách cứng cỏi trời sinh, cho nên đều tương đối không giấy dán. Chỉ là võ phu cửu cảnh, thân mang võ vận, không nên chịu chết như vậy mới đúng, mặc cũng tốt, ra quyền cũng thế, đối thủ đều quá mức "không sao cả".
+Trần Bình An lấy ngón cái quệt vệt máu nơi khóe miệng, rồi dùng lòng bàn tay day huyệt thái dương. Quyền ấy quả thật rất nặng. Đối phương hẳn đã tới Sơn Điên cảnh. Võ phu Yêu tộc vốn có thể phách cứng cỏi, cảnh giới tu được cũng ít khi chỉ có cái danh. Có điều võ phu cửu cảnh mang võ vận trên người, lẽ nào lại chạy tới đây tìm chết? Từ cách ăn vận đến cách ra quyền, hán tử này dường như chẳng coi chuyện gì ra gì.
 
-Trần Bình An hiểu rất nhanh, khó mà nói chuyện với địch nhân trên chiến trường, "Ngươi là võ phu bát cảnh mạnh nhất Man Hoang thiên hạ? Muốn tìm cơ hội phá cảnh, đạt được võ vận?"
+Trần Bình An sớm nghĩ ra một khả năng. Hiếm khi gặp địch thủ chịu nói chuyện trên chiến trường, hắn bèn hỏi: “Ngươi là võ phu bát cảnh mạnh nhất Man Hoang Thiên Hạ? Muốn tìm cơ hội phá cảnh, thu lấy võ vận?”
 
-Hán tử dáng người thấp bé buông ra linh tử trong tay, ầm ầm búng lên, gật đầu cười nói: "Như thế nào? Ngươi ta hỏi quyền một hồi? Ta nếu nói không có ai nhúng vào, ngươi khẳng định không tin, ta nhắm chừng cũng không quản được một ít kiếm tu tử sĩ lén lén lút lút, không sao, chỉ cần ngươi gật đầu, trận võ phu này hỏi quyền, gây trở ngại ta ra quyền, ngay cả ngươi ở trong đều là kẻ địch của ta, cùng nhau giết."
+Hán tử buông tay, chiếc lông chim bật lên đánh phựt. Hắn cười gật đầu: “Thế nào, ngươi với ta vấn quyền một trận? Có bảo chẳng ai nhúng tay, ngươi cũng không tin. Ta e cũng chẳng quản nổi mấy tên kiếm tu tử sĩ lén lút kia. Chẳng sao. Ngươi cứ gật đầu, trận vấn quyền này hễ ai cản ta ra quyền thì đều là địch, kể cả ngươi. Ta giết hết một lượt.”
 
-Trần Bình An đưa một tay ra, chỉ chỉ Kiếm Khí Trường Thành bên kia, cười nói: "Trong thành trì, có vị tiền bối cửu cảnh dạy ta quyền pháp, ngươi có thể qua bên kia hỏi quyền."
+Trần Bình An chỉ về phía Kiếm Khí Trường Thành, cười nói: “Trong thành có một vị tiền bối cửu cảnh từng dạy ta quyền pháp. Ngươi có thể sang đó vấn quyền.”
 
-Hán tử thấp bé ánh mắt âm trầm, chính mình cực có thành ý, vị Ẩn Quan trẻ tuổi thanh danh hiển hách này, lại rất không hợp đạo a.
+Ánh mắt hán tử thấp bé tối sầm. Hắn đã tỏ đủ thành ý, vị Ẩn Quan trẻ tuổi danh tiếng lẫy lừng này lại chẳng biết điều chút nào.
 
-Trần Bình An nói: "Cuối cùng cùng ngươi tán gẫu vài câu, một vị võ phu, mặc kệ thua ai, cho dù hắn là Tào Từ, cũng chưa nói tới tuy bại mà vinh, thua chính là thua. Từ đó có thể thấy được, võ phu Viễn Du cảnh mạnh nhất Man hoang thiên hạ, không nói nắm tay cứng hay không cứng, chỉ nói võ phu khí phách lòng dạ, quả thật rất không ra làm sao. Nếu ngươi được hai chữ "mạnh nhất", chen thân cửu cảnh, đó chính là trò cười lớn."
+Trần Bình An nói: “Nói nốt với ngươi mấy câu. Võ phu thua dưới tay ai cũng vậy, dù người đó là Tào Từ thì thua vẫn là thua, chẳng có gì vẻ vang. Xem ra vị võ phu Viễn Du cảnh mạnh nhất Man Hoang Thiên Hạ, nắm đấm cứng đến đâu chưa biết, riêng khí phách và lòng dạ đã chẳng ra sao. Để ngươi mang hai chữ ‘mạnh nhất’ mà bước vào cửu cảnh thì đúng là chuyện cười lớn.”
 
-Song phương đối thoại, kỳ thật đều không có gì ý tứ.
+Mấy lời qua lại ấy vốn chẳng có gì đáng kể. Điều hai bên thật sự nhắm tới lớn hơn nhiều.
 
-Chỉ là đều tự mình tính kế cũng không nhỏ, hán tử thấp bé kia ra vẻ hào sảng, muốn đơn độc hỏi quyền Trần Bình An, nhưng mà muốn lấy Ẩn Quan trẻ tuổi làm đá kê chân võ đạo, một khi phá cảnh như vậy, trừ quà tặng võ vận thiên hạ man hoang, còn có thể cướp lấy một phần nội tình võ vận của Kiếm Khí Trường Thành.
+Hán tử làm ra vẻ hào sảng, muốn một mình vấn quyền với Trần Bình An, thật ra chỉ định lấy vị Ẩn Quan trẻ tuổi làm đá lót đường cho võ đạo của mình. Một khi phá cảnh, ngoài phần võ vận được Man Hoang Thiên Hạ ban cho, hắn còn có thể cướp lấy một phần võ vận tích tụ ở Kiếm Khí Trường Thành.
 
-Về phần Trần Bình An, đương nhiên là đang âm thầm tìm kiếm vị đệ nhất nhân của Man Hoang Thiên Hạ Bách Kiếm Tiên kia, lúc trước tam giáo thánh nhân hai lần tạo ra trường hà màu vàng, Trần Bình An ra khỏi thành chém giết, đều đã từng giao thủ với đối phương, giao thủ nhìn như điểm đến là dừng, đều chưa xuất toàn lực, nhưng mà chỗ nhỏ bé liên hoàn đan vào, ai dẫn đầu xuất hiện sơ hở ở phân đoạn nào đó, ai cũng chết, hơn nữa chết chắc chắn sẽ không khẳng khái tráng liệt như thế, sẽ chỉ làm kiếm tu cảnh giới không cao cảm thấy mạc danh kỳ diệu.
+Trần Bình An thì đang âm thầm tìm kẻ đứng đầu Bách Kiếm Tiên của Man Hoang Thiên Hạ. Hai lần trước, khi thánh nhân tam giáo dựng nên sông dài màu vàng, Trần Bình An đều ra khỏi thành chém giết và từng giao thủ với kẻ ấy. Bề ngoài tưởng chừng chỉ chạm tay rồi thôi, chưa ai dùng hết sức. Kỳ thực từng chỗ nhỏ nhặt đều móc nối với nhau, ai lộ sơ hở trước ở bất kỳ khâu nào đều phải chết. Cái chết ấy cũng chẳng có gì tráng liệt, kiếm tu cảnh giới thấp nhìn vào chỉ thấy khó hiểu.
 
-Gã lùn kia cũng không còn hứng thú lục đục với nhau nữa, dùng đôi giày nhẹ nhàng khều khều đất cát, "Đứng nói chuyện xong, để ta cho ngươi cơ hội nằm xuống nói chuyện. Đúng rồi, ta tên là Hầu Quỳ Môn."
+Gã lùn hết hứng đấu khẩu. Hắn lấy mũi giày khều nhẹ đất cát rồi nói: “Đứng nói đủ rồi, để ta cho ngươi nằm xuống nói tiếp. À phải, ta tên Hầu Quỳ Môn.”
 
-Trần Bình An một tay chắp sau lưng, hơi hơi quay đầu, vươn ngón tay, chỉ chỉ huyệt Thái Dương của mình, ý bảo có bản lãnh thì hướng bên này đánh thêm một quyền.
+Trần Bình An chắp một tay sau lưng, hơi nghiêng đầu, đưa ngón tay chỉ vào huyệt thái dương. Có bản lĩnh thì đấm thêm một quyền vào đây.
 
-Đột nhiên có một ý nghĩ, có thể thử xem sao.
+Hắn chợt nảy ra một ý, có lẽ đáng thử. Muốn thử thì trước hết phải để đối phương thử tay.
 
-Điều kiện tiên quyết để thử một chút, chính là trước tiên để cho đối phương thử xem.
+Hầu Quỳ Môn đương nhiên chẳng khách khí. Một quyền đánh bay người trẻ tuổi, hắn thoáng do dự rồi đứng yên nhìn, không thừa thế đuổi theo.
 
-Hầu Quỳ Môn đương nhiên sẽ không khách khí.
+Trần Bình An chẳng tránh, cũng chẳng đánh trả. Hắn giẫm một chân xuống đất để dừng lại, quay sang cười với Hầu Quỳ Môn, vẻ mặt có phần châm chọc.
 
-Hầu Quỳ Môn sau khi đánh ra một quyền, hơi do dự, không thừa thắng truy kích, chỉ đứng tại chỗ, nhìn người trẻ tuổi bị chính mình một quyền đánh bay ra ngoài kia.
+Vừa rồi Hầu Quỳ Môn sợ có bẫy nên đã giữ lại mấy phần sức. Vị Ẩn Quan trẻ tuổi dùng mưu kế đối phó với sáu mươi quân trướng, lẽ nào lại ngu ngốc đứng yên chờ bị đánh chết?
 
-Người trẻ tuổi căn bản không có tránh né càng không có hoàn thủ một cước đạp đất, ngừng thân hình, cười nhìn về phía Hầu Quỳ Môn, trong thần sắc có chút châm chọc.
+Đấm trúng rồi, hắn lại hơi hối hận. Nếu vừa rồi dốc hết sức thay vì đánh thăm dò, người trẻ tuổi kia liệu còn đứng nổi? Mà vì sao đối phương lại chịu hứng quyền ấy?
 
-Hầu Quỳ Môn vừa rồi lo lắng có bẫy, liền thu lực mấy phần.
+Trần Bình An chỉ vào ngực mình: “Thêm một quyền nữa.”
 
-Một ẩn quan trẻ tuổi dùng mưu tính để làm quân trướng sáu mươi, không đến mức đứng ngốc đến mức bị mình đánh chết mới đúng.
+Hầu Quỳ Môn giơ hai tay, mỗi bên dùng hai ngón kẹp lấy một chiếc lông chim. Bộ giáp xích đỏ tươi, mũ tử kim và hai chiếc lông sáng rực đều thuộc cùng một bộ trọng bảo của Binh gia thời thượng cổ. Sau khi luyện hóa, chúng mới mang hình dáng bây giờ.
 
-Cho nên sau khi một quyền thành công, liền có một tia hối hận, nếu một quyền này không phải thăm dò, mà là dốc sức đánh ra, người trẻ tuổi lúc này còn có thể đứng?
+Bộ trọng bảo tên Kiếm Lung, phẩm trật bán tiên binh, vừa dùng để công vừa dùng để thủ. Nó có thể nhốt phi kiếm của kiếm tiên trong chốc lát. Kiếm tiên không dùng được bản mạng phi kiếm mà để Hầu Quỳ Môn áp sát, vậy thì chỉ còn cách ngoan ngoãn so thể phách với hắn.
 
-Chỉ là vì sao đối phương lại chịu một quyền của mình?
+Hầu Quỳ Môn buông hai chiếc lông, thân hình chợt lóe, thoắt đã tới trước mặt vị võ phu cùng thế hệ cứ một lòng tìm chết kia. Hắn đánh ra một quyền, Ẩn Quan trẻ tuổi ngã văng ra xa.
 
-Trần Bình An chỉ chỉ vị trí ngực mình, "Thêm một quyền nữa."
+Trần Bình An đứng dậy, phun một ngụm máu, liếc Hầu Quỳ Môn rồi dùng tiếng quê ở trấn nhỏ mắng một câu mẹ nó.
 
-Hầu Quỳ Môn nâng hai tay lên, hai ngón tay phân biệt kẹp lấy linh tử, bộ giáp xích đỏ tươi, cùng với tử kim quan và hai cái linh tử rạng rỡ tỏa sáng, cũng không phải là đồ vật bình thường trên núi, mà là một bộ trọng bảo thượng cổ binh gia, chỉ bất quá sau khi luyện hóa đã thay đổi tướng mạo mà thôi. Bán tiên binh phẩm trật, công thủ kiêm cả mặt, tên là kiếm lung, có thể giam giữ phi kiếm Kiếm Tiên một lát, Kiếm Tiên không có bản mạng phi kiếm, một khi bị hắn tiếp cận, vậy sẽ ngoan ngoãn so đấu thể phách với Hầu Quỳ Môn hắn.
+Hắn vốn định mượn tay võ phu bát cảnh đỉnh phong này đánh vỡ bình cảnh thất cảnh. Ai ngờ Hầu Quỳ Môn ra cả hai quyền đều dè dặt. Trần Bình An từng nếm đủ sức nặng trong nắm đấm của Lý Nhị trên đỉnh Sư Tử ở Bắc Câu Lô Châu, nay hứng hai quyền này chẳng khác nào bị hai phụ nhân cào mặt, phí công vô ích.
 
-Hầu Quỳ Môn buông lỏng hai cây linh tử, thân hình lóe lên, đi tới trước người võ phu cùng thế hệ một lòng muốn chết kia, một quyền đưa ra, sau đó Ẩn Quan trẻ tuổi cả người ngã ở nơi xa.
+Ở Kiếm Khí Trường Thành bây giờ có một câu rất công bằng: xem Ẩn Quan trẻ tuổi đánh người hay xem hắn bị đánh, đằng nào cũng đẹp mắt.
 
-Trần Bình An đứng lên, nôn ra một ngụm máu, liếc Hầu Quỳ Môn, dùng tiếng địa phương trấn nhỏ quê nhà mắng một câu mẹ nó.
+Vẻ mặt Hầu Quỳ Môn có phần phức tạp.
 
-Vốn là tính để cho vị võ phu bát cảnh đỉnh phong này giúp mình đánh vỡ bình cảnh thất cảnh, nào ngờ Hầu Quỳ Môn này hai lần ra quyền, đều lề mề, điều này làm cho Trần Bình An ở đỉnh sư tử bắc Câu Lô châu quen nắm tay Lý Nhị phân lượng, quả thực giống như là bị hai phụ nhân cào mặt vô ích.
+Trần Bình An dùng nhã ngôn của Man Hoang Thiên Hạ hỏi: “Rốt cuộc ngươi muốn giết Ẩn Quan lập công hay muốn vấn quyền với một võ phu để phá cảnh?!”
 
-Hôm nay Kiếm Khí Trường Thành, truyền lưu một câu nói công đạo, nhìn ẩn quan trẻ tuổi đánh người, hoặc là nhìn hắn bị đánh, đều là chuyện cảnh đẹp ý vui.
+Hầu Quỳ Môn hít sâu một hơi, khẽ chạm hai nắm đấm vào nhau rồi trầm giọng nói: “Quyền cuối cùng. Ngươi không chết thì coi như ta thua. Trần Bình An, ta biết ngươi cũng có điều muốn cầu. Cứ xem quyền pháp của ai cao hơn! Quyền này, ngươi cứ đánh trả.”
 
-Thần sắc Hầu Quỳ Môn kia phức tạp.
+Trần Bình An khẽ nhíu mày.
 
-Trần Bình An lấy ngôn ngữ thanh nhã của Man Hoang thiên hạ hỏi: "Ngươi rốt cuộc là muốn giết Ẩn Quan lập công, hay là muốn cùng võ phu quyền phá cảnh?!"
+Quyền ý cuồn cuộn quanh thân Hầu Quỳ Môn thấp thoáng ngưng thành một thứ khí tượng tựa thánh nhân tọa trấn trong tiểu thiên địa. Năm xưa ở Thư Giản hồ, trong chuyến đi xa cùng Chương Yếp của đảo Thanh Hạp, Trần Bình An đã phát hiện mình có thể lờ mờ nhìn ra những dấu hiệu như thế.
 
-Hầu Quỳ Môn hít sâu một hơi, hai nắm tay nhẹ nhàng đánh lên, trầm giọng nói: "Một quyền cuối cùng, ngươi nếu không chết, cho dù ta thua. Trần Bình An, ta biết ngươi cũng có sở cầu, không sao hết, xem quyền pháp của ai cao hơn! Một quyền này, ngươi chỉ cần hoàn thủ."
+Trần Bình An khẽ giũ tay, hai ống tay áo từ từ mở ra.
 
-Trần Bình An nhíu nhíu mày.
+Chỉ trong nháy mắt, bụi đất quanh hai người bốc lên ngợp trời. Quyền ý mảnh và dày đan trong màn cát, bắn ra bốn phương tám hướng tựa ngàn vạn thanh phi kiếm nhỏ.
 
-Trong mơ hồ, quyền ý bàng bạc của Hầu Quỳ Môn ngưng tụ ra một phần khí tượng mơ hồ ở xung quanh hắn, tương tự như Thánh Nhân tọa trấn tiểu thiên địa.
+Sau một sát na, mặt đất chấn động, cát bụi tản ra. Hầu Quỳ Môn lấy một tay ghì chặt vết thương nơi cổ, máu tươi chảy qua kẽ ngón. Tay kia hắn vẫn nắm lại, mắt nhìn khắp bốn phía.
 
-Năm xưa ở Thư Giản hồ, lúc trước cùng Chương Sổ đảo Thanh Hạp đồng hành đi xa, Trần Bình An đã phát hiện mình có thể lờ mờ nhìn ra chút dấu hiệu.
+Cuối cùng hắn trông thấy vị Ẩn Quan trẻ tuổi đứng sau lưng một tu sĩ Yêu tộc. Trần Bình An dùng đoản đao trong tay trái đâm vào lưng tên kiếm tu tử sĩ ấy, rồi lấy thanh đoản đao bên tay phải khẽ cứa qua cổ đối phương.
 
-Trần Bình An run lên tay áo, hai tay áo nhẹ nhàng kéo ra.
+Hầu Quỳ Môn đã nói năng không rõ tiếng: “Trần Bình An, bản lĩnh làm Ẩn Quan của ngươi, ta đã tự mình lĩnh giáo. Còn với tư cách võ phu thuần túy, ngươi làm ta thất vọng. Quá thất vọng.”
 
-Trong nháy mắt.
+Thì ra vừa rồi Trần Bình An đã cứng rắn đỡ một quyền, đồng thời rút đao từ trong tay áo, đâm ngược lên cổ Hầu Quỳ Môn. Hắn còn lấy tay trái vỗ mạnh vào chuôi. May mà Hầu Quỳ Môn kịp giẫm đất vọt lên rồi lùi mấy bước. Chậm chút nữa, lưỡi đao đã xé nát môi lưỡi, mũi đao cũng đâm xuyên đầu ngay tại chỗ.
 
-Trên chiến trường chỗ Ẩn Quan trẻ tuổi và Hầu Quỳ Môn, bụi đất tung bay, che khuất bầu trời.
+Nếu đổi thành một võ phu thuần túy của Hạo Nhiên Thiên Hạ, thiếu thể phách cứng cỏi trời sinh của Yêu tộc, trúng vết thương nặng như vậy thì nửa chữ cũng chẳng nói nổi.
 
-Trong bão cát đầy trời xen lẫn quyền ý tinh mịn b*n r* bốn phương tám hướng, loạn như ngàn vạn tiểu phi kiếm bắn tung tóe.
+Trần Bình An khẽ đẩy thi thể tên kiếm tu trước mặt ra, tụ âm thành tuyến, mỉm cười truyền lời cho Hầu Quỳ Môn: “Trước sau ngươi ra ba quyền. Có quyền nào xứng với thân phận võ phu thuần túy? Ngay quyền đầu tiên mà đủ thuần túy, ta chẳng ngại đổi với ngươi ba quyền. Biết đâu cả hai đều phá cảnh. Đến lúc ấy, ai sống ai chết mới thật sự do quyền pháp cao thấp định đoạt.”
 
-Sau một sát na, đại địa chấn động, bão cát tứ tán, chỉ thấy Hầu Quỳ Môn một tay gắt gao che cổ, máu tươi từ giữa ngón tay chảy ra, một tay nắm lại, nhìn quanh bốn phía.
+Trần Bình An vừa hiện thân, quanh hắn lại tự nhiên trống ra một khoảng lớn. Vị Ẩn Quan trẻ tuổi cầm đoản đao cả hai tay, khẽ nới ngón tay rồi nắm lại. Hắn và Vu Lộc đều có thói quen nhỏ ấy.
 
-Cuối cùng Hầu Quỳ Môn thấy được phía sau một vị tu sĩ Yêu tộc, ẩn quan trẻ tuổi kia tay trái đoản đao đâm vào sau lưng kiếm tu tử sĩ, lại lấy tay phải đoản đao ở trên cổ nhẹ nhàng lau một cái.
+Cách cầm đao thì biến hóa từ một thế đeo đao từng thấy ở Kiếm Thủy Sơn Trang, Sơ Thủy quốc. Thích khách và đao khách giang hồ dưới núi cũng có động tác ấy, nhưng theo Trần Bình An thì chưa nắm được cái thần, chỉ là thùng rỗng kêu to.
 
-Hầu Quỳ môn đã không thể nói chuyện trôi chảy, mơ hồ không rõ nói: "Trần Bình An, ngươi làm ẩn quan, ta tự mình lĩnh giáo bản lãnh của ngươi, chỉ là thân là võ phu thuần túy, thật sự là làm người ta thất vọng, quá khiến ta thất vọng."
+Hầu Quỳ Môn rốt cuộc chỉ biết hắn là Ẩn Quan trẻ tuổi, chưa hiểu thói quen chém giết của Trần Bình An. Hễ hắn bắt đầu nói dai, ắt đang chuẩn bị chuyện gì đó. Bằng không, có lời thì cũng đợi sau khi phân sinh tử mới nói.
 
-Thì ra lúc trước vấn quyền, Ẩn Quan trẻ tuổi cứng rắn đỡ một quyền của Hầu Quỳ Môn, lại trong tay áo xuất đao, trực tiếp từ dưới lên trên, đâm vào cổ người sau, chẳng những như thế, tay trái vỗ chuôi đao, Hầu Quỳ Môn nếu như không phải đạp mạnh xuống đất, thân hình cất cao, sau đó lui lại mấy bước, kém chút bị phong nhận quấy nát môi lưỡi, lại bị mũi đao đâm xuyên đầu ngay tại chỗ.
+Hầu Quỳ Môn vẫn chưa lùi. Quyền ý chẳng những không giảm mà còn tăng. Rất tốt.
 
-Nếu là võ phu thuần túy Hạo Nhiên Thiên Hạ, không có thể phách cứng cỏi trời sinh chống đỡ, bị thương nặng như vậy, quả quyết là không thể nói nửa chữ.
+Trần Bình An tra cặp đoản đao của thích khách Cắt Lộc Sơn ở Bắc Câu Lô Châu vào tay áo rồi đứng yên. Chẳng biết Hầu Quỳ Môn dùng bí pháp gì, máu ở cổ đã ngừng chảy. Hắn cũng buông thõng hai tay, đứng im.
 
-Trần Bình An nhẹ nhàng đẩy thi thể kiếm tu tử sĩ trước người mình ra, tụ âm thành tuyến, mỉm cười nói với Hầu Quỳ Môn: "Ngươi trước sau ba lượt ra quyền, lần nào phù hợp thân phận võ phu thuần túy. Nếu ngươi là quyền đầu tiên cũng đủ thuần túy, ta căn bản không ngại trao đổi ba quyền với ngươi, nói không chừng còn có thể phá cảnh từng người, vậy mới thật sự là ai sống ai chết, chỉ xem quyền cao thấp."
+Đến đây mới có tâm cảnh xứng với một trận vấn quyền thật sự.
 
-Sau khi Trần Bình An hiện thân, chiến trường lại tự động nhường ra một mảng lớn đất trống.
+Rồi hai bóng người lướt tới đâu, kẻ ở gần gặp vạ tới đó. Hai võ phu thuần túy đều đang mắc ở bình cảnh, tựa hai thanh phi kiếm của kiếm tiên mặc sức cắt ngang chiến trường, bỏ lại tay chân đứt lìa đầy đất.
 
-Ẩn Quan trẻ tuổi, hai tay cầm đoản đao, nhẹ nhàng buông ra, lại nhẹ nhàng cầm.
+Hầu Quỳ Môn ra quyền càng lúc càng nhẹ nhàng, quyền ý lại càng lúc càng nặng. Từng quyền đã có dáng dấp quyền pháp cửu cảnh. Cơ hội phá cảnh của hắn đã tới gần.
 
-Đây là một thói quen nhỏ của hắn với Vu Lộc.
+Chẳng rõ vì sao, vị Ẩn Quan trẻ tuổi đã được công nhận là kiếm tu mà từ đầu đến cuối vẫn chưa tế phi kiếm. Ngay cả trường kiếm trong hộp sau lưng, hắn cũng chưa rút một thanh nào.
 
-Về phần tư thế cầm đao, thì là thoát thai từ một loại tư thế bội đao Sơ Thủy quốc Kiếm Thủy Sơn Trang nhìn thấy. Thật ra ở trên giang hồ dưới núi, thích khách đao khách cũng có hành động này, nhưng mà ở trong mắt Trần Bình An, ý tứ không đủ, là một cái thùng rỗng kêu to.
+Ở tận đằng xa trên chiến trường, một “nam tử trung niên” cùng đường lối với vị Ẩn Quan trẻ tuổi đang lẫn trong đại quân Yêu tộc, tựa như bị dòng người cuốn về phía Kiếm Khí Trường Thành. Hắn vẫn để mắt tới trận chém giết giữa Trần Bình An và Hầu Quỳ Môn, lờ mờ nhìn ra chút manh mối, đang cân nhắc có nên phá hỏng tính toán của Trần Bình An hay không.
 
-Rốt cuộc Hầu Quỳ môn chỉ biết ẩn quan trẻ tuổi, không rõ lắm thói quen chém giết của Trần Bình An.
+Hắn đưa mắt nhìn qua vài chỗ ở cách đó khá xa, cân nhắc một lượt rồi thôi, mặc cho đám thiên tài Giáp Thân Trướng lấy công.
 
-Khi hắn bắt đầu dây dưa dài dòng, nhất định là đang theo đuổi chuẩn bị gì đó.
+Khắp người Hầu Quỳ Môn máu thịt be bét. Đường đường là võ phu bát cảnh đỉnh phong, lại khoác trọng bảo, mà vấn quyền với một võ phu vãn bối kém mình hẳn một cảnh đến nông nỗi này, thật khó tin.
 
-Nếu không, tất cả ngôn ngữ, nhiều nhất chỉ sẽ ở sau khi phân ra sinh tử.
+Hầu Quỳ Môn mặt đầy máu bỗng dừng lại. Hắn cúi đầu cười khẽ, trong lòng khoan khoái, rồi ngẩng lên nhìn chằm chằm người trẻ tuổi cũng vừa thu quyền. Ánh mắt hắn như muốn nói, chờ ta lên cửu cảnh, mang võ vận trong người, rồi sẽ đánh tiếp với Kim Thân cảnh khó đối phó như ngươi. Đến lượt Hầu Quỳ Môn ta chẳng cần nói lý, bao nhiêu tính toán rối rắm của ngươi còn dùng được sao? Ngươi còn sống mà rời chiến trường được sao? Có bản lĩnh thì Trần Bình An ngươi cũng phá một cảnh cho ta xem!
 
-Hầu Quỳ Môn không lui lại như vậy, quyền ý không giảm mà còn tăng, rất tốt.
+Trận vấn quyền này, Hầu Quỳ Môn rõ ràng cao hơn một cảnh mà vẫn rơi vào thế hạ phong. Thể phách của hắn đủ cứng, nắm đấm cũng đủ nặng, chỉ khổ nỗi Trần Bình An dường như biết trước từng đường quyền.
 
-Trần Bình An thu hồi song đao vào tay áo của thích khách Cắt Lộc Sơn ở Bắc Câu Lô Châu, đứng thẳng bất động.
+Bấy giờ thấy Trần Bình An căng thẳng như gặp đại địch, dường như chẳng phải làm bộ, Hầu Quỳ Môn chỉ thấy thống khoái. Cả đời luyện quyền, mấy lần phá cảnh, hình như chưa lần nào sảng khoái đến thế. Trần Bình An đã giúp hắn phá cảnh hôm nay, sau đó chừa cho người trẻ tuổi một thi thể nguyên vẹn cũng được, miễn là thể phách kia chịu nổi mấy quyền của hắn sau khi vào cửu cảnh.
 
-Không biết Hầu Quỳ Môn thi triển bí pháp gì, máu tươi phụ cận cổ ngừng chảy, hai tay rủ xuống, cũng không nhúc nhích.
+Từng luồng võ vận từ Man Hoang Thiên Hạ xé không trung bay tới chiến trường, cuồn cuộn đổ về phía Hầu Quỳ Môn.
 
-Đây mới là võ phu vấn quyền danh xứng với thực, tâm cảnh nên có.
+Trần Bình An hiểu ý, khẽ cười. Rốt cuộc cũng tới.
 
-Sau đó, chỉ cần hai bóng người đến chỗ nào, chắc chắn sẽ tai bay vạ gió.
+Quyền của Hầu Quỳ Môn quá nhẹ, chẳng đủ đánh vỡ bình cảnh của hắn. Cùng lắm chỉ giúp rèn thêm gân cốt và cơ bắp ở vài chỗ then chốt, như thêu hoa trên gấm.
 
-Hai vị võ phu thuần túy đều ở bình cảnh võ học, tựa như hai thanh kiếm tiên phi kiếm, tùy ý cắt chém chiến trường, tàn chi đoạn hài đầy đất.
+Hắn còn phải lo chiến sự về sau. Nhiều quyền của võ phu cửu cảnh có thể đánh thẳng vào các khí phủ trọng yếu. Trúng đòn thì Trần Bình An chẳng sợ bị thương, chỉ sợ quyền ý vào tiểu thiên địa trong thân thể rồi làm long trời lở đất. Bởi vậy hắn chẳng thể hứng trọn mà phải gỡ đi hơn nửa sức quyền. Hầu Quỳ Môn đánh thì thống khoái, người đón quyền lại chẳng thấy thoải mái chút nào.
 
-Hầu Quỳ Môn ra quyền càng ngày càng "nhẹ nhàng", quyền ý lại càng ngày càng nặng.
+Cũng chẳng sao. Trần Bình An từng đánh lui võ vận ở Lão Long thành, còn hơn một lần. Đến thiên kiếp hắn cũng đã gánh hai lần, ở Tùy Giá thành thuộc Bắc Câu Lô Châu và khi đối địch với Ly Chân ngay tại Kiếm Khí Trường Thành.
 
-Từng quyền đều có hình thức ban đầu của võ phu cửu cảnh, đây là cơ hội phá cảnh lớn.
+Trần Bình An nhún mũi chân, từ mặt đất vọt thẳng lên. Hắn cứ lao cao mãi, tựa như muốn lên tới tận đỉnh màn trời. Nắm đấm còn chưa đưa ra, quyền ý của thức Vân Chưng Đại Trạch đã đón lấy từng dải võ vận rực như cầu vồng bay tới từ Man Hoang Thiên Hạ.
 
-Chẳng biết tại sao, Ẩn Quan trẻ tuổi kia đã được công nhận là kiếm tu, nhưng thủy chung không có tế ra phi kiếm, thậm chí ngay cả trường kiếm trong hộp kiếm sau lưng cũng không có sử dụng bất kỳ thanh nào.
+“Nam tử trung niên” dừng chân, ngửa đầu lẩm bẩm: “Võ vận cũng cướp được à? Mua bán còn làm được kiểu này sao?”
 
-Nơi cực xa của chiến trường, một vị "Nam tử trung niên" cùng ẩn quan trẻ tuổi làm người trong đồng đạo, nhìn như bị đại quân Yêu tộc cuốn theo, cuồn cuộn hướng Kiếm Khí Trường Thành bên kia dũng mãnh lao tới, hắn luôn lưu tâm Trần Bình An cùng Hầu Quỳ môn chém giết, đại khái nhìn ra chút manh mối, đang do dự có nên quấy rầy tính toán của Trần Bình An hay không.
+Chẳng biết vị Ẩn Quan trẻ tuổi dùng thủ đoạn kỳ quái nào mà kéo theo hết những dải võ vận ấy. Người và võ vận cùng lên cao, tựa một dải cầu vồng phi thăng.
 
-Chỉ là khi tầm mắt hắn đảo qua mấy phương vị, khoảng cách không gần, ước lượng một phen, hắn liền từ bỏ ra tay, không tranh công với lều giáp thân thiên tài kia.
+Võ vận thế gian vốn là thứ hư vô mờ mịt. Ngay cả Văn Miếu Trung Thổ của Hạo Nhiên Thiên Hạ cũng chẳng thể chặn lại để thu lấy, chỉ đành mặc nó luân chuyển giữa các võ phu thiên tài khắp chín châu. Ở Man Hoang Thiên Hạ, đến Thác Nguyệt Sơn cũng chẳng quản được chuyện ấy.
 
-Hầu Quỳ môn cả người máu thịt be bét, đường đường võ phu bát cảnh đỉnh phong, thân khoác trọng bảo, võ phu vãn bối kém Minh Minh một cảnh, một hồi vấn quyền, thế mà lại biến thành ruộng đất như vậy, không thể tưởng tượng.
+Khó xử nhất đương nhiên là Hầu Quỳ Môn. Võ vận đã tới mà chưa một dải nào chạm được vào người hắn. Hắn hơi khuỵu gối rồi cũng vọt lên trời, đuổi theo bóng Trần Bình An đã nhỏ như hạt cải, chỉ mong đến gần võ vận thêm chút nào hay chút ấy.
 
-Hầu Quỳ Môn mặt đầy vết máu bỗng nhiên đứng lại, cúi đầu cười khẽ, sảng khoái lòng người, ngẩng đầu, gắt gao nhìn thẳng người trẻ tuổi cũng đột nhiên thu quyền kia.
+Nam tử trung niên vẫn tự nhận là kiếm khách kia chưa xuất kiếm đánh lén Trần Bình An. Hắn chẳng câu nệ quy củ đạo nghĩa. Trên chiến trường, cách hắn chém giết cũng gần giống Trần Bình An. Từ mỗi lần ra tay đến mỗi lần đổi thương, hắn đều tính từng chút như khi mua bán.
 
-Hầu Quỳ Môn tựa như là đang nói, chờ ta cửu cảnh, võ vận bên người, lại đến đánh Kim Thân cảnh như ngươi quả thật là bình cảnh không quá phân rõ phải trái, nên đến phiên Hầu Quỳ Môn ta không nói lý, mặc ngươi tính toán lung tung rối loạn, còn có thể thực hiện được? Còn có thể sống sót rời khỏi chiến trường này? Có bản lĩnh ngươi Trần Bình An ngươi cũng phá cảnh một cái?!
+Kiếm khách trẻ tuổi này đứng trên cả Ly Chân, Trúc Quân và đám thiên tài trong danh sách Bách Kiếm Tiên. Trong cõi mịt mờ, hắn đã lĩnh ngộ được một tia chân ý của đại đạo. Bây giờ xuất kiếm, cho dù đắc thủ, đối với đại đạo của hắn cũng được chẳng bù mất. Võ vận vô hình giữa trời đất sẽ chèn ép hắn suốt đời này. Võ phu thuần túy còn có thể mượn đó mài giũa võ đạo, tiếc rằng hắn là kiếm tu.
 
-Lần này vấn quyền rõ ràng cảnh giới cao hơn một bậc, lại rơi vào thế hạ phong, mấu chốt không phải Hầu Quỳ Môn thể phách không đủ, không nhẹ ở quyền, mấu chốt là Trần Bình An kia đối với quyền lộ như biết trước.
+Khoan đã!
 
-Giờ phút này Hầu Quỳ Môn thấy Trần Bình An bộ dáng như lâm đại địch, không giống giả bộ, chỉ cảm thấy thống khoái, cuộc đời này luyện quyền, nhiều lần phá cảnh, giống như cũng chưa từng nhẹ nhàng vui vẻ như thế, Trần Bình An kia, hôm nay giúp ta phá cảnh, sau đó lưu hắn toàn thây là được, điều kiện tiên quyết là sau khi mình tễ thân cửu cảnh đưa ra mấy quyền, thể phách người trẻ tuổi gánh được không bị phân thây!
+Quyền ý và ý đồ Trần Bình An để lộ đều là giả.
 
-Từng đạo võ vận Man Hoang thiên hạ phá không mà tới, giáng lâm chiến trường, điên cuồng tuôn về phía Hầu Quỳ Môn.
+Kiếm khách lập tức duỗi tay phải, kéo một thanh trường kiếm khỏi tay tu sĩ Yêu tộc đứng gần đó. Hắn khẽ chấn tay, thân kiếm vỡ thành hơn mười mảnh. Cùng lúc, hắn xoay cổ tay trái, dùng kiếm khí của mình làm đứt mấy đường gân mạch trong lòng bàn tay rồi phất tay để máu lướt qua các mảnh kiếm. Đó là một trong những thủ đoạn hắn giấu kỹ nhất. Một cái vung tay áo, những mảnh kiếm bắn thẳng lên trời, nhắm đúng chỗ Hầu Quỳ Môn.
 
-Trần Bình An hiểu ý cười, rốt cuộc cũng tới.
+Gần như cùng lúc, Hầu Quỳ Môn hoa mắt. Trần Bình An vừa rồi còn ở cách hơn trăm trượng, đã dùng một tấm Súc Địa Phù rồi mượn hai thanh phi kiếm luyện hóa là Tùng Châm và Khụ Lôi dẫn đường tới đây.
 
-Nắm đấm của Hầu Quỳ Môn quá nhẹ, không đánh vỡ được bình cảnh của mình, nhiều nhất là giúp mình chịu đựng mấy chỗ gân cốt cơ bắp mấu chốt, dệt hoa trên gấm mà thôi.
+Hắn cầm hai thanh đoản đao, một đao đâm xuyên má Hầu Quỳ Môn, đao kia thọc vào ngực. Vừa đắc thủ, hắn dùng thêm một tấm Súc Địa Phù, thoắt cái đã biến mất.
 
-Bởi vì lo lắng sẽ ảnh hưởng đến chiến sự tiếp sau, rất nhiều lực đạo nắm tay cửu cảnh, đánh thẳng đến khí phủ mấu chốt, một khi nện ở trên người, Trần Bình An không sợ bị thương, sợ quyền ý kia ở trong tiểu thiên địa thân người dời sông lấp biển mà thôi, cho nên Trần Bình An còn không thể gánh hết toàn bộ, phải dỡ đi hơn phân nửa, Hầu Quỳ Môn ra quyền là thống khoái, Trần Bình An đánh với quyền này lại không thoải mái chút nào.
+Ngay sau đó, mảnh kiếm lơ lửng quanh Hầu Quỳ Môn, kết thành một kiếm trận nhỏ che chở vị võ phu Yêu tộc đang ở lưng chừng giữa bát cảnh và cửu cảnh. Nếu chúng đến chậm, Trần Bình An đã có thể cắt xuống nửa cái đầu của hắn.
 
-Không sao, đánh lui võ vận, Trần Bình An có kinh nghiệm, ở Lão Long thành, còn không chỉ một lần.
+Hầu Quỳ Môn cắn răng. Trúng hai đao, hắn chỉ hơi khựng giữa không trung rồi lại lao lên. Vị Ẩn Quan trẻ tuổi đã kéo võ vận lên cao hơn nữa. Các mảnh kiếm thấy Hầu Quỳ Môn không nguy đến tính mạng thì lóe lên, biến mất, trở về bên nam tử trung niên.
 
-Huống chi Trần Bình An ngay cả khiêng thiên kiếp cũng có hai lần, ở Bắc Câu Lô Châu tùy giá thành, đã từng đối địch với Nhân Ly Chân ở Kiếm Khí Trường Thành này.
+Hai võ phu thuần túy lần lượt xuyên qua hai tầng biển mây mênh mông. Tầng thứ nhất chỉ nhỉnh hơn mặt thành Kiếm Khí Trường Thành một chút. Tầng trên đã cao hơn tường thành rất xa.
 
-Trần Bình An nhón mũi chân một cái, đột ngột từ mặt đất bay lên, thẳng tắp hướng trời cao, vẫn chưa ra quyền, chỉ là một mặt trèo cao, giống như là muốn đi hướng chỗ cao nhất của màn trời mới bỏ qua, dù chưa ra quyền, nhưng lại là lấy quyền ý Vân Chưng Đại Trạch thức, nghênh hướng những võ vận cầu vồng từng dải đến từ Man Hoang thiên hạ.
+Trần Bình An chợt dừng giữa không trung phía trên biển mây, lại nhíu mày. Từ nãy đến giờ hắn vẫn hư hư thực thực với Hầu Quỳ Môn. Lần này hắn thật sự nhận ra có gì đó bất thường, tựa như có kẻ giăng bẫy. Chỗ võ vận trên cao kia rõ ràng là thật.
 
-"Nam tử trung niên" kia dừng bước, ngửa đầu nhìn lại, lẩm bẩm: "Võ vận cũng có thể cướp? Sinh ý có thể làm như vậy sao?"
+Hầu Quỳ Môn chẳng biết vì sao vị Ẩn Quan trẻ tuổi dừng lại. Vượt qua biển mây, hắn vẫn dựa vào tu vi Ngự Phong cảnh để lướt về phía võ vận, thân hình tựa giao long uốn lượn.
 
-Bởi vì Ẩn Quan trẻ tuổi kia không biết dùng thủ đoạn cổ quái gì, trực tiếp kéo lấy tất cả võ vận cầu vồng, cùng nhau lên không, khiến cho người trẻ tuổi tựa như cầu vồng phi thăng.
+Trần Bình An chỉ cân nhắc một thoáng rồi bỏ hết tính toán ban đầu, lao xuống xuyên qua biển mây, quay về mặt đất.
 
-Võ vận thế gian, vốn là tồn tại cực kỳ hư vô mờ mịt, bằng không sẽ không ngay cả văn miếu trung thổ của Hạo Nhiên Thiên Hạ, cũng không thể ngăn trở, lấy ra vật ấy, thế cho nên chỉ có thể mặc kệ, lưu chuyển ở giữa thiên tài võ phu bản đồ Cửu Châu.
+Hầu Quỳ Môn lẽ ra đã có thể ung dung thu lấy võ vận vốn thuộc về mình. Trên biển mây, mặt trời chiếu rọi, hắn trông tựa một vị thần linh. Bỗng chốc hai mắt hắn đen kịt. Hắn giãy giụa một lát, rồi quay đầu đuổi theo Trần Bình An, kéo hết võ vận cùng lao xuống.
 
-Ở Man Hoang thiên hạ, ngay cả Thác Nguyệt Sơn cũng không thể ước thúc việc này.
+Võ vận ập vào thân thể. Hầu Quỳ Môn bước vào cửu cảnh, lướt thẳng về phía Trần Bình An. Trần Bình An đổi hướng rút lui ba lần mà vẫn tránh không kịp.
 
-Tình cảnh lúng túng nhất, tự nhiên là Hầu Quỳ Môn võ vận tiến đến nhưng chưa từng áp sát.
+Mặt đất bị nện thành một cái hố lớn đến kinh người, tựa như vừa trúng bản mạng phi kiếm của một vị kiếm tiên. Võ vận khắp người võ phu cửu cảnh Hầu Quỳ Môn vỡ tan.
 
-Hầu Quỳ Môn hai đầu gối hơi khụy xuống, cũng đi lên trời cao, truy đuổi bóng dáng Trần Bình An đã nhỏ như hạt cải kia, lại càng mong mỏi tận lực tới gần những võ vận kia.
+Năm người có tư chất thành kiếm tiên của Giáp Thân Trướng ở Man Hoang Thiên Hạ cùng hiện thân bên miệng hố, chẳng còn che giấu hành tung. Mỗi người đứng một phương.
 
-Nam tử trung niên lấy kiếm khách tự cho mình vẫn không xuất kiếm đánh lén Trần Bình An, không phải chú ý quy củ đạo nghĩa gì, chém giết trên chiến trường, con đường của hắn cùng Trần Bình An không khác nhau mấy, mỗi lần ra tay, thế cho nên mỗi lần đổi thương với đối thủ, đều như là làm một vụ mua bán tính toán chi li.
+Trúc Quân, Ly Chân, Vũ Tứ, Lưu Bạch, Than [?].
 
-Vị kiếm khách trẻ tuổi này ở trên gia phả Bách Kiếm Tiên lực áp Ly Chân, Trúc Quân toàn bộ thiên tài, ở trong minh minh, đã nhận ra một tia đại đạo chân ý.
+Nam tử trung niên thở dài một tiếng, giấu thân hình rồi cứ thế rời đi.
 
-Giờ phút này xuất kiếm, cho dù có thể đắc thủ, đối với đại đạo của mình mà nói, chỉ có được không bù mất, bởi vì đời này kiếp này, sẽ trêu chọc đến thiên địa võ vận vô hình áp thắng.
+Quả thật có một đại yêu vương tọa dùng bản mạng thần thông nhập vào người Hầu Quỳ Môn ngay lúc hắn sắp phá cảnh, chấp nhận bỏ đi một võ phu cửu cảnh gần như đã nắm chắc trong tay chỉ để đổi lấy trọng thương của vị Ẩn Quan trẻ tuổi sao?
 
-Nếu là võ phu thuần túy, lấy cái này mài giũa võ đạo bản thân, ngược lại là chuyện tốt, đáng tiếc hắn chung quy là kiếm tu.
+Trúc Quân nói: “Coi chừng có bẫy.”
 
-Không đúng!
-
-Quyền ý cùng động cơ của Trần Bình An đều là giả dối.
-
-Hắn đột nhiên duỗi tay phải, từ trong tay một vị kiếm tu Yêu tộc cách đó không xa trực tiếp ngự đến một thanh trường kiếm, nhẹ nhàng chấn động, vỡ nát ra hơn mười mảnh nhỏ thân kiếm, đồng thời cổ tay trái quay cuồng, mạnh mẽ lấy kiếm khí bản thân nổ nát mấy đường gân mạch trong lòng bàn tay, sau khi máu tươi chảy ra, ở trên những mảnh vỡ thân kiếm đó lướt qua, kiếm khách trẻ tuổi lấy ra một trong các thủ đoạn áp đáy hòm, vung tay áo, mang những mảnh vỡ đó bắn nhanh về phía trời cao, thẳng tắp hướng Hầu Quỳ Môn bên kia.
-
-Gần như đồng thời, Hầu Quỳ Môn thấy hoa mắt, thân hình cách xa hơn trăm trượng, trước dùng một tấm Súc Địa Phù, lại lấy lá thông, khụ lôi hai thanh luyện hóa phi kiếm làm dẫn dắt.
-
-Hai tay cầm đao, một đao đâm trúng qua má Hầu Quỳ Môn, đâm xuyên qua toàn bộ gương mặt, một đao đâm vào ngực Hầu Quỳ Môn, một kích đắc thủ, lại dùng Súc Địa Phù, thân hình trong nháy mắt biến mất.
-
-Sau một khắc, bốn phía Hầu Quỳ Môn lơ lửng những mảnh vỡ trường kiếm, như một tòa kiếm trận bỏ túi, bảo vệ vị yêu tộc tạm thời không thể nói là bát cảnh, hay là võ phu cửu cảnh này.
-
-Nếu không phải chúng nó đuổi tới, Trần Bình An có thể trực tiếp cắt lấy nửa cái đầu của Hầu Quỳ môn.
-
-Hầu Quỳ Môn cắn răng một cái, sau khi trúng hai đao, thân hình "Phi thăng" hơi đình trệ, tiếp tục bay vút lên trời cao, những võ vận kia, lại bị ẩn quan trẻ tuổi kia kéo lên chỗ cao hơn.
-
-Những mảnh vỡ trường kiếm kia sau khi xác định tính mệnh Hầu Quỳ Môn không lo, liền lóe lên một cái rồi biến mất, trở về "Nam tử trung niên" bên kia.
-
-Hai vị võ phu thuần túy, trước sau phá tan hai tầng biển mây rộng lớn.
-
-Tầng một so với kiếm khí Trường Thành thành cao hơn chút, chỗ cao hơn biển mây, thì xa xa cao hơn ra khỏi thành.
-
-Bỗng nhiên cao hơn biển mây mà huyền đình, Trần Bình An lại một lần nữa nhíu mày, chỉ là lúc này đây, cũng không phải cùng Hầu Quỳ môn kia thật thật giả giả, hư hư thật thật diễn kịch.
-
-Mà thật sự đã nhận ra một tia khí tức âm mưu không thích hợp.
-
-Những võ vận ở chỗ cao hơn, hoàn toàn là thật.
-
-Mặc dù Hầu Quỳ Môn không biết ẩn quan trẻ tuổi kia vì sao dừng bước, sau khi phá vỡ biển mây, vẫn dựa vào Ngự Phong Cảnh, tiếp cận võ vận như giao long du tẩu.
-
-Trần Bình An hơi cân nhắc, thế mà trực tiếp bỏ qua toàn bộ mưu tính lúc trước, rơi vào biển mây, quay về đại địa.
-
-Hầu Quỳ Môn phải thoải mái thu nhận những võ vận vốn nên thuộc về mình, trên biển mây, mặt trời chiếu rọi, Hầu Quỳ Môn giống như một vị thần linh.
-
-Chỉ trong khoảnh khắc, đôi mắt Hầu Quỳ Môn biến thành đen sì, giãy dụa một lát, thế mà lại bắt đầu đi theo Trần Bình An, đồng thời dẫn dắt những võ vận kia cùng nhau rơi xuống mặt đất.
-
-Võ vận đụng vào trong thân thể Hầu Quỳ Môn, Hầu Quỳ Môn tễ thân cửu cảnh lướt về phía Trần Bình An.
-
-Trần Bình An ba lần chuyển biến quỹ tích rút lui, vẫn như trước tránh né không kịp.
-
-Phía trên mặt đất, đập ra một cái hố to kinh người giống như phi kiếm bản mạng của Kiếm Tiên.
-
-Võ phu cảnh chín Hầu Quỳ Môn cả một thân võ vận toàn bộ vỡ nát.
-
-Giáp Thân Trướng, phôi thai của năm vị Kiếm Tiên Man Hoang Thiên Hạ, không hề che lấp hành tung, cùng nhau xuất hiện ở bên cạnh hố to, mỗi người một phương.
-
-Trúc liễn, Ly Chân, Vũ Tứ, Lưu Bạch, Than.
-
-Nam tử trung niên kia thở dài một tiếng, ẩn nấp thân hình, cứ thế rời đi.
-
-Đúng là có đại yêu vương tọa kia vận chuyển bản mạng thần thông, phụ thân vào Hầu Quỳ Môn sắp phá cảnh, trực tiếp bỏ qua một vị võ phu cửu cảnh ván đã đóng thuyền, để đổi lấy Trần Bình An trẻ tuổi ẩn quan trọng thương?
-
-Trúc Quân nói: "Cẩn thận là cạm bẫy."
-
-Một tiếng cười vang lên trong tâm hồn mọi người: "Làm sao có thể."
+Một tiếng cười vang lên trong lòng mọi người: “Sao có thể chứ.”

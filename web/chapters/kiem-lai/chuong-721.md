@@ -1,393 +1,561 @@
-# Chương 721: Lật một cái lão hoàng lịch
+# Chương 721: Lật lại lịch cũ
 
-Cố Xán đến đại môn phủ đệ châu thành, trước cửa ngồi xổm hai con sư tử bạch ngọc xuất từ tay tiên gia, khí thế uy nghiêm, chính là ăn mày cực đói thấy, hẳn là không có gan tới gần đại môn ăn xin nữa.
+Cố Sán đến trước cổng một tòa phủ đệ trong châu thành. Hai con sư tử bạch ngọc do người trên núi tạc ngồi chầu hai bên cổng, trông uy nghi đến nỗi ăn mày có đói lả, e rằng nhìn thấy cũng chẳng dám đến gần xin ăn.
 
-Cố Xán không sốt ruột gõ cửa.
+Cố Sán không vội gõ cửa. Liễu Xích Thành và Sài Bá Phù đành đứng ngoài đường hứng gió tây bắc.
 
-Liễu Xích Thành cùng Sài Bá Phù cũng chỉ đành đứng ở trên đường uống gió tây bắc.
+Cố Sán bước lên bậc thềm sạch không một hạt bụi, đưa tay nắm lấy vòng cửa đầu thú, đầu ngón tay chợt khựng lại. Hoa văn hạt tiêu thếp vàng[?] này chỉ phủ công hầu mới được phép dùng.
 
-Cố Xán đi lên bậc thang không nhiễm hạt bụi nhỏ, đưa tay kéo vòng đầu thú, dừng ngón tay lại, động tác ngưng trệ một lát, là đồ án hạt tiêu sơn vàng mà cửa phủ Công Hầu mới có thể sử dụng. Cố Xán thở dài trong lòng, không nên đi quá giới hạn như thế, cho dù trong nhà có một trấn trạch thái bình vô sự, vấn đề không lớn, quan phủ Thứ sử châu thành hẳn là đã nhận được tin tức bí mật của diêu vụ đốc tạo thự, mới không so đo việc này với tòa nhà này, chỉ là loại chuyện này, vẫn nên nói một tiếng với mẫu thân, không cần phải vung tay làm càn như thế trên cửa, dễ dàng gây thêm rắc rối.
+Hắn thầm thở dài. Trong nhà dù có vật trấn trạch mang ý thái bình vô sự[?], cũng chẳng nên tiếm vượt như vậy. Nha môn thứ sử châu thành hẳn đã nhận được tin riêng từ nha môn đốc tạo lò nung nên mới làm ngơ. Dẫu vậy, vẫn nên nói với mẫu thân một tiếng. Có gì đáng khoe đâu mà phô trương ngay trên cổng nhà, chỉ tổ rước thêm phiền phức.
 
-Cố Xán gõ vang môn hoàn, lui về phía sau một bước, một người mặc quần áo quý phái mở cửa, thấy Cố Xán ăn mặc bình thường, vẻ mặt không vui, nhíu mày hỏi: "Đệ tử nhà nào trong thành hay là người hầu trong nha môn?"
+Cố Sán gõ vòng cửa rồi lùi lại một bước. Một nam tử ăn vận sang trọng ra mở cổng, thấy hắn mặc áo quần bình thường thì nhíu mày hỏi với vẻ không vui:
 
-Cố Xán sửng sốt một chút, mới nhớ lại bộ dáng hiện tại của mình, có chút biến hóa, đối phương cũng không phải lão nhân đảo Thanh Hạp, không nhận ra mình cũng là bình thường. Năm đó mẫu thân mang theo tỳ nữ thiếp thân cùng nhau rời khỏi Thư Giản hồ, mấy năm nay cũng đều tu hành trôi chảy, trước sau trở thành Luyện khí sĩ trung ngũ cảnh, cảnh giới không cao, nhưng cũng không xen vào việc vặt vãnh trong phủ. Về tu hành của các nàng, trước kia Cố Xán có qua lại với thư tín của mẫu thân, đều từng được nhắc nhở kỹ càng, còn giúp đỡ chọn lựa vài món bảo vật trên núi, các nàng chỉ cần từng bước tu hành, luyện hóa vật bản mạng, phá cảnh là được.
+- Ngươi là con cháu nhà nào trong thành, hay người hầu trong nha môn?
 
-Người gác cổng nhanh chóng liếc mắt nhìn hai người bậc thang phía sau nam tử trẻ tuổi, một vị thư sinh văn nhược, một đứa nhỏ thiếu niên đầu bạc, nháy mắt tự nhận là đã cân nhắc ra của cải của ba người.
+Cố Sán ngẩn ra một thoáng mới nhớ diện mạo mình đã đổi khác ít nhiều. Đối phương chẳng phải người cũ của đảo Thanh Hạp, không nhận ra hắn cũng thường.
 
-Nam tử gác cổng là võ phu thuần túy che giấu thực lực, ngũ cảnh, ở trên giang hồ tầm thường, cũng quả thật là có kỹ năng, ở bất cứ một nước nhỏ phiên thuộc nào, khai sáng môn phái cũng dư dả, làm người gác cổng làm hộ viện, hạ mình, nhắm chừng vẫn là có tiền có thể sai khiến quỷ ma, hoặc là chính là tránh họa môn hộ, tới đây tị nạn, kết quả xấu nhất, đơn giản là đối phương lòng dạ khó lường, thả dây câu cá lớn, cấu kết với sơn trạch dã tu,, Tham gia gia sản phong phú của tòa hào trạch này, mấy năm nay Cố Xán đã quen đi giang hồ, từng gặp không ít âm mưu giang hồ vòng vòng đan xen, còn cố ý đứng xa xa quan sát, từ đầu tới đuôi nhìn thấy hai đàn ong, Tước cục, một hộ là nhà phú bất nhân, từ đó nhà tan cửa nát. Cố Xán hiện thân ở thời điểm đám cướp kia đắc thủ chia của, thỉnh giáo bọn họ chút môn đạo, đối phương che giấu giấu, ngôn ngữ không thoải mái, Cố Xán liền bảo Tăng Dịch thi triển thuật pháp, tu hú chiếm tổ thước, tự lấy học vấn. Một hộ khác nhìn không tệ môn phong, Cố Xán liền tiện tay hỗ trợ giải vây.
+Năm đó mẫu thân mang theo hai tỳ nữ thân cận rời Thư Giản hồ. Hai nàng tu hành thuận lợi, lần lượt trở thành luyện khí sĩ trung ngũ cảnh. Cảnh giới không cao, nhưng việc vặt trong phủ cũng chẳng đến tay các nàng. Trong thư gửi mẫu thân trước đây, Cố Sán đã căn dặn tỉ mỉ việc tu hành, còn chọn giúp mấy món bảo vật trên núi. Họ chỉ việc tuần tự tu luyện, luyện hóa vật bản mạng rồi phá cảnh.
 
-Cố Xán cười nói: "Ta tên Cố Xán, đây là nhà của ta."
+Kẻ gác cổng liếc nhanh qua hai người đứng dưới bậc thềm sau lưng Cố Sán, một thư sinh trông yếu ớt và một thiếu niên đầu bạc. Hắn tự cho là chỉ nhìn qua đã biết ba người giàu nghèo đến đâu.
 
-Nam tử gác cổng lập tức thay đổi sắc mặt, cúi đầu khom lưng nhường đường, "Gặp qua thiếu đông gia, tiểu nhân sẽ đi bẩm báo với phu nhân ngay."
+Tên gác cổng giấu thực lực, vốn là võ phu thuần túy ngũ cảnh. Chừng ấy bản lĩnh đã đủ để có chỗ đứng trong giang hồ. Đến bất cứ nước nhỏ phiên thuộc nào, hắn cũng thừa sức mở môn lập phái. Hắn chịu hạ mình trông cổng giữ nhà, hoặc vì có tiền sai khiến được cả quỷ, hoặc để tránh một tai họa. Xấu nhất là hắn có lòng dạ khó lường, thả dây dài câu cá lớn, cấu kết với dã tu sơn trạch để chiếm gia sản của tòa hào trạch này.
 
-Cố Xán bước qua bậc cửa, khoát tay nói: "Không cần, chỉ vài bước đường, không phiền ngươi thông báo."
+Mấy năm đi giang hồ, Cố Sán đã quen với đủ thứ mưu ma chước quỷ, lớp trong lớp ngoài lồng vào nhau. Có lần hắn còn cố ý đứng xa quan sát từ đầu đến cuối hai vụ lừa, một vụ bày thế Ong, một vụ bày thế Tước[?]. Một nhà giàu bất nhân, rốt cuộc nhà tan cửa nát. Lúc đám kia chia của, Cố Sán hiện thân hỏi chúng vài mánh. Thấy đối phương cứ úp mở, hắn bảo Tăng Dịch thi triển thuật pháp, tu hú chiếm tổ chim thước, tự lấy thứ học vấn ấy. Nhà còn lại có gia phong coi được, hắn tiện tay giúp họ thoát nạn.
 
-Nam tử gác cổng kia tươi cười nịnh nọt, "Tiểu nhân vừa rồi nhìn sơ qua, đều tưởng lầm thiếu đông gia là quân tử hiền tài thư viện."
+Cố Sán cười nói:
 
-Nam tử gác cổng sớm đã thăm dò rõ ràng của cải của gia đình này, gia chủ là người tu đạo, đi xa nhiều năm chưa về, việc này phủ thượng nói không tỉ mỉ, nhắm chừng là không thể lộ ra ngoài ánh mắt, thiếu đông gia là hạt giống đọc sách ở bên ngoài cầu học, cho nên chỉ còn lại có phụ nhân mặc vàng mang ngọc, rất có tiền tài, vị phu nhân kia mỗi lần nhắc tới nhi tử, thật ra mười phần đắc ý, nếu không phải hai vị nha hoàn bên người phụ nhân, thế mà là Luyện khí sĩ tu đạo có thành tựu, bọn họ đã sớm động thủ, một bút tiền của phi nghĩa lớn như vậy, mấy đời cũng không tiêu hết. Cho nên một năm qua, bọn họ chuyên môn kéo một vị bằng hữu trên đường nhập bọn, để cho hắn ở trên người một tỳ nữ trong đó hao tâm tư.
+- Ta tên Cố Sán. Đây là nhà ta.
 
-Cố Xán cười nói: "Ánh mắt tốt."
+Kẻ gác cổng lập tức đổi sắc mặt. Hắn khom lưng nhường đường:
 
-Liễu Xích Thành gật đầu nói: "Thật sự là vô cùng tốt."
+- Bái kiến thiếu đông gia. Tiểu nhân đi bẩm phu nhân ngay.
 
-Sài Bá Phù liếc võ phu thuần túy kia, đáng thương, thật sự là đáng thương, nhiều con đường phát tài như vậy, lại cứ lao đầu vào gia đình này. Một ổ hồ ly tự cho là khôn khéo, xông vào đầm rồng hang hổ nhảy nhót lung tung, không phải muốn chết thì là gì.
+Cố Sán bước qua bậc cửa, khoát tay:
 
-Liễu Xích Thành một chưởng đè lại đầu Sài Bá Phù, "Long Bá lão đệ, sao lại thế này? Không rên một tiếng, là cảm thấy Cố thiếu gia chúng ta không xứng quân tử hiền nhân?"
+- Có vài bước chân thôi, khỏi phiền ngươi thông báo.
 
-Sài Bá Phù như ngũ lôi oanh đỉnh, các đại khí phủ mấu chốt rung động hẳn lên, Long Môn cảnh thật vất vả củng cố xuống, tràn ngập nguy cơ! Sài Bá Phù vội vàng nói: "Cố thiếu gia xứng đáng, xứng đôi."
+Kẻ gác cổng cười nịnh:
 
-Kẻ xấu bình thường, trước khi ra tay đều là hù dọa người ta vài câu trước, nhưng vị tiền bối tính tình quái đản này, đều là ra tay trước rồi mới nói lý.
+- Vừa rồi nhìn thoáng qua, tiểu nhân còn tưởng thiếu đông gia là bậc quân tử hiền tài của thư viện.
 
-Nhưng ở chung lâu, Sài Bá Phù hướng đạo chi tâm càng thêm kiên định, mình nhất định phải trở thành đệ tử gia phả của Trung Thổ Thần Châu Bạch Đế thành.
+Hắn đã dò hỏi kỹ về nhà này từ lâu. Gia chủ là tu sĩ đi xa nhiều năm chưa về. Người trong phủ chẳng chịu nói rõ, hẳn có gì đó không tiện đưa ra ánh sáng. Thiếu đông gia có tư chất đọc sách, đang cầu học phương xa. Thành thử trong nhà chỉ còn một vị phu nhân đeo vàng mang ngọc, tiền của dư dả. Mỗi lần nhắc tới con trai, bà lại hãnh diện ra mặt.
 
-Nam tử gác cửa đóng cửa, bỗng nhiên cảm thấy sau gáy mát lạnh, thì ra là Cố Xán dáng người thon dài đưa tay nắm chặt cổ người này, đầu chống cửa lớn, giữa năm ngón tay của Cố Xán đã chảy ra tơ máu, đủ để thấy ra tay tàn nhẫn, nhẹ giọng hỏi: "Đóng cửa lại, không lo bị người ngoài chê cười. Nói đi, trong ngoài có mấy người? Người có cảnh giới cao nhất, là thần thánh phương nào?"
+Nếu hai nha hoàn bên cạnh bà chẳng phải luyện khí sĩ đã tu hành có thành tựu, bọn chúng đã động thủ từ lâu. Một món của phi nghĩa lớn đến thế, mấy đời tiêu cũng không hết. Suốt một năm qua, bọn chúng còn rủ thêm một bằng hữu giang hồ nhập bọn, bảo hắn bỏ công tiếp cận một trong hai tỳ nữ.
 
-Cố Xán đột nhiên thu hồi tay, trực tiếp xoay người, cười nhìn phía xa xa, cứ như vậy đem lưng tặng cho võ phu thuần túy kia.
+Cố Sán cười nói:
 
-Một vị phụ nhân bước nhanh tới, mấy lần đạp lên làn váy đang nằm trên mặt đất, thấy Cố Xán nhiều năm không gặp, nàng lập tức lệ nóng doanh tròng.
+- Ánh mắt tốt đấy.
 
-Chịu khổ sống sót, hưởng phúc kiếm tiền, xét đến cùng, còn không phải vì tên khốn kiếp không có lương tâm chỉ biết gửi thư nhà về nhà này sao.
+Liễu Xích Thành gật đầu:
 
-Cố Xán bước nhanh đi đến, phu nhân ôm lấy nhi tử, nghẹn ngào hẳn lên, Cố Xán nhẹ nhàng vỗ lưng mẫu thân, vẻ mặt như thường, cười nhìn phía hai tỳ nữ hết thảy vinh hoa phú quý đến từ Cố Xán hắn.
+- Quả thật là tốt lắm.
 
-Hai nữ tử trẻ tuổi kia chỉ liếc mắt nhìn nhau với Cố Xán, lập tức cúi đầu, tay chân lạnh toát, như rơi vào hầm băng.
+Sài Bá Phù liếc nhìn gã võ phu, thầm nghĩ thật đáng thương. Bao nhiêu đường phát tài, lại cứ đâm đầu vào nhà này. Một ổ hồ ly tưởng mình khôn, chạy vào đầm rồng hang hổ nhảy nhót, chẳng phải tìm chết thì là gì?
 
-Phụ nhân buông lỏng Cố Xán, lau nước mắt, bắt đầu tỉ mỉ đánh giá con trai mình, đầu tiên là vui mừng, chỉ là không biết có nhớ tới Cố Xán một mình ở bên ngoài, phải chịu bao nhiêu đau khổ không? Phụ nhân liền che miệng nức nở nghẹn ngào, thầm oán mình, thầm oán nam nhân ma chết không hiểu sao đã trở thành đại sơn thần kia, thầm oán Trần Bình An kia bỏ lại một mình Cố Xán, đánh giết than tuyết kia, thầm oán lão thiên gia không có mắt, vì sao phải để Cố Xán gặp thiên tai chịu khổ như vậy.
+Liễu Xích Thành đặt mạnh một tay lên đầu Sài Bá Phù:
 
-Sau khi Cố Xán cùng mẫu thân đến thính đường bên kia ôn chuyện, lần đầu tiên đặt chân tới thư phòng thuộc về mình, Liễu Xích Thành mang theo Long Bá lão đệ đi dạo bốn phía ở dinh thự, Cố Xán gọi hai vị tỳ nữ tới, còn có người gác cổng vẫn không dám liều chết kia.
+- Long Bá lão đệ, sao im thin thít thế? Ngươi cho rằng Cố thiếu gia của chúng ta chẳng xứng làm quân tử hiền nhân ư?
 
-Cố Xán nắm ghế dựa lưng vào cửa sổ, khuỷu tay đặt trên tay nắng, một tay chống cằm, hỏi: "Cây to đón gió, không thể tránh được. Ta không quá khắt khe với hai người các ngươi trong việc này, dù sao mẫu thân ta cũng có chỗ không thích hợp. Chỉ là làm người quên gốc thì không quá tốt. Mẫu thân ta có biết chuyện người ngoài lẻn vào phủ đệ thiết lập ván cục không?"
+Sài Bá Phù tưởng chừng bị sét đánh vào đầu. Mấy khí phủ trọng yếu cùng rung chuyển, Long Môn cảnh vất vả lắm mới củng cố được lại chực sụp đổ. Hắn vội nói:
 
-Hai tỳ nữ đã sớm quỳ trên mặt đất.
+- Cố thiếu gia xứng lắm, xứng lắm.
 
-Một tỳ nữ vẻ mặt mờ mịt.
+Kẻ xấu thường dọa người ta dăm câu mới ra tay. Vị tiền bối tính tình quái đản này xưa nay cứ ra tay trước rồi mới nói lý.
 
-Một tỳ nữ khác gật đầu nói: "Ta từng nói với phu nhân, phu nhân nói coi như là nhàm chán giải buồn."
+Vậy mà ở chung càng lâu, lòng hướng đạo của Sài Bá Phù càng kiên định. Hắn nhất định phải vào gia phả Bạch Đế thành ở Trung Thổ Thần Châu, làm đệ tử chính thức.
 
-Cố Xán do dự một chút, hỏi: "Cha ta có an bài hậu thủ hay không?"
+Kẻ gác cổng vừa đóng cửa đã thấy sau gáy lạnh ngắt. Cố Sán vươn tay bóp chặt cổ hắn, ấn đầu hắn vào cổng lớn. Máu đã rịn qua kẽ ngón tay Cố Sán, đủ biết hắn xuống tay nặng thế nào. Cố Sán nhẹ giọng hỏi:
 
-Tỳ nữ trầm giọng nói: "Lão gia cực kỳ lo lắng cho an nguy của phu nhân, chẳng những chào hỏi cùng lão gia Thành Hoàng các bản địa, còn thi triển thần thông ở phía trên một môn thần của một viện môn. Trong phủ có một vị võ phu thất cảnh tuổi tác đã cao, từng xuất thân biên quân, quê quán ở địa giới núi cao của Đại Ly, cho nên quen biết cùng lão gia, được lão gia mời đến bên này, hôm nay mai danh ẩn tích, đảm nhiệm hộ viện, vẫn nhìn chằm chằm đám người gác cổng."
+- Đóng cửa rồi, chẳng sợ người ngoài chê cười nữa. Nói đi, trong ngoài có mấy người? Kẻ có cảnh giới cao nhất là thần thánh phương nào?
 
-Nam tử gác cổng kia đầu óc trống rỗng.
+Cố Sán đột nhiên buông tay, xoay người mỉm cười nhìn về phía xa, cứ thế để cả tấm lưng trước mặt gã võ phu.
 
-Một "người tu đạo" có thể kết giao tình với Thành Hoàng gia Long Châu, có thể khiến tông sư thất cảnh đảm nhiệm hộ viện?
+Một phụ nhân bước vội tới, mấy lần giẫm phải vạt váy quét đất. Vừa thấy đứa con xa nhà nhiều năm, bà đã ứa nước mắt.
 
-Vì sao lại bị phụ nhân bụng dạ nhỏ hẹp kia, luôn miệng mắng thành một tử quỷ vô dụng?
+Bao năm chịu khổ để sống, rồi kiếm tiền hưởng phúc, xét cho cùng chẳng phải đều vì cái tên khốn kiếp vô lương tâm, chỉ biết gửi thư mà chẳng biết về nhà này sao?
 
-Cố Xán bất đắc dĩ, cái gì hương hỏa tình, võ phu thất cảnh Đại Ly, mỗi người đều ghi chép trong hồ sơ, triều đình bên kia nhìn chằm chằm rất sát, quá nửa là tồn tại xấp xỉ với sơn thần Lạc Phách sơn Tống Dục Chương kia, che chở Cố phủ là thật, nhưng nhiều hơn vẫn là một loại giám thị quang minh chính đại. Phụ thân sơn thần Cố Xán đã không chút ấn tượng kia, tự nhiên sẽ không nói toạc ra tin tức bực này, hại nàng lo lắng vô ích.
+Cố Sán bước nhanh tới. Phụ nhân ôm chầm lấy con, bật khóc nghẹn ngào. Hắn nhẹ nhàng vỗ lưng mẫu thân, sắc mặt vẫn như thường, mỉm cười nhìn hai tỳ nữ mà mọi vinh hoa phú quý đều do hắn ban cho.
 
-Cố Xán nhìn võ phu thuần túy còn muốn sống sót như thế nào, không khỏi nói một câu, "Người phía sau màn có lẽ thật sự là cao nhân, về phần ngươi, coi như thôi, đoán chừng rốt cuộc là ai bày bố cục diện, có bố cục hay không, đến bây giờ vẫn không rõ ràng lắm."
+Hai nữ tử trẻ tuổi vừa chạm mắt Cố Sán đã lập tức cúi đầu. Tay chân các nàng lạnh ngắt, tựa như rơi vào hầm băng.
 
-Cố Xán lẩm bẩm: "Người chết vì tiền, chim chết vì ăn, trên đời này sao lại có nhiều kẻ ngu như vậy chứ."
+Phụ nhân buông con, lau nước mắt rồi nhìn hắn thật kỹ. Thoạt tiên bà mừng rỡ, nhưng chẳng biết có phải chợt nhớ con một mình ở ngoài đã chịu bao nhiêu khổ sở, bà lại che miệng nức nở.
 
-Có tiếng nói mỉm cười vang lên, "Đây chẳng lẽ không phải chuyện tốt? Trên ván cờ, tùy tiện ném quân cờ, nói gì tiên phong. Người thông minh trẻ tuổi chút, mới có thể trở nên nổi bật, kẻ đến sau chiếm thượng."
+Bà thầm oán mình, oán cái lão chết tiệt chẳng hiểu sao lại thành đại sơn thần, oán Trần Bình An đã bỏ mặc Cố Sán một mình với Than Tuyết suốt ngày chém giết[?]. Bà oán cả ông trời không có mắt, để Cố Sán phải gặp tai ương, chịu ngần ấy khổ sở.
 
-Cố Xán nghiêm nghị đứng dậy, trong phòng không người, Cố Xán vẫn cung kính như trước, ôm quyền chắp tay.
+Sau khi sang sảnh nói chuyện với mẫu thân, Cố Sán lần đầu bước vào thư phòng dành cho mình. Liễu Xích Thành dẫn Long Bá lão đệ đi dạo quanh phủ. Cố Sán gọi hai tỳ nữ và tên gác cổng đến. Tên kia đến giờ vẫn chẳng dám liều chết.
 
-Một vị nam tử áo trắng xuất hiện ở bên cạnh Cố Xán, "Thu thập một chút, theo ta đi Bạch Đế thành. Trước khi lên đường, ngươi trước tiên cùng Liễu Xích Thành đi Hoàng Hồ sơn một chuyến, gặp vị lão đạo nhân đời này tên là Giả Thịnh kia một chút. Lão nhân gia hắn nếu nguyện ý hiện thân, ngươi chính là tiểu sư đệ của ta, nếu không muốn gặp ngươi, ngươi cứ an tâm làm ký danh đệ tử của ta."
+Cố Sán ngồi ghế quay lưng về phía cửa sổ, tì khuỷu tay lên tay vịn, một tay chống cằm:
 
-Nam tử áo trắng nắm trong tay một quyển trục, là bức 《 Sưu Sơn Đồ 》 cũ nát, giao cho Cố Xán: "Ngươi mang theo vật này, đi tới Hoàng Hồ Sơn."
+- Cây cao đón gió, chuyện khó tránh. Ta cũng chẳng quá khắt khe với hai ngươi trong việc này, mẫu thân ta ít nhiều có chỗ chưa phải. Chỉ có điều làm người mà quên gốc thì chẳng hay. Mẫu thân ta có biết người ngoài lẻn vào phủ bày trò không?
 
-Trước khi tới phủ đệ này, nam tử từ bên Lâm Thủ Nhất thu hồi bức tranh lục soát núi này, làm đáp lễ, giúp Lâm Thủ Nhất bổ sung bộ《 Vân Thượng Lang Lang Thư 》 vốn xuất từ Bạch Đế thành, tặng hai quyển sách trung hạ. Lâm Thủ Nhất tuy là học sinh thư viện, nhưng ở trên đường tu hành, mười phần mạnh mẽ, trước kia tễ thân Động Phủ cảnh cực nhanh, chuyên công công hạ《 Vân Thượng Thư 》của ngũ cảnh, công lớn lắm, lôi pháp trong bí tịch, là Ngũ Lôi chính pháp chính tông, nhưng cái này cũng không phải tinh diệu lớn nhất của《 Vân Thượng Thư 》, mở đại đạo, tu hành không ngại, mới là tôn chỉ căn bản của《 Vân Thượng Lang Lang Thư 》. Người soạn sách này, chính là thành chủ Bạch Đế thành từng lĩnh hội lôi pháp Long Hổ Sơn, tự tay xóa đi, hoàn thiện, cắt giảm rất nhiều cành lá phức tạp.
+Hai tỳ nữ đã quỳ dưới đất. Một nàng ngơ ngác, nàng kia gật đầu:
 
-Nơi nào trên mây nhất thế gian?
+- Nô tỳ từng bẩm với phu nhân. Phu nhân nói cứ coi như có chuyện giải khuây lúc buồn chán.
 
-Tự nhiên là Bạch Đế thành.
+Cố Sán do dự một lát rồi hỏi:
 
-Về phần bộ quyển đạo thư thượng kia, vì sao sẽ trằn trọc rơi vào trong tay Lâm Thủ Nhất, đương nhiên là bút tích của A Lương, người đọc sách mượn sách, loại đó có mượn không trả, cho nên nói lúc ấy Lâm Thủ Nhất liếc mắt một cái nhìn trúng quyển sách này, có thể nói đạo duyên cực tốt.
+- Cha ta có thu xếp gì để phòng khi có chuyện không?
 
-Nếu là A Lương tặng, Bạch Đế thành cũng liền không so đo chút "hành động vô tâm, thực học trộm thầy" trên núi của Lâm Thủ Nhất phạm húy.
+Tỳ nữ trầm giọng đáp:
 
-Nhưng Lâm Thủ Nhất kia, thế mà ở sau khi hắn báo ra danh hiệu, vẫn không muốn nhiều lời về nửa chữ nguồn gốc Sưu Sơn Đồ.
+- Lão gia hết sức lo cho an nguy của phu nhân. Người đã nhờ Thành Hoàng bản địa để mắt, lại thi triển thần thông lên một vị môn thần ở cổng viện. Trong phủ có một lão võ phu thất cảnh vốn xuất thân từ biên quân. Quê ông ấy ở vùng núi cao Đại Ly[?] nên có quen lão gia. Lão gia mời ông ấy đến đây đổi tên làm hộ viện. Bấy lâu nay, ông ấy vẫn để mắt đến đám gác cổng.
 
-Đây mới là nguyên nhân thành chủ Bạch Đế thành nguyện ý đưa tặng《 Vân Thượng Thư 》 quyển cuối cùng, vốn cho trung quyển, Lâm Thủ Nhất nên trở thành quân cờ, gặp một kiếp.
+Đầu óc tên gác cổng trống rỗng. Một tu sĩ có giao tình với Thành Hoàng gia Long Châu, mời được cả tông sư thất cảnh về làm hộ viện, sao lại bị phụ nhân bụng dạ hẹp hòi kia suốt ngày mắng là lão chết tiệt vô dụng?
 
-Cố Xán nghe vậy mặt sau không biểu tình, nhưng trong lòng chấn động không thôi, y biết rõ Cổ Thịnh kia!
+Cố Sán có chút bất đắc dĩ. Giao tình hương hỏa gì chứ? Võ phu thất cảnh của Đại Ly, ai nấy đều có tên trong hồ sơ, triều đình theo dõi rất sát. Vị này quá nửa cũng giống sơn thần núi Lạc Phách Tống Dục Chương. Che chở Cố phủ là thật, song phần nhiều vẫn là đường đường chính chính trông chừng nhà họ Cố.
 
-Lạc Phách Sơn ký danh cung phụng, một lão đạo sĩ mù đường vận đạo tốt mới có thể ở ngõ Kỵ Long hỗn ăn hỗn uống, thu hai đệ tử an phận thủ thường, người trẻ tuổi què chân, Triệu Đăng Cao, là Yêu tộc, Điền Tửu Nhi, máu tươi là chất liệu phù lục tốt nhất. Nghe nói Cổ Thịnh mấy năm trước dọn đến Hoàng Hồ Sơn kết mao tu hành.
+Người cha làm sơn thần mà Cố Sán chẳng còn chút ấn tượng nào dĩ nhiên sẽ không nói toạc chuyện này với mẫu thân, kẻo bà lại lo lắng vô ích.
 
-Lạc Phách Sơn thế mà có người này ngủ đông, Chu Liễm, Ngụy Bách kia đều chưa từng nhận ra nửa điểm dấu vết để lại của người này?
+Cố Sán nhìn gã võ phu còn đang tính cách giữ mạng, không nhịn được nói:
 
-"Nếu như ta không đến nơi đây, tất cả mọi người ở Lạc Phách Sơn, cả đời cũng sẽ không biết có một người như vậy. Cổ Thịnh kia đến chết cũng sẽ chỉ là Giả Thịnh, có thể ở trên đường tu đạo của Giả Thịnh kia, sẽ thuận lý thành chương mà đi tới tòa thiên hạ thứ năm. Ngày nào đó binh giải ly thế, ngày nào đó lại đổi túi da, tuần hoàn qua lại, làm không biết mệt."
+- Người đứng sau có lẽ thật sự là cao nhân. Còn ngươi thì thôi đi, e đến giờ vẫn chưa biết rốt cuộc ai bày cục, thậm chí có người bày cục hay không.
 
-Nam tử áo trắng cười nói: "Không cần suy nghĩ nhiều, là hắn nhất quán chơi đùa nhân gian mà thôi. Trước kia sau khi thu kiếm, liền hoàn toàn thay đổi thành người khác. Am hiểu tự khi dễ, không thích khinh người. Chết bởi tai ương bất ngờ trên núi dưới núi rất nhiều lần, cũng không thấy hắn ra tay tự bảo vệ mình một lần. Hạo Nhiên Thiên Hạ Cửu Châu, mỗi châu đều sẽ ở lại mấy trăm năm. Còn nữa tuy ta là đệ tử trên danh nghĩa của hắn, Bạch Đế thành lại là một tay ta sáng tạo, không liên quan gì tới hắn."
+Hắn lẩm bẩm:
 
-Cố Xán đột nhiên nói: "Vậy ta không cần bái phỏng Hoàng Hồ Sơn, không quấy rầy lão tiền bối thanh tu, chỉ để ý đi theo thành chủ đi hướng Trung Thổ Thần Châu."
+- Người chết vì tiền, chim chết vì ăn. Sao trên đời lắm kẻ ngu thế nhỉ?
 
-Bạch y nam tử cười nói: "Có thể nói như vậy, vậy thật sự nên đi gặp một chút."
+Một giọng nói mang theo ý cười chợt vang lên:
 
-Cố Xán hỏi: "Trong phòng ba người, xử trí như thế nào?"
+- Thế chẳng phải chuyện tốt ư? Trên bàn cờ, cứ tùy tay đặt quân, còn nói gì tới chiếm tiên cơ. Có thế, người trẻ tuổi thông minh mới dễ nổi bật, kẻ đến sau mới có dịp vượt lên.
 
-Hai tỳ nữ, một người gác cổng, ba người không chút sứt mẻ.
+Cố Sán nghiêm mặt đứng dậy. Chưa thấy người đâu, hắn đã cung kính ôm quyền.
 
-Nam tử áo trắng nhìn ba người, vươn một bàn tay, ba người ngay cả võ phu thuần túy kia cũng bị ép âm thần đi xa, ngơ ngác, si ngốc, hai chân rời mặt đất, chậm rãi lắc lư đến trước mặt nam tử áo trắng dừng bước. Hắn đưa tay tùy tiện chỉ điểm hai lần ở mi tâm ba người, ba vị âm thần trước tiên lui về phía sau thân thể, Cố Xán ngưng thần nhìn lại, phát hiện chỗ mi tâm của ba người kia làm điểm khởi đầu, đều có sợi tơ bắt đầu lan tràn ra.
+Một nam tử bạch y xuất hiện bên cạnh hắn:
 
-Sau đó ba người bỗng nhiên "tỉnh táo" lại đây, người gác cổng thân là võ phu thuần túy đột nhiên lệ nóng lưng tròng, quỳ xuống đất không dậy nổi, "Thiếu chủ!"
+- Thu xếp một chút rồi theo ta về Bạch Đế thành. Trước khi đi, ngươi cùng Liễu Xích Thành lên núi Hoàng Hồ gặp vị lão đạo nhân kiếp này tên Giả Thịnh. Nếu lão nhân gia chịu hiện thân, ngươi sẽ là tiểu sư đệ của ta. Nếu người chẳng muốn gặp ngươi, cứ yên tâm làm đệ tử ký danh của ta.
 
-Một tỳ nữ dùng sức dập đầu, "Nô tỳ bái kiến tông chủ!"
+Nam tử đưa cho Cố Sán một quyển trục đã cũ nát, chính là bức Sưu Sơn Đồ:
 
-Một tỳ nữ khác thì nằm sấp xuống đất không dậy nổi, thương tâm muốn chết nói: "Lão gia thứ tội."
+- Mang theo vật này lên núi Hoàng Hồ.
 
-Nam tử áo trắng phất tay áo một cái, ba người ngất ngay tại chỗ, cười giải thích nói: "Giống như ngủ say đã lâu, lúc tỉnh mộng, người vẫn là người như vậy, vừa xóa giảm vừa tăng thêm chút lịch duyệt cuộc đời mà thôi."
+Trước khi đến phủ, nam tử đã lấy lại bức Sưu Sơn Đồ từ tay Lâm Thủ Nhất. Để đáp lễ, hắn tặng hai quyển trung và hạ của bộ Vân Thượng Lang Lang Thư vốn xuất xứ từ Bạch Đế thành, bổ sung cho quyển thượng Lâm Thủ Nhất đã có.
 
-Trán Cố Xán chảy ra mồ hôi hột.
+Lâm Thủ Nhất tuy là học trò thư viện, tu hành lại tiến rất nhanh. Năm xưa hắn sớm bước vào Động Phủ cảnh, công phu ở năm cảnh giới dưới chủ yếu nhờ Vân Thượng Thư[?]. Lôi pháp trong bí tịch là Ngũ Lôi chính pháp chính tông, song đó vẫn chưa phải chỗ tinh diệu nhất. Mở đường cho đại đạo, để người học tu hành chẳng gặp trở ngại, mới là tôn chỉ của Vân Thượng Lang Lang Thư.
+
+Người soạn bộ sách chính là thành chủ Bạch Đế thành. Sau khi lĩnh hội lôi pháp Long Hổ sơn, hắn đích thân gọt bỏ nhiều chỗ rườm rà rồi hoàn thiện thành sách.
+
+Nơi nào trên đời cao nhất giữa mây?
+
+Đương nhiên là Bạch Đế thành.
+
+Còn chuyện quyển thượng của bộ đạo thư lưu lạc thế nào rồi vào tay Lâm Thủ Nhất, tự nhiên là do A Lương. Người đọc sách mượn sách, thứ đã mượn thì chẳng trả. Năm ấy Lâm Thủ Nhất vừa nhìn qua đã chọn ngay quyển này, có thể nói đạo duyên rất tốt.
+
+Đã do A Lương tặng, Bạch Đế thành cũng chẳng truy cứu cái lỗi phạm húy trên núi của Lâm Thủ Nhất, vô tình mà thành học lén.
+
+Thế nhưng ngay cả khi thành chủ Bạch Đế thành xưng danh, Lâm Thủ Nhất vẫn không chịu hé nửa lời về lai lịch bức Sưu Sơn Đồ. Vì thế thành chủ mới bằng lòng tặng cả quyển cuối của Vân Thượng Thư. Vốn dĩ chỉ cần cho quyển trung, Lâm Thủ Nhất đã phải thành quân cờ, chịu qua một kiếp.
+
+Cố Sán nghe xong vẫn chẳng đổi sắc mặt, trong lòng lại hết sức chấn động. Hắn biết rõ Giả Thịnh kia!
+
+Đó là vị cung phụng ký danh của núi Lạc Phách, một lão đạo sĩ mù nhờ vận may mà kiếm được miếng ăn ở ngõ Kỵ Long. Lão thu hai đệ tử an phận thủ thường, một người trẻ tuổi què chân tên Triệu Đăng Cao, và Điền Tửu Nhi thuộc yêu tộc, có máu dùng làm phù lục rất tốt. Nghe đâu mấy năm trước Giả Thịnh đã dọn lên núi Hoàng Hồ dựng nhà tranh tu hành.
+
+Núi Lạc Phách có một người như thế ẩn thân, vậy mà cả Chu Liễm lẫn Ngụy Bách đều chẳng nhận ra chút dấu vết nào ư?
+
+- Nếu ta chẳng đến đây, người trên núi Lạc Phách cả đời cũng không biết có người này. Giả Thịnh đến chết vẫn chỉ là Giả Thịnh. Trên đường tu đạo, có khi lão sẽ thuận lý thành chương đi tới tòa thiên hạ thứ năm. Ngày nào đó lại binh giải, rời khỏi thế gian, rồi một ngày nào đó đổi sang túi da khác. Cứ lặp đi lặp lại như vậy, chẳng biết chán.
+
+Nam tử bạch y cười nói:
+
+- Khỏi nghĩ nhiều. Xưa nay lão vẫn chơi đùa nhân gian như thế. Sau khi thu kiếm, lão đã thành một người khác hẳn. Lão giỏi tự bắt nạt mình, chẳng thích bắt nạt người khác. Bao lần gặp tai bay vạ gió mà chết, trên núi hay dưới núi đều có, cũng chẳng thấy lão ra tay tự cứu lấy mình. Chín châu của Hạo Nhiên thiên hạ, châu nào lão cũng ở mấy trăm năm. Ta tuy là đệ tử trên danh nghĩa của lão, nhưng Bạch Đế thành do một tay ta dựng nên, chẳng liên quan gì đến lão.
+
+Cố Sán đột nhiên nói:
+
+- Vậy ta khỏi lên núi Hoàng Hồ làm phiền lão tiền bối thanh tu. Ta chỉ việc theo thành chủ đến Trung Thổ Thần Châu.
+
+Nam tử bạch y cười:
+
+- Ngươi đã nói được như vậy thì càng nên đi gặp một lần.
+
+Cố Sán hỏi:
+
+- Ba người trong phòng xử trí thế nào?
+
+Hai tỳ nữ và một gã gác cổng, vẫn nguyên vẹn cả ba.
+
+Nam tử bạch y nhìn họ, đưa một tay ra. Âm thần của ba người, kể cả gã võ phu thuần túy, đều bị ép lìa thân thể. Chân không chạm đất, cả ba ngây dại lảo đảo trôi đến trước mặt nam tử rồi dừng lại.
+
+Hắn tùy tay điểm mấy lần vào mi tâm từng người. Ba âm thần lui về thân thể. Cố Sán ngưng thần nhìn kỹ, thấy từng sợi tơ bắt đầu lan ra từ giữa mày ba người.
+
+Ba người bỗng “tỉnh” lại. Gã võ phu gác cổng hai mắt rưng rưng, quỳ mãi không đứng lên:
+
+- Thiếu chủ!
+
+Một tỳ nữ dập đầu thật mạnh:
+
+- Nô tỳ bái kiến tông chủ!
+
+Tỳ nữ còn lại nằm rạp dưới đất, đau đớn như đứt ruột:
+
+- Xin lão gia tha tội.
+
+Nam tử bạch y phất tay áo, cả ba ngất ngay tại chỗ. Hắn cười giải thích:
+
+- Cứ như ngủ say một giấc dài. Tỉnh mộng rồi, người vẫn là người ấy, ta chỉ bớt đi đôi chút, thêm vào đôi chút những chuyện họ đã trải qua trong đời.
+
+Trán Cố Sán rịn mồ hôi.
 
 Đây chính là thủ đoạn ma đạo của Bạch Đế thành!
 
-Thẳng đến giờ phút này, hắn mới rõ vì sao mỗi lần Liễu Xích Thành đề cập người này, đều sẽ kính sợ như vậy.
+Đến giờ hắn mới hiểu vì sao Liễu Xích Thành mỗi lần nhắc đến người này đều kính sợ đến vậy. Đối phương chỉ tùy tay làm một chút, đã có thể biến một người thành kẻ khác, mà người ấy vẫn đinh ninh mình là mình.
 
-Đối phương tùy tùy tiện tiện, có thể để cho một người không còn là người trước kia, rồi lại tin tưởng không nghi ngờ là mình.
+Vậy thì ân oán tình cừu, rồi cái gọi là tu hành đại đạo, rốt cuộc còn là gì?
 
-Như vậy tất cả ân oán tình cừu, cái gọi là tu hành đại đạo, có thể là cái gì?
+Nam tử bạch y cười nói:
 
-Nam tử áo trắng cười nói: "Sinh tử sự lớn nhất? Như vậy rốt cuộc cái gì gọi là sinh tử? Ta đã hiểu việc này, có người không quá hy vọng ta đi ra Bạch Đế thành."
+- Sinh tử là chuyện lớn nhất ư? Vậy rốt cuộc thế nào mới gọi là sống chết? Chuyện này ta đã hiểu. Có người chẳng mấy mong ta rời Bạch Đế thành.
 
-Hắn cuối cùng nói: "Lão đầu nhi kia, tới Ly Châu Động Thiên này, dĩ nhiên không phải vì triệt để đoạn nhân quả, cũng chỉ là đi dạo? Sư phụ cuối cùng có chút phong phạm sư phụ, rốt cuộc để cho ta bất ngờ một lần."
+Cuối cùng hắn nói:
 
-Bên cạnh một ngôi nhà tranh trên Hoàng Hồ Sơn.
+- Lão đầu kia đến Ly Châu động thiên, lẽ nào chỉ để đi dạo, chẳng định chặt đứt nhân quả cho sạch? Sư phụ cuối cùng cũng có chút dáng dấp sư phụ, khiến ta bất ngờ được một lần.
 
-Sâu trong núi lớn nước chảy ào ào về.
+Núi Hoàng Hồ có một căn nhà tranh. Bên nhà, nước từ sâu trong núi chảy ào ào xuống.
 
-Lão đạo sĩ mù ở kẽ hở tu đạo, đi ra khỏi nhà tranh, thổn thức không thôi, sau khi huynh đệ Trần Linh đều đi xa, liền không có ai hàn huyên với mình nữa, thật sự là cực kỳ tịch mịch.
+Lão đạo sĩ mù tạm gác việc tu hành, bước ra khỏi nhà tranh mà than thở mãi. Từ ngày Trần Linh Quân huynh đệ đi xa, lão chẳng còn ai nói chuyện, thật cô quạnh hết sức.
 
-Cái gọi là dốc lòng tu đạo, thật ra chỉ là tìm cớ dọn nhà mà thôi, không ở lại cửa hàng đầu cỏ ngõ Kỵ Long kia nữa, tốt xấu cách núi Lạc Phách gần chút, về sau lại quay về ngõ Kỵ Long, đến lúc này trở lại, thân phận cung phụng này của mình liền càng thêm vững chắc. Chưởng quầy đồng hành cửa hàng Áp Tuế cách vách kia, về sau gặp lại mình, còn dám mũi không phải mũi, mắt không phải mắt? Không thể thấp hơn mình một cái đầu?
+Cái gọi là dốc lòng tu hành, thật ra chỉ là cái cớ dọn nhà. Rời cửa hàng Thảo Đầu ở ngõ Kỵ Long, tốt xấu cũng ở gần núi Lạc Phách hơn một chút. Chờ sau này quay về ngõ Kỵ Long, thân phận cung phụng của lão sẽ càng vững chắc. Đến chừng ấy, vị chưởng quầy đồng nghiệp ở cửa hàng Áp Tuế bên cạnh gặp lão, còn dám trưng cái mặt khó coi ra nữa ư? Chẳng phải sẽ tự thấy thấp hơn lão một cái đầu sao?
 
-Cổ Thịnh đột nhiên có chút hoảng sợ.
+Giả Thịnh đột nhiên hoảng hốt. Lão lờ mờ cảm thấy trước mặt có gợn sóng khẽ lay động, tựa như khách đến. Lão đành cứng giọng nói lớn:
 
-Trước người lờ mờ phát giác được gợn sóng khẽ động, tựa như có khách tới cửa.
+- Hai vị khách không mời mà tới, đã đến cửa cũng chẳng chào một tiếng, e là không thỏa đáng.
 
-Giả Thịnh lập tức kiên trì cất cao giọng nói: "Hai vị khách nhân, không mời mà tới, đến cửa lại không chào hỏi, không quá thỏa đáng a."
+Liễu Xích Thành suýt trừng rớt hai tròng mắt.
 
-Liễu Xích Thành thiếu chút nữa trừng tròng mắt ra.
+Có khi nhìn một người, từ túi da, hồn phách đến khí tượng đều có thể bị che giấu, khiến kẻ đứng gần trong gang tấc cũng chẳng nhận ra. Chỉ có mấy chỗ vụn vặt, nếu để tâm nhìn kỹ, vẫn lần ra được dấu vết. Chẳng hạn dáng đứng của lão đạo sĩ mù này, hay các ngón tay co lại đến đâu khi bấm quyết.
 
-Có đôi khi nhìn người, túi da, hồn phách, khí tượng gì đó, đều có thể che tai mắt người khác, khiến cho người bên ngoài gần trong gang tấc không nhận ra.
+Thêm một chuyện nữa, đại sư huynh chẳng nói rõ nguyên do, cứ thế ném hắn và Cố Sán tới đây. Liễu Xích Thành lập tức nghĩ đến cái khả năng chỉ có một phần vạn ấy. Hắn phủ phục xuống đất, run giọng nói:
 
-Duy chỉ có một số chỗ nhỏ bé nào đó, chỉ cần là theo đuổi sâu, sẽ có dấu vết rõ ràng, ví dụ như tư thế đứng của vị lão đạo sĩ mù này, biên độ ngón tay lúc bấm tay bấm quyết gấp khúc, vân vân.
+- Đồ nhi bái kiến sư phụ!
 
-Lại thêm đại sư huynh cũng không nói nguyên do, liền ném mình và Cố Xán đến bên này, Liễu Xích Thành lập tức nghĩ đến "một phần vạn" không có khả năng nhất kia, phủ phục trên mặt đất, run giọng nói: "Đồ nhi bái kiến sư phụ!"
+Giả Thịnh hơi chột dạ. Đồ đệ từ đâu mọc ra thế này?
 
-Cổ Thịnh có chút chột dạ, dã đồ đệ từ đâu chạy đến?
+Liễu Xích Thành áp trán sát đất, uất ức vô cùng:
 
-Liễu Xích Thành đầu kề sát đất, vô cùng tủi thân và uất ức nói: "Sư phụ, đại sư huynh bắt nạt con thê thảm, đầu tiên là vì một chuyện nhỏ, liền đuổi con khỏi Bạch Đế thành, lại trơ mắt để con bị đại thiên sư Long Hổ sơn nhấc kiếm đuổi giết, thế cho nên đồ nhi đáng thương ở Bảo Bình châu nho nhỏ này, bị nhốt ngàn năm, không người hỏi thăm, sư huynh căn bản là không niệm nửa điểm tình nghĩa đồng môn, sư phụ người nhất định phải chủ trì công đạo..."
+- Sư phụ, đại sư huynh bắt nạt con thê thảm. Chỉ vì một chuyện nhỏ mà đuổi con khỏi Bạch Đế thành, rồi trơ mắt nhìn đại thiên sư Long Hổ sơn cầm kiếm đuổi giết con. Đồ nhi đáng thương bị nhốt cả ngàn năm ở Bảo Bình châu nhỏ bé này, chẳng có ai hỏi han. Sư huynh chẳng nhớ chút tình đồng môn nào. Sư phụ, người nhất định phải làm chủ cho con...
 
-Thật đúng là không phải Liễu Xích Thành làm ẩu, sư phụ đối đãi với hắn vị quan môn đệ tử này, từ trước đến nay yêu thương cưng chiều nhất, rất nhiều sư huynh sư tỷ ở sâu trong nội tâm đối địch đối với mình, chính là bắt nguồn từ đây.
+Liễu Xích Thành cũng chẳng làm bộ làm tịch. Sư phụ xưa nay thương và chiều hắn, vị đệ tử cuối cùng, hơn cả. Nhiều sư huynh sư tỷ ngấm ngầm ghét hắn cũng vì thế mà ra.
 
-Lão đạo sĩ thiếu chút nữa giậm chân chửi má nó, cái gì Bạch Đế thành, cái gì Long Hổ sơn Đại Thiên Sư, trên đời này có người đồng đạo nào mà ngươi đi lừa gạt như vậy sao? Lừa người nói năng không đáng tin như thế, nếu Giả Thịnh ta thật sự là sư phụ ngươi, mắt bị mù mới tìm đệ tử này của ngươi... Giả Thịnh đột nhiên sửng sốt, bần đạo thật đúng là một kẻ mù a.
+Lão đạo sĩ suýt giậm chân chửi ầm lên. Bạch Đế thành gì, đại thiên sư Long Hổ sơn gì? Có ai đi lừa người đồng đạo bằng mấy lời khó tin ấy không? Nếu Giả Thịnh ta thật là sư phụ ngươi, phải mù mắt mới nhận một đệ tử như ngươi...
 
-Cố Xán có chút bội phục da mặt Liễu Xích Thành này, thật sự là gặp được cao nhân, liền lôi ra vị sư huynh thành chủ Bạch Đế thành này, thực gặp được đại sư huynh, lúc này đã bắt đầu chuyển sư phụ ra?
+Giả Thịnh bỗng ngẩn người. Bần đạo đúng là người mù mà.
 
-Cố Xán giơ lên bức 《 Sưu Sơn Đồ 》kia trong tay, trầm giọng nói: "Lão tiền bối, vật quy nguyên chủ."
+Cố Sán có phần bội phục da mặt Liễu Xích Thành. Hễ gặp cao nhân là lôi vị sư huynh thành chủ Bạch Đế thành ra. Đến khi gặp đúng đại sư huynh, hắn lại lôi cả sư phụ ra được.
 
-Cổ Thịnh tự nhiên mà mở mắt ra, nhìn thấy quyển trục kia, than thở nói: "Thu một đại đệ tử như vậy, thật sự là không lật được lịch cũ."
+Cố Sán giơ bức Sưu Sơn Đồ trong tay, trầm giọng nói:
 
-Sau đó Cổ Thịnh lại sửng sốt, nhẹ nhàng quơ quơ đầu óc, cái ý niệm cổ quái gì trong đầu? Lão đạo nhân dùng sức chớp mắt, thiên địa thanh minh, vạn vật trong mắt. Năm đó tu hành lôi pháp cổ quái của đỉnh núi nhà mình, là con đường bàng môn tả đạo, trả giá thật lớn, đầu tiên là tổn thương tạng phủ, lại mù mắt, không thấy sự vật đã rất nhiều năm.
+- Lão tiền bối, xin trả vật về chủ cũ.
 
-Sau một thoáng hoảng hốt, lão đạo sĩ Cổ Thịnh lùi bước, tâm thần ngưng tụ như hạt cải, lâm vào trong mê man, một người khác chiếm cứ tất cả linh trí.
+Giả Thịnh tự nhiên mở mắt. Vừa trông thấy quyển trục, lão đã than:
 
-Lão nhân cúi đầu, kéo kéo đạo bào trên người, sau đó quay đầu, liếc mắt nhìn phường Đại học sĩ huyện thành Hòe Hoàng, lại dời tầm mắt đi, thu Chân Châu sơn vào đáy mắt cùng toàn bộ lò nung rồng, lão nhân vẻ mặt phức tạp, sau đó cứ như vậy vừa không để ý tới Liễu Xích Thành, cũng không nhìn Cố Xán kia, bắt đầu lâm vào trầm tư.
+- Thu phải một đại đệ tử thế này, thật chẳng nên lật lại lịch cũ.
 
-Lão nhân mở bàn tay ra, chăm chú nhìn đường vân lòng bàn tay một lát, cuối cùng lẩm bẩm nói: "Đời này tiểu mộng, tỉnh lại sau giấc ngủ, Lục Trầm lầm ta nhiều lắm."
+Nói xong lão lại ngẩn ra, khẽ lắc đầu. Sao trong đầu lại nảy ra ý nghĩ kỳ quái như thế? Lão đạo nhân chớp mắt mấy cái. Trời đất sáng rõ, vạn vật đều hiện ra trước mắt. Năm xưa tu luyện lôi pháp cổ quái của đỉnh núi nhà mình, đi theo con đường bàng môn tả đạo, lão đã trả giá rất đắt. Tạng phủ bị thương trước, rồi đôi mắt cũng mù, bao nhiêu năm chẳng nhìn thấy gì.
 
-Lão nhân bước ra một bước, lão đạo nhân mù Giả Thịnh đứng tại chỗ, ngủ say như trước.
+Sau một thoáng hoảng hốt, lão đạo sĩ Giả Thịnh lùi lại. Tâm thần co nhỏ như hạt cải rồi chìm vào mê man, để một người khác chiếm lấy toàn bộ linh trí.
 
-Lão nhân khôi phục chân dung, là một vị lão giả cao gầy tướng mạo gầy gò, mơ hồ có thể thấy được, lúc tuổi còn trẻ, tất nhiên là vị nam tử tuấn dật khí chất không tầm thường.
+Lão nhân cúi nhìn, kéo nhẹ đạo bào trên người. Lão quay đầu liếc qua phường Đại Học Sĩ ở huyện thành Hòe Hoàng, rồi dời mắt, thu cả núi Chân Châu và toàn bộ lò nung rồng vào đáy mắt. Vẻ mặt lão thoáng phức tạp. Cứ thế, lão đứng trầm ngâm, chẳng nhìn đến Cố Sán, cũng chẳng để ý Liễu Xích Thành.
 
-Đường tu hành của lão nhân, ở Hạo Nhiên Thiên Hạ tựa như một ngôi sao băng lấp lánh loá mắt, so với dòng sông thời gian trôi qua từ từ, quật khởi nhanh chóng mãnh liệt, ngã xuống càng nhanh hơn.
+Lão xòe bàn tay, chăm chú nhìn những đường vân trong lòng bàn tay một lát, cuối cùng lẩm bẩm:
 
-Đến nỗi ngay cả thành chủ Bạch Đế thành là đại đệ tử khai sơn của hắn, một chuyện lớn như vậy, người biết, một tòa thiên hạ, có thể đếm được trên đầu ngón tay.
+- Đời này chẳng qua một giấc mộng nhỏ. Tỉnh giấc mới thấy, Lục Trầm làm lỡ của ta nhiều quá.
 
-Lão nhân đã là Cổ Thịnh, lại xa xa không chỉ là Cổ Thịnh, chỉ là Cổ Thịnh phía sau, tương lai liền chỉ là Cổ Thịnh.
+Lão nhân bước ra một bước. Lão đạo nhân mù Giả Thịnh vẫn đứng nguyên tại chỗ, ngủ say.
 
-Trong cả đời, chỉ làm một chuyện, trên đời đều biết.
+Lão nhân đã trở về diện mạo thật. Thân hình cao gầy, nét mặt thanh nhã, thấp thoáng có thể thấy thời trẻ hẳn là một nam tử tuấn dật, khí độ khác thường.
 
-Trường kiếm đưa ra, giao long trảm xuống.
+Đường tu hành của lão ở Hạo Nhiên thiên hạ tựa một ngôi sao băng sáng lóa. Giữa dòng thời gian chậm rãi trôi, lão quật khởi nhanh đến kinh người, rồi ngã xuống còn nhanh hơn.
 
-Giết đến thế gian chỉ còn lại một con Chân Long cuối cùng.
+Ngay cả chuyện lớn như thành chủ Bạch Đế thành là đại đệ tử khai sơn của lão, cả tòa thiên hạ cũng chỉ có thể đếm trên đầu ngón tay những người biết được.
 
-Một bộ lịch cũ của một tòa Hạo Nhiên Thiên Hạ, chỉ vì một người xuất kiếm, xé đi mấy trang!
+Lão là Giả Thịnh, nhưng còn hơn Giả Thịnh rất nhiều. Còn Giả Thịnh ở đằng sau lão, từ nay sẽ chỉ là Giả Thịnh.
 
-Sau khi lão nhân hiện thân, con mãng xà trong hồ Hoàng Sơn từng tranh đoạt thủy vận với con cá chạch nhỏ Cố Xán kia bị thua, như bị thiên đạo áp thắng, chỉ đành đột nhiên trầm xuống, ẩn núp ở đáy hồ, nơm nớp lo sợ, hận không thể đập đầu vào trong chân núi.
+Cả đời lão chỉ làm một chuyện mà thiên hạ đều biết.
 
-Lão nhân nhìn Cố Xán, đưa tay tiếp nhận quyển trục kia, thu vào trong tay áo, thuận thế vỗ vai Cố Xán, sau đó gật gật đầu, mỉm cười nói: "Căn cốt nặng, hạt giống tốt. Vậy ta sẽ thay sư phụ thu đồ đệ."
+Trường kiếm vừa đưa, giao long đã bị chém xuống.
 
-Liễu Xích Thành như bị sét đánh, ngồi yên trên mặt đất, không bao giờ r*n r* nữa.
+Lão giết đến nỗi trên thế gian chỉ còn lại một con chân long cuối cùng.
 
-Không nên như thế a, tuyệt đối đừng làm như thế.
+Cuốn lịch cũ của cả Hạo Nhiên thiên hạ, chỉ vì một người xuất kiếm mà bị xé mất mấy trang!
 
-Một khi Cố Xán có thân phận này, không thể nói trước một khắc, Liễu Xích Thành hắn sẽ sớm đi một bước hoàng tuyền so với Long bá lão đệ!
+Lão nhân vừa hiện thân, con mãng xà trong hồ Hoàng Hồ, từng tranh thủy vận với con cá chạch nhỏ của Cố Sán rồi thua, đã tựa như chịu thiên đạo áp chế. Nó vội lặn xuống ẩn dưới đáy hồ, run như cầy sấy, chỉ hận không thể chui đầu vào chân núi.
 
-Nam tử áo trắng trống rỗng xuất hiện.
+Lão nhân nhìn Cố Sán, đưa tay nhận quyển trục, thu vào tay áo rồi thuận tay vỗ lên vai hắn. Lão gật đầu, mỉm cười nói:
 
-Lão nhân liếc mắt nói: "Vi sư hôm nay xem như nửa phế nhân, đánh không lại ngươi khai sơn đệ tử này, dù sao danh nghĩa thầy trò vẫn còn, sao, không phục? Khi sư diệt tổ? Giống như kiếm thuật, ta cũng chưa dạy ngươi việc này."
+- Căn cốt vững, là hạt giống tốt. Vậy ta thay sư phụ thu đệ tử.
 
-Nam tử áo trắng giữ im lặng, mơ hồ có chút sát khí.
+Liễu Xích Thành như trúng sét, ngồi đờ ra dưới đất, chẳng còn rên rỉ tiếng nào.
 
-Nào ngờ lão nhân được một tấc lại muốn tiến một thước, căn bản không thèm để ý sát ý của một vị thành chủ Bạch Đế thành, ngược lại hỏi: "Thất thần làm cái gì, gọi tiểu sư thúc."
+Sao lại thế này? Tuyệt đối đừng làm thế chứ.
 
-Nam tử áo trắng không có sư đồ tôn ti gì, chỉ hỏi: "Ngươi xác định là vì tốt cho Cố Xán?"
+Một khi Cố Sán có thân phận ấy, chẳng chừng Liễu Xích Thành hắn còn phải xuống hoàng tuyền trước cả Long Bá lão đệ!
 
-Cố Xán quỳ rạp xuống đất, cúi đầu trầm giọng nói: "Cố Xán bái kiến sư tổ."
+Nam tử bạch y đột nhiên hiện thân.
 
-Lão nhân sang sảng cười to.
+Lão nhân liếc nhìn hắn:
 
-Hóa thành một đạo kiếm quang, nháy mắt hóa cầu vồng đi xa ngàn dặm, muốn đi Bắc Câu Lô Châu, tìm hảo huynh đệ Trần Linh Quân cùng nhau đùa giỡn.
+- Vi sư bây giờ coi như phế mất một nửa, đánh chẳng lại đệ tử khai sơn như ngươi. Nhưng danh nghĩa thầy trò vẫn còn đó. Sao, không phục à? Định khi sư diệt tổ? Chuyện này cũng như kiếm thuật, ta có dạy ngươi đâu.
 
-Chỉ là lần sau gặp mặt, mình không biết hắn, Trần Linh Quân cũng sẽ không nhận ra mình.
+Nam tử bạch y im lặng, thấp thoáng có sát khí.
 
-Nam tử áo trắng ngẩng đầu nhìn phía đạo kiếm quang bắc đi kia, cười nói: "Đối đãi quan môn đệ tử, là tốt hơn chút."
+Nào ngờ lão nhân được đằng chân lân đằng đầu, chẳng thèm để tâm đến sát ý của vị thành chủ Bạch Đế thành. Lão hỏi:
 
-Liễu Xích Thành nhẹ nhàng thở ra, may mắn còn tốt, Cố Xán chỉ là tiểu sư đệ của mình.
+- Còn ngẩn ra làm gì? Mau gọi tiểu sư thúc.
 
-Bằng không thì khi thế hệ này cao lên, Cố Xán không niệm chút tình cũ, chuyện trái lương tâm gì cũng có thể làm được.
+Nam tử bạch y chẳng mảy may giữ lễ thầy trò, chỉ hỏi:
 
-Lâm Thủ Nhất ngồi ở chỗ ở tổ trạch, mặc kệ bế khí ngưng thần như thế nào, vẫn tâm thần không yên, chỉ phải đi hướng thần vị đều đã dọn đến từ đường kinh thành Đại Ly, lúc này mới an lòng vài phần.
+- Ngươi chắc làm vậy là tốt cho Cố Sán?
 
-Lâm Thủ Nhất nhíu ra ba nén hương, xa xa tế bái tổ tiên.
+Cố Sán quỳ xuống, cúi đầu, trầm giọng nói:
 
-Làm xong chuyện này, mới xoay người đi hướng cửa lớn từ đường, vừa đóng cửa chính, liền phát hiện bên người có một vị lão nho sĩ đang đứng.
+- Cố Sán bái kiến sư tổ.
 
-Lâm Thủ Nhất thông tuệ cỡ nào, lập tức chắp tay nói: "Lâm Thủ Nhất của thư viện Sơn Nhai, bái kiến đại sư bá."
+Lão nhân cười sang sảng, hóa thành một đạo kiếm quang, thoáng chốc đã như cầu vồng vượt xa ngàn dặm. Lão muốn đến Bắc Câu Lô Châu tìm hảo huynh đệ Trần Linh Quân cùng chơi đùa.
 
-Thôi Sàm cười nói: "Ta sớm đã không ở Văn Thánh đạo thống mạch, không nhận nổi lễ này."
+Chỉ là lần sau gặp lại, lão sẽ chẳng biết hắn, Trần Linh Quân cũng chẳng nhận ra lão.
 
-Lâm Thủ Nhất sau lưng, quy quy củ củ lại chắp tay, "Đệ tử Lâm thị Đại Ly, bái kiến quốc sư đại nhân."
+Nam tử bạch y ngẩng nhìn vệt kiếm quang đi về phương bắc, cười nói:
 
-Thôi Sàm gật gật đầu, "Lúc trẻ trên đường du học, biểu hiện của ngươi cực kỳ xuất sắc. Sớm nhất nhận thấy A Lương khác với bình thường, sớm nhất đạt được cơ duyên, đều là Lâm Thủ Nhất ngươi, cực kỳ không dễ. Lần này để người nọ làm việc ở trong quy củ lớn, càng là ngươi trị học ổn trọng, hậu tích bạc phát, phúc chí tâm linh cho phép."
+- Đối với đệ tử cuối cùng, quả nhiên vẫn tốt hơn đôi chút.
 
-Thôi Sàm mang theo Lâm Thủ Nhất tản bộ ở tòa nhà trống rỗng, hơn nữa để người trẻ tuổi kia sóng vai mà đi với mình, không cần quá mức câu thúc.
+Liễu Xích Thành nhẹ nhõm thở ra. May quá, Cố Sán vẫn chỉ là tiểu sư đệ của mình.
 
-Thôi Sàm nói: "Phụ thân ngươi có chút nỗi khổ tâm, đời này cũng sẽ không chủ động nói nhiều với ngươi. Năm đó là hắn sớm nhất nói cho phụ thân Trần Bình An, về tin tức chuyện từ bản mạng, đương nhiên là hảo tâm, ngay cả hậu quả cũng nói với phụ thân Trần Bình An, hai người bọn họ, vừa gặp đã quen từ lâu, tuy thân phận cách xa, nhưng lại là bạn thân. Cho nên phụ thân ngươi còn giúp đỡ nam nhân kia thu thập cục diện rối rắm sau đó, bằng không Trần Bình An cũng rất khó sống sót, cho nên Trần Bình An về sau trên đường du học, chuyển tặng bức 《 Sưu Sơn Đồ 》kia của ngươi, trong minh minh, là có chút nhân quả định số. Chỉ là phụ thân ngươi dụng tâm lương khổ, cũng không hy vọng ngươi liên lụy quá nhiều với Trần Bình An, miễn cho ngươi chưa trưởng thành, liền bị đại thế cuốn theo, sớm chết non, cho nên đối với chuyện ngươi đi hướng thư viện Đại Tùy học tập, biểu hiện cực kỳ lạnh nhạt."
+Bằng không, vai vế đã cao thêm một bậc, Cố Sán lại chẳng nhớ chút tình cũ, chuyện trái lương tâm gì mà hắn chẳng làm được.
 
-Lâm Thủ Nhất ngạc nhiên.
+Lâm Thủ Nhất ngồi trong nhà tổ. Hắn nín thở ngưng thần thế nào cũng chẳng yên lòng, đành đi sang từ đường. Thần vị ở đây đều đã chuyển tới từ đường tại kinh thành Đại Ly. Vào đến nơi, hắn mới thấy lòng yên đôi chút.
 
-Thôi Sàm nói: "Khó có thể tin? Vậy ngươi suy nghĩ kỹ một chút, một nam nhân trước sau đảm nhiệm phó thủ của ba quan đốc tạo sứ lò nung, sẽ đơn giản sao? Thực sự coi trọng danh nghĩa con vợ kế như vậy? Vậy ngươi có biết hay không, hôm nay Tào Đốc tạo ở trước khi đi Hòe Hoàng trấn, sau khi rời khỏi ngự thư phòng của tiên đế, người duy nhất bái phỏng cầu giáo, chính là phụ thân của ngươi ở kinh thành không hiển sơn không lộ thủy kia của ngươi? Gia tộc ngươi cùng trường Thạch Xuân Gia, cuối cùng vượt qua cửa ải khó khăn như thế nào? Trong lòng Thạch gia không biết, còn có chút oán hận, ngươi cảm thấy phụ thân ngươi sẽ để ý sao?"
+Lâm Thủ Nhất lấy ba nén hương, từ xa tế bái tổ tiên.
 
-Thôi Sàm một tay chắp sau lưng, một tay khép lại hai ngón như nhặt một vật, "Thạch Xuân Gia niệm tình cũ, ngươi liền niệm tình cũ, ngươi niệm tình cũ, toàn bộ bạn cùng trường liền cùng nhau niệm tình cũ. Cao thủ mắt Biên Văn Mậu thấp, duy chỉ có thê tử Thạch Xuân Gia thật lòng đối xử tử tế với xuất thân không tốt, Biên Văn Mậu liền bị ngươi lý giải, vị Hàn Lâm lang kinh thành Đại Ly này, tương lai một khi gặp việc khó, ngươi liền nguyện ý hỗ trợ, ngươi lựa chọn ra tay, mặc dù không đủ lão đạo, có chút sơ hở, cha ngươi sao sẽ ngồi không để ý tới? Tuyến đường liên quan, rộng lớn thành mạng lưới, chỉ là đừng quên, ngươi sẽ như thế, người đời đều sẽ như thế. Tu vi thế nào, đều sẽ đưa tới nhân quả như thế nào, vật cảnh giới này, bình thường rất hữu dụng, thời khắc mấu chốt lại không có tác dụng nhất. Lâm Thủ Nhất, ta hỏi ngươi, còn nguyện ý xen vào việc của người khác không?"
+Xong việc, hắn bước ra. Vừa đóng cửa từ đường, Lâm Thủ Nhất phát hiện bên mình có một vị lão nho sĩ đang đứng.
 
-Thôi Sàm nhẹ nhàng đẩy hai ngón tay, giống như phủi sạch sẽ những mạch lạc đó.
+Lâm Thủ Nhất vốn thông tuệ, lập tức chắp tay:
 
-Lâm Thủ Nhất cân nhắc một lát, đáp: "Việc đã đến nước này, gần ngay trước mắt, vẫn là phải quản lý tốt từng việc một."
+- Lâm Thủ Nhất của thư viện Sơn Nhai bái kiến đại sư bá.
 
-Lâm Thủ Nhất thở dài, "Về sau bớt quản."
+Thôi Sàm cười nói:
 
-Thôi Sàm hiểu ý cười, "Không uổng công cha ngươi khóc lóc om sòm lăn lộn chơi xấu xa, để ta giúp ngươi đặt cái tên tốt như vậy."
+- Ta đã rời đạo thống của Văn Thánh từ lâu, không nhận nổi lễ này.
 
-Lâm Thủ Nhất đột nhiên dừng bước, chắp tay lần nữa, cả gan, run giọng hỏi: "Xin hỏi sư bá, năm đó vì sao khoanh tay đứng nhìn, tùy ý một mình tiên sinh chịu chết?"
+Lâm Thủ Nhất lại chắp tay, nghiêm chỉnh hành lễ:
 
-Vấn đề này thật sự là quá khiến Lâm Thủ Nhất cảm thấy nghẹn khuất, không nói ra thì không thoải mái.
+- Con cháu Lâm thị Đại Ly bái kiến quốc sư đại nhân.
 
-Chính là chọc giận vị quốc sư đại nhân không muốn thừa nhận thân phận sư bá này, Lâm Thủ Nhất hôm nay cũng muốn hỏi một chút!
+Thôi Sàm gật đầu:
 
-Thôi Sàm không để bụng, hiển nhiên cũng không tức giận người trẻ tuổi không biết tốt xấu này, ngược lại có chút vui mừng, nói: "Nếu giảng đạo lý lớn, không cần trả giá lớn, nhưng quý ở chỗ nào? Cái nào không thể nói, đọc sách ý nghĩa ở đâu? Đương nhân tuyệt không nhường, loại việc ngốc này, không đọc sách, rất khó trời sinh đã biết. Chỉ là thư chia trong ngoài, Nho gia giáo hóa, nơi nào không phải sách thánh hiền mở ra."
+- Năm xưa trên đường du học, ngươi làm rất tốt. Người đầu tiên nhận ra A Lương khác thường là ngươi, người sớm nhất có được cơ duyên cũng là ngươi. Chuyện ấy rất khó. Lần này lại khiến người nọ chịu hành sự trong khuôn khổ quy củ lớn. Ngươi học hành vững vàng, tích lũy lâu ngày, đến lúc có phúc tự nhiên sáng trí mới làm được như vậy.
 
-Thôi Sàm nhẹ nhàng vỗ vỗ bả vai người trẻ tuổi, cười nói: "Cho nên cuộc đời còn trên đời, phải mắng thêm người đọc sách gà mờ, bớt mắng sách thánh hiền đi."
+Thôi Sàm dẫn Lâm Thủ Nhất đi dạo trong tòa nhà vắng, bảo người trẻ tuổi cứ đi ngang hàng với mình, chẳng cần giữ lễ quá mức.
 
-Thôi Sàm nhìn quanh bốn phía, "Lúc trước du học, quan cảm tồi tệ của ngươi đối với phụ thân, Trần Bình An lúc ấy đồng hành cùng ngươi một đường, sớm ghi tạc trong lòng. Cho nên cho dù về sau Trần Bình An có đủ tự tin đi lật lại món nợ cũ, trong đó đã lật khắp rất nhiều hoàng lịch cũ của Mã gia ngõ Hạnh Hoa, cố tình ở Diêu Vụ đốc tạo thự Lâm đại nhân bên này ngưng trệ không tiến, vừa vặn bởi vì tin tưởng ngươi, sợ những lời đồn không thể nói ra được, càng tin không được lòng người hắn chưa từng tận mắt thấy, sợ nhất một khi vạch trần tin tức, sẽ làm hại bằng hữu Lâm Thủ Nhất máu tươi đầm đìa, cái này gọi là một lần bị rắn cắn mười năm sợ dây thừng, đau khổ từng nếm ở Thư Giản hồ, thật sự không muốn ở quê nhà lại một lần nữa."
+Thôi Sàm nói:
 
-Thôi Sàm cười nói: "Tuy là Trần Bình An nghĩ sai, lại là chuyện tốt, bằng không với tính tình đó của hắn, mặc dù tra ra chân tướng, có thể thở phào nhẹ nhõm, thuận thuận lợi lợi vòng qua ngươi cùng phụ thân ngươi, Lạc Phách Sơn lại sớm đã va chạm đầu rơi máu chảy với Đại Ly Tống thị, như vậy hiện tại khẳng định còn ở lại quê nhà truy cứu việc này, khắp nơi gây thù hằn, đại thương nguyên khí, tự nhiên càng không thể làm được cái gì Ẩn Quan Đại Nhân Kiếm Khí Trường Thành. Thanh Phong thành Hứa thị, Chính Dương Sơn ở bên trong, các thế lực đều sẽ tận hết sức lực, bỏ đá xuống giếng đối với Lạc Phách Sơn."
+- Cha ngươi có nỗi khổ tâm, cả đời này cũng sẽ chẳng chủ động kể với ngươi. Năm ấy người đầu tiên nói với cha Trần Bình An về chuyện đồ sứ bản mạng chính là cha ngươi. Dĩ nhiên hắn có ý tốt, ngay cả hậu quả cũng nói rõ. Hai người vừa gặp đã thân như quen từ lâu. Vai vế cách xa mà vẫn là bằng hữu chí thân.
 
-Thôi Sàm nói: "Ngươi tạm thời không cần về thư viện Sơn Nhai, hỏi bọn Lý Bảo Bình, Lý Hòe một lần, chữ Tề năm xưa, ai còn giữ, cộng thêm phần của ngươi, giữ lại, đều thu nạp lại, sau đó ngươi đi tìm Thôi Đông Sơn, mang toàn bộ chữ "Tề" đều giao cho hắn. Sau đó, ngươi đi Thư Giản hồ một chuyến, nhặt về những thẻ tre bị Trần Bình An ném vào trong hồ."
+- Vì thế, về sau cha ngươi còn giúp người kia thu dọn cục diện rối ren. Bằng không, Trần Bình An e khó mà sống nổi. Sau này, trên đường du học, Trần Bình An lại đem bức Sưu Sơn Đồ tặng ngươi. Tựa như trong chỗ vô hình đã có nhân quả định sẵn cho việc ấy. Cha ngươi khổ tâm tính toán, chẳng muốn ngươi dính dáng quá sâu với Trần Bình An, kẻo còn chưa trưởng thành đã bị đại thế cuốn theo mà chết yểu. Cho nên khi ngươi đi Đại Tùy học ở thư viện, hắn mới tỏ ra lạnh nhạt như vậy.
 
-Lâm Thủ Nhất không rõ nội tình, vẫn gật đầu đáp ứng.
+Lâm Thủ Nhất kinh ngạc.
 
-Thôi Sàm ngửa đầu nhìn phía kiếm quang rộng lớn chợt lóe rồi biến mất kia, thỉnh thần dễ tiễn thần khó, cuối cùng đi rồi.
+Thôi Sàm nói:
 
-Đại Ly vương triều khai phá Đại Độc, khí thế hừng hực.
+- Khó tin sao? Ngươi thử nghĩ kỹ, một người trước sau từng làm phó thủ cho ba vị đốc tạo sứ lò nung, có thể đơn giản được ư? Hắn thật sự coi trọng chuyện ngươi là con vợ lẽ đến thế sao? Ngươi có biết vị Tào đốc tạo bây giờ, trước khi đến trấn Hòe Hoàng, ra khỏi ngự thư phòng của tiên đế rồi chỉ đến thỉnh giáo một người? Đó chính là cha ngươi, người ở kinh thành xưa nay chẳng phô trương, chẳng lộ bản lĩnh.
 
-Công Tôn Quan Hào Phiệt đột nhiên, cùng đệ tử hạt giống Lưu Khám xinh đẹp, lập tức thành nhân vật quyền quý mới nhất chạm tay có thể bỏng của Đại Ly.
+- Còn nhà bạn học Thạch Xuân Gia của ngươi, rốt cuộc nhờ đâu vượt được cửa ải ấy? Nhà họ Thạch trong lòng chẳng biết, thậm chí còn có chút oán hận. Ngươi thấy cha ngươi có để bụng không?
 
-Về phần quận thủ Thanh Loan quốc ban đầu ngang trời xuất thế kia Liễu Thanh Phong, sự náo nhiệt của quan trường kinh thành Đại Ly thoáng qua đi, cộng thêm một số sự an bài phía sau màn nào đó, Liễu Thanh Phong rất nhanh đã làm người ta không nhấc lên nổi hứng thú tìm tòi nghiên cứu.
+Thôi Sàm chắp một tay sau lưng. Tay kia khép hai ngón như vừa nhặt lấy thứ gì:
 
-Môn đệ thư hương tiểu quốc ở góc độ hẻo lánh, xác định không phải cái gì Luyện khí sĩ, nhất định tuổi thọ không quá dài, năm xưa chiến tích còn tạm được ở Thanh Loan quốc, chỉ là danh tiếng hỗn độn, cho nên ngồi ở trên vị trí này, sẽ có tiền đồ, nhưng mà rất khó có tiền đồ lớn, dù sao không phải xuất thân quan kinh thành Đại Ly, về phần vì sao có thể một bước lên trời, chợt đắc thế, có trời mới biết. Kinh thành Đại Ly, trong đó có suy đoán, người này là con rối Vân Lâm Khương thị nâng đỡ lên, dù sao cửa biển mới nhất, ngay tại cửa nhà Khương thị.
+- Thạch Xuân Gia nhớ tình cũ, ngươi cũng nhớ tình cũ. Ngươi nhớ thì các bạn cùng trường cũng cùng nhau nhớ. Biên Văn Mậu mắt cao tay thấp, chỉ có thê tử hắn là Thạch Xuân Gia thật lòng tử tế với người có xuất thân thấp kém[?]. Nhờ vậy ngươi cũng hiểu cho Biên Văn Mậu. Mai sau vị Hàn lâm lang ở kinh thành Đại Ly này gặp việc khó, ngươi sẽ sẵn lòng giúp. Ngươi đã ra tay, dù còn non nớt, có chỗ sơ hở, cha ngươi há lại khoanh tay mặc kệ?
 
-Một vị thiếu niên lang áo trắng cực kỳ tuấn mỹ, ngồi xổm ở bờ ruộng, nhìn một hồi tranh đấu vũ khí nước đá giữa tông tộc địa phương xa xa, xem say sưa ngon lành, một đứa nhỏ gầy gò thần sắc chất phác ngồi xổm bên cạnh.
+- Từng sợi dây vướng víu nhau, đan thành cả tấm lưới lớn. Chớ quên, ngươi như thế, người đời ai cũng như thế. Tu vi thế nào sẽ kéo đến nhân quả thế ấy. Cảnh giới ngày thường hữu dụng lắm, đến lúc hệ trọng lại có khi chẳng trông cậy được nhất. Lâm Thủ Nhất, ta hỏi ngươi, ngươi còn muốn xen vào việc người khác chăng?
 
-Liễu Thanh Phong ngồi ở trên bờ ruộng, tùy tùng Vương Nghị Phủ và thiếu niên Liễu Phi đều đứng ở nơi xa, Liễu Nghiễn trái lại không quá sợ hãi thiếu niên cổ quái năm xưa từng quen biết kia, trừ đầu óc không hiểu một chút, cái khác đều không có gì đáng giá nói, nhưng Vương Nghị Phủ lại nhắc nhở Liễu Nghiễn tốt nhất đừng tiếp cận "thiếu niên" kia.
+Thôi Sàm khẽ đẩy hai ngón tay, tựa như phủi sạch những mối dây ấy.
 
-Liễu Thanh Phong quay đầu nhìn về phía thiếu niên đang nhai một cọng cỏ dại, hỏi: "Mở Đại Độc, công việc lớn nhỏ, đơn giản là tiến hành theo chất lượng, Thôi tiên sinh hẳn là không cần ở đây nhìn chằm chằm."
+Lâm Thủ Nhất cân nhắc một lát rồi đáp:
 
-Thôi Đông Sơn vẫn nhìn ngươi bên kia một cuốc ta một đòn gánh, trong giao thủ hai tay, không ít thân phận là cháu ngoại trai của cậu kia, đánh là đánh thật, về phần sau khi đánh xong, vẫn làm thân thích đó như cũ, nói không chừng còn phải bỏ tiền chữa bệnh mua thuốc cho đối phương, cũng đều là thành tâm thành ý, phát ra từ phế phủ.
+- Việc đã đến trước mắt, vẫn nên lo cho xong từng việc một.
 
-Nghe được Liễu Thanh Phong hỏi, nhìn không chớp mắt, thuận miệng nói: "Diêu danh Tề, chính là lý do."
+Hắn thở dài:
 
-Liễu Thanh Phong cười gật đầu, tỏ vẻ đã hiểu.
+- Sau này sẽ bớt xen vào.
 
-Một chiếc xe ngựa dừng ở trên đường nhỏ hương dã, từ thùng xe đi xuống Lý Bảo Châm, đi tới bên này, chắp tay hành lễ: "Thôi tiên sinh."
+Thôi Sàm hiểu ý, mỉm cười:
 
-Thôi Đông Sơn không quan tâm.
+- Cũng chẳng uổng công cha ngươi khóc lóc ăn vạ, nằng nặc đòi ta đặt cho ngươi cái tên hay như thế.
 
-Lý Bảo Châm đứng dậy nhìn Liễu Thanh Phong, cười nói: "Liễu tiên sinh."
+Lâm Thủ Nhất đột nhiên dừng bước. Hắn lại chắp tay, đánh bạo hỏi bằng giọng run rẩy:
 
-Liễu Thanh Phong cười đưa tay ra hiệu cho đối phương ngồi xuống.
+- Xin hỏi sư bá, năm xưa vì sao người khoanh tay đứng nhìn, để một mình tiên sinh chịu chết?
 
-Lý Bảo Châm ngồi bên cạnh Liễu Thanh Phong.
+Chuyện này đè nặng trong lòng Lâm Thủ Nhất đã lâu. Hôm nay không nói thì thật sự không chịu được.
 
-Thôi Đông Sơn quay đầu, trêu ghẹo nói: "Gặp mặt nói chuyện vất vả, dù sao cũng là giang hồ."
+Dù có chọc giận vị quốc sư chẳng chịu nhận mình là sư bá, hắn vẫn muốn hỏi cho rõ.
 
-"Không làm lỡ hai huynh đệ các ngươi ôn chuyện, ta sẽ đi tìm chút việc vui." Thôi Đông Sơn đứng lên, xách cổ áo đứa nhỏ bên cạnh, cưỡi gió rời đi.
+Thôi Sàm chẳng giận người trẻ tuổi không biết tốt xấu này. Trái lại, lão còn có chút vui mừng:
 
-Thôi Đông Sơn lặng yên hạ xuống một tòa thành trì ở ngoài mấy trăm dặm, mang theo vị cao lão đệ kia, cùng nhau ngồi song song dưới bóng cây, bốn phía đầu người đông đúc, nhìn trọn vẹn cờ ven đường, không phải cờ vây, bàn cờ phải đơn giản hơn chút ít. Bằng không dân chúng phố phường, ngay cả kỳ phổ cũng không chạm qua nửa bản, sao có thể hấp dẫn nhiều người vây xem như vậy.
+- Nếu nói đạo lý lớn mà chẳng phải trả giá lớn, vậy có gì đáng quý? Nếu có đạo lý không được nói ra, vậy đọc sách để làm gì?[?] Việc nghĩa đến trước mặt, nhất quyết chẳng nhường cho ai. Chuyện ngốc nghếch ấy, không đọc sách thì mấy ai sinh ra đã biết? Chỉ là đọc sách có phần ở trong sách, cũng có phần ở ngoài sách[?]. Nho gia giáo hóa, nơi nào chẳng có sách thánh hiền mở ra?
 
-Đợi cho dã kỳ thủ thiết lập ván cục thắng một đống lớn tiền đồng, bạc vụn, mọi người cũng đều tản đi, hôm nay tính kết thúc công việc, cái này gọi là một chiêu ăn tươi khắp trời, chỉ là khi hắn nhìn thấy thiếu niên áo trắng kia còn không muốn dời ổ, đánh giá vài lần, nhìn giống như tiểu thiếu gia nhà có tiền, liền cười hỏi: "Thích chơi cờ?"
+Thôi Sàm khẽ vỗ vai người trẻ tuổi, cười nói:
 
-Thôi Đông Sơn nóng lòng muốn thử, chà tay nói: "Có thể biết, đừng nói là cờ này, dù là cờ vây ta cũng đánh, chỉ là rời nhà vội vàng, trên người không mang theo bao nhiêu tiền đồng. Ván cờ này của ngươi, ta nhìn ra chút môn đạo, khẳng định có thể thắng ngươi."
+- Cho nên sống trên đời, cứ mắng thêm mấy kẻ đọc sách nửa mùa, bớt mắng sách thánh hiền đi.
 
-Người đánh cờ dã ngoại kia mỉm cười, đây chính là một trong thập đại danh cục của giang hồ, con giun dẫn rồng, không sợ người khác nhìn ra môn đạo, càng nhiều càng tốt, chỉ sợ đối phương cảm thấy khó giải, căn bản không muốn mắc câu.
+Thôi Sàm nhìn quanh:
 
-Thôi Đông Sơn vỗ đầu đứa nhỏ bên cạnh, "Mau chơi cờ kiếm tiền đi."
+- Năm xưa cùng đi du học, ngươi nhìn cha mình ra sao, Trần Bình An đồng hành với ngươi đều ghi tạc trong lòng. Về sau, hắn đã đủ sức lật lại món nợ cũ, lục tung bao chuyện năm xưa của nhà họ Mã ở ngõ Hạnh Hoa, vậy mà tới chỗ Lâm đại nhân ở nha môn đốc tạo lò nung thì cứ đứng lại. Cũng bởi hắn tin ngươi. Hắn sợ những lời đồn khó mở miệng kia, càng chẳng dám tin vào lòng người khi chính mình chưa tận mắt chứng kiến. Hắn sợ nhất lỡ vạch hết mọi chuyện, sẽ làm người bằng hữu Lâm Thủ Nhất tổn thương đến máu tươi đầm đìa. Một lần bị rắn cắn, mười năm sợ dây thừng. Nỗi khổ đã nếm ở Thư Giản hồ, hắn thật chẳng muốn nếm lại ở quê nhà.
 
-Hán tử kia cười to không thôi, đúng là tay chân lanh lẹ thu sạp, lười dây dưa cùng thiếu niên này.
+Thôi Sàm cười nói:
 
-Thôi Đông Sơn cũng không ngăn cản, nhích bước từng chút một, ngồi đối diện với đứa nhỏ kia, Thôi Đông Sơn vươn cổ, nhìn chằm chằm đứa nhỏ kia, sau đó nâng hai tay, kéo qua gò má hắn, "Sao nhìn ra ngươi là cao thủ chơi cờ, ta cũng chưa nói cho người nọ ngươi họ Cao."
+- Trần Bình An nghĩ sai lại thành chuyện tốt. Với tính hắn, một khi tra ra chân tướng, cho dù có thể thở phào, bỏ qua cha con ngươi, núi Lạc Phách hẳn đã sớm đụng độ với Tống thị Đại Ly đến đầu rơi máu chảy. Đến bây giờ hắn chắc còn ở quê nhà truy cứu chuyện ấy, kết thù khắp nơi, nguyên khí tổn hại nặng nề. Còn đâu mà làm Ẩn Quan đại nhân của Kiếm Khí Trường Thành. Hứa thị thành Thanh Phong, Chính Dương sơn và các thế lực khác chắc chắn sẽ dốc sức ném đá xuống giếng.
 
-Đứa nhỏ mặt không chút thay đổi.
+Thôi Sàm lại nói:
 
-Thôi Đông Sơn tán gẫu nửa ngày, cũng cảm thấy không thú vị, đứng lên, mang theo đứa nhỏ đi dạo đông dạo tây trong thành, gặp phải kẻ lưu manh tuổi không lớn lắm, là học đồ trong kinh thành tiểu quốc phiên thuộc này chạy ra nhặt được, phần nhiều là bị chưởng quầy cổ hủ làm nghề nhà tin được, từ kinh thành phân công đến các nơi tìm kỳ trân dị bảo, tranh chữ cổ. Làm một nhóm kinh thành này, mắt phải cay độc, nhân phẩm phải quá cứng mới được, bằng không một khi được trọng bảo giá trị ngàn vàng, liền muốn trực tiếp chạy trốn, dứt khoát tự lập môn hộ.
+- Tạm thời ngươi chưa cần về thư viện Sơn Nhai. Hỏi bọn Lý Bảo Bình, Lý Hòe xem chữ “Tề” năm xưa ai còn giữ. Thu lại tất cả, kể cả phần của ngươi, rồi tìm Thôi Đông Sơn, giao hết cho hắn. Sau đó, ngươi đi Thư Giản hồ một chuyến, nhặt về những thẻ tre Trần Bình An đã ném xuống hồ.
 
-Thôi Đông Sơn đi theo quán kinh thành dạo phố, người nọ đã cân nhắc, lặng lẽ lưu tâm vật từng dùng, hắn đều đi theo suy nghĩ một phen, dùng sức đánh giá vài lần, làm cho tên kinh doanh kia tức giận đến mức đành phải ở chỗ yên lặng dừng bước, bất đắc dĩ nói: "Ngươi thiếu niên này, nếu thiếu tiền tiêu, ta đưa ngươi chút là được, chớ có chơi đùa với ta. Ngươi là cảm thấy chơi vui, lại muốn đập bát cơm của ta."
+Lâm Thủ Nhất chưa hiểu nội tình, vẫn gật đầu nhận lời.
 
-Thôi Đông Sơn nhìn ánh mắt, sắc mặt người trẻ tuổi kia, không biết sao có vài phần quen thuộc như vậy, Thôi Đông Sơn bỗng cười, "Yên tâm đi, kế tiếp ta cam đoan không quấy rối."
+Thôi Sàm ngẩng đầu, nhìn theo vệt kiếm quang rộng lớn vừa lóe lên rồi vụt tắt. Mời thần thì dễ, tiễn thần mới khó. Cuối cùng cũng đi rồi.
 
-Người trẻ tuổi kia nửa tin nửa ngờ, lại không tiện đuổi người, may mà kế tiếp hành tẩu chung quanh, thiếu niên kia quả nhiên im lặng, chỉ là điều này làm cho người trẻ tuổi lại có sầu lo, sẽ không phải giang hồ hiểm ác, đối phương vốn là vì mình mà đến chứ? Đường giang hồ nhiều, dạy người khó lòng phòng bị. Nhưng thiếu niên kia tùy tiện mua một cái bát sứ, úp lên đầu đứa nhỏ, liền nói lời tạm biệt với hắn, nói muốn mang đệ đệ ngốc cùng nhau về trường tư bên kia ăn cơm, bằng không người ở nơi khác, đi học ở bên ngoài, trời đất rộng lớn không bằng tiên sinh lớn nhất, học sinh thật lâu chưa về, tiên sinh sẽ lo lắng.
+Vương triều Đại Ly đang hừng hực khí thế mở mang Đại Độc.
 
-Trẻ tuổi chạy như vịt như trút được gánh nặng.
+Quan Sán Nhiên[?], vị công tử thế gia, và Lưu Chẩn Mỹ[?], người đệ tử có triển vọng ấy, thoắt cái đã thành hai nhân vật quyền quý mới nổi của Đại Ly, thanh thế nóng đến bỏng tay.
 
-Thiếu niên kia từ trên đầu đứa nhỏ, hái cái bát trắng kia, xa xa ném cho người trẻ tuổi, tươi cười sáng lạn nói: "Cũng học được bí quyết nhỏ mới mẻ mua đồ cũ với ngươi, không có gì phải cảm ơn, bát này tặng cho ngươi."
+Còn Liễu Thanh Phong, vị quận thủ Thanh Loan quốc đột nhiên nổi lên trước đó, sau một phen xôn xao ở quan trường kinh thành Đại Ly, lại nhờ có người âm thầm thu xếp sau màn, chẳng mấy chốc đã không còn khiến ai muốn đào sâu lai lịch.
 
-Người trẻ tuổi vốn định cự tuyệt, một cái chén bể mà thôi, muốn làm gì, còn chiếm chỗ, hơn nữa thiếu niên kia ở bên ngoài học tập, ăn mặc phú quý, chỉ là lúc bỏ tiền ra đếm từng đồng tiền, cũng không giống như là người có thủ đoạn rộng rãi... Chỉ là không đợi người trẻ tuổi mở miệng nói chuyện, thiếu niên kia đã kéo một cánh tay của đứa nhỏ, chạy xa, chạy thật nhanh, đứa bé kia nhìn có chút đáng thương.
+Hắn xuất thân nhà nho ở một nước nhỏ hẻo lánh, chắc chắn chẳng phải luyện khí sĩ, tuổi thọ vì thế chẳng thể quá dài. Trước kia làm quan ở Thanh Loan quốc, thành tích cũng tạm được, chỉ có danh tiếng thì khen chê lẫn lộn. Đã ngồi vào chỗ này, hắn hẳn còn có đường tiến thân. Nhưng muốn tiến xa thì khó, dù sao cũng chẳng phải quan xuất thân từ kinh thành Đại Ly.
 
-Mặt trời chiều ngã về tây, ngoài thành trên một con đường đất vàng, một ngôi làng lớn nhỏ trong một gian phòng, lần lượt ngồi xổm ở một bờ sông.
+Còn vì sao hắn bỗng chốc một bước lên trời, có trời mới biết. Người trong kinh thành đoán rằng hắn là con rối do Khương thị Vân Lâm nâng đỡ. Dù sao cửa biển mới mở cũng ở ngay trước cửa nhà họ Khương.
 
-Thôi Đông Sơn lẩm bẩm: "Tiên sinh đối với chuyện hành hiệp trượng nghĩa, bởi vì thời thiếu niên từng chịu ảnh hưởng của một chuyện, đối với gặp chuyện bất bình rút đao tương trợ, liền có chút kiêng kị, hơn nữa tiên sinh nhà ta luôn cho rằng mình đọc sách không nhiều, có thể chu toàn như thế, nghĩ rằng những lão giang hồ như vậy, phần lớn cũng nên như thế, trên thực tế, đương nhiên là tiên sinh nhà ta khắt khe với người giang hồ."
+Một thiếu niên bạch y cực kỳ tuấn mỹ ngồi xổm trên bờ ruộng. Xa xa, hai họ trong làng đang vác cuốc vác đòn gánh đánh nhau vì tranh nước. Thiếu niên xem say sưa. Một đứa nhỏ gầy gò, vẻ mặt chất phác, cũng ngồi xổm bên cạnh.
 
-"Lòng tốt làm sai chuyện, phạm sai lầm với lòng người, cái nào đáng sợ hơn? Nhất định phải làm cái lấy hay bỏ."
+Liễu Thanh Phong ngồi trên bờ ruộng. Tùy tùng Vương Nghị Phủ và thiếu niên Liễu Thích đứng đằng xa. Liễu Thích từng gặp thiếu niên cổ quái kia, cũng chẳng sợ lắm. Trừ đầu óc hơi khó hiểu, hắn thấy thiếu niên ấy chẳng có gì đáng nói. Riêng Vương Nghị Phủ đã dặn Liễu Thích tốt nhất đừng đến gần “thiếu niên” đó.
 
-"Chỉ là tiên sinh sớm thông minh, mọi việc lao tâm lao lực, làm học sinh, làm sao nỡ nói những thứ này."
+Liễu Thanh Phong quay sang thiếu niên đang nhai cọng cỏ dại:
 
-Ở lúc Thôi Đông Sơn tự mình liên miên cằn nhằn.
+- Mở Đại Độc, việc lớn việc nhỏ cứ tuần tự mà làm. Hẳn Thôi tiên sinh chẳng cần đích thân ở đây trông chừng.
 
-Có một đứa trẻ chăn trâu về nhà cưỡi trên lưng bò.
+Thôi Đông Sơn vẫn chăm chú nhìn bên kia ngươi một cuốc, ta một đòn gánh. Hai bên đánh nhau có lắm người là cậu cháu ruột. Đánh thì đánh thật, đánh xong vẫn là thân thích. Khéo còn bỏ tiền mua thuốc chữa thương cho người vừa đánh với mình, mà cũng hết sức thật lòng.
 
-Thôi Đông Sơn cũng không kém, cưỡi ở trên lưng đứa nhỏ.
+Nghe Liễu Thanh Phong nói, hắn vẫn chẳng chớp mắt, thuận miệng đáp:
 
-Thôi Đông Sơn lắc lắc bả vai, đứa nhỏ đáng thương liền theo bước chân lảo đảo lên, Thôi Đông Sơn nói: "Đám mây trôi nơi chân trời, bên đường liễu sắc, phố xá tiếng bán hoa hạnh."
+- Đặt tên lò là Tề[?], ấy là lý do.
 
-Sau đó Thôi Đông Sơn vỗ hai tay lên má đứa nhỏ, "Cao lão đệ, lão ca ta thi hứng đại phát, ngươi đi theo một người!"
+Liễu Thanh Phong cười gật đầu, tỏ ý đã hiểu.
 
-Đứa nhỏ trừng mắt nhìn.
+Một cỗ xe ngựa dừng trên đường làng. Lý Bảo Châm bước xuống, đi tới chắp tay hành lễ:
 
-Thôi Đông Sơn tăng thêm lực đạo, uy h**p nói: "Không nể mặt mũi?!"
+- Thôi tiên sinh.
 
-Đứa nhỏ mơ hồ không rõ nói: "Thôn hương dã, mục đồng cưỡi trâu, sáo trúc thổi lão Thái Bình ca."
+Thôi Đông Sơn chẳng buồn để ý.
 
-"Cao lão đệ, ngươi đúng là một nhân tài!"
+Lý Bảo Châm đứng thẳng lên, nhìn Liễu Thanh Phong, cười nói:
 
-Thôi Đông Sơn một tay ôm cổ đứa nhỏ, một tay dùng sức vỗ đầu người sau, cười to nói: "Ta tài đức gì mà có thể quen biết ngươi?!"
+- Liễu tiên sinh.
 
-Mục đồng cưỡi trâu quay đầu lại nhìn hai người kia, sợ tới mức vội vàng để cho tọa kỵ của mình tăng nhanh bước chân.
+Liễu Thanh Phong mỉm cười, đưa tay mời hắn ngồi. Lý Bảo Châm liền ngồi xuống bên cạnh.
 
-Thôi Đông Sơn hai tay che mắt đứa nhỏ, "Khí dồn hết sức, chạy lên!"
+Thôi Đông Sơn quay đầu trêu:
 
-Cuối cùng đứa nhỏ bị Thôi Đông Sơn che đi tầm mắt lúc ẩn lúc hiện chạy về phía trước, sau đó chạy một mạch xuống sông.
+- Gặp nhau nói một tiếng vất vả, quả nhiên là người giang hồ.
 
-Giữa không trung Thôi Đông Sơn buông hai tay ra, dùng sức vung lên, tay áo lắc lư, ở lúc hai người sắp rơi xuống nước, thiếu niên cười ha ha nói: "Kẻ trí giả nhạc thủy! Đông Sơn Lai dã!"
+Hắn đứng dậy, xách cổ áo đứa nhỏ bên cạnh lên:
+
+- Chẳng làm lỡ hai huynh đệ các ngươi ôn chuyện. Ta đi tìm chút trò vui đây.
+
+Nói rồi hắn ngự phong rời đi.
+
+Thôi Đông Sơn lặng lẽ hạ xuống một tòa thành cách đó mấy trăm dặm. Hắn cùng Cao lão đệ ngồi sóng vai dưới bóng cây, giữa đám người đông nghịt, xem hết một ván cờ bày ven đường. Đó chẳng phải cờ vây, bàn cờ đơn giản hơn nhiều. Bằng không, dân chúng phố phường chưa từng sờ đến nửa quyển kỳ phổ, sao lại xúm đông đến thế?
+
+Kẻ bày cờ thắng được một đống tiền đồng và bạc vụn. Đám đông tản đi, hắn cũng định dọn hàng. Đúng là một chiêu ăn khắp thiên hạ.
+
+Thấy thiếu niên bạch y còn chưa chịu nhúc nhích, hắn nhìn kỹ mấy lần, thấy y phục ra dáng tiểu thiếu gia nhà giàu, bèn cười hỏi:
+
+- Thích chơi cờ à?
+
+Thôi Đông Sơn hào hứng xoa tay:
+
+- Biết chơi đôi chút. Đừng nói cờ này, cờ vây ta cũng chơi được. Chỉ là ra khỏi nhà vội, trên người không mang mấy đồng. Ván cờ của ngươi, ta nhìn ra chút mánh rồi, nhất định thắng được ngươi.
+
+Người bày cờ mỉm cười. Đây là Giun Dẫn Rồng, một trong mười thế cờ nổi tiếng trên giang hồ. Hắn chẳng sợ người khác nhìn ra chút mánh, càng nhiều người nhìn ra càng tốt. Chỉ sợ họ tưởng khó quá, chẳng chịu cắn câu.
+
+Thôi Đông Sơn vỗ đầu đứa nhỏ bên cạnh:
+
+- Mau đánh cờ kiếm tiền đi.
+
+Hán tử cười to, lập tức nhanh tay dọn sạp, chẳng buồn dây dưa với thiếu niên này.
+
+Thôi Đông Sơn cũng không giữ hắn lại. Hắn nhích từng chút một sang ngồi đối diện đứa nhỏ, vươn cổ nhìn chằm chằm rồi đưa hai tay kéo má nó:
+
+- Sao hắn nhìn ra ngươi là cao thủ chơi cờ nhỉ? Ta đã nói cho hắn biết ngươi họ Cao đâu.
+
+Đứa nhỏ mặt không đổi sắc.
+
+Thôi Đông Sơn nói một mình hồi lâu, cũng thấy chẳng thú vị, bèn đứng dậy dẫn đứa nhỏ đi dạo quanh thành. Hai người gặp một gã còn trẻ chuyên lang thang tìm mua đồ cũ. Hắn là học đồ từ kinh thành của nước phiên thuộc này ra ngoài săn đồ. Những người như hắn phần nhiều được các chưởng quầy buôn đồ cổ ở kinh thành tin cậy, cử đi các nơi tìm kỳ trân dị bảo và tranh chữ cổ.
+
+Kiếm ăn bằng nghề này, mắt phải tinh, người phải đáng tin. Bằng không, hễ kiếm được món bảo vật đáng giá ngàn vàng, chẳng chừng đã ôm của chạy mất, tự mở cửa làm ăn.
+
+Thôi Đông Sơn theo gã học đồ đi khắp phố. Món đồ nào gã đã cân nhắc hoặc lặng lẽ để mắt, hắn cũng suy nghĩ theo rồi nhìn tới nhìn lui mấy lần. Gã học đồ tức đến nỗi đành dừng chân ở một chỗ vắng, bất đắc dĩ nói:
+
+- Thiếu niên, nếu thiếu tiền tiêu thì ta cho ngươi đôi đồng. Xin đừng đem ta ra đùa. Ngươi thấy vui, còn ta thì sắp mất bát cơm.
+
+Thôi Đông Sơn nhìn ánh mắt và sắc mặt người trẻ tuổi, chẳng hiểu sao thấy có mấy phần quen thuộc. Hắn chợt cười:
+
+- Yên tâm. Từ giờ ta bảo đảm không quấy rối nữa.
+
+Người trẻ tuổi nửa tin nửa ngờ, lại chẳng tiện đuổi người. May mà lúc đi hết chỗ này đến chỗ kia, thiếu niên quả nhiên im lặng.
+
+Nhưng gã học đồ lại đâm lo. Giang hồ hiểm ác, chẳng lẽ đối phương vốn nhắm vào mình mà đến? Thủ đoạn trên giang hồ nhiều lắm, đề phòng sao cho xuể?
+
+Thiếu niên chỉ tùy tay mua một cái bát sứ, úp lên đầu đứa nhỏ rồi cáo từ. Hắn bảo còn phải dẫn đệ đệ ngốc về trường tư ăn cơm. Tha hương đi học, trời đất dù lớn cũng chẳng lớn bằng tiên sinh. Học trò lâu quá chưa về, tiên sinh sẽ lo.
+
+Người trẻ tuổi như trút được gánh nặng, vội vã rảo bước.
+
+Thiếu niên lấy cái bát trắng trên đầu đứa nhỏ xuống, đứng từ xa ném cho người trẻ tuổi, cười rạng rỡ:
+
+- Theo ngươi cũng học được một mánh mua đồ cũ mới mẻ. Chẳng có gì để tạ ơn, tặng ngươi cái bát này.
+
+Người trẻ tuổi vốn muốn từ chối. Một cái bát mẻ, giữ làm gì cho chật chỗ? Vả lại, thiếu niên kia đi học xa nhà, ăn mặc tuy sang, lúc trả tiền lại đếm từng đồng. Xem ra tiền nong cũng chẳng dư dả gì...
+
+Hắn chưa kịp mở miệng, thiếu niên đã kéo một tay đứa nhỏ chạy đi thật xa, nhanh đến mức trông đứa nhỏ có chút đáng thương.
+
+Mặt trời xế về tây. Ngoài thành, bên con đường đất vàng, hai người một lớn một nhỏ ngồi xổm bên bờ sông[?].
+
+Thôi Đông Sơn lẩm bẩm:
+
+- Tiên sinh hồi còn thiếu niên gặp một chuyện, từ đó có chút dè dặt với việc gặp chuyện bất bình rút đao tương trợ. Tiên sinh nhà ta lại luôn nghĩ mình đọc sách chưa nhiều mà còn có thể lo liệu chu toàn như thế, những lão giang hồ kia phần đông ắt cũng làm được. Thật ra, tiên sinh nhà ta đòi hỏi ở người giang hồ cao quá.
+
+- Có lòng tốt mà làm hỏng việc, với nhìn lầm lòng người[?], cái nào đáng sợ hơn? Ắt phải có chỗ lấy, chỗ bỏ.
+
+- Chỉ là tiên sinh sớm đã thông minh, việc gì cũng lo nghĩ đến nhọc lòng. Làm học trò, sao nỡ nói những lời ấy.
+
+Trong lúc Thôi Đông Sơn còn lẩm bẩm một mình, có một đứa trẻ chăn trâu cưỡi trâu về nhà.
+
+Thôi Đông Sơn cũng chẳng kém, leo lên lưng đứa nhỏ.
+
+Hắn lắc lư hai vai, đứa nhỏ đáng thương cũng bước xiêu vẹo theo. Thôi Đông Sơn ngâm:
+
+- Mây trôi nơi chân trời, liễu xanh bên đường, phố phường rao bán hoa hạnh.
+
+Rồi hắn vỗ hai tay lên má đứa nhỏ:
+
+- Cao lão đệ, lão ca thi hứng dạt dào. Ngươi nối lấy một câu!
+
+Đứa nhỏ chớp mắt.
+
+Thôi Đông Sơn tăng thêm sức, lên giọng uy hiếp:
+
+- Chẳng nể mặt ta ư?
+
+Đứa nhỏ nói không rõ tiếng:
+
+- Làng quê ngoài đồng nội, mục đồng cưỡi trâu, sáo trúc thổi khúc Thái Bình xưa.
+
+- Cao lão đệ, ngươi đúng là nhân tài!
+
+Thôi Đông Sơn một tay ôm cổ đứa nhỏ, tay kia vỗ mạnh lên đầu nó, cười lớn:
+
+- Ta có tài đức gì mà được quen biết ngươi chứ?
+
+Mục đồng trên lưng trâu ngoái lại nhìn hai người, sợ đến nỗi vội giục tọa kỵ bước mau hơn.
+
+Thôi Đông Sơn che mắt đứa nhỏ bằng hai tay:
+
+- Dồn hết sức, chạy đi!
+
+Tầm mắt lúc sáng lúc tối, đứa nhỏ cứ chạy tới, rồi một mạch lao xuống sông.
+
+Giữa không trung, Thôi Đông Sơn buông hai tay, vung mạnh cho tay áo tung bay. Khi cả hai sắp rơi xuống nước, thiếu niên cười ha hả:
+
+- Người trí thích nước! Đông Sơn tới đây!

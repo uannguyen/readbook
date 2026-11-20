@@ -1,429 +1,429 @@
 # Chương 737: Hảo hảo chịu đựng
 
-Trần Bình An cùng Niết Tâm đi đến một chỗ lồng giam.
+Trần Bình An cùng Niệp Tâm đi đến một gian lao.
 
-Một nam tử trung niên ngồi xếp bằng, hít thở không ngừng, khô gầy như củi, da bọc xương, nhưng quyền ý ngang nhiên, từng tia từng luồng quyền ý ngưng tụ thành thực chất, như vô số giao long nhỏ bé, chiếm cứ Nhân Thân sơn mạch.
+Trong lao, một nam tử trung niên đang ngồi xếp bằng thổ nạp. Hắn gầy trơ xương, nhưng quyền ý trên người vẫn ngang tàng. Từng luồng quyền ý ngưng thành thực chất, tựa vô số con giao long bé nhỏ chiếm cứ sơn mạch trong thân thể.
 
 Viễn Du cảnh hàng thật giá thật.
 
-Ở trong chiến sự trước khi Trần Bình An đi vào Kiếm Khí Trường Thành, vị võ phu thuần túy của Man Hoang Thiên Hạ này quyền sát sáu người kiếm tu, trong đó một người là Địa tiên kiếm tu.
+Trước khi Trần Bình An đến Kiếm Khí Trường Thành, vị võ phu thuần túy của Man Hoang thiên hạ này đã đánh chết sáu kiếm tu bằng hai nắm đấm, trong đó có một vị Địa Tiên.
 
-Hán tử mở to mắt, hỏi: "Giết ta tới rồi?"
+Hán tử mở mắt: “Đến giết ta rồi à?”
 
 Trần Bình An gật đầu.
 
-Hán tử kia liếc mắt nhìn người may y nữ tử phía sau Trần Bình An, lạnh nhạt nói: "Tự lấy đầu."
+Hán tử liếc nhìn nữ tử may áo đứng sau lưng hắn, thản nhiên nói: “Muốn lấy đầu thì tự đến mà lấy.”
 
-Người kia là bà nương xấu xí người không ra người quỷ không ra quỷ, hắn tự biết không địch lại, nữ tử thủ đoạn âm tàn, hại hắn chịu không ít tội.
+Cái bà nương người chẳng ra người, quỷ chẳng ra quỷ ấy có thủ đoạn âm độc, đã khiến hắn chịu không ít khổ sở. Hắn tự biết mình đánh không lại nàng.
 
-Trần Bình An nói: "Hỏi quyền một hồi, phân ra sinh tử."
+Trần Bình An nói: “Hỏi quyền một trận, phân sinh tử.”
 
-Nam nhân cười khẩy nói: "Một võ phu thuần túy Kiếm Khí Trường Thành, muốn lấy ta làm đá mài đao? Ta sợ một quyền hạ xuống, ngươi sẽ ôm vòng eo của người đàn bà kia kêu đau. Ha ha, đáng tiếc bộ dáng của người đàn bà này, thật sự không tính là xinh đẹp."
+Nam tử cười khẩy: “Một võ phu thuần túy của Kiếm Khí Trường Thành muốn lấy ta làm đá mài đao? Ta chỉ sợ vừa hạ một quyền, ngươi đã ôm eo bà nương kia kêu đau. Ha ha, tiếc là bà nương này thật chẳng đẹp đẽ gì.”
 
-Trần Bình An nói: "Ni Tâm tiền bối, đóng cửa nhà lao. Chờ chết, lại mở ra."
+Trần Bình An nói: “Niệp Tâm tiền bối, đóng cửa lao đi. Chờ có người chết rồi hãy mở.”
 
-Niệp Tâm đóng cửa lại, xuất hiện từng hàng rào kiếm quang, trong lồng giam, là hai vị võ phu.
+Niệp Tâm đóng cửa. Từng hàng rào kiếm quang hiện ra, ngăn hai vị võ phu lại trong lao.
 
-Nam nhân đứng lên, "Thật ra rất lanh lẹ."
+Nam tử đứng dậy: “Cũng dứt khoát đấy.”
 
-Trần Bình An ôm quyền nói: "Hạo Nhiên Thiên Hạ, Trần Bình An."
+Trần Bình An ôm quyền: “Hạo Nhiên thiên hạ, Trần Bình An.”
 
-Nam nhân hơi sững sờ, ôm quyền nói: "Kim Khê thành, Hoang Dã Thiên Hạ, Hồng Ẩm."
+Nam tử hơi sững người, rồi cũng ôm quyền: “Man Hoang thiên hạ, thành Kim Khê, Hồng Ẩm.”
 
-Một vị Viễn Du cảnh, một vị Kim Thân cảnh bình cảnh, hầu như đồng thời ra quyền.
+Một người Viễn Du cảnh, một người ở bình cảnh Kim Thân cảnh, gần như ra quyền cùng một lúc.
 
-Trong lồng giam, quyền cương mãnh liệt.
+Quyền cương cuộn lên trong gian lao.
 
-Trong nháy mắt, Trần Bình An liên tục đánh ra mười mấy quyền, phần lớn là dùng quyền cước đánh tan đường quyền đối phương, thủ nhiều công ít, cuối cùng bị Hồng Ẩm quét trúng phần eo, hai chân vẫn cắm rễ đại địa như trước, chỉ là đẩy ngang ra ngoài hơn một trượng, Hồng Ẩm một cước đạp đất, lấn người mà gần, lại bị Trần Bình An nghiêng người, một cước nâng lên, quỳ gối đạp trung hồng ẩm bụng, lực đạo thay đổi, thế mà trực tiếp một cước đem Hồng Ẩm đè ở trên mặt đất.
+Trong chớp mắt, Trần Bình An đánh liền hơn mười quyền, phần lớn dùng quyền cước gạt đòn đối phương, thủ nhiều công ít. Cuối cùng hắn bị Hồng Ẩm quét trúng eo. Hai chân vẫn bám đất như mọc rễ mà cả người đã trượt ngang hơn một trượng.
 
-Trần Bình An không thuận thế truy kích, ngược lại lui về phía sau hai bước, một tay chắp sau lưng, một tay biến quyền thành chưởng, đặt ở trước người.
+Hồng Ẩm đạp đất áp sát. Trần Bình An nghiêng người co gối, đạp trúng bụng hắn, rồi đổi kình ngay trên chân, đè thẳng Hồng Ẩm xuống đất.
 
-Tư thế quyền hơi trầm xuống.
+Trần Bình An không thừa thế đánh tiếp mà lùi lại hai bước. Hắn chắp một tay sau lưng, tay kia mở quyền thành chưởng, đưa ra trước người.
 
-Quyền ý trên người hắn chậm rãi tăng lên.
+Thế quyền hơi trầm xuống. Quyền ý trên người hắn chậm rãi dâng lên.
 
-Không hề lo ngại, Hồng Ẩm vỗ một chưởng xuống đất, xoay chuyển đứng dậy, hỏi: "Đây là thu tay lại rồi?"
+Hồng Ẩm chẳng hề nao núng. Hắn vỗ một chưởng xuống đất, lật người đứng dậy, hỏi: “Ngươi nương tay rồi đấy à?”
 
-Trần Bình An nói: "Ta biết nền móng của ngươi, ngươi lại không biết chi tiết của ta, cho nên để ngươi thử một phen, từ giờ trở đi, cho ngươi thêm trăm quyền, thử quyền nhẹ quyền nặng, sau đó."
+Trần Bình An đáp: “Ta biết căn cơ của ngươi, ngươi lại chưa biết gì về ta, nên mới để ngươi thử tay. Từ giờ cho ngươi thêm trăm quyền, nặng nhẹ cứ việc thử. Sau đó hẵng tính.”
 
-Hồng Ẩm vặn vặn cổ tay, xương sống và xương sườn ở các khớp toàn thân, như cá lật cổ, quyền cương nổ tung, thần ý trút xuống.
+Hồng Ẩm xoay cổ tay. Xương sống, xương sườn cùng các khớp toàn thân chuyển động tựa cá trở mình [?]. Quyền cương nổ vang, thần ý tuôn trào.
 
-Lúc trước ra quyền đổi chiêu, hắn quả thật có tâm tồn dò xét, lúc này Hồng ẩm tiếu nói: "Lời này của ngươi, nếu thật có sức mạnh, phải là cửu cảnh mới được."
+Mấy chiêu vừa rồi hắn quả có ý thăm dò. Hồng Ẩm cười nói: “Muốn lời này có sức nặng, ngươi phải là võ phu cửu cảnh mới được.”
 
-Nam tử chỉ nghe nói võ phu thuần túy của Hạo Nhiên Thiên Hạ, bởi vì bị thể phách tiên thiên giới hạn, đều là chút mặt hàng giấy.
+Hắn chỉ nghe nói võ phu thuần túy ở Hạo Nhiên thiên hạ bị thể phách trời sinh hạn chế, đều là hạng người giấy.
 
-Trần Bình An lắc đầu nói: "Ta chưa Viễn Du cảnh. Nhưng ở trên chiến trường, giết Hầu Quỳ môn, chính là trả giá không nhỏ, thế cho nên đến bây giờ còn chưa hoàn toàn khỏi hẳn. Nhưng mà nói thẳng với ngươi, ta cùng người đối địch, bị thương hay không bị thương, cho tới bây giờ không ngại."
+Trần Bình An lắc đầu: “Ta chưa đến Viễn Du cảnh. Trên chiến trường, ta đã trả giá không nhỏ để giết Hầu Quỳ Môn, đến giờ vết thương vẫn chưa lành hẳn. Nhưng ta nói thẳng, lúc đối địch, có thương tích hay không, ta xưa nay chẳng bận tâm.”
 
-Hồng ẩm chậm rãi mà đi, Trần Bình An chỉ đứng ở tại chỗ, ngay cả tầm mắt cũng không có chếch đi, tùy ý Hồng Ẩm đi ra một lộ tuyến cong độ khoảng cách không dài.
+Hồng Ẩm chậm rãi đi vòng một đoạn ngắn. Trần Bình An vẫn đứng tại chỗ, ngay cả ánh mắt cũng chẳng dời theo.
 
-Hồng Ẩm là Viễn Du cảnh cực kỳ cường thế, đương nhiên đã từng nghe nói Hầu Quỳ Môn ăn mặc trang phục vô cùng xinh đẹp, Hồng Ẩm chưa từng gặp qua đối phương, chỉ là có nghe nói, yêu thích mặc giáp trụ đỏ tươi, đầu đội Phượng sí tử kim quan, hai cây linh tử cực dài, toàn thân trên dưới đều là trọng bảo. Cho nên Hồng Ẩm trong lòng đối với Hầu Quỳ Môn có chút không cho là đúng, thân là võ phu thuần túy, nên thân không có ngoại vật, chỉ có hai nắm đấm mà thôi, ví dụ như người trẻ tuổi chân trần trước mắt này, nhẹ nhàng khoan khoái, rất thuần túy.
+Hồng Ẩm là võ phu Viễn Du cảnh có thực lực rất mạnh. Hắn chưa từng gặp Hầu Quỳ Môn, nhưng đã nghe nói kẻ ấy ăn mặc lòe loẹt, ưa khoác giáp đỏ tươi, đội mũ tử kim cánh phượng, hai sợi lông mũ dài ngoẵng, từ đầu đến chân đều là trọng bảo. Hắn chẳng mấy coi trọng chuyện đó. Đã là võ phu thuần túy, trên người nên chẳng vướng ngoại vật, chỉ cần hai nắm đấm. Người trẻ tuổi chân trần trước mắt đây mới thật gọn gàng, thuần túy.
 
-Hồng ẩm hỏi: "Từng đôi chém giết của võ phu Hạo Nhiên Thiên Hạ, chẳng lẽ đều giống như ngươi, còn phải nói rõ rồi mới ra tay? Có sự cổ quái này?"
+Hồng Ẩm hỏi: “Võ phu Hạo Nhiên thiên hạ đánh nhau đến chết đều như ngươi cả sao, phải nói cho rõ rồi mới ra tay? Sao lại có cái lệ kỳ quặc ấy?”
 
-Trần Bình An lắc đầu nói: "Chỉ là để cho ngươi ở trước khi chết ra quyền thống khoái chút ít."
+Trần Bình An lắc đầu: “Chỉ muốn ngươi được ra quyền cho thống khoái trước khi chết.”
 
-Tạm dừng một lát, Trần Bình An vẫn thẳng thắn thành khẩn đối đãi, "Ngươi đã lâu chưa ra tay, quyền cước lạnh nhạt, trong lòng lại quá mức cố kỵ nữ tử ngoài lồng giam, quyền ý xa xa chưa tới đỉnh phong. Ta tùy tiện đấm mấy quyền đánh chết ngươi, có ý nghĩa gì."
+Ngừng một lát, hắn vẫn nói thật lòng: “Ngươi lâu rồi chưa ra tay, quyền cước đã lụt. Trong lòng lại quá kiêng dè nữ tử ngoài cửa lao, quyền ý còn xa mới đến đỉnh phong. Ta tùy tiện đánh chết ngươi bằng mấy quyền thì có ý nghĩa gì?”
 
-Hồng Ẩm không nói gì nữa.
+Hồng Ẩm không nói nữa.
 
-Võ phu hỏi quyền, đạo lý lớn nhỏ, chỉ xem nắm tay có nặng hay không, quyền pháp cao hay không cao.
+Võ phu hỏi quyền, đạo lý lớn nhỏ chỉ xem nắm đấm có nặng, quyền pháp có cao hay không.
 
-Sau đó trong trăm quyền, Hồng Ẩm ra quyền tấn mãnh, khí thế như cá voi nuốt nước, không thẹn với tên.
+Trong trăm quyền sau đó, Hồng Ẩm ra tay nhanh và mạnh, khí thế như cá voi nuốt nước, quả chẳng thẹn với tên mình.
 
-Một cú đầu gối đập trúng ngực đối phương, người trẻ tuổi áo sam xanh trượt ra ngoài mười mấy bước, chỉ bày ra một quyền cái chưa ra quyền, một cột sống như long mạch đại chấn, liền tan đi toàn bộ kình đạo.
+Một cú lên gối đập trúng ngực người trẻ tuổi mặc thanh sam, khiến hắn trượt lui hơn mười bước. Trần Bình An chỉ bày thế, chưa ra quyền. Xương sống hắn chấn động như một đường long mạch, hóa giải hết kình lực.
 
-Hồng ẩm một quyền đồng thời hung hăng nện vào đầu vai đối phương, thừa dịp khoảng cách thân hình đối phương hơi biến hóa, Hồng Ẩm tự thân quyền ý tăng vọt, húc sát người, đánh cho thanh sam khách trẻ tuổi thiếu chút nữa đụng vào hàng rào kiếm quang.
+Hồng Ẩm lại nện một quyền vào đầu vai đối phương. Nhân lúc thân hình Trần Bình An hơi đổi thế, quyền ý Hồng Ẩm chợt dâng vọt. Hắn áp sát, húc mạnh một cái, suýt đánh người khách thanh sam đụng phải hàng rào kiếm quang.
 
-Nhưng mà ánh mắt, sắc mặt của đối phương, đến mức quyền ý gần như tĩnh mịch, không chút sứt mẻ.
+Thế nhưng ánh mắt, sắc mặt và cả quyền ý gần như tĩnh lặng của đối phương vẫn chẳng mảy may thay đổi.
 
-Hồng Ẩm quét một cước cuối cùng trúng cổ đối phương, đánh cho thân hình đối phương đảo ngược vài vòng, cuối cùng một chưởng chống trên mặt đất, đầu hướng mặt đất chân hướng lên trời, thân hình bất động.
+Hồng Ẩm quét một cước trúng cổ Trần Bình An, khiến hắn lộn mấy vòng. Cuối cùng một chưởng chống xuống đất, đầu chúc xuống, chân hướng lên trời, cả người đứng yên. Hắn nhắm mắt, tay trái bắt kiếm quyết trước người.
 
-Nhắm chặt hai mắt, tay trái còn lại, ở trước người bấm kiếm quyết.
+Đến đòn cuối trong trăm quyền, Hồng Ẩm xoay mình vung cánh tay dài, đánh người trẻ tuổi văng ngang. Trần Bình An trầm khí, chấm hai ngón tay xuống đất rồi lộn người. Mấy lần liền hắn đổi chỗ đặt tay như vậy, vừa vặn tránh được những quyền Hồng Ẩm nhào tới. Cuối cùng hắn nhẹ nhàng đứng lại, ngay trên đường thẳng nối Hồng Ẩm với Niệp Tâm.
 
-Trong trăm quyền cuối cùng, Hồng Ẩm xoay người, cánh tay dài vung mạnh, đánh cho người trẻ tuổi bay ngang ra ngoài, người sau khí trầm xuống, hai ngón tay điểm xuống đất, xoay chuyển vài lần, đều là như thế, không ngừng thay đổi vị trí rơi xuống đất, vừa vặn tránh thoát mấy quyền Hồng Ẩm vồ giết tới, cuối cùng người trẻ tuổi phiêu nhiên đứng lại, vừa vặn ở trên đường thẳng giữa Hồng Ẩm và Niết Tâm.
+Trăm quyền đã hết. Hồng Ẩm vốn muốn lập tức phân sinh tử, nhưng trực giác của một võ phu khiến hắn không dám tùy tiện áp sát nữa.
 
-Luận bàn trăm quyền, đã chấm dứt, Hồng Ẩm không phải không muốn lập tức phân ra sinh tử, mà là trực giác võ phu, khiến hắn không dám tùy tiện tiếp cận đối phương nữa.
+Hồng Ẩm dừng bước, trong lòng kinh ngạc. Niệp Tâm cũng hết sức tò mò.
 
-Hồng Ẩm dừng bước lại, cảm thấy bất ngờ, nết tim cũng hết sức tò mò.
+Nàng là luyện khí sĩ Kim Giáp châu, xuất thân nửa dã tu, đã đi khắp bốn phương mấy trăm năm. Nghề may áo lại chuyên tìm “gấm vóc” tốt, bởi vậy nàng chẳng xa lạ gì với võ phu thuần túy ở Hạo Nhiên thiên hạ. Đến võ phu cửu cảnh, nàng cũng từng gặp giữa đường hẹp, vội vã chém giết một trận.
 
-Niệp Tâm làm Luyện khí sĩ xuất thân nửa dã tu Kim Giáp châu, hành tẩu bốn phương mấy trăm năm, lại là người may áo chuyên môn tìm kiếm "Rấm vóc" tốt, đối với võ phu thuần túy Hạo Nhiên Thiên Hạ rất không xa lạ, dù là võ phu cửu cảnh, cũng từng có một hồi chém giết gấp gáp đường hẹp gặp nhau.
+Từ bao giờ một người trẻ tuổi chưa đến ba mươi đã có khí độ tông sư như vậy? Những võ phu Viễn Du cảnh và đại tông sư Sơn Điên cảnh Niệp Tâm từng gặp phần lớn có khí thế kinh người. Dù thần hoa thu về một mối, quyền ý đã đắc pháp, trở lại vẻ chất phác, một khi ra tay chém giết vẫn có khí khái hào kiệt làm long trời lở đất. Nàng chưa từng thấy ai ra quyền nhẹ nhàng, thong dong như người trẻ tuổi này.
 
-Từ khi nào một người trẻ tuổi chưa đến ba mươi tuổi lại có khí độ tông sư này? Hơn nữa võ phu Viễn Du cảnh và đại tông sư Sơn Điên cảnh đã từng nhìn thấy ở Niệp Tâm, phần lớn khí thế kinh người, mặc dù thần hoa nội liễm, quyền ý đắc pháp, trở về nguyên trạng, nhưng một khi ra quyền chém giết, cũng là khí khái hào kiệt núi sập đất nứt, tuyệt không có loại ra quyền nhàn nhạt, thong dong như người trẻ tuổi.
+Hai bên lại hỏi quyền. Niệp Tâm dần nhìn ra chút manh mối. Cách Trần Bình An ứng chiến càng kỳ lạ, tựa hồ hắn đã đổi ý.
 
-Sau đó hai bên hỏi quyền, niết tim phát hiện một ít manh mối, Trần Bình An lựa chọn càng thêm cổ quái, coi như thay đổi chủ ý.
+Hồng Ẩm đánh một trận sảng khoái hết sức. Trần Bình An vẫn chỉ chạm đến là dừng, ít khi tránh né, phần lớn đón đỡ ngay mặt.
 
-Hồng ẩm đánh cho mười phần nhẹ nhàng vui vẻ lâm ly, Trần Bình An vẫn như cũ là điểm đến là dừng, chỉ là tránh né cực ít, lấy đón đỡ làm chủ.
+Chừng nửa nén hương sau, Hồng Ẩm bỗng thu quyền, hỏi: “Ta đã đổi hai ngụm chân khí rồi. Từ đầu đến giờ ngươi chỉ dùng một hơi đánh với ta?”
 
-Ước chừng nửa nén hương sau, Hồng Ẩm bỗng nhiên thu quyền lại, nghi hoặc nói: "Ta đã đổi hai ngụm chân khí võ phu, ngươi thủy chung là lấy một hơi đối địch?"
+Trần Bình An lấy ngón cái lau máu bên khóe miệng, đáp chẳng ăn nhập: “Hai ngày nữa ta lại đến luận bàn với ngươi.”
 
-Trần Bình An dùng ngón cái lau đi vết máu nơi khóe miệng, hỏi một đằng trả lời một nẻo: "Hai ngày nữa ta sẽ tới tìm ngươi luận bàn."
+Hồng Ẩm lắc đầu, hít sâu một hơi rồi trầm giọng nói: “Ngươi xem thường Hồng Ẩm thành Kim Khê cũng được. Võ phu tài nghệ kém người, chẳng đáng để đối thủ kính nể. Nhưng Trần Bình An, chẳng lẽ ngươi xem thường cả võ phu hay sao?”
 
-Hồng Ẩm lắc đầu, hít sâu một hơi, trầm giọng nói: "Xem thường uống cầu vồng thành Kim Khê coi như xong, võ phu tài nghệ không bằng người ta, không đảm đương nổi địch thủ kính nể, nhưng Trần Bình An ngươi không lẽ xem thường võ phu?!"
+Trần Bình An im lặng một lát, rồi gật đầu: “Tiền bối nói có lý.”
 
-Trần Bình An trầm mặc một lát, gật đầu nói: "Tiền bối có lý."
+Rốt cuộc Trần Bình An đổi một ngụm chân khí thuần túy. Nhìn bên ngoài, khung quyền có vẻ lơi lỏng, thân hình như vượn. Bên trong, một con đại long được quyền giá “đỉnh phong” của Chủng Thu nâng đỡ. Hắn trực tiếp lấy Thần Nhân Lôi Cổ Thức làm thế mở đầu.
 
-Trần Bình An rốt cuộc thay đổi khẩu chân khí thuần túy, bên ngoài ở khung quyền nhìn như lỏng lẻo, hình vượn khỉ, bên trong đại long, lấy quyền giá "đỉnh phong" Chủng Thu chống đỡ, trực tiếp lấy Thần Nhân Lôi Cổ Thức thức khởi thủ.
+Trước khi chết, vẻ mặt võ phu Hồng Ẩm tựa con cá vừa thoát lưỡi câu.
 
-Võ phu uống Hồng Ẩm, trước khi chết, thần sắc như cá móc câu, chợt được giải thoát.
+Theo lệ cũ, Niệp Tâm thu xác.
 
-Quy củ cũ, nết tim nhặt xác.
+Lần này Trần Bình An chẳng đứng xem. Hắn chỉ ngồi ngoài cửa lao, uống một ngụm rượu.
 
-Chỉ là lần này Trần Bình An lại không bàng quan, chỉ ngồi ở bên ngoài lồng giam, uống ngụm rượu.
+Nhiều thủ đoạn may vá đã thuộc nằm lòng, Niệp Tâm vừa làm vừa thong thả hỏi: “Quyền này ngươi luyện thế nào?”
 
-Rất nhiều thủ đoạn may vá, sớm đã thuộc nằm lòng, Niệp Tâm ngược lại giống như là nhàn rỗi vô sự, hỏi: "Làm sao luyện được quyền này?"
+Trần Bình An quay lưng về phía cửa lao, chậm rãi nói: “Người dạy ta quyền pháp không thích nói quyền lý, chỉ để lại dăm ba câu. Trong đó có một câu ta vẫn chẳng dám quên. ‘Nắm đấm của ta ở trên trời, trước mặt ta không người.’”
 
-Trần Bình An đưa lưng về phía lồng giam, chậm rãi nói: "Người dạy ta quyền pháp, không thích nói quyền lý, chỉ có vài câu ít ỏi, trong đó có một câu, vẫn không dám quên." Nắm đấm của ta ở trên trời, trước người không người."
+Niệp Tâm gật đầu: “Vị võ phu ấy khí phách thật lớn.”
 
-Niệp Tâm gật đầu nói: "Vị võ phu kia, khí phách thật lớn."
+Sau đó, Trần Bình An đi tới gian lao kế tiếp. Tù nhân ở đây là một kiếm tu Yêu tộc đã đến bình cảnh Kim Đan, xuất thân từ một kiếm tông tên là Lam Tông [?].
 
-Sau đó.
+Ở Man Hoang thiên hạ, những tông môn lập thân bằng kiếm tu ít đến mức đếm được trên đầu ngón tay. Nơi này khác hẳn Hạo Nhiên thiên hạ. Một kiếm tiên thượng ngũ cảnh dù dựng nổi cờ khai tông lập phái, chưa chắc đã giữ được cờ.
 
-Trần Bình An đi tới một nhà giam tiếp theo, giam giữ Yêu tộc, là một vị kiếm tu bình cảnh Kim Đan.
+Đại yêu hoành hành khắp Man Hoang thiên hạ, chẳng kiêng dè gì. Bọn chúng ghét nhất những tông môn kiếm tu, hứng lên thì vỗ một chưởng, giẫm mấy cái. Bởi kiếm tiên, kiếm tu rốt cuộc vẫn quý giá, đại yêu chẳng giết người, chỉ phá sơn thủy đại trận. Cứ tới lui như thế, ai chịu nổi?
 
-Một vị kiếm tu bình cảnh Kim Đan đến từ một tòa kiếm tông, tên là Lam Tông.
+Cho nên kiếm tông nào ở Man Hoang thiên hạ vượt qua được trăm năm đầu sau khi lập phái, đều là thế lực đỉnh núi cực kỳ hùng mạnh.
 
-Man Hoang thiên hạ lấy kiếm tu làm gốc rễ để lập thân, có thể đếm được trên đầu ngón tay, khác hẳn với Hạo Nhiên thiên hạ, không phải tùy tiện một vị kiếm tiên thượng ngũ cảnh, có thể khai tông lập phái ở Man Hoang thiên hạ, cờ xí tông môn, cho dù dựng được nổi, cũng không chống đỡ được. Đại yêu hoành hành trong Man Hoang thiên hạ, không kiêng nể gì cả, trong đó phản cảm nhất với tông môn kiếm tu, vỗ lên một cái, giẫm mấy phát, kiếm tiên, kiếm tu dù sao cũng quý giá nhất, cho nên đại yêu không giết người, chỉ gây họa sơn thủy đại trận, thường xuyên qua lại, ai chống lại được giày vò như vậy.
+Theo hồ sơ bí mật ở hành cung tránh nóng, từng có một kiếm tiên Kiếm Khí Trường Thành ẩn mình trong Lam Tông. Về sau thân phận bại lộ, vị ấy bị vây giết. Lam Tông dùng nhiều bí pháp âm độc giam giữ hồn phách để ép hỏi cách luyện kiếm, cuối cùng còn luyện hóa kiếm tiên thành một thứ chỉ sót lại chút linh trí [?], nhất cử nhất động đều phải nghe lệnh người khác.
 
-Cho nên mỗi tông môn kiếm tu trong Man Hoang thiên hạ, chỉ cần qua được trăm năm tháng ban đầu sáng lập, đều là thế lực đỉnh núi cực kỳ mạnh mẽ.
+Vị ấy từng xuất hiện trong một trận công thành, được Lý Thoái Mật, thủ tịch cung phụng Yến gia, chém một kiếm cho giải thoát.
 
-Dựa theo bí kíp hành cung tránh nóng, Lâu Tông từng có kiếm tiên của Kiếm Khí Trường Thành ẩn nấp trong đó, về sau thân phận bại lộ, chịu khổ vây giết, Lâu Tông lấy nhiều loại bí pháp âm độc, giam giữ hồn phách kiếm tiên, mạnh mẽ đòi hỏi phương pháp luyện kiếm, cuối cùng kiếm tiên còn bị luyện hóa thành một khối linh trí còn sót lại một chút, nhưng vẫn chỉ có thể nghe lệnh của người khác, từng hiện thân trong chiến tranh công thành, bị thủ tịch Yến gia cung phụng Lý Thối Mật một kiếm chém giết, được giải thoát.
+Đến trước gian lao, Trần Bình An nhờ Niệp Tâm mở cửa. Hắn báo danh, chỉ nói hai chữ “Vấn kiếm” rồi tế phi kiếm Lung Trung Tước.
 
-Ở tòa nhà giam này, sau khi để Niệp Tâm mở ra cửa chính, Trần Bình An tự báo danh hiệu, chỉ nói hai chữ "Vấn kiếm", liền tế ra chim tước trong lồng.
+Nào ngờ vị kiếm tu bình cảnh Kim Đan quỳ phịch xuống đất, không chịu đứng dậy. Hắn nói chắc như đinh đóng cột, nguyện lập trọng thệ một lòng theo Trần Bình An để đổi lấy mạng sống.
 
-Nào ngờ vị kiếm tu bình cảnh Kim Đan kia thế mà trực tiếp quỳ xuống đất không dậy nổi, nói chắc như đinh đóng cột, nguyện lập trọng thệ nguyện trung thành Trần Bình An, đổi lấy mạng sống.
+Thấy người trẻ tuổi chẳng động lòng, vị kiếm tu càng dứt khoát. Hắn tình nguyện làm tổn hại căn cơ đại đạo, tách thanh phi kiếm bản mạng ra dâng cho Trần Bình An, chỉ cầu được ở lại lao ngục kéo dài hơi tàn.
 
-Thấy người trẻ tuổi kia thờ ơ, vị kiếm tu này càng quả quyết, nguyện lấy tổn hại đại đạo căn bản, bóc ra thanh phi kiếm bản mạng kia tặng cho Trần Bình An, chỉ cầu tiếp tục ở trong lao lung này kéo dài hơi tàn.
+Kiếm tu này là đích truyền của tổ sư đường Lam Tông. Trên chiến trường, cách hắn xuất kiếm rất khó lường. Phi kiếm bản mạng “Thiên Lại” có hai loại thần thông. Kiếm qua mà không thấy bóng, chỉ nghe tiếng cánh ruồi muỗi rất khẽ. Đến khi tiếng vo ve ấy vang sát bên tai thì động tĩnh đã chẳng còn nhỏ. Một khi chấn động dữ dội trong khiếu huyệt khí phủ, sát lực ầm ầm như sấm. Trong tiếng sấm của phi kiếm vốn có chân ý ngũ lôi.
 
-Vị kiếm tu đích truyền tổ sư đường Lam Tông này, chém giết trên chiến trường, xuất kiếm cực kỳ nắm bắt không chừng, một thanh phi kiếm bản mạng "Thiên Lại", kiêm hai loại bản mạng thần thông, nơi phi kiếm đi qua không thấy phi kiếm, chỉ có tiếng ruồi muỗi cực kỳ nhỏ, tiếng ruồi muỗi vỗ cánh, nếu là vang lên ở bên tai người, vẫn cứ động tĩnh không nhỏ, ở trong khiếu huyệt khí phủ của người ta kịch liệt rung động, tự nhiên đó là sát lực khổng lồ vang như sấm sét, hơn nữa tiếng phi kiếm chấn lôi, thiên nhiên ẩn chứa chân ý ngũ lôi, chỗ làm người ta khó lòng phòng bị nhất, ở chỗ kẻ địch phát hiện phi kiếm, cần nghe âm phân biệt vị, nhưng mà một khi nghe tiếng vang, phi kiếm sẽ càng thêm nhanh chóng lướt vào thể phách kiếm tu.
+Chỗ khó đề phòng nhất là kẻ địch phải nghe tiếng mới định được vị trí phi kiếm. Nhưng vừa nghe thấy, phi kiếm đã càng nhanh lướt vào thể phách đối phương.
 
-Kiếm khí khẽ động, bên trong tiểu thiên địa nhân thân, lập tức phong lôi vân vũ đều làm.
+Kiếm khí khẽ động, tiểu thiên địa trong thân lập tức nổi gió, sấm, mây, mưa.
 
-Chính bởi vì phi kiếm của vị kiếm tu Yêu tộc này thật sự quá mức trái với lẽ thường, mới bị hai vị kiếm tiên Kiếm Khí Trường Thành chuyên môn nhằm vào, có thể giam giữ vào trong lao ngục.
+Chính vì thanh kiếm của vị kiếm tu Yêu tộc này quá trái lẽ thường, Kiếm Khí Trường Thành mới phải cử riêng hai kiếm tiên đối phó, nhờ vậy mới bắt được hắn vào lao.
 
-Trần Bình An sau khi nhận được thanh "Thiên Lại" kia, thu hồi phi kiếm lồng chim tước trong lồng. Về bí pháp luyện kiếm của Lam Tông, hành cung tránh nóng có ghi lại một chút, chỉ là Trần Bình An hỏi lại một lần, bù lại chỗ thiếu không ít.
+Nhận lấy Thiên Lại, Trần Bình An thu hồi Lung Trung Tước. Hành cung tránh nóng có chép đôi chút về bí pháp luyện kiếm của Lam Tông. Hắn hỏi lại một lượt, bổ sung được không ít chỗ còn thiếu.
 
-Trần Bình An cùng niết tâm liếc nhau, nàng lập tức ngầm hiểu, đi vào lao ngục.
+Trần Bình An liếc sang Niệp Tâm. Nàng lập tức hiểu ý, bước vào gian lao. Cùng lúc ấy, âm thần nhỏ nhắn của nàng rời thân đi xa, trong tay cầm mười cây kim thêu kéo theo những sợi ánh sáng khác màu.
 
-Đồng thời một vị âm thần tinh xảo linh lung xuất khiếu đi xa, cầm trong tay mười cây "Tú hoa châm" kéo ánh sáng khác nhau.
+Biết mình ắt chết, kiếm tu căm hận vô cùng, luôn miệng mắng Trần Bình An.
 
-Biết được kiếm tu mình hẳn phải chết đại hận, mắng Trần Bình An không thôi.
+Niệp Tâm khá hài lòng. Trong trận hỏi quyền vừa rồi, Hồng Ẩm chết quá toại nguyện, oán hận đối với vị Ẩn Quan trẻ tuổi lại quá ít. Với nàng, đó chẳng phải chuyện tốt.
 
-Niệp Tâm tương đối hài lòng, lúc trước uống quyền vấn an Hồng, võ phu Hồng Ẩm chết quá mức như nguyện, đối với ẩn quan trẻ tuổi oán hận quá ít, ngược lại không phải chuyện tốt gì.
+Kim chỉ may áo của Niệp Tâm vừa liên quan đến ba hồn bảy vía, vừa có thể thu nạp oán khí.
 
-Nẹt sợi chỉ pháp may đồ, không chỉ liên quan đến ba hồn bảy vía, còn có thể thu nạp oán khí.
+Trần Bình An đứng ở cửa uống thêm một ngụm rượu. Hắn chỉ nhấp đôi chút, hết sức dè sẻn. Chẳng thể đợi đến lúc thật sự chịu khổ mới phát hiện rượu đã cạn.
 
-Trần Bình An đứng ở cửa, lại uống ngụm rượu, nhấp một ngụm nhỏ, mười phần tiết kiệm. Chung quy không thể đợi tới lúc thật sự chịu đau khổ, ngược lại không có rượu.
+Niệp Tâm vừa thu xếp vị kiếm tu Kim Đan vừa thuận miệng nói: “Ở vị trí nào thì lo việc ở vị trí ấy. Chẳng thể chuyện gì cũng thuận lòng.”
 
-Nho Tâm loay hoay với viên kiếm tu Kim Đan kia, thuận miệng nói: "Ở vị trí nào thì mưu tính việc nấy, cũng không thể mọi chuyện đều thuận tâm."
+Trần Bình An lắc đầu: “Những chuyện ấy ta nghĩ thông từ lâu rồi. Ở Kiếm Khí Trường Thành giết yêu, cần gì lý do? Có làm Ẩn Quan hay không cũng vậy. Ta khó chịu chỉ vì cảnh giới của mình quá thấp. Bây giờ gặp bất cứ con đại yêu vương tọa nào cũng chỉ có chết. Chưa nói đến bọn chúng, cầm cự với một kiếm tu Nguyên Anh đã hết sức chật vật. Gặp kiếm tiên thì chắc chắn phải chết. Trở thành kiếm tiên, thật sự quá khó.”
 
-Trần Bình An lắc đầu nói: "Những chuyện này đã sớm nghĩ thông rồi, ở Kiếm Khí Trường Thành giết yêu, nơi nào cần lý do. Có phải Ẩn Quan hay không, đều giống nhau. Không thư thái, chỉ là cảnh giới của mình quá thấp, hôm nay chống lại bất cứ một con vương tọa đại yêu nào, chính là chết. Không nói đến chúng nó, giằng co một vị kiếm tu Nguyên Anh cảnh, đã cực kỳ cố hết sức. Chống lại một vị kiếm tiên, càng phải chết không thể nghi ngờ. Trở thành kiếm tiên, thật sự quá khó."
-
-Niệp Tâm cười nói: "Tuổi còn trẻ đã là kiếm tu ngũ cảnh, ta thấy không quá khó khăn."
+Niệp Tâm cười: “Còn trẻ mà đã là kiếm tu ngũ cảnh. Ta thấy cũng đâu khó lắm.”
 
 Trần Bình An nghẹn lời.
 
-Người may y khó có được cách nói đùa, thực sự lạnh đến rợn người.
+Nữ tử may áo hiếm khi nói đùa, mà một khi nói lại lạnh đến rợn người.
 
-Lúc trước lão điếc và con cá chạch kia lấy tinh huyết ba chỉ, ẩn quan trẻ tuổi làm ăn buôn bán, không phải người.
+Trước đó, lão điếc lấy ba chỉ tinh huyết của con cá chạch kia. Vị Ẩn Quan trẻ tuổi làm ăn thật chẳng có chút tình người.
 
-Lão điếc còn cùng vị vãn bối Duỗi Lạc Hà kia, đòi thêm mấy cân máu thịt, dù sao bên người thu cái gọi là thiếu niên lang chủ nhân, xem ra cũng là người biết nấu ăn, có một bình rượu ngon, lại thêm một nồi ẩn quan trẻ tuổi gọi là cá chạch hầm đậu hũ, thật sự là cuộc sống thần tiên.
+Lão điếc còn đòi vãn bối Duệ Lạc Hà thêm mấy cân máu thịt. Thiếu niên được nhận làm chủ nhân bên cạnh lão xem ra cũng biết nấu nướng. Có một bình rượu ngon, thêm nồi cá chạch hầm đậu hũ như Ẩn Quan trẻ tuổi nói, quả là ngày tháng thần tiên.
 
-Về phần danh hiệu chủ nhân thiếu niên hàm hậu, lão điếc sẽ là thật? Thực sự coi mình là Phi Thăng cảnh ăn chay niệm phật đi ra ngoài?
+Còn danh phận chủ nhân của thiếu niên thật thà ấy, lão điếc có coi là thật chăng? Tưởng lão là một Phi Thăng cảnh ăn chay niệm Phật mà thành hay sao?
 
-Lão đại Kiếm Tiên làm như thế, chẳng qua là cho một cơ duyên sâu thẳm, nhiều nhất chỉ là một tấm bùa hộ mệnh mà thôi, thiếu niên chỉ cần mình không có bản lãnh tiếp được cơ duyên, kỳ hạn trăm năm thoáng qua, sinh tử rõ ràng đến cực điểm. Đổi lại là Đỗ Sơn Âm một thân cơ trí, lão điếc bây giờ đã có thể nghĩ ra cách xử trí Đỗ Sơn Âm trăm năm sau như thế nào, cho nên mới nói cái này gọi là ngu ngốc có phúc của ngốc, U Úc đứa nhỏ này thật sự quá đần, lão điếc ngược lại ngại động thủ, bởi vì không có gì thú vị.
+Lão đại Kiếm Tiên làm vậy chẳng qua để trao cho thiếu niên một cơ duyên thâm sâu, nhiều lắm cũng chỉ là một tấm bùa hộ mệnh. Nếu thiếu niên chẳng có bản lĩnh đón lấy cơ duyên, kỳ hạn trăm năm thoáng cái đã hết, sống chết đến lúc ấy sẽ rõ rành rành.
 
-Mà U Úc đối với thân phận chủ tớ, càng không thật, chính là con đường sống chân chính của thiếu niên.
+Đổi lại là Đỗ Sơn Âm đầy mình cơ trí, ngay lúc này lão điếc đã có thể nghĩ ra trăm năm sau sẽ xử trí hắn ra sao. Cho nên mới nói kẻ ngốc có phúc của kẻ ngốc. Đứa nhỏ U Úc thật sự quá đần, đến nỗi lão điếc lười động thủ vì chẳng có gì thú vị.
 
-Cho nên nói đọc sách nhiều vẫn là chuyện tốt, như ẩn quan trẻ tuổi chính miệng nói, ngàn vạn lần đừng đem một vị phi thăng cảnh không làm đại yêu.
+U Úc càng ít coi thân phận chủ tớ kia là thật thì càng có đường sống.
 
-U uất bị lão điếc một phát nắm lấy đầu vai, rời khỏi địa lao khiến hắn gần như hít thở không thông, vòng quanh thi hài Yêu tộc cùng kim thân tàn phá thần linh, tầm mắt có thể đạt được, là một nơi phong thủy bảo địa mang đến tâm cảnh tường hòa cho thiếu niên, nước suối róc rách, trước nhà tranh bên khe suối, dựng lên giàn nho thật lớn, xanh um tùm, bao la cả một mẫu đất, trong xanh um, tay áo đều phải làm màu xanh biếc.
+Cho nên đọc nhiều sách vẫn là chuyện tốt. Như vị Ẩn Quan trẻ tuổi từng chính miệng nói, ngàn vạn lần chớ quên một vị Phi Thăng cảnh vẫn là đại yêu.
 
-Mỗi một lần hô hấp, U Úc đều cảm thấy vui vẻ thoải mái, đó là một loại cảm giác linh khí cùng kiếm khí giống như đều bị tẩy luyện qua huyền diệu, có thể khiến người ta trực tiếp nhảy qua luyện khí khâu, càng như thế, thiếu niên câu nệ càng không dám há mồm hít thở. Chung quy là khách nhân tới cửa bái phỏng, thiếu niên không dám l* m*ng.
+Lão điếc chộp lấy vai U Úc, đưa hắn rời khỏi địa lao ngột ngạt đến gần như không thở nổi. Qua những thi hài Yêu tộc và kim thân thần linh tàn phá, trước mắt thiếu niên hiện ra một nơi phong thủy tốt lành, nhìn thôi đã thấy lòng yên ổn. Nước suối chảy róc rách. Trước căn nhà tranh ven suối là một giàn nho rất lớn, xanh um cả một mẫu đất. Đứng trong màu xanh ấy, tưởng chừng tay áo cũng nhuốm xanh.
 
-Lão điếc cười nói: "Chỉ cần thổ nạp dẫn đường, căn bản không kém mấy ngụm linh khí này của mày. Cá nhỏ bơi trong nước sông, còn có thể uống đến nước sông khô cạn không thành."
+Mỗi lần hít thở, U Úc đều thấy khoan khoái. Linh khí và kiếm khí nơi đây tựa hồ đã qua tẩy luyện, có thể dùng ngay mà khỏi qua công phu luyện khí. Càng như vậy, thiếu niên càng câu nệ, chẳng dám há miệng hít sâu. Dù sao cũng đến nhà người ta làm khách, hắn đâu dám lỗ mãng.
 
-Lão điếc dừng bước lại, "Chủ nhân còn chưa trở về, chúng tôi chờ một lát."
+Lão điếc cười: “Cứ thổ nạp dẫn khí. Ở đây chẳng thiếu mấy ngụm linh khí của ngươi. Cá nhỏ bơi trong sông, chẳng lẽ uống đến cạn cả sông sao?”
 
-U Úc dùng sức gật đầu, vô cùng căng thẳng.
+Lão dừng bước: “Chủ nhà chưa về, chúng ta chờ một lát.”
 
-Bởi vì tiền bối bên cạnh đã nói với hắn thân phận kiếm tiên, hình quan kia.
+U Úc gật đầu thật mạnh, trong lòng hết sức căng thẳng.
 
-Một chức quan xa xưa biến mất rất nhiều năm trong lịch sử Kiếm Khí Trường Thành, cùng một cấp độ với Ẩn Quan.
+Vị tiền bối bên cạnh đã nói cho hắn biết thân phận của kiếm tiên nơi này. Đó là Hình Quan, một chức quan cổ xưa đã biến mất nhiều năm trong lịch sử Kiếm Khí Trường Thành, ngang hàng với Ẩn Quan.
 
-Lão tiền bối điếc không có nói tỉ mỉ, chỉ nói vị Hình Quan Kiếm Tiên kia, chính mình áy náy, cảm thấy không mặt mũi gặp người.
+Lão điếc không nói kỹ, chỉ bảo vị kiếm tiên Hình Quan ấy tự thấy hổ thẹn, chẳng còn mặt mũi gặp người.
 
-Một hướng khác, hai người dọc theo bờ suối chậm rãi đi tới. Chính là kiếm tiên không thấy mặt, cùng thiếu niên Đỗ Sơn Âm.
+Phía bên kia, hai người đang chậm rãi đi dọc bờ suối tới. Một người là kiếm tiên không thấy rõ mặt, người còn lại là thiếu niên Đỗ Sơn Âm.
 
-Bên hông Đỗ Sơn âm treo mấy cái túi nhỏ được bện bằng sợi tơ bạc, phát ra ánh sáng vàng rực rỡ như ánh bình minh.
+Bên hông Đỗ Sơn Âm treo mấy chiếc túi nhỏ bện bằng tơ bạc, hắt ra ánh vàng rực rỡ như ráng sớm.
 
-Lão điếc cười nói: "Khó trách."
+Lão điếc cười: “Thảo nào.”
 
-Ở tòa thiên địa này, Đại Yêu cùng Thần linh hai loại thi hài, đều là ở trong dòng sông thời gian không thể nhận ra, thi cốt không ngừng mục nát, tiêu thực, tróc ra, nhưng mà những thần linh kim thân kia, ngẫu nhiên sẽ có chút ngoài ý muốn, ví dụ như từng đống kim sa, càng hiếm lạ hơn, đó là từng khối mảnh vỡ kim thân. Ẩn quan trẻ tuổi kia lúc trước du lịch, cho dù vận đạo không tốt, một chỗ cũng không nhìn thấy, ngược lại là thiếu niên Đỗ Sơn Âm, theo Kiếm Tiên du lịch một chuyến, thắng lợi trở về.
+Trong tòa thiên địa này, thi hài đại yêu và thần linh đều nằm trong dòng sông thời gian, không ngừng mục nát, tiêu mòn, bong tróc mà mắt thường khó nhận ra. Riêng kim thân thần linh đôi khi để lại chút gì ngoài dự liệu. Có khi là từng đống cát vàng, hiếm hơn nữa là những mảnh vỡ kim thân.
 
-Vị Kiếm Tiên kia, tuyệt đối sẽ không chủ động đánh nát thi hài Thần Linh, mỗi ngày chỉ là chờ trên trời rơi tiền, sau đó xoay người nhặt tiền.
+Vị Ẩn Quan trẻ tuổi lần trước đi một chuyến, vận may kém đến nỗi chẳng trông thấy chỗ nào có những thứ ấy. Đỗ Sơn Âm theo kiếm tiên ra ngoài một lượt, vậy mà lại thu hoạch lớn.
 
-Chắc hẳn lần này mang theo Đỗ Sơn đi xa, cũng là muốn nhìn xem số phận của thiếu niên như thế nào.
+Vị kiếm tiên kia chắc chắn chẳng chủ động đánh vỡ thi hài thần linh. Mỗi ngày chỉ chờ tiền rơi từ trên trời xuống, rồi xoay người nhặt mà thôi.
 
-Bên dòng suối có nữ tử làm bộ trên thớt gỗ, lấy xử lý kích y, Đỗ Sơn Âm hô một tiếng, nàng bỗng nhiên ngẩng đầu, dung mạo sáng rọi, xinh đẹp không gì sánh được.
+Chắc lần này dẫn Đỗ Sơn Âm đi xa cũng là để xem vận số thiếu niên ra sao.
 
-Đỗ Sơn chợt thất thần, có Hoán Sa Tiểu Tiêu, tay cầm giỏ trúc, đứng ở bên cạnh cô gái đang giã hương, đôi mắt sáng mang ý cười, thấy dáng vẻ ngây ngốc của thiếu niên, cười càng không thể kìm nén.
+Bên bờ suối có một nữ tử đang dùng chày đập áo trên tấm ván gỗ [?]. Nghe Đỗ Sơn Âm gọi, nàng đột ngột ngẩng đầu, dung mạo rạng rỡ, đẹp không gì sánh được.
 
-Kiếm Tiên Hình Quan và lão điếc gật đầu.
+Đỗ Sơn Âm ngẩn cả người. Hoán Sa Tiểu Tiêu tay cầm giỏ trúc, đứng cạnh nữ tử cầm chày. Đôi mắt nàng ánh lên ý cười. Trông thấy dáng vẻ ngây ngốc ấy, nàng càng không nhịn được cười.
 
-Lão điếc lúc này mới dẫn theo u uất đi về phía giá nho.
+Kiếm tiên Hình Quan và lão điếc gật đầu chào nhau.
 
-Dưới giàn nho, cao thấp không đồng nhất, lơ lửng từng chiếc chén sứ tinh xảo đẹp đẽ, dường như đang chờ đợi quả nho kia rơi vào trong chén.
+Lão điếc bấy giờ mới dẫn U Úc đi về phía giàn nho.
 
-Chén rượu Hoa Thần năm màu mười hai sắc, có vẽ mười hai vị nữ tử thướt tha, viết mười hai thiên Ứng Cảnh Thi.
+Bên dưới giàn, từng chiếc chén sứ tinh xảo lơ lửng ở những độ cao khác nhau, tựa hồ đang chờ nho chín rơi vào chén.
 
-Lão điếc cười nói: "Ở Hạo Nhiên Thiên Hạ đó, trừ nữ tử Hoa Thần, thật ra còn có mười hai vị nam tử Hoa Thần, đều là công thần cùng sủng nhi của Bách Hoa Phúc Địa. Phần nhiều là tiên nhân, văn hào, dưới duyên tế hội, có cảm xúc mà phát, vì hoa cỏ nào đó, viết ra thi thiên kinh diễm danh thanh sử. A Lương từng tiết lộ thiên cơ, nói những thiên danh thiên cổ này sinh ra, cũng không phải tất cả đều là diệu thủ ngẫu nhiên được, không thể thiếu các cô gái Hoa Thần đổ thêm dầu vào lửa, từng đợt hoa tiền tháng trước lặn xuống, làm người ta cực kỳ hâm mộ."
+Chén rượu Hoa Thần năm màu mười hai sắc, vẽ mười hai nữ tử thướt tha và đề mười hai bài thơ ứng cảnh.
 
-Thiếu niên u ám, chỉ cảm thấy như đang nghe thiên thư.
+Lão điếc cười: “Ở Hạo Nhiên thiên hạ, ngoài các nữ Hoa Thần còn có mười hai vị nam Hoa Thần. Bọn họ có công với Bách Hoa phúc địa, cũng được nơi ấy hết sức ưu ái. Phần nhiều là tiên nhân, văn hào, nhân duyên đưa đẩy mà sinh cảm hứng, vì một loài hoa cỏ mà viết nên áng thơ lưu danh sử sách.”
 
-Ở Kiếm Khí Trường Thành bên kia, lão điếc ngẫu nhiên đi hướng đầu tường, cũng giả câm giả điếc, không nói một lời, nhiều nhất gặp được với A Lương, mới có thể tách ra vài câu.
+“A Lương từng tiết lộ thiên cơ. Hắn nói chẳng phải áng thơ thiên cổ nào cũng tình cờ mà có. Phải có các vị nữ Hoa Thần thêm dầu vào lửa, hết lần này đến lần khác âm thầm hẹn nhau trước hoa dưới trăng. Nghĩ đến mà khiến người ta hâm mộ.”
 
-Trên thực tế, chỉ xem chuyện văn bia Tuyền Cơ, cùng với cách ăn nói của lão điếc và Trần Bình An, đã biết vị đại yêu Phi Thăng cảnh này học vấn sâu không cạn.
+Thiếu niên U Úc nghe như nghe thiên thư.
 
-Đồng tử tóc trắng vóc người thấp bé, lưng đeo một bộ khung xương trắng muốt như ngọc, bước đi như bay, bôn tẩu ở bên kia khe nước.
+Ở Kiếm Khí Trường Thành, lão điếc thi thoảng lên đầu tường cũng giả câm giả điếc, chẳng nói một lời. Có gặp A Lương thì cùng lắm mới chịu nói dăm ba câu.
 
-Hai chân xương trắng kéo lê trên mặt đất, vang lên những tiếng đôm đốp.
+Thật ra, chỉ xem chuyện văn bia Tuyền Cơ và cách lão nói chuyện với Trần Bình An, cũng đủ biết vị đại yêu Phi Thăng cảnh này học vấn chẳng cạn.
 
-Rõ ràng là một bộ tiên nhân cành vàng lá ngọc lột xác, cũng không biết là đào từ nơi nào.
+Bên kia khe nước, đồng tử tóc trắng thấp bé đang chạy như bay, trên lưng đeo một bộ xương trắng muốt như ngọc. Hai chân bộ xương kéo lê trên đất, kêu lộc cộc.
 
-Hình quan bị mây mù che phủ toàn thân, quay đầu nhìn về phía con Hóa Ngoại Thiên Ma.
+Rõ ràng là di hài của một vị tiên nhân kim chi ngọc diệp, cũng chẳng biết bị đào lên từ đâu.
 
-Đồng tử tóc trắng lập tức dừng bước không tiến lên, cách dòng nhìn nhau, cười hì hì nói: "Chỉ là vì hai vị thiên chi kiêu tử thân phận tôn quý, tặng một phần lễ gặp mặt, chúc mừng. Hôm nay trước đưa một phần, ngày mai lại bổ sung một phần."
+Hình Quan toàn thân phủ trong mây mù, quay đầu nhìn con Hóa Ngoại Thiên Ma.
 
-Lão điếc cười ha ha.
+Đồng tử tóc trắng lập tức dừng bước ở bên kia suối, cười hì hì: “Ta chỉ muốn tặng hai vị thiên chi kiêu tử thân phận tôn quý chút lễ ra mắt, gọi là chúc mừng. Hôm nay đưa trước một phần, ngày mai bổ sung phần còn lại.”
 
-Kiếm tiên cũng không mở miệng.
+Lão điếc cười ha ha. Kiếm tiên chẳng mở miệng.
 
-Đứa bé tóc bạc nghiêm trang nói: "Ta lấy thân phận cháu trai của Ẩn Quan, gia gia của lão điếc ra thề! Chỉ là đi vào tâm của bọn họ, nếu có bất kỳ hành động lén lút nào, sẽ bị trời giáng ngũ lôi đánh xuống."
+Đồng tử tóc trắng nghiêm trang nói: “Ta lấy thân phận cháu trai của Ẩn Quan, gia gia của lão điếc mà thề! Ta chỉ vào tâm cảnh của bọn họ. Nếu có bất kỳ hành động lén lút nào, cứ để trời giáng ngũ lôi đánh ta.”
 
-Hắn tủi thân và uất ức nói: "Chỉ nhìn vài lần, thật sự chỉ nhìn vài lần, quá lâu quá lâu không nhìn thấy cảnh tượng Man Hoang Thiên Hạ và Kiếm Khí Trường Thành."
+Hắn lại tỏ vẻ ấm ức: “Chỉ nhìn mấy lần thôi, thật sự chỉ mấy lần. Lâu lắm, lâu lắm rồi ta chưa thấy cảnh tượng của Man Hoang thiên hạ và Kiếm Khí Trường Thành.”
 
-Con Hóa Ngoại Thiên Ma này quay đầu nhìn về phía hai vị thiếu niên kia, "Ta họ Ngô, miệng rộng Thiên Ngô. Tên là Vu, lải nhải không ngớt, lời nói nhảm nhí, khó nói hết. Tiền bối này của ta không kiêu ngạo, hai người các ngươi gọi đầy đủ tên ta là được rồi."
+Con Hóa Ngoại Thiên Ma quay sang hai thiếu niên: “Ta họ Ngô, chữ Ngô trong Thiên Ngô, có cái miệng rộng. Tên Vu, tức là lải nhải không dứt, nói nhảm mãi chẳng hết [?]. Ta đây làm tiền bối chẳng câu nệ, hai ngươi cứ gọi cả họ lẫn tên ta là được.”
 
-Lão điếc và hình quan, đều sẽ không xem thường con Hóa Ngoại Thiên Ma này.
+Lão điếc và Hình Quan đều chẳng dám xem nhẹ con Hóa Ngoại Thiên Ma này.
 
-Quả thật là một hàng xóm cực kỳ đáng ghét.
+Quả là một láng giềng đáng ghét.
 
-Bạch phát đồng tử vẫn muốn dây dưa, kiếm quang chợt lóe.
+Đồng tử tóc trắng vẫn định dây dưa thì kiếm quang chợt lóe.
 
-Đồng tử tóc trắng ném bộ xương trắng kia bỏ chạy, mỗi lần ngưng tụ thành hình người, liền bị kiếm quang như bóng với hình đánh nát, sau mấy chục lần, rời xa nhà tranh hơn mười dặm, kiếm quang mới không đi theo nữa.
+Hắn ném bộ xương trắng lại rồi bỏ chạy. Mỗi lần vừa ngưng tụ thành hình người, kiếm quang lại đuổi theo đánh tan. Cứ thế mấy chục lần, phải ra xa nhà tranh hơn mười dặm, kiếm quang mới thôi đuổi.
 
-Đồng tử tóc trắng ngự phong huyền đình, sầu bi không thôi.
+Đồng tử tóc trắng lơ lửng giữa gió, sầu não không thôi.
 
-Bởi vì một đạo kiếm quang lơ lửng cách đó không xa.
+Cách đó chẳng xa, một đạo kiếm quang vẫn lặng lẽ treo giữa không trung.
 
-Đây là phi kiếm thuật của hình quan, chỉ cần vị kiếm tiên kia nguyện ý, kiếm quang có thể tự mình đuổi giết hóa ngoại thiên ma mấy năm.
+Đây là phi kiếm thuật của Hình Quan. Chỉ cần vị kiếm tiên kia muốn, kiếm quang có thể tự đuổi giết con Hóa Ngoại Thiên Ma suốt mấy năm.
 
-Đồng tử tóc trắng giơ hai tay lên: "Tiểu ngoan, đi về nhà đi, ta không phiền các ngươi là được, ta đi tìm Ẩn Quan đại nhân."
+Đồng tử tóc trắng giơ hai tay: “Ngoan nào, về nhà đi. Ta chẳng quấy rầy các ngươi nữa là được. Ta đi tìm Ẩn Quan đại nhân.”
 
-Hắn nói đi là đi.
+Nói đi là đi. Hắn lóe lên rồi biến mất, thoáng chốc đã đến bậc thang lao ngục.
 
-Lóe lên một cái rồi biến mất, đi tới trên bậc thang lao ngục.
+Kiếm quang không theo tới.
 
-Kiếm quang không đi theo.
+“Đứa trẻ” Kỳ Thanh Xà đeo đoản kiếm, chậm rãi bước đi, trong lòng tiếc hùi hụi vì chẳng vào được tâm cảnh hai thiếu niên.
 
-"Con nít" Kỳ Thanh Xà, đeo đoản kiếm chậm rãi mà đi, chưa thể tiến vào tâm cảnh hai vị thiếu niên kia, rất là tiếc nuối.
+Hắn xem ký ức người khác như giở một quyển sách tranh. Ký ức mơ hồ như tranh nét [?], người ta nhớ càng ít thì hình ảnh càng nhạt. Chuyện nào khắc sâu trong trí nhớ thì giống tranh màu, tựa cảnh vật có thật giữa đất trời, thậm chí rõ đến từng nét.
 
-Hắn xem trí nhớ người khác, như xem sách họa, ký ức mơ hồ, chính là hình ảnh vẽ tranh, trí nhớ con người càng cạn, hình ảnh càng mơ hồ, mà người ghi nhớ khắc sâu, chính là vẽ màu, tựa như chân thật thiên địa chi vật, thậm chí sẽ rõ ràng rành mạch. Thủ đoạn Hóa Ngoại Thiên Ma, không chỉ như thế, còn có phương pháp nâng bút, tu sĩ cảnh giới càng cao, thần thông Hóa Ngoại Thiên Ma lại càng lớn, thậm chí có thể tùy tiện bóp méo, vẽ lên bức họa người trân quý trong nội tâm, có thể làm cho người quên lãng một ít, hoặc là đột nhiên nhớ lại một ít.
+Hóa Ngoại Thiên Ma còn có thủ đoạn cầm bút vẽ lên những bức tranh ấy. Tu sĩ có cảnh giới càng cao, thần thông của Hóa Ngoại Thiên Ma càng lớn [?]. Hắn thậm chí có thể tùy ý bóp méo những hình ảnh được người ta trân trọng trong lòng, khiến họ quên đi đôi chuyện, hoặc đột nhiên nhớ ra đôi chuyện.
 
-Thành chủ Bạch Đế thành, sở dĩ là người trong ma đạo, bị tu sĩ đỉnh núi Hạo Nhiên Thiên Hạ rất là kiêng kị, ngay ở chỗ tinh thông đạo này.
+Thành chủ Bạch Đế thành sở dĩ bị coi là người trong ma đạo, khiến tu sĩ đỉnh núi Hạo Nhiên thiên hạ hết sức kiêng dè, chính vì tinh thông đạo này.
 
-Nhưng thủ đoạn "vô lý" của vị thành chủ kia còn rất nhiều, con Hóa Ngoại Thiên Ma này cũng rất mê mẩn, rất muốn đi Trung Thổ Thần Châu tiếp vị thành chủ kia, luận bàn đạo pháp một phen.
+Vị thành chủ ấy còn rất nhiều thủ đoạn “vô lý” khiến con Hóa Ngoại Thiên Ma mê mẩn. Hắn rất muốn đến Trung Thổ Thần Châu bái kiến, cùng vị kia luận bàn đạo pháp một phen.
 
-Chỉ là lao tù nơi này, không thể thoát khốn được.
+Chỉ tiếc hắn chẳng thoát khỏi lao tù này.
 
-Đi tìm chút việc vui.
+Thôi thì đi tìm chút việc vui.
 
-Dù sao Trần Thanh cũng đã đáp ứng mình, chỉ cần không trực tiếp ra tay với người trẻ tuổi kia, mượn đồ của hắn, cộng thêm thăm dò lúc trước, chuyện bất quá ba lần, còn có hai lần cơ hội.
+Dù sao Trần Thanh Đô cũng đã đáp ứng. Miễn hắn không trực tiếp ra tay với người trẻ tuổi kia, chuyện mượn vật của đối phương, tính cả lần thăm dò trước đó, cũng không được quá ba lần [?]. Hắn vẫn còn hai cơ hội.
 
-Đồng tử tóc trắng chọn trúng hai người, hồ mị mị thuật thường thường kia cùng với một vị tu sĩ Yêu tộc hạ ngũ cảnh hẳn phải chết không thể nghi ngờ.
+Đồng tử tóc trắng chọn hai người. Một là con hồ mị có mị thuật tầm thường. Người kia là một tu sĩ Yêu tộc hạ ngũ cảnh chắc chắn phải chết.
 
-Ẩn Quan đại nhân, cuối cùng vẫn là nam nhân, nhìn trang phục của hắn, cũng là một người đọc sách.
+Ẩn Quan đại nhân rốt cuộc vẫn là nam tử. Nhìn cách ăn mặc, hắn cũng là người đọc sách.
 
-Nhân sinh muôn loại d*c v*ng, lấy t*nh d*c triền miên nhất, nam nữ bình thường. Mỗi người đủ loại chấp nhất, lấy đạo nghĩa nhất là gông xiềng, thần tiên tục tử không khác gì nhau.
+Trong muôn thứ dục vọng của đời người, tình dục quấn quýt dai dẳng nhất, nam nữ thường tình đều như nhau. Trong bao điều người ta chấp nhất, đạo nghĩa là gông xiềng nặng nhất. Thần tiên hay người phàm đều chẳng khác.
 
-Hồ ly tinh kia, đến từ một hang hồ ly trong Man Hoang thiên hạ, đáng tiếc chỉ có bảy cái đuôi, đạo hạnh nông cạn.
+Hồ ly tinh kia đến từ một hang hồ ly ở Man Hoang thiên hạ. Tiếc là mới có bảy đuôi, đạo hạnh còn nông.
 
-Đồng tử tóc trắng đi vào trong lồng giam giam giữ hồ mị, không đợi đối phương nhận ra được khác thường, đã đi vào trong tâm hồ của nàng, tùy ý "Lật sách" xem bức tranh.
+Đồng tử tóc trắng đi vào gian lao giam hồ mị. Chưa đợi nàng nhận ra có gì khác thường, hắn đã vào tâm hồ của nàng, tùy ý “lật sách” xem tranh.
 
-Sau một lát, hắn nghênh ngang đi ra khỏi khí lực hồ mị, chỉ là thi triển thủ thuật che mắt, lắc đầu, vô cùng thê thảm, thực sự quá vụng về. Khó trách người trẻ tuổi kia không hề bị lay động.
+Một lát sau, hắn nghênh ngang rời khỏi thân thể hồ mị dưới một lớp thủ thuật che mắt. Hắn lắc đầu. Thật chẳng ra sao, quá vụng về. Thảo nào người trẻ tuổi kia chẳng hề lay động.
 
-Hồ Mị vẫn như cũ hồn nhiên không phát giác.
+Hồ mị vẫn hoàn toàn không hay biết.
 
-Đồng tử tóc trắng lẩm bẩm: "Lần sau gặp lại Trần Bình An kia, ngươi sẽ khôi phục tướng mạo sẵn có, mặt mộc hướng lên trời, quần áo sạch sẽ."
+Đồng tử tóc trắng lẩm bẩm: “Lần sau gặp lại Trần Bình An, ngươi cứ lấy dung mạo vốn có, để mặt mộc, ăn mặc sạch sẽ.”
 
-"Ta lại biên soạn cho ngươi một câu chuyện tình uyển chuyển chân thành mới được. Ví dụ như ngươi tới Kiếm Khí Trường Thành, là vì gặp một vị tình lang nào đó."
+“Ta còn phải soạn cho ngươi một câu chuyện tình chân thành, có chút quanh co. Chẳng hạn ngươi đến Kiếm Khí Trường Thành là để gặp một vị tình lang.”
 
-"Sau đó tặng ngươi một thần thông thêm vào, lấy phương pháp diễm thi, tu hành Thải Luyện Thuật, lại giúp ngươi vụng trộm tạo ra một tòa phong lưu trướng, mới có chút phần thắng. Muốn trách thì trách tiểu tử kia tâm thái quá định, tâm cảnh quá mức cổ quái."
+“Rồi ta tặng thêm ngươi một môn thần thông, theo phép diễm thi mà luyện Thải Luyện Thuật. Ta lại lén tạo cho ngươi một tòa phong lưu trướng, có vậy mới được chút phần thắng. Muốn trách thì trách tiểu tử ấy quá vững dạ, tâm cảnh lại quá đỗi cổ quái.”
 
-Vật bản mệnh diễm thi bất kể chất liệu như thế nào, hình thức cuối cùng luyện hóa ra như thế nào, vô luận là hồng sa trướng, bạt bộ sàng, hay là một cái khăn thêu, đều gọi là phong lưu trướng, cũng có biệt danh ôn nhu hương.
+Vật bản mạng của diễm thi dùng chất liệu nào, luyện thành thứ gì, dù là màn the đỏ, giường bạt bộ hay chỉ một chiếc khăn thêu, đều gọi là phong lưu trướng, còn có biệt danh là ôn nhu hương.
 
-Con Hóa Ngoại Thiên Ma này tùy ý chiếm cứ trái tim một con hồ mị bảy đuôi, bắt đầu nâng bút vẽ tranh, đột nhiên nở nụ cười.
+Con Hóa Ngoại Thiên Ma tùy ý chiếm lấy tâm hồ của hồ mị bảy đuôi. Vừa nhấc bút vẽ, hắn chợt bật cười.
 
-Người tu đạo, mạng của ta do ta?
+Kẻ tu đạo, mệnh ta do ta ư?
 
-Có phải quá đề cao bản thân rồi không?
+Có phải quá coi trọng mình rồi không?
 
-Sau khi chém giết cùng một vị tu sĩ Nguyên Anh không phải kiếm tu, Trần Bình An người đầy máu tươi nằm ở trên mặt đất, há mồm th* d*c.
+Sau một trận chém giết với tu sĩ Nguyên Anh không phải kiếm tu, Trần Bình An nằm dưới đất, người đầy máu, há miệng thở dốc.
 
-Niệp Tâm ném cho hắn một cái bình sứ, sau đó nàng ở một bên bận rộn, nói: "Dục tốc bất đạt, trước giết từ Kim Đan là đúng."
+Niệp Tâm ném cho hắn một bình sứ rồi tiếp tục bận việc bên cạnh: “Dục tốc bất đạt. Nên bắt đầu giết từ Kim Đan mới phải.”
 
-Trần Bình An nói: "Ta phải ở nơi này tìm một chỗ nương thân, loại có thể tĩnh tâm tu dưỡng."
+Trần Bình An nói: “Ta phải tìm một nơi ở trong này, có thể yên lòng tĩnh dưỡng.”
 
-Nết Tâm nói: "Vậy phải tìm con Hóa Ngoại Thiên Ma kia, hắn am hiểu hóa hư thành thật."
+Niệp Tâm đáp: “Vậy phải tìm con Hóa Ngoại Thiên Ma kia. Hắn giỏi hóa hư thành thật.”
 
-Trần Bình An gật đầu nói: "Nếu trốn không thoát, thì không trốn."
+Trần Bình An gật đầu: “Đã tránh không được thì thôi, chẳng tránh nữa.”
 
-Nho Tâm tiếp tục thu thập tàn cuộc, nói: "Chúng ta rất nhanh sẽ khởi công, nói với ngươi một chút khe hở môn đạo của người áo, ngươi cũng có chuẩn bị tâm lý, miễn cho hành sự vội vàng, ăn chút đau khổ không cần thiết."
+Niệp Tâm vừa thu dọn tàn cuộc vừa nói: “Chúng ta sắp khởi công. Ta nói qua vài chỗ then chốt trong nghề may áo, cho ngươi chuẩn bị trước. Đến lúc làm khỏi luống cuống mà chịu thêm khổ.”
 
 Trần Bình An lập tức ngồi dậy.
 
-Niệp Tâm nói: "Chuyện trên tay, là bắt đầu từ lúc bắt đầu điêu khắc con ngươi. Nhưng nghe không quá dễ chịu, trước tiên nói với ngươi một chút chuyện nhẹ nhàng."
+Niệp Tâm nói: “Lúc thật sự bắt tay vào làm, ta sẽ khắc con ngươi trước. Chuyện ấy nghe chẳng dễ chịu gì. Trước hết kể cho ngươi nghe vài chuyện nhẹ nhàng hơn.”
 
-Trần Bình An cười khổ không thôi, chỉ có thể gật đầu.
+Trần Bình An chỉ biết cười khổ, gật đầu.
 
-Niệp Tâm chậm rãi nói: "Dựa theo quy củ của người may vá, ba mạch người thân thiên địa, phân sơn, thủy, khí, gân cốt là sơn mạch, máu tươi là thủy mạch, linh khí dung nhập hồn phách làm khí mạch."
+Niệp Tâm chậm rãi nói: “Theo phép của người may áo, tiểu thiên địa trong thân người có ba mạch là sơn, thủy, khí. Gân cốt là sơn mạch, máu là thủy mạch, linh khí hòa vào hồn phách là khí mạch.”
 
-Trần Bình An trầm giọng nói: "Khẩn cầu Niết Tâm tiền bối nói chi tiết, càng vụn vặt cẩn thận càng tốt."
+Trần Bình An trầm giọng: “Xin Niệp Tâm tiền bối nói cho tường tận. Càng cặn kẽ càng tốt.”
 
-Có thể cùng tiền bối Lý Nhị nói, lẫn nhau làm chứng, rất có ích lợi võ đạo.
+Sau này có thể đem những lời ấy bàn với Lý Nhị tiền bối, đối chiếu lẫn nhau, ắt có ích không nhỏ cho võ đạo.
 
-Chỗ nhỏ bé của thân người, quan ải trùng trùng, tựa như một bức bản đồ địa lý lãnh thổ rộng lớn.
+Nơi bé mọn trong thân người cũng có quan ải trùng trùng, tựa một tấm bản đồ cương vực rộng lớn.
 
-Niệp Tâm nói chi tiết, rất nhiều lời, sau đó nâng một tay lên, mở lòng bàn tay ra, da thịt sinh trưởng cực nhanh, rất nhanh liền không khác gì người thường, "Ví dụ như năm ngón tay là núi cao, lòng bàn tay hoa văn là nước, uốn lượn giao thoa, đây chính là bố cục sơn nhạc đại độc tương dung. Nếu như xem vân tay, lại có thể coi là thiên địa đều ở trong một bàn tay, thuận theo mạch lạc, lục phủ ngũ tạng rõ ràng trước mắt, bằng không thần thông chưởng quan sơn hà của người tu đạo, từ đâu mà đến?"
+Niệp Tâm giảng giải hồi lâu, rồi giơ một tay lên, xòe lòng bàn tay. Da thịt mọc rất nhanh, thoáng chốc chẳng khác tay người thường.
 
-Không đợi Trần Bình An hỏi kỹ thần thông bí quyết chưởng quản núi sông kia, đây là một môn thần thông thuật pháp hắn tâm tâm niệm niệm đã lâu, niết tâm đã đổi đề tài, nàng đã dựng thẳng bàn tay, năm ngón tay mở ra, "Có thể may y là Ngũ nhạc chân hình đồ, cũng có thể vẽ ngũ lôi chính pháp vân cương, cũng có thể chiếu sắc xá hoàng thuật, luyện hóa ngũ hành, cũng có thể sáng tác thần cương thanh từ, chỉ là năm ngón tay, chỉ là sở trường của ta, đã có sáu loại. Tương truyền khai sơn lão tổ của thợ may chúng ta thiên tư trác tuyệt, hậu vô lai giả, lấy phương pháp điệp trận đúc một lò, đem nhiều loại bí thuật đúc ra, lật tay làm mây lật tay thành mưa, thần thông không thua xa xa phong bá vũ sư. Từng ngự phong đi Long Hổ Sơn, chỉ bằng một bàn tay, thi triển ngũ lôi chính pháp, là có thể thiên hôn địa ám."
+Nàng nói: “Ví như năm ngón là núi cao, những đường trong lòng bàn tay là dòng nước, uốn lượn đan xen, tựa núi lớn sông dài cùng nằm trong một vùng. Nhìn những đường vân ấy, có thể xem như trời đất đều ở trong một bàn tay. Lần theo mạch lạc, lục phủ ngũ tạng hiện rõ trước mắt. Bằng không, thần thông nhìn sơn hà trong lòng bàn tay của tu sĩ từ đâu mà có?”
 
-Trần Bình An dò hỏi: "Ta từng đọc được một điển cố trên một quyển văn nhân bút ký, có người viết mấy trăm câu thơ của một nhà thơ lớn. Có phải là có ý của người may mắn hay không?"
+Trần Bình An đã mong học môn thần thông ấy từ lâu. Hắn còn chưa kịp hỏi kỹ bí quyết, Niệp Tâm đã đổi đề tài. Nàng dựng bàn tay lên, xòe năm ngón.
 
-Niệp Tâm trầm mặc một lát, nói: "Đầu óc có bệnh."
+“Có thể may thành Ngũ Nhạc Chân Hình Đồ, vẽ vân cương ngũ lôi chính pháp, theo sắc xá hoàng thuật [?] mà luyện hóa ngũ hành, cũng có thể viết thần cương thanh từ. Riêng năm ngón tay, chỉ tính những cách ta sở trường đã có sáu loại.”
 
-Trần Bình An đành phải gật đầu phụ họa nói: "Quả thật. Lúc ấy ta cảm thấy như vậy."
+“Tương truyền khai sơn lão tổ của nghề may áo chúng ta có thiên tư trác tuyệt, đời sau không ai sánh nổi. Người dùng phép chồng trận để dung hợp nhiều bí thuật vào một lò, trở tay làm mây, lật tay làm mưa, thần thông chẳng kém Phong Bá, Vũ Sư là bao. Người từng ngự gió đến Long Hổ Sơn, chỉ một bàn tay thi triển ngũ lôi chính pháp đã khiến đất trời tối sầm.”
 
-No bấc tiếp tục trình bày đủ loại bí pháp nền móng của người may vá.
+Trần Bình An thăm dò: “Ta từng đọc một điển cố trong bút ký của văn nhân. Có người chép mấy trăm câu thơ của một nhà thơ lớn [?]. Chẳng lẽ đó cũng là dụng ý của người may áo?”
 
-Trần Bình An lấy ra hồ lô dưỡng kiếm, lại chưa uống rượu.
+Niệp Tâm im lặng một lát: “Đầu óc có bệnh.”
 
-Niệp Tâm thuận miệng hỏi: "Nam nhân vì sao thích uống rượu nhiều. Đặc biệt là người tu đạo, uống rượu hỏng việc cỡ nào."
+Trần Bình An đành gật đầu phụ họa: “Phải. Lúc ấy ta cũng nghĩ vậy.”
 
-"Ở Kiếm Khí Trường Thành, không giống với Hạo Nhiên Thiên Hạ chúng ta, cho dù phá cảnh, chưa chắc nhất định có thể sống lâu dài. Có mấy kiếm tu Địa tiên, sẽ ngồi xổm ven đường uống rượu ăn dưa muối."
+Niệp Tâm tiếp tục nói về những bí pháp đặt nền móng cho nghề may áo.
 
-Sau này trong thiên địa cũng sẽ không còn hình ảnh như vậy nữa.
+Trần Bình An lấy hồ lô dưỡng kiếm ra, vẫn chưa uống rượu.
 
-Trần Bình An do dự một phen, nhớ tới nàng trong lòng, mỉm cười nói: "Nữ tử chính là rượu, không cần uống."
+Niệp Tâm thuận miệng hỏi: “Sao nam tử lại thích uống rượu đến thế? Nhất là tu sĩ, rượu dễ làm hỏng việc biết bao.”
 
-Trần Bình An ngửa ra sau, quên là ai nói, thiếu niên thích thiếu nữ, là uống rượu nếp ủ rượu, vị rượu thật ra không nặng, nhưng lần đầu uống rượu, cũng có thể say người. Sau khi lớn lên, nam tử thích nữ tử, như uống rượu trắng, một cái không cẩn thận sẽ đốt đứt ruột gan. Tuổi tác cao, lão nhân nhớ nữ tử, là mùa đông lớn, hâm nóng một bầu rượu vàng.
+“Kiếm Khí Trường Thành khác với Hạo Nhiên thiên hạ của chúng ta. Ở đây, dù phá cảnh cũng chưa chắc sống lâu. Có mấy vị kiếm tu Địa Tiên vẫn ngồi xổm ven đường uống rượu, ăn dưa muối.”
 
-Niệp Tâm quay đầu nhìn lại, trêu ghẹo nói: "Về sau cùng nữ tử, ít nói loại ngôn ngữ này."
+Sau này, giữa đất trời cũng chẳng còn cảnh ấy nữa.
 
-Trần Bình An cười nói: "Vậy ta về sau sẽ sửa."
+Trần Bình An ngần ngừ một lát. Nhớ đến người trong lòng, hắn mỉm cười: “Nữ tử chính là rượu, đâu cần uống.”
 
-Vốn là ngoại trừ Trữ Diêu, từ lời vô tình có thể nói.
+Hắn ngả người ra sau. Chẳng nhớ ai từng nói, thiếu niên thích thiếu nữ giống như uống rượu nếp. Vị rượu vốn nhẹ, nhưng lần đầu uống cũng đủ say. Đến khi trưởng thành, nam tử thích nữ tử lại như uống rượu trắng, sơ ý một chút đã cháy cả ruột gan. Khi tuổi cao, lão nhân nhớ nữ tử tựa ngày đông rét buốt hâm một bầu rượu vàng.
 
-Trần Bình An nhắm mắt lại, chuyện lao ngục may áo, biết rõ không vội được, nhưng chung quy sẽ muốn sớm rời khỏi.
+Niệp Tâm quay đầu lại, trêu hắn: “Sau này nói chuyện với nữ tử, bớt nói những lời như thế đi.”
 
-Giờ này khắc này, con Hóa Ngoại Thiên Ma kia đang đối diện với một vị tu sĩ Yêu tộc hạ ngũ cảnh.
+Trần Bình An cười: “Vậy sau này ta sẽ sửa.”
 
-Mà Kiếm Khí Trường Thành kia sắp đại chiến.
+Vốn dĩ ngoài Ninh Diêu, hắn cũng chẳng buột miệng nói với ai những lời ấy [?].
+
+Trần Bình An nhắm mắt. Hắn biết chuyện may áo trong lao ngục không thể nóng vội, song rốt cuộc vẫn mong sớm rời khỏi đây.
+
+Ngay lúc này, con Hóa Ngoại Thiên Ma kia đang đối diện một tu sĩ Yêu tộc hạ ngũ cảnh.
+
+Còn ở Kiếm Khí Trường Thành, một trận đại chiến sắp sửa nổ ra.
 
 Mặt trời chiếu rọi đầu thành.
 
-Lão đạo nhân một tay nhẹ nhàng vỗ như biển mây một tấm bồ đoàn lớn nhất thế gian, một tay hướng mặt trời trên không vẫy tay, "Bần đạo công đức chưa đầy, trong túi cũng ngượng ngùng, thực bần đạo, đành phải chịu chút ánh sáng."
+Lão đạo nhân dùng một tay vỗ nhẹ lên biển mây tựa tấm bồ đoàn lớn nhất thế gian, tay kia vẫy về phía mặt trời: “Công đức của bần đạo chưa đủ, túi tiền lại rỗng. Thứ cho bần đạo mượn chút ánh sáng vậy.”
 
-Biển mây rộng lớn trước tiên tứ tán, lại ngưng tụ thành một vị thần linh màu vàng, bị lão đạo nhân vung tay áo lên, rơi vào trên chiến trường.
+Biển mây mênh mông tản ra rồi ngưng tụ thành một vị thần linh màu vàng. Lão đạo nhân vung tay áo, đưa thần linh xuống chiến trường.
 
-Trên một đường, Yêu tộc hiện ra chân thân, cùng thần linh kim thân kia đụng vào nhau.
+Ở một hướng trên chiến trường [?], Yêu tộc hiện chân thân, đâm sầm vào thần linh kim thân.
 
-Tăng nhân mặc áo cà sa, khẽ nhún đầu vai, một con sư tử trùng bị luyện hóa thành từng văn tự kinh Phật.
+Vị tăng nhân khoác cà sa khẽ nhún vai. Một con sư tử trùng [?] bị luyện hóa thành từng chữ trong kinh Phật.
 
-Nho gia thánh nhân, ngồi nghiêm chỉnh, mặt trời vừa phải, thích hợp để phơi sách.
+Vị thánh nhân Nho gia ngồi ngay ngắn. Nắng vừa độ, thích hợp đem sách ra phơi.
 
-Tên sách có một chữ bản mạng, khai tông minh nghĩa, cũng vây quanh chữ bản mạng kia.
+Tên sách có một chữ bản mạng. Mở đầu đã nêu rõ tông chỉ, cả quyển cũng xoay quanh chữ ấy.
 
-Man Hoang thiên hạ Yêu tộc công thành, nhiều vô số kể.
+Yêu tộc Man Hoang thiên hạ kéo đến công thành, đông không đếm xuể.
 
-Hôm nay, Trần Bình An ngồi xếp bằng ở ngoài một nhà giam.
+Hôm ấy, Trần Bình An ngồi xếp bằng ngoài một gian lao.
 
-Niệp Tâm hai tay chắp sau lưng, chăm chú nhìn đôi mắt Trần Bình An.
+Niệp Tâm chắp hai tay sau lưng, chăm chú nhìn mắt hắn. Âm thần của nàng cầm kim thêu, cẩn thận khắc lên một con mắt của người trẻ tuổi.
 
-Vị âm thần kia của nàng, thì đang lấy Tú Hoa Châm cẩn thận tạo hình một con mắt của người trẻ tuổi.
+Đã qua chừng một chén trà. Máu đọng thành những giọt nhỏ li ti, từng tia chảy khỏi hốc mắt.
 
-Thời gian đã kéo dài một chén trà, cho nên có giọt máu tươi rất nhỏ ngưng tụ lại, từng tia từng sợi chảy ra hốc mắt.
+Niệp Tâm quan sát vẻ mặt hắn, thuận miệng nói: “Ải này mà không chịu nổi thì ta khuyên ngươi bỏ chuyện may áo sau đó đi. Chớ nhắm mắt. Con mắt chỉ nhích một chút là mọi công sức đổ sông đổ biển. Hậu quả ngươi tự cân nhắc.”
 
-Niệp Tâm quan sát tâm tình người trẻ tuổi, thuận miệng nói: "Nếu như cửa ải này cũng không chống đỡ nổi, phía sau may y phục, khuyên ngươi từ bỏ. Chớ có nhắm mắt, con mắt xê dịch chút nào, liền công cốc phế bỏ, hậu quả tự mình cân nhắc."
+Chỉ cần chịu đựng được, người may áo tự có cách huyền diệu để dưỡng thương.
 
-Chỉ cần chịu đựng được, người may tự có thủ đoạn huyền diệu dưỡng thương.
+Một lúc sau, Niệp Tâm có phần bất ngờ: “Được đấy. Xem ra có thể làm hai việc cùng lúc. Trên con ngươi ta chỉ dùng hai phép thô sơ nhất là dát vàng và sát thanh [?]. Ta xuống kim chậm, chủ yếu khắc vân triện, nét chữ cũng nông nhất.”
 
-Lát sau, Niệp Tâm cảm thấy ngoài ý muốn, nói: "Không sai, xem ra có thể song song song hành, con ngươi là lấy hai pháp thô thiển nhất thiếp vàng, giết xanh, chậm rãi xuất châm, khắc dấu vân triện làm chủ, chữ khắc nông nhất, nhưng tiếp theo chỗ sống lưng của ngươi, sẽ không thoải mái như vậy, chủ yếu là lấy phương pháp xung đao hạ đao, phải lấy chín điệp 《, điểu trùng》 và Thùy Lộ》, phân biệt khắc ở các khớp xương trên cột sống của ngươi, những thứ này đều là thuật lột áo, càng quan trọng hơn là thuật mặc quần áo, thời thượng sớm, hôm nay ngươi nếu tự nhận không chịu nổi, hoặc là cảm thấy có thể chờ một chút, bây giờ mở miệng, nói rõ với ta."
+“Đến sống lưng của ngươi sẽ chẳng dễ chịu thế đâu. Chủ yếu phải dùng phép xung đao, khắc Cửu Điệp, Điểu Trùng và Thùy Lộ [?] lên từng đốt sống. Đó đều là thuật cởi áo. Còn trọng yếu hơn nữa là thuật mặc áo. Vẫn còn sớm. Hôm nay nếu ngươi tự thấy chịu không nổi, hoặc muốn đợi thêm, thì bây giờ cứ nói rõ với ta.”
 
-Trần Bình An im lặng không lên tiếng.
+Trần Bình An im lặng.
 
-Niệp Tâm đi tới phía sau Trần Bình An, hai tay làm đao, tính cả thanh sam cùng da thịt tất cả cắt ra, đưa tay nắm chặt, động tác cực kỳ chậm chạp, kéo ra một chút cột sống.
+Niệp Tâm đi ra sau lưng hắn, lấy hai tay làm đao, rạch cả thanh sam lẫn da thịt. Nàng đưa tay nắm lấy cột sống, rất chậm rãi kéo ra một chút.
 
-Nữ tử gấp ngón tay, nhẹ nhàng gõ, nghiêng tai lắng nghe, tiếc hận nói: "Ngươi lầm ta, thương thế thật nhỏ ẩn hoạn nhiều như vậy? Vì sao bình thường không lộ ra chút nào?"
+Nàng co ngón tay gõ nhẹ, nghiêng tai lắng nghe rồi tiếc rẻ nói: “Ngươi làm lỡ việc của ta rồi. Những vết thương nhỏ này lại ẩn nhiều mối họa đến thế sao? Bình thường làm sao chẳng lộ ra chút nào?”
 
-Niệp Tâm tùy tiện thả cột sống kia về chỗ cũ, giọng điệu hình như có oán giận, "Trước không bôi dược vật, chút đau đớn ấy, sớm thích ứng. Ngươi không phải có thể nhịn sao? Hảo hảo tiêu thụ là được."
+Niệp Tâm tiện tay thả cột sống về chỗ cũ, giọng có vẻ oán trách: “Khoan bôi thuốc. Chút đau này cứ tập quen sớm đi. Ngươi chẳng phải giỏi nhịn sao? Ráng mà chịu.”
 
-Trần Bình An cũng chính là không thể mở miệng nói chuyện, còn phải duy trì kiệt lực tâm cảnh tiều tụy như tro, cùng với "hình dáng nước đọng" cùng hồn phách, bằng không hận không thể vặn đầu con đàn bà này xuống.
+Trần Bình An không thể mở miệng, còn phải dốc sức giữ tâm cảnh lặng như tro tàn, hồn phách như nước đọng. Bằng không, hắn hận chẳng thể vặn đầu nữ tử này xuống.
 
-Trong lao ngục, mấy ngày hôm trước bỗng dưng xuất hiện một tòa kiến trúc hình tròn, ngoại trừ bốn cây cột, không còn che giấu.
+Mấy ngày trước, trong lao ngục bỗng xuất hiện một tòa kiến trúc hình tròn. Ngoài bốn cây cột, bốn phía đều để trống. So với những đình nghỉ chân dọc đường ở nhân gian, nó có phần khác.
 
-Hành đình trên đường đi ở nhân gian lại không hoàn toàn giống như vậy.
+Trần Bình An thong thả đi chân trần trong đình. Tầm mắt rất thoáng, dù chẳng có cảnh gì để ngắm.
 
-Trần Bình An đi chân trần chậm rãi tản bộ.
+Đồng tử tóc trắng mang dáng vẻ Kỳ Thanh Xà [?] treo mình bên ngoài, hỏi: “Rốt cuộc ngươi đã gặp chuyện gì?”
 
-Thân ở trong đó, tầm nhìn rộng rãi, mặc dù không nhìn thấy cảnh tượng gì.
+Trần Bình An vẫn bước, hỏi lại: “Ý ngươi là sao?”
 
-Đồng tử tóc trắng của Kỳ Thanh Xà treo ở ngoài kiến trúc, hỏi: "Ngươi rốt cuộc đã xảy ra chuyện gì?"
+Đồng tử tóc trắng nổi giận: “Có tu sĩ nào tâm cảnh tan hoang như một bãi chiến trường thế không? Hại lão tử đi đâu cũng vấp phải trở ngại…”
 
-Trần Bình An bước chân không ngừng, hỏi ngược lại: "Có ý tứ gì?"
+Trần Bình An chậm rãi ra quyền, mỉm cười: “Cõi sáng có vương pháp, cõi tối có quỷ thần. Sáng tối đều vẩn đục, lương tri vẫn ở trong lòng. Đất trời, nhật nguyệt sáng tỏ, có gì lạ đâu?”
 
-Đồng tử tóc trắng cả giận nói: "Nào có người tu đạo tâm cảnh thưa thớt như thế, như là chiến trường?! Làm hại lão tử vấp phải trắc trở khắp nơi..."
-
-Trần Bình An chậm rãi ra quyền, mỉm cười nói: "Minh thì có vương pháp, u thì có quỷ thần, u minh đều đục ngầu, lương tri còn ở tâm. Thiên địa càn khôn, nhật nguyệt quang minh, hà quái gì mà có?"
-
-Niệp Tâm đứng ở trên bậc thang xa xa, nhắc nhở: "Khởi công."
+Niệp Tâm đứng trên bậc thang đằng xa, nhắc: “Khởi công.”

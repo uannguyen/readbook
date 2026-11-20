@@ -1,415 +1,413 @@
 # Chương 729: Đầu vai và trong lòng
 
-Nguyệt Minh không quý thiếu, ánh trăng đến nhà khách không gõ cửa, đường Ngọc Lãng cũng đi, ngõ Nghiên Trác cũng đi.
+Trăng sáng chẳng phân sang hèn. Ánh trăng đến nhà ai cũng chẳng gõ cửa, ghé phố Ngọc Lãng[?] rồi lại ghé ngõ Nghiên Trác.
 
-Đại nhật trừ tà, nhất là mùa đông ấm áp như áo bông, ngõ Nghiên Trác cũng mặc, phố Ngọc Trác cũng mặc.
+Mặt trời xua tà khí. Nắng mùa đông ấm như áo bông, ngõ Nghiên Trác có phần, phố Ngọc Trác cũng có phần.[?]
 
-Trần Bình An một thân một mình, ngồi một đêm ở lương đình Trảm Long Nhai, buổi tối rốt cuộc là không có gan đi gõ cửa viện Trữ Diêu, con mẹ nó rượu tráng gan người, không có tác dụng cái rắm gì.
+Trần Bình An ngồi một mình suốt đêm trong đình nghỉ mát ở Trảm Long Nhai. Rốt cuộc hắn vẫn chẳng có gan đi gõ cửa viện Ninh Diêu. Con mẹ nó, bảo rượu làm người ta to gan, có tác dụng cái rắm gì.
 
-Mặt trời lên cao, Trần Bình An lại ngự kiếm ra khỏi thành, đi hướng hành cung tránh nóng, Sầu Miêu cùng Đổng Bất Đắc, trừ Bàng Nguyên Tể đều đã không còn, Đặng Lương những kiếm tu ngoại hương này, trừ Lâm Quân Bích, cũng đều đi bái phỏng các tiền bối kiếm tiên quê nhà, hoặc là cùng bằng hữu quen biết ôn chuyện, cho nên đến cuối cùng chỉ còn lại có Lâm Quân Bích cùng Bàng Nguyên Tế nói chuyện, Trần Bình An xem cờ không nói, Lâm Quân Bích kỳ thuật cao hơn Bàng Nguyên Tế một bậc, thắng bại không có gì phải lo lắng, Trần Bình An nhìn một hồi, liền đi kho hồ sơ lục lọi, kết quả Lâm Quân Bôn nói đại kiếm tiên Mễ Lệ chỉ tên nói muốn gặp Ẩn Quan đại nhân, nhưng vị đại kiếm tiên này coi như là có quy củ, không có ý tứ vào cửa.
+Mặt trời lên cao, Trần Bình An lại ngự kiếm ra khỏi thành, tới hành cung tránh nóng. Trong số mấy người Sầu Miêu, Đổng Bất Đắc và Bàng Nguyên Tế, chỉ còn Bàng Nguyên Tế ở lại. Đám kiếm tu xứ khác như Đặng Lương cũng đi cả, người bái phỏng kiếm tiên tiền bối cùng quê, người tìm bằng hữu ôn chuyện. Thành ra chỉ còn Lâm Quân Bích và Bàng Nguyên Tế đánh cờ với nhau.
 
-Trần Bình An để Lâm Quân Bích tiếp tục chơi cờ là được, mình đi đến cửa lớn bên kia, nhìn thấy Mễ Hỗn, là huynh trưởng của Ẩn Quan nhất mạch nhà mình, người nắm giữ Tử Mễ Dụ, người mới nhất của Kiếm Khí Trường Thành, cũng là một vị Tiên Nhân cảnh trẻ tuổi nhất.
+Trần Bình An ngồi xem, chẳng nói tiếng nào. Kỳ nghệ của Lâm Quân Bích cao hơn Bàng Nguyên Tế một bậc, còn gì phải đoán chuyện thắng thua. Hắn xem một lúc rồi đi lục hồ sơ trong kho. Lâm Quân Bích báo có đại kiếm tiên Mễ Hỗ đích danh muốn gặp Ẩn Quan đại nhân. Vị đại kiếm tiên ấy vẫn giữ quy củ, chỉ đứng đợi ngoài cửa.
 
-Trần Bình An ôm quyền cười nói: "Khách quý hiếm thấy."
+Trần Bình An bảo Lâm Quân Bích cứ đánh tiếp, một mình ra cổng gặp khách. Mễ Hỗ là huynh trưởng của Mễ Dụ, vị kiếm tiên đang giữ một chức trong nhất mạch Ẩn Quan[?]. Mễ Hỗ vừa bước vào Tiên Nhân cảnh, cũng là vị Tiên Nhân cảnh trẻ tuổi nhất Kiếm Khí Trường Thành.
 
-Mễ Hỗ không khách sáo hàn huyên gì, chỉ nói: "Vừa đi vừa nói chuyện."
+Trần Bình An ôm quyền cười nói: “Khách quý hiếm thấy.”
 
-Hai người sóng vai mà đi, Mễ Hỗ đi thẳng vào vấn đề nói: "Trần Bình An, hôm nay ta tìm ngươi là có việc muốn nhờ. Đã là việc công, cũng coi như việc tư."
+Mễ Hỗ chẳng hàn huyên, chỉ nói: “Vừa đi vừa nói.”
 
-Trần Bình An cười nói: "Cứ nói đừng ngại."
+Hai người sóng vai cất bước. Mễ Hỗ đi thẳng vào chuyện: “Trần Bình An, hôm nay ta đến nhờ ngươi một việc. Vừa là việc công, vừa là việc tư.”
 
-Mễ Hỗ nói: "Ta hy vọng dựa vào chút chiến công kia của ta, đợi đến sau khi chiến sự chấm dứt, đệ đệ hôm nay đang ở Đảo Huyền sơn, hắn có thể đi bất cứ nơi nào hắn muốn đến, ví dụ như Hạo Nhiên Thiên Hạ các ngươi."
+Trần Bình An cười nói: “Cứ nói đừng ngại.”
 
-Trần Bình An nói: "Chiến công hẳn là đủ rồi. Nhưng dù sao Mễ Dụ cũng là kiếm tiên Ngọc Phác cảnh, đi hay ở của mỗi một vị kiếm tiên, dựa theo quy củ bất thành văn, đều cần lão đại kiếm tiên gật đầu, qua một trận, Ẩn Quan nhất mạch chúng ta mới có thể đánh dấu thành công, chuyện này mới tính là ván đã đóng thuyền, đến lúc đó người ngoài ai cũng không nói được lời ong tiếng ve."
+Mễ Hỗ nói: “Ta muốn dùng chút chiến công của mình để đổi một chuyện. Đệ đệ ta bây giờ đang ở Đảo Huyền sơn. Đợi chiến sự chấm dứt, ta muốn hắn được tùy ý đi bất cứ đâu, chẳng hạn như Hạo Nhiên Thiên Hạ của các ngươi.”
 
-Mễ Hỗ nói: "Lão đại kiếm tiên gật đầu."
+Trần Bình An nói: “Chiến công hẳn là đủ. Nhưng dù sao Mễ Dụ cũng là kiếm tiên Ngọc Phác cảnh. Theo quy củ bất thành văn, một vị kiếm tiên đi hay ở đều phải được lão đại kiếm tiên gật đầu. Sau đó nhất mạch Ẩn Quan mới có thể ghi vào sổ. Đến lúc ấy, chuyện mới xem như đã định, người ngoài cũng chẳng nói ra nói vào được.”
 
-Trần Bình An cười nói: "Nếu lão đại kiếm tiên đều đã đáp ứng, thật ra Mễ đại kiếm tiên không cần thương lượng với ta, Mễ Dụ không phải lo đường lui. Ở Hạo Nhiên thiên hạ, một vị kiếm tiên cực kỳ quý giá, đi đâu cũng có, chỉ cần mình nguyện ý, tiên gia tổ sư đường trên núi, vương triều dưới núi Kim Loan điện, đến nơi nào, đều là thượng khách."
+Mễ Hỗ nói: “Lão đại kiếm tiên đã gật đầu.”
 
-Mễ Hỗ nói: "Đệ đệ của ta nếu như không có ai ở ngoại hương kia chiếu ứng, ta vẫn không yên lòng. Tu đạo trên núi Hạo Nhiên Thiên Hạ, rốt cuộc không giống như Kiếm Khí Trường Thành chúng ta luyện kiếm, cụ thể đức hạnh như thế nào, ta mặc dù chưa tự mình đi qua, nhưng lại hiểu rất rõ ràng, lục đục với nhau, chướng khí mù mịt, đúng là một tên lừa đảo. Mễ Dụ giao tiếp với nữ tử, bản lĩnh coi như tạm được, một khi tranh đấu với người tu đạo chó má, đệ đệ ta tâm tư đơn thuần, sẽ chịu thiệt thòi lớn."
+Trần Bình An cười nói: “Lão đại kiếm tiên đã bằng lòng thì Mễ đại kiếm tiên đâu cần bàn thêm với ta. Mễ Dụ chẳng thiếu đường lui. Hạo Nhiên Thiên Hạ quý kiếm tiên lắm. Chỉ cần hắn bằng lòng, từ tổ sư đường tiên gia trên núi tới điện Kim Loan của vương triều dưới núi, đi đâu cũng được đãi như thượng khách.”
 
-Trần Bình An biết ý vị đại kiếm tiên Tiên Nhân cảnh này, là muốn người xứ khác của Hạo Nhiên Thiên Hạ này của mình có thêm điểm tâm.
+Mễ Hỗ nói: “Đệ đệ ta ra xứ người mà chẳng có ai chiếu ứng thì ta vẫn không yên lòng. Tu đạo trên núi ở Hạo Nhiên Thiên Hạ đâu giống luyện kiếm ở Kiếm Khí Trường Thành. Ta chưa từng đặt chân qua đó, nhưng cũng biết rõ đức hạnh của bọn họ. Suốt ngày lục đục, chướng khí mù mịt, toàn một lũ lừa đảo. Mễ Dụ đối đáp với nữ tử thì còn được. Đụng chuyện với lũ tu sĩ chó má kia, tính đệ đệ ta đơn thuần, ắt chịu thiệt lớn.”
 
-Chỉ là có một số việc, ví dụ như ước định với lão đại kiếm tiên, tương lai tình cảnh của mình, Trần Bình An không tiện tiết lộ thiên cơ trước, cho nên chỉ có thể ấp ủ tìm từ trước một phen.
+Trần Bình An hiểu vị đại kiếm tiên Tiên Nhân cảnh này muốn nhờ một người quê ở Hạo Nhiên Thiên Hạ như hắn để tâm chăm nom Mễ Dụ.
 
-Về phần trong lời nói của Mễ Hỗ, có vị ẩn quan đại nhân vô hàm xạ ảnh nào là mình đây, Trần Bình An đại nhân đại lượng, coi như gió bên tai.
+Chỉ có điều, ước định với lão đại kiếm tiên và tình cảnh của hắn sau này đều là chuyện chưa tiện nói ra. Trần Bình An đành cân nhắc lời lẽ trước. Còn trong mấy câu của Mễ Hỗ có câu nào bóng gió vị Ẩn Quan đại nhân này hay không, hắn rộng lượng, cứ coi như gió thoảng qua tai.
 
-Mễ Hỗ nói: "Chỉ cần ngươi chịu gật đầu, ta tất có hậu tạ. Nói buôn bán, ta tin tưởng nhị chưởng quỹ."
+Mễ Hỗ nói: “Chỉ cần ngươi gật đầu, ta ắt có hậu tạ. Làm ăn thì ta tin nhị chưởng quỹ.”
 
-Làm cho người ta hiểu lầm.
+Nghe thật dễ khiến người ta hiểu lầm.
 
-Trần Bình An lại không giải thích gì thêm: "Cảm ơn nặng thì thôi, hai năm nay Mễ Dụ ở nhánh Ẩn Quan cũng tích góp được không ít chiến công, ngươi không cần phải trả giá thêm gì cả. Chỉ là loại chuyện này, thành hay không thành, ngoại trừ ước định bí mật của ngươi và ta, thật ra bản thân Mễ Dụ nghĩ như thế nào mới là mấu chốt."
+Trần Bình An cũng chẳng giải thích: “Hậu tạ thì thôi. Hai năm nay Mễ Dụ ở nhất mạch Ẩn Quan đã tích được không ít chiến công. Ngươi không cần bỏ thêm gì nữa. Chuyện thành hay không, ngoài lời giao hẹn riêng giữa ngươi và ta, còn phải xem chính Mễ Dụ nghĩ thế nào. Đấy mới là chỗ mấu chốt.”
 
-Mễ Lận nhíu mày nói: "Chỉ bằng tình hương khói Ẩn Quan đại nhân ở Kiếm Khí Trường Thành, cho dù đệ đệ kia của ta không chịu đi, ngươi tùy tiện tìm mấy kiếm tiên đánh hắn ngất xỉu, mang đi Hạo Nhiên Thiên Hạ."
+Mễ Hỗ nhíu mày: “Bằng vào tình hương khói của Ẩn Quan đại nhân ở Kiếm Khí Trường Thành, cho dù đệ đệ ta chẳng chịu đi, ngươi cứ tìm vài vị kiếm tiên đánh hắn ngất rồi khiêng sang Hạo Nhiên Thiên Hạ.”
 
-Trần Bình An hỏi: "Đến Hạo Nhiên Thiên Hạ, nếu Mễ Dụ cởi bỏ khúc mắc? Trên đường tu hành sẽ rất phiền phức. Ở bên kia tu hành, gánh vác thân phận kiếm tiên của Kiếm Khí Trường Thành, bất ngờ sẽ không nhiều, nhưng chỉ cần có, sẽ rất lớn."
+Trần Bình An hỏi: “Tới Hạo Nhiên Thiên Hạ rồi, nếu Mễ Dụ vẫn chẳng gỡ được khúc mắc trong lòng thì sao? Về sau tu hành sẽ rất phiền phức. Mang thân phận kiếm tiên của Kiếm Khí Trường Thành mà tu hành bên ấy, có thể cả đời chẳng gặp mấy chuyện bất trắc. Nhưng hễ gặp chuyện, ắt là chuyện lớn.”
 
-Mễ Hỗ nói chắc như đinh đóng cột: "Sống lâu hơn trời. Có thể sống thêm một ngày là một ngày. Huống chi ngươi đừng xem thường đạo tâm của đệ đệ ta, không yếu ớt như ngươi nghĩ."
+Mễ Hỗ quả quyết nói: “Sống được mới là chuyện lớn nhất. Sống thêm ngày nào hay ngày ấy. Huống chi ngươi chớ xem thường đạo tâm của đệ đệ ta. Hắn chẳng yếu đuối như ngươi nghĩ đâu.”
 
-Trần Bình An gật đầu nói: "Cũng đúng."
+Trần Bình An khẽ gật đầu: “Cũng phải.”
 
-Trần Bình An nói: "Vậy để Mễ Dụ đi Bắc Câu Lô Châu, Thái Huy Kiếm Tông, hoặc là hồ Phù Bình Kiếm Tiên của Trử Thải Kiếm Tiên, hai nơi đều cần một vị Kiếm Tiên cung phụng, lại không cần Mễ Hỗ làm sao chém giết. Tương lai cụ thể đi nơi nào, để cho Mễ Dụ tự mình chọn lựa."
+Hắn nói tiếp: “Vậy để Mễ Dụ tới Bắc Câu Lô Châu. Thái Huy Kiếm Tông hay Phù Bình Kiếm Hồ của kiếm tiên Lệ Thải đều cần một vị kiếm tiên làm cung phụng, lại chẳng đến nỗi bắt Mễ Dụ đi chém giết. Về sau muốn tới đâu thì để hắn tự chọn.”
 
-Mễ Hỗ nghi hoặc hỏi: "Tại sao không phải đi tới đỉnh núi của ngươi?"
+Mễ Hỗ lấy làm lạ: “Sao chẳng đến núi nhà ngươi?”
 
-Trần Bình An lắc đầu nói: "Ta có một đống lớn nợ cũ trong người, dù Mễ Dụ đã rời khỏi Đảo Huyền sơn, nhưng đến Lạc Phách sơn vẫn không có mấy ngày an ổn, không cần thiết."
+Trần Bình An lắc đầu: “Trên người ta còn cả đống nợ cũ. Mễ Dụ có rời được Đảo Huyền sơn, tới núi Lạc Phách cũng chẳng có mấy ngày yên ổn. Việc gì phải thế.”
 
-Mễ Hỗ lại nói: "Vậy thì để Mễ Dụ đi đến Lạc Phách sơn của ngươi đảm nhiệm chức cung phụng, loại kính hương bái tượng gia phả."
+Mễ Hỗ nói: “Vậy cứ để Mễ Dụ tới núi Lạc Phách của ngươi làm cung phụng, loại được thắp hương bái tổ, ghi tên vào gia phả ấy.”
 
-Trần Bình An bất đắc dĩ nói: "Mễ đại kiếm tiên ngươi là người rộng lượng, vậy ta sẽ nói với ngươi vài lời cởi mở, nếu chỉ là mua bán, kẻ ngốc mới có thể cự tuyệt một vị kiếm tiên cung phụng, ta chính là coi đệ đệ ngươi là bằng hữu, mới không cho hắn đi Bảo Bình châu tranh giành vũng nước đục, ở Bắc Câu Lô châu có nhiều tình hương khói nhất với Kiếm Khí Trường Thành, thân phận của Mễ Dụ chính là một tấm bùa hộ mệnh tốt nhất, tám châu còn lại đều không có chỗ tốt này."
+Trần Bình An đành nói: “Mễ đại kiếm tiên là người rộng lượng, ta cũng nói vài lời thật lòng. Nếu chỉ bàn chuyện mua bán, kẻ ngốc mới từ chối một vị kiếm tiên cung phụng. Chính vì xem đệ đệ ngươi là bằng hữu, ta mới chẳng muốn hắn lội vào vũng nước đục ở Bảo Bình Châu. Bắc Câu Lô Châu có tình hương khói sâu nhất với Kiếm Khí Trường Thành. Ở đó, thân phận của Mễ Dụ là tấm bùa hộ mệnh tốt nhất. Tám châu còn lại làm gì có chỗ tốt ấy.”
 
-Mễ Phản nói: "Líu xìu như đàn bà, Mễ Dụ sẽ đi Lạc Phách sơn Bảo Bình châu, bớt nói lời thừa, ngươi ta quyết định!"
+Mễ Hỗ nói: “Dông dài như đàn bà. Mễ Dụ sẽ tới núi Lạc Phách ở Bảo Bình Châu. Bớt lời thừa, hai ta cứ quyết vậy đi!”
 
-Hảo hảo phân rõ phải trái với Mễ Hỗ đại kiếm tiên của ngươi, còn mắng chửi người khác đúng không?
+Đang nói phải trái đàng hoàng với Mễ đại kiếm tiên, ngươi lại còn mắng người ta?
 
-Trần Bình An vừa muốn nói vài câu "Trung chính bình thản", nào ngờ vị đại kiếm tiên Mễ Hỗ này thần sắc buồn bực, đã thấp giọng mở miệng nói: "Đệ đệ kia của ta, luôn cảm thấy là hắn làm mất mặt huynh trưởng của ta, vậy hắn có nghĩ tới hay không, nếu không phải huynh trưởng này của hắn, may mắn luyện kiếm tư chất không tệ, sở trường duy nhất cuộc đời này, chính là luyện kiếm, như vậy hắn cũng đã trở thành một vị kiếm tiên Ngọc Phác Cảnh, sao lại mất mặt? Sao có thể bị cả tòa Kiếm Khí Trường Thành chế giễu? Cho nên rốt cuộc là ai thua thiệt ai, còn nghĩ không rõ sao? Mễ Hỗ ta, cuộc đời này chỉ hận kiếm đạo cảnh giới không cao, chen thân Tiên Nhân Cảnh cũng phải va chạm, vẫn không thể làm cho người ta không chế giễu Mễ Dụ."
+Trần Bình An vừa định nói mấy câu cho thật công bằng, nào ngờ Mễ Hỗ đã sa sầm mặt, hạ giọng:
 
-Trần Bình An tháo hồ lô dưỡng kiếm bên hông xuống, uống hớp rượu, nhẹ giọng khuyên nhủ: "Những lời trong lòng này, nói thẳng ra thì tốt hơn so với Mễ Dụ."
+“Đệ đệ ta cứ nghĩ hắn làm huynh trưởng mất mặt. Nhưng hắn có nghĩ thử chưa, nếu huynh trưởng hắn chẳng may mắn có chút tư chất luyện kiếm, cả đời cũng chẳng biết làm gì ngoài luyện kiếm, thì hắn đường đường là một kiếm tiên Ngọc Phác cảnh, có gì mất mặt? Sao cả tòa Kiếm Khí Trường Thành lại đem hắn ra cười? Rốt cuộc là ai làm ai chịu thiệt, còn chưa nghĩ ra được sao? Mễ Hỗ ta cả đời chỉ hận cảnh giới kiếm đạo của mình chưa đủ cao. Chật vật lắm mới chen chân được vào Tiên Nhân cảnh, vậy mà vẫn chẳng khiến người ta thôi cười nhạo Mễ Dụ.”
 
-Mễ Lận lắc đầu nói: "Bỏ đi. Lời trong lòng cứ để ở trong lòng, nếu thật sự gặp mặt, ngược lại nói không nên lời."
+Trần Bình An tháo hồ lô dưỡng kiếm bên hông xuống, uống một hớp rồi nhẹ giọng khuyên: “Mấy lời trong lòng này, nói thẳng với Mễ Dụ thì hơn.”
 
-Nói đến nước này, Trần Bình An cũng không khuyên nữa.
+Mễ Hỗ lắc đầu: “Thôi. Lời trong lòng cứ để trong lòng. Gặp mặt thật, ta lại chẳng nói ra được.”
 
-Mễ Hỗ đột nhiên mắng to: "Một đám đàn bà đến cùng là lão độc quỷ có mùi vị gì cũng không biết, cũng không biết xấu hổ cười nhạo đệ đệ ta, cười cái con mẹ nó, cả đám trông như bị bánh xe cán qua, có thể so sánh với đệ đệ ta sao? Đám quang côn này, nhìn thấy ngực lớn mông lớn của đàn bà, liền không dời mắt ra được..."
+Nói đến nước ấy, Trần Bình An cũng chẳng khuyên thêm.
 
-Trần Bình An quay đầu nhìn về phía Mễ Ngọc.
+Mễ Hỗ đột nhiên mắng ầm lên: “Một lũ độc thân già, đến mùi vị nữ tử thế nào cũng chẳng biết, còn có mặt mũi cười đệ đệ ta. Cười cái con mẹ nó! Mặt mũi đứa nào đứa nấy như bị bánh xe cán qua, đem so với đệ đệ ta được sao? Lũ quang côn ấy, thấy nữ tử ngực lớn mông to là mắt dán cả vào đấy…”
 
-Mễ Hỗ ngươi còn không biết xấu hổ mà dám nói người khác?
+Trần Bình An quay đầu nhìn Mễ Hỗ.
 
-Mễ Hỗ dù sao cũng là đại kiếm tiên, lập tức hiểu ý tứ ánh mắt của Ẩn Quan trẻ tuổi, sửa lời nói: "Có một số người, không phải lưu manh hơn hẳn lưu manh. Trước khi ta đến, nghe nói có người cùng A Lương uống rượu ở quán rượu của Tạ cô nương, không tiêu tiền. Còn nghe nói Tạ cô nương hôm nay sau khi làm ăn khai trương, mặt mày mỉm cười, nét mặt toả sáng, giống như biến thành người khác."
+Mễ Hỗ ngươi cũng có mặt mũi nói người khác à?
 
-Trần Bình An mỉm cười đáp lại, làm bộ nghe không hiểu, ở trong lòng yên lặng lấy ra một bộ sổ sách nhỏ, đem khoản sổ sách này ghi lên trên đầu đệ đệ của vị Mễ đại kiếm tiên này. Con mẹ nó nhất định phải gửi thư về Lạc Phách Sơn, để Mễ Dụ ở Lạc Phách Sơn lăn lộn cả năm trăng trong gương hoa trăng nước, không kiếm đủ một khoản tiền Cốc Vũ vẫn giam ở đỉnh núi.
+Dù sao cũng là đại kiếm tiên, Mễ Hỗ nhìn một cái đã hiểu ý vị Ẩn Quan trẻ tuổi, bèn đổi giọng: “Cũng có kẻ chẳng mang tiếng lưu manh mà còn hơn cả lưu manh. Trước khi tới đây, ta nghe có người uống rượu với A Lương ở quán của Tạ cô nương, chẳng tốn lấy một đồng. Lại nghe hôm nay Tạ cô nương vừa mở cửa buôn bán đã tươi cười rạng rỡ, giống như biến thành người khác.”
 
-Hai người đi tới gần một tòa nhà riêng kiếm tiên, tên là Chủng Du tiên quán, chính là tòa nhà có nền tảng không tầm thường, chủ nhân cũ kiếm tiên luyện hóa một khối Minh Nguyệt Phi Tiên thi văn bài. Chỉ là nhà riêng đã hoang phế nhiều năm, Kiếm Khí Trường Thành không ở trong thành phủ đệ kiếm tiên, phần lớn là như thế, Kiếm Tiên bỏ mình, nếu đệ tử đích truyền cũng đều chết trận, sau khi hoàn toàn chặt đứt hương khói, sẽ biến thành nơi vô chủ, sẽ bị Ẩn Quan nhất mạch thu hồi theo lệ, cho thuê hoặc chuyển tặng cho kiếm tiên mới.
+Trần Bình An mỉm cười, làm bộ nghe chẳng hiểu. Trong lòng hắn lặng lẽ mở sổ, ghi món nợ này lên đầu đệ đệ của vị Mễ đại kiếm tiên. Con mẹ nó, nhất định phải gửi thư về núi Lạc Phách, để Mễ Dụ làm trò trên kính hoa thủy nguyệt suốt một năm. Chừng nào chưa kiếm đủ một khoản tiền cốc vũ thì cứ giữ hắn trên núi.
 
-Ví dụ như kho tư trạch giáp trượng Thái Huy Kiếm Tông, chính là bằng vào chiến công đổi lấy, mà cô gái kiếm tiên hái đến Kiếm Khí Trường Thành, đầu tiên là thuê tư trạch Vạn Hác Cư kiếm tiên để lại, kết quả cô thèm muốn đình vân quán toàn thân do một khối ngọc bích tiên gia tạo hình mà thành xung quanh, nguyện ý dùng một cái giá trên trời mua lại, nhưng mà hành cung tránh nóng ban đầu không gật đầu, dù sao không hợp quy củ, khiến Nguyễn Cung không chịu nổi khí khái, trực tiếp phi kiếm đưa tin Ẩn Quan trẻ tuổi, mắng cho Trần Bình An máu chó xối đầu.
+Hai người đi đến gần một tòa tư trạch của kiếm tiên mang tên Chủng Du tiên quán. Tòa nhà này có lai lịch chẳng tầm thường. Vị kiếm tiên chủ cũ từng luyện hóa một tấm bài khắc thơ mang tên Minh Nguyệt Phi Tiên. Chỉ có điều, tòa nhà đã bỏ hoang nhiều năm.
 
-Về sau chiến sự căng thẳng, tiền thần tiên thiếu hụt, Trần Bình An bảo Đổng Bất Đắc đi thông báo Vạn Hác cư, chỉ cần lật giá cả một phen nữa là có thể mua cả tòa Đình Vân quán.
+Phủ đệ của kiếm tiên ở ngoài thành phần lớn đều như vậy. Nếu kiếm tiên chết trận, đệ tử đích truyền cũng chết hết, hương khói đoạn tuyệt, phủ đệ sẽ thành nơi vô chủ. Theo lệ, nhất mạch Ẩn Quan thu lại để cho thuê hoặc chuyển tặng cho kiếm tiên mới.
 
-Về sau độ thuyền Quế Hoa Đảo đến Đảo Huyền sơn, trong đó có từng rương tuyết hoa tiền Ngọc Khuê Tông Khương thị nhờ chở đến.
+Chẳng hạn tòa Giáp Trượng Khố nay thuộc Thái Huy Kiếm Tông, là do tông môn ấy dùng chiến công đổi lấy. Còn nữ kiếm tiên Lệ Thải khi tới Kiếm Khí Trường Thành, ban đầu thuê Vạn Hác cư do một vị kiếm tiên để lại. Nàng ưng Đình Vân quán ở gần đó, cả tòa quán được tạc từ một khối ngọc bích tiên gia, nên bằng lòng bỏ ra một cái giá trên trời để mua.
 
-Mễ Hỗ dừng bước, bởi vì xa xa có người ngự kiếm mà rơi xuống, xem bộ dáng là đến tìm ẩn quan trẻ tuổi bên cạnh.
+Hành cung tránh nóng ban đầu chẳng chịu gật đầu, vì làm vậy trái quy củ. Lệ Thải tức đến nỗi phi kiếm truyền thư cho Ẩn Quan trẻ tuổi[?], mắng Trần Bình An tối tăm mặt mũi. Về sau chiến sự căng thẳng, thiếu tiền thần tiên, Trần Bình An lại bảo Đổng Bất Đắc tới Vạn Hác cư báo một tiếng. Chỉ cần trả gấp đôi giá trước là mua được cả tòa Đình Vân quán.
 
-Trung thổ kiếm tiên mặt mày nhăn nhó kia, Khổ Hạ.
+Sau đó, khi độ thuyền Quế Hoa Đảo cập Đảo Huyền sơn, trên thuyền có từng rương tiền tuyết hoa do Khương thị của Ngọc Khuê Tông nhờ chở đến.
 
-Mễ Diêu liền lấy tiếng lòng nói: "Trần Bình An, việc phó thác hôm nay, làm phiền."
+Mễ Hỗ dừng bước. Xa xa có người vừa ngự kiếm đáp xuống, chừng như đến tìm vị Ẩn Quan trẻ tuổi bên cạnh hắn.
 
-Trần Bình An đáp: "Ta sẽ cố hết sức."
+Là Khổ Hạ, vị kiếm tiên Trung Thổ lúc nào cũng cau có một vẻ khổ sở.
 
-Mễ Lận được hứa hẹn, liếc mắt nhìn Khổ Hạ kiếm tiên kia, liền ném ra một hồ lô dưỡng kiếm hồ cho Trần Bình An, nói câu "Luyện chế cổ pháp, phẩm trật coi như tạm được", trực tiếp ngự kiếm lên không, đi xa đầu tường.
+Mễ Hỗ liền dùng tiếng lòng nói: “Trần Bình An, việc ta phó thác hôm nay, làm phiền ngươi.”
 
-Trần Bình An cầm hồ lô dưỡng kiếm bằng băng nhu, tạm thời nhận lấy, sau này chuyển giao cho Mễ Dụ là được.
+Trần Bình An đáp: “Ta sẽ cố hết sức.”
 
-Khổ Hạ kiếm tiên đi tới bên cạnh Trần Bình An, vẻ mặt khó xử, liền tỏ ra càng thêm khổ tướng.
+Được câu ấy, Mễ Hỗ liếc nhìn Khổ Hạ rồi ném cho Trần Bình An một chiếc hồ lô dưỡng kiếm. Hắn chỉ nói một câu: “Luyện theo cổ pháp, phẩm trật cũng tạm được.” Nói xong, hắn ngự kiếm bay lên, đi xa dọc theo đầu tường.
 
-Trần Bình An giắt hai hồ lô dưỡng kiếm bên hông, chuyện tốt thành đôi, cười hỏi vị kiếm tiên vương triều Thiệu Nguyên này: "Là muốn Lâm Quân Bích rời khỏi?"
+Chiếc hồ lô dưỡng kiếm cầm trong tay lạnh và nhẵn mịn. Trần Bình An tạm nhận, về sau chuyển lại cho Mễ Dụ là được.
 
-Khổ Hạ gật đầu nói: "Tự biết không hợp thời. Cho nên không đến nửa tháng, trên một chiếc độ thuyền vượt châu ở Trung Thổ Thần Châu, sẽ có chút tỏ vẻ với hành cung tránh nóng, là một chút tâm ý của vương triều Thiệu Nguyên chúng ta."
+Khổ Hạ kiếm tiên đến bên Trần Bình An. Hắn có vẻ khó mở lời, thành ra gương mặt lại càng khổ sở.
 
-Trần Bình An có chút bất đắc dĩ.
+Trần Bình An giắt cả hai hồ lô dưỡng kiếm bên hông, kể cũng là chuyện tốt có đôi. Hắn cười hỏi vị kiếm tiên của vương triều Thiệu Nguyên: “Tiền bối muốn đưa Lâm Quân Bích đi?”
 
-Kiếm tiên Khổ Hạ, thật đúng là một người thành thật không hơn không kém.
+Khổ Hạ gật đầu: “Ta biết lúc này nói chuyện ấy có phần chẳng hợp thời. Trong vòng nửa tháng, sẽ có một chiếc độ thuyền vượt châu từ Trung Thổ Thần Châu đưa chút lễ tới hành cung tránh nóng. Đó là chút tâm ý của vương triều Thiệu Nguyên chúng ta.”
 
-Nói thật, nếu như không phải Lâm Quân Bích lựa chọn ở lại Ẩn Quan nhất mạch thì đã sớm có thể rời khỏi Kiếm Khí Trường Thành.
+Trần Bình An có phần bất đắc dĩ. Vị kiếm tiên này thật đúng là người thành thật.
 
-Lâm Quân Bích muốn đi, bất kỳ một vị kiếm tu nào trong hành cung nghỉ mát đều cảm thấy là chuyện đương nhiên.
+Nói cho cùng, nếu Lâm Quân Bích chẳng tự chọn ở lại nhất mạch Ẩn Quan, hắn đã có thể rời Kiếm Khí Trường Thành từ lâu. Bây giờ hắn muốn đi, kiếm tu nào ở hành cung tránh nóng cũng thấy đó là chuyện đương nhiên.
 
-Kết quả bị Kiếm Tiên Khổ Hạ nói như vậy, giống như Lâm Quân Bích rời đi, sẽ trở thành một người vong ân phụ nghĩa, thế cho nên người truyền đạo của vị quốc sư Thiệu Nguyên Vương Triều kia, Lâm Quân Bích, phải phá tài tiêu tai, đổi lấy Lâm Quân Bích trở về quê nhà cùng Kiếm Khí Trường Thành.
+Vậy mà nghe Khổ Hạ nói, cứ như Lâm Quân Bích vừa đi là thành kẻ vong ân bội nghĩa, đến mức vị quốc sư vương triều Thiệu Nguyên truyền đạo cho hắn phải hao tiền của, mới đổi được cái gật đầu của Kiếm Khí Trường Thành để đệ tử mình về quê.
 
-Nhưng thiên tài địa bảo tiền thần tiên đến từ vương triều Thiệu Nguyên, Trần Bình An kiếm được rất yên tâm, càng nhiều càng tốt.
+Còn thiên tài địa bảo hay tiền thần tiên của vương triều Thiệu Nguyên, Trần Bình An nhận rất yên lòng. Càng nhiều càng tốt.
 
-Cho nên Trần Bình An không bắt nạt người thành thật, nói thẳng đi tới hành cung tránh nóng, gọi Lâm Quân Bích ra gặp Khổ Hạ Kiếm Tiên.
+Hắn cũng chẳng bắt nạt người thành thật, nói thẳng rằng cứ tới hành cung tránh nóng gọi Lâm Quân Bích ra gặp mặt.
 
-Khổ Hạ lại không dịch bước, nhìn về phía cửa lớn Chủng Du tiên quán, hỏi: "Ẩn quan đại nhân, có biết nguồn gốc cái tên tòa nhà này không?"
+Khổ Hạ vẫn đứng yên, nhìn cổng Chủng Du tiên quán, hỏi: “Ẩn Quan đại nhân có biết cái tên của tòa nhà này từ đâu mà có không?”
 
-Trần Bình An nói: "Không rõ lắm."
+Trần Bình An nói: “Không rõ lắm.”
 
-Thật ra Trần Bình An đảm nhiệm Ẩn Quan mấy năm nay, thích lật xem các loại bí mật phủ bụi của hành cung tránh nóng, làm một việc giải sầu trong lúc rảnh rỗi.
+Thật ra mấy năm làm Ẩn Quan, lúc rảnh rỗi, Trần Bình An thường giở chuyện cũ phủ bụi trong hành cung tránh nóng ra xem cho khuây khỏa.
 
-Đem tư trạch đổi tên thành chủ nhân tiền nhiệm của Chủng Du tiên quán, là một vị nữ tử, hay là kiếm tiên bản thổ hiếm hoi có chút văn nhân tập khí ở Kiếm Khí Trường Thành, giống như Quách Giá, thích trồng hoa cỏ tiên gia, từng phó thác Đảo Huyền sơn, từ Phù Dao châu mua một cây du, trồng lên tiểu đình, chợt hoa lên, cao bước nóc nhà. Khiến kiếm tiên sinh lòng vui mừng, liền sửa lại tên trạch đệ. Chỉ là kiếm tiên vừa chết, lại không có đệ tử, tòa nhà nhiều năm không có người chăm sóc, Chủng Du tiên quán lại có một tầng cấm chế tiên gia, người ngoài sẽ không tự tiện xông vào, cho nên hôm nay quang cảnh trong tòa nhà, là khô héo hay là sum xuê, hoa nở hay hoa rơi, đã không người biết được.
+Người đổi tên tòa tư trạch thành Chủng Du tiên quán là một nữ kiếm tiên. Trong số kiếm tiên bản xứ ở Kiếm Khí Trường Thành, ít ai có thú văn nhân như nàng. Nàng cũng giống Quách Giá, thích trồng hoa cỏ tiên gia. Nàng từng nhờ người ở Đảo Huyền sơn mua một cây du từ Phù Dao Châu, đem về trồng trong sân nhỏ. Chẳng bao lâu, cây trổ hoa, ngọn vượt cả mái nhà. Nữ kiếm tiên vui lòng, bèn đổi tên tòa nhà.
 
-Khổ Hạ nói: "Ta cùng bạn tốt lần đầu tiên du lịch kiếm khí Trường Thành, bạn tốt ái mộ vị đệ tử kiếm tiên này, chỉ là quy củ không thể sửa đổi, hai người không thể trở thành thần tiên đạo lữ."
+Nàng qua đời mà chẳng có đệ tử. Bao năm nay không ai chăm nom, Chủng Du tiên quán lại có một tầng cấm chế tiên gia, người ngoài chẳng tự tiện xông vào. Bây giờ cây khô héo hay còn sum suê, hoa đã nở hay đã rụng, chẳng ai hay biết.
 
-Trần Bình An nói: "Bằng hữu kia của ngươi nếu là để lại, không phải liền có thể trở thành một đôi quyến lữ?"
+Khổ Hạ nói: “Lần đầu ta cùng một bằng hữu tới du lịch Kiếm Khí Trường Thành, bằng hữu của ta đem lòng ái mộ đệ tử của vị kiếm tiên này. Chỉ vì quy củ chẳng thể sửa nên hai người không thành đạo lữ.”
 
-Khổ Hạ tương khổ càng khổ, cảm khái nói: "Kiếm tu Hạo Nhiên Thiên Hạ chúng ta, có thể có mấy người là sơn trạch dã tu không vướng bận? Cho dù ngay từ đầu, tựa như Ngai Ngai châu Đặng Lương, cuối cùng vẫn sẽ được đại tông môn tổ sư đường thu nạp. Huống chi bạn tốt đó của ta, từ nhỏ đã là gia phả tiên sư được gửi gắm kỳ vọng cao, ân trọng của sư môn, như thế nào là nói dứt bỏ liền dứt bỏ? Trong sư môn, lại có trưởng bối bạn tốt cực kỳ kính sợ."
+Trần Bình An nói: “Nếu bằng hữu ấy ở lại, chẳng phải là có thể thành đôi sao?”
 
-Trần Bình An nói: "Khó có thể lưỡng toàn."
+Vẻ mặt Khổ Hạ đã khổ lại càng khổ. Hắn than: “Kiếm tu Hạo Nhiên Thiên Hạ chúng ta, được mấy ai là sơn trạch dã tu chẳng có gì vướng bận? Ban đầu có là dã tu như Đặng Lương ở Ngai Ngai Châu, sau cùng vẫn được tổ sư đường của đại tông môn thu nhận. Huống chi bằng hữu của ta từ nhỏ đã được ghi tên vào gia phả, được sư môn gửi gắm kỳ vọng lớn. Ân nghĩa nặng như vậy, đâu phải nói dứt là dứt? Trong sư môn lại có trưởng bối mà hắn hết mực kính sợ.”
 
-Khổ Hạ kiếm tiên quay đầu nói: "Cho nên ta và bạn tốt, đều rất bội phục Ẩn Quan đại nhân."
+Trần Bình An nói: “Khó mà vẹn cả đôi đường.”
 
-Trần Bình An cười nói: "Khổ Hạ kiếm tiên, đã không nói dối thì đừng nói dối."
+Khổ Hạ quay đầu lại: “Bởi vậy cả ta lẫn bằng hữu ấy đều rất bội phục Ẩn Quan đại nhân.”
 
-Không có bạn tốt gì, cũng không phải đệ tử của Kiếm Tiên gì.
+Trần Bình An cười nói: “Khổ Hạ kiếm tiên, tiền bối vốn chẳng biết nói dối thì cứ đừng nói dối.”
 
-Rõ ràng chính là Khổ Hạ, chính là nữ tử Kiếm Tiên kia.
+Nào có bằng hữu, nào có đệ tử của kiếm tiên.
 
-Khổ Hạ kiếm tiên bất đắc dĩ nói: "Lần trước đưa tiễn đến Nam Bà Sa châu, dọc theo đường đi người người khuyên ta, Úc Tỳ phu cùng Kim Chân Mộng, Chu Mai những vãn bối này đều khuyên ta, giống như ta đã làm một hành động vĩ đại cỡ nào, trong lòng ta thật sự áy náy, không đảm đương nổi phần kính nể đó của các nàng."
+Rõ ràng là Khổ Hạ và chính vị nữ kiếm tiên ấy.
 
-Trần Bình An nói: "Nếu Khổ Hạ kiếm tiên nói ra, có tin Úc Diệp Phu và Chu Mai chỉ biết càng thêm kính trọng tiền bối hay không?"
+Khổ Hạ đành nói: “Chuyến trước, lúc đưa tiễn mọi người sang Nam Bà Sa Châu, dọc đường ai cũng khuyên ta. Đến đám vãn bối Úc Diệp Phu, Kim Chân Mộng, Chu Mai cũng khuyên, cứ như thể ta đã làm chuyện gì lớn lao lắm. Trong lòng ta thật sự hổ thẹn, chẳng dám nhận sự kính nể ấy.”
 
-Khổ Hạ Kiếm Tiên đầu tiên là mờ mịt, tiếp đó bừng tỉnh, cuối cùng có chút thoải mái, "Không nói mở ra, vẫn là không nên nói ra. Thân là trưởng bối, cùng vãn bối nói những chuyện nhi nữ tình trường này, không thích hợp."
+Trần Bình An nói: “Nếu tiền bối kể rõ mọi chuyện, có tin Úc Diệp Phu và Chu Mai sẽ càng kính trọng tiền bối hơn không?”
 
-Trần Bình An hỏi một vấn đề, "Chủ nhân Chủng Du tiên quán, năm đó là vì tích góp chiến công, ngược lại chết trận, ngươi sẽ không oán hận lão đại kiếm tiên, không oán hận tòa Kiếm Khí Trường Thành này?"
+Ban đầu Khổ Hạ còn ngơ ngác, rồi chợt hiểu ra, vẻ mặt cũng giãn đi đôi chút. Hắn nói: “Chưa nói thì thôi, cứ để vậy đi. Làm trưởng bối mà kể chuyện nhi nữ tình trường với đám vãn bối, cũng chẳng hợp.”
 
-Khổ Hạ kiếm tiên lắc đầu nói: "Không có đất đai của Kiếm Khí Trường Thành, ta có thể gặp được nàng như vậy không?"
+Trần Bình An hỏi: “Chủ nhân Chủng Du tiên quán năm ấy vì muốn tích thêm chiến công mà chết trận. Tiền bối chẳng oán lão đại kiếm tiên, cũng chẳng oán tòa Kiếm Khí Trường Thành này sao?”
 
-Đây là lời thật lòng của Khổ Hạ kiếm tiên. Không hận Kiếm Khí Trường Thành, hận cái gì, người muốn hận, cũng là uất ức của mình.
+Khổ Hạ lắc đầu: “Nếu chẳng có mảnh đất Kiếm Khí Trường Thành này, ta gặp nàng bằng cách nào?”
 
-Trần Bình An gật gật đầu.
+Đó là lời thật lòng của Khổ Hạ. Hắn chẳng oán Kiếm Khí Trường Thành. Có oán thì cũng chỉ oán mình hèn yếu.
 
-Trước có Lâm Quân Bích, sau có Khổ Hạ Kiếm Tiên, ấn tượng của Trần Bình An đối với vương triều Thiệu Nguyên kia đã chuyển biến tốt đẹp thêm vài phần.
+Trần Bình An khẽ gật đầu.
 
-A Lương ngày hôm qua vạch trần một đáp án, hôm nay Khổ Hạ kiếm tiên lại giải một bí ẩn.
+Trước có Lâm Quân Bích, nay có Khổ Hạ. Trần Bình An lại có thêm mấy phần thiện cảm với vương triều Thiệu Nguyên.
 
-Khổ Hạ Kiếm Tiên đột nhiên hỏi: "Ẩn Quan đại nhân, không phải ngài nói mình không quen thuộc nơi này chút nào sao?"
+Hôm qua A Lương hé lộ một đáp án, hôm nay Khổ Hạ lại giải một chuyện còn bí ẩn.
 
-Trần Bình An nghiêm trang nói: "Lúc trước ta nói "không rõ lắm". Đối với Chủng Du tiên quán ngay tại dưới mí mắt hành cung tránh nóng, thân là ẩn quan, chức trách, ít nhiều vẫn có hiểu biết."
+Khổ Hạ đột nhiên hỏi: “Ẩn Quan đại nhân chẳng phải vừa bảo mình chẳng biết gì về nơi này sao?”
 
-Khổ Hạ Kiếm Tiên không thể làm gì.
+Trần Bình An nghiêm trang nói: “Ta chỉ bảo ‘không rõ lắm’. Chủng Du tiên quán ở ngay trước mắt hành cung tránh nóng. Ta làm Ẩn Quan, theo chức trách, ít nhiều cũng phải biết đôi chút.”
 
-Nếu như giao tiếp với người đọc sách của Á Thánh nhất mạch, chắc chắn sẽ không như thế.
+Khổ Hạ hết cách. Nếu nói chuyện với người đọc sách thuộc nhất mạch Á Thánh, chắc hẳn chẳng đến nỗi này.
 
-Mang theo Khổ Hạ kiếm tiên quay về hành cung tránh nóng, Trần Bình An hô to, thiếu niên áo trắng Lâm Quân Bích phiêu nhiên đi ra khỏi cửa, tiên khí mười phần.
+Trần Bình An đưa Khổ Hạ về hành cung tránh nóng. Hắn cất tiếng gọi, thiếu niên bạch y Lâm Quân Bích thong dong bước ra cửa, trông rất có tiên khí.
 
-Thấy Khổ Hạ Kiếm Tiên, Lâm Quân Bích lập tức biết ý đồ đến, ôm quyền không nói gì với Trần Bình An.
+Vừa thấy Khổ Hạ, Lâm Quân Bích đã hiểu vì sao hắn tới, bèn ôm quyền với Trần Bình An, chẳng nói gì.
 
-Lúc này rời khỏi hành cung tránh nóng và Kiếm Khí Trường Thành, tan vỡ trọng trách kiếm tu nhất mạch Ẩn Quan, cuối cùng sẽ có hiềm nghi lâm trận bỏ chạy, ví dụ như Đặng Lương, Tào Cổn sẽ có gánh nặng tâm lý này, nhưng Lâm Quân Bích tuyệt đối sẽ không có ý nghĩ này.
+Rời hành cung tránh nóng và Kiếm Khí Trường Thành lúc này, bỏ lại trọng trách của một kiếm tu nhất mạch Ẩn Quan, khó tránh khỏi bị xem là lâm trận bỏ chạy. Đặng Lương hay Tào Cổn có lẽ sẽ thấy nặng lòng, còn Lâm Quân Bích tuyệt đối chẳng nghĩ như vậy.
 
-Trần Bình An vỗ vỗ bả vai Lâm Quân Bích, "Hảo tụ hảo tán, không phải chuyện dễ dàng. Trân trọng."
+Trần Bình An vỗ vai thiếu niên: “Gặp nhau vui vẻ, chia tay êm đẹp, nào phải chuyện dễ. Trân trọng.”
 
-Lâm Quân Bích đứng thẳng lưng, vẫn ôm quyền: "Những năm tháng ở bên cạnh Ẩn Quan đại nhân này, ta học được rất nhiều, được ích lợi không nhỏ. Quân Bích ghi nhớ trong lòng, quân tử làm vốn, lập nghiệp làm đạo sinh!"
+Lâm Quân Bích đứng thẳng lưng, vẫn ôm quyền: “Những năm tháng ở bên Ẩn Quan đại nhân, ta học được nhiều, thu được không ít. Quân Bích khắc ghi trong lòng, lấy cách làm người quân tử làm gốc, lấy đạo mà lập nghiệp.[?]”
 
-Trần Bình An cười nói: "Lời khách khí ít thôi, thực huệ sự làm nhiều. Về phần ước định năm xưa, ta khẳng định giúp ngươi làm được."
+Trần Bình An cười nói: “Bớt lời khách sáo, làm nhiều chuyện thiết thực. Còn việc đã hứa năm xưa, ta nhất định sẽ làm cho ngươi.”
 
-Lâm Quân Bích lập tức ngầm hiểu, vẻ mặt chân thành nói: "Ẩn Quan đại nhân tinh thông cờ cờ, bàn cờ hộp cờ kia sẽ ở lại hành cung nghỉ mát."
+Lâm Quân Bích hiểu ý ngay, vẻ mặt chân thành: “Ẩn Quan đại nhân tinh thông kỳ nghệ. Bàn cờ và hộp cờ kia cứ để lại hành cung tránh nóng.”
 
-Trần Bình An vỗ mạnh lên đầu vai Lâm Quân Bích, mỉm cười nói: "Xem ra Quân Bích đã học được vài phần bản lãnh thật sự."
+Trần Bình An vỗ mạnh lên vai hắn, mỉm cười: “Xem ra Quân Bích đã học được mấy phần bản lĩnh thật sự.”
 
-Khổ Hạ Kiếm Tiên như trút được gánh nặng.
+Khổ Hạ thở phào. Trước đó hắn còn lo vì chuyện của quốc sư vương triều Thiệu Nguyên và đám kiếm tu trẻ tuổi kia, vị Ẩn Quan này sẽ cố ý làm khó Lâm Quân Bích. Xem ra hắn đã lấy bụng tiểu nhân đo lòng quân tử.
 
-Lúc trước hắn còn lo lắng bởi vì quốc sư của Thiệu Nguyên vương triều cùng đám kiếm tu trẻ tuổi kia, ẩn quan trẻ tuổi sẽ cố ý làm khó dễ Lâm Quân Bích.
+Khổ Hạ lấy một phong mật thư đưa cho thiếu niên: “Quân Bích, nếu chẳng có gì bất trắc thì ngày mai ngươi lên đường. Vừa hay có một chiếc độ thuyền vượt châu từ Nam Bà Sa Châu trở về. Thư này là của tiên sinh ngươi, mới phi kiếm gửi đến Xuân Phiên Trai ở Đảo Huyền sơn không lâu, nhờ ta giao cho ngươi.”
 
-Xem ra là mình lấy lòng cẩn thận đo bụng quân tử.
+Hôm nay Lâm Quân Bích chắc chắn ở lại hành cung tránh nóng. Trong tòa nhà của kiếm tiên Tôn Cự Nguyên ở trong thành chẳng còn người nào quen. Vả lại, Tôn kiếm tiên bây giờ chẳng ưa đám kiếm tu trẻ tuổi của vương triều Thiệu Nguyên, về sau lại còn xảy ra chuyện của Biên Cảnh[?], Lâm Quân Bích đâu việc gì phải tới đó tự chuốc lấy mất mặt.
 
-Khổ Hạ kiếm tiên móc ra một phong mật tín, đưa cho Lâm Quân Bích, nói với thiếu niên: "Quân Bích, nếu không có gì bất ngờ xảy ra, ngày mai ngươi nên rời đi, vừa vặn ngồi trên một chiếc độ thuyền vượt châu đã trở về từ Nam Bà Sa châu. Phong thư này, tiên sinh của ngươi vừa mới phi kiếm truyền tin cho Đảo Huyền sơn Xuân Phiên Trai không bao lâu, nhờ ta giao cho ngươi."
+Huống chi Lâm Quân Bích vốn thân thiết với các kiếm tu nhất mạch Ẩn Quan. Hắn đặc biệt hợp ý với Tào Cổn và Huyền Tham, hai người có tính tình cởi mở.
 
-Lâm Quân Bích hôm nay khẳng định sẽ ở lại hành cung tránh nóng, bằng không thì tòa nhà Kiếm Tiên Tôn Cự Nguyên trong thành kia cũng không có người quen. Còn nữa Tôn Kiếm Tiên hiện giờ đối với kiếm tu trẻ tuổi của vương triều Thiệu Nguyên, ấn tượng cực kém, về sau lại có chuyện biên cảnh, Lâm Quân Bích không đi tự tìm mất mặt.
+Quách Trúc Tửu vẫn xúi ba người chém đầu gà, đốt giấy vàng, kết nghĩa với nhau. Tiểu cô nương bảo mọi thứ nàng đã lo đâu vào đấy, chỉ còn thiếu ba người dập đầu!
 
-Huống chi tất cả kiếm tu của Lâm Quân Bích và Ẩn Quan nhất mạch đều có quan hệ không tệ, nhất là Tào Cổn, Huyền Tham tính tình cởi mở, hiện giờ lại có quan hệ tâm đầu ý hợp.
+Khổ Hạ kiếm tiên cáo từ. Trước lúc đi, hắn dặn dò Lâm Quân Bích một phen, bảo chuyến về này phải cẩn thận hơn.
 
-Quách Trúc Tửu vẫn luôn giật dây ba người bọn họ trảm đầu gà đốt giấy vàng, tiểu cô nương nói nàng đã chuẩn bị tốt tất cả vật phẩm, mọi sự đã sẵn sàng, chỉ thiếu ba người dập đầu!
+Khổ Hạ chẳng trở thẳng lên đầu tường mà thong thả đi về phía Chủng Du tiên quán. Lão nhân nhìn tòa nhà, gương mặt thoạt đầu khổ sở, rồi ngẩn ngơ một lúc, sau cùng lại mỉm cười.
 
-Khổ Hạ Kiếm Tiên cáo từ rời đi, trước khi đi dặn dò Lâm Quân Bích một phen, lần này đường về phải cẩn thận hơn.
+Lâm Quân Bích quay vào hành cung tránh nóng, đánh tiếp ván cờ chưa phân thắng bại với Bàng Nguyên Tế.
 
-Khổ Hạ kiếm tiên, không có trực tiếp quay về đầu tường, mà là tản bộ đi Chủng Du tiên quán.
+Bàng Nguyên Tế cười hỏi: “Đây có phải ván cuối cùng hai ta đánh với nhau không?”
 
-Lão nhân vẻ mặt khổ sở, nhìn tòa nhà bên kia, sau khi vẻ mặt hoảng hốt, đã có khuôn mặt tươi cười.
+Lâm Quân Bích hỏi: “Vậy để ngươi thắng một lần nhé?”
 
-Lâm Quân Bích trở về hành cung nghỉ mát, cùng Bàng Nguyên Tể tiếp tục ván cờ thắng bại chưa định ra kia.
+Bàng Nguyên Tế nói: “Để Ẩn Quan đại nhân đánh thay ngươi, khỏi phải nhường.”
 
-Bàng Nguyên Tể cười nói: "Có phải là ván cờ cuối cùng chúng ta đánh không?"
+Trần Bình An lồng hai tay trong tay áo, ngồi xem bên cạnh, nghe vậy tức giận nói: “Ta đánh cờ đàng hoàng với người khác, còn chưa thua ván nào.”
 
-Lâm Quân Bích hỏi: "Vậy để ngươi thắng một lần?"
+Bàng Nguyên Tế hỏi: “Ngươi đánh được mấy ván rồi?”
 
-Bàng Nguyên Tể nói: "Để Ẩn Quan đại nhân giúp ngươi đánh cờ, cũng không cần nhường.
+Trần Bình An liếc xéo: “Mắc mớ gì đến ngươi?”
 
-Trần Bình An hai tay lồng trong tay áo ở bên xem cờ, tức giận nói: "Ta chơi cờ đàng hoàng với người ta, còn chưa thua một trận nào."
+Bàng Nguyên Tế nhẹ nhàng bỏ quân cờ trong tay vào hộp: “Cứ để lại vậy.”
 
-Bàng Nguyên Tể hỏi: "Ngươi đánh mấy ván cờ?"
+Mắt Lâm Quân Bích sáng lên: “Được đấy.”
 
-Trần Bình An liếc xéo: "Ngươi quản ta?"
+Trần Bình An cũng khẽ thở ra. Hắn tháo chiếc hồ lô dưỡng kiếm Mễ Hỗ tặng bên hông xuống, xem xét kỹ càng. Tạm thời hắn vẫn là chủ của nó.
 
-Bàng Nguyên Tể nhẹ nhàng thả quân cờ trong tay vào hộp cờ, "Để lại."
+Đáy hồ lô khắc hai chữ “Trụ Cột”.[?]
 
-Lâm Quân Bích ánh mắt sáng lên, "Được đó."
+Chất liệu của hồ lô thì chưa rõ. Mà cái phẩm trật “tạm được” trong miệng một vị đại kiếm tiên, rốt cuộc là được đến mức nào?
 
-Trần Bình An cũng nhẹ nhàng thở ra, tháo xuống hồ lô dưỡng kiếm Mễ Hỗn bên hông đưa tặng, cẩn thận quan sát, tạm thời mình vẫn là chủ nhân của nó.
+Bàng Nguyên Tế quay đầu nói: “Nếu ta nhớ chẳng lầm, năm xưa Mễ Hỗ nhặt được nó trên thi thể một tu sĩ Yêu tộc Nguyên Anh cảnh ngoài chiến trường. Từ lúc có được, hắn chưa từng nhờ ai xem giúp. Phẩm trật thế nào thì khó nói lắm.”
 
-Dưới đáy hồ lô dưỡng kiếm có khắc hai chữ trụ cột.
+Trần Bình An nhìn chằm chằm chiếc hồ lô, chỉ thiếu nước dí mặt vào, thuận miệng đáp: “Đồ tốt đến đâu thì ta chẳng dám nói, nhưng có phải đồ tốt hay không, cầm lên ước lượng một chút là biết. Ngươi chẳng hiểu đâu. Đây là cả một môn học vấn, phải có thiên phú mới được.”
 
-Hồ lô dưỡng kiếm không rõ chất liệu, cũng không biết cái gọi là "Phẩm trật" của một vị đại kiếm tiên là thế nào, là thế nào thì vẫn được.
+Bàng Nguyên Tế chẳng muốn nói tiếp chuyện ấy, bèn hỏi: “Lần trước bị năm người vây giết, ngươi thoát ra bằng cách nào? Đến Sầu Miêu kiếm tiên còn bảo nếu đổi lại là hắn, chưa chắc đã thoát được.”
 
-Bàng Nguyên Tể quay đầu nói: "Nếu ta nhớ không lầm, là Mễ Hỗ năm xưa nhặt được trên thi thể một vị Yêu tộc Nguyên Anh cảnh trên chiến trường. Sau khi Mễ Hỗ đắc thủ, chưa từng có ai hỗ trợ khám nghiệm, phẩm trật thế nào, khó nói lắm."
+Trúc Liễn, Ly Chân, Vũ Tứ, Than, Lưu Bạch.
 
-Trần Bình An nhìn chằm chằm hồ lô dưỡng kiếm trong tay, chỉ thiếu chút nữa dán mặt lên, thuận miệng nói: "Đồ tốt rốt cuộc tốt bao nhiêu, ta không dám nói, nhưng mà không phải đồ tốt, ta cầm vào tay ước lượng một chút liền rõ ràng, ngươi sẽ không hiểu, đây là một môn đại học vấn xem thiên phú."
+Năm thiên tài hàng đầu hợp sức vây giết, trước đó lại có một vị đại yêu Vương Tọa ra tay mở đường.
 
-Bàng Nguyên Tế không muốn nói tiếp, nói sang chuyện khác: "Lúc trước năm người vây giết, ngươi sống như thế nào, Sầu Miêu Kiếm Tiên còn nói chưa chắc mình đã thoát khốn."
+Ở Kiếm Khí Trường Thành, người hiếu kỳ về chuyện ấy đâu chỉ có Bàng Nguyên Tế. Rất nhiều chuyện liên quan tới vị Ẩn Quan trẻ tuổi này, nếu chỉ biết đại khái, cho dù tận mắt trông thấy, tận tai nghe được, cũng chẳng khác gì chưa biết.
 
-Trúc liễn, Ly Chân, Vũ Tứ, Than, Lưu Bạch.
+Chẳng hạn bây giờ mọi người đoán thanh phi kiếm bản mạng của Trần Bình An có thể ngăn ra một tòa tiểu thiên địa. Nhưng tiểu thiên địa cũng có dăm bảy loại, thần thông mỗi loại mỗi khác.
 
-Năm thiên tài đỉnh phong vây giết, còn có một vị Vương Tọa Đại Yêu trước đó làm nền.
+Trần Bình An buộc hồ lô lại bên hông. Đợi Lâm Quân Bích thu quân cờ xong, hắn cất cả bộ cờ vào vật gang tấc.
 
-Cho nên người hiếu kỳ của Kiếm Khí Trường Thành, sẽ không chỉ có Bàng Nguyên Tế một người.
+Trần Bình An chẳng kể rõ đầu đuôi trận đánh, chỉ nói với Bàng Nguyên Tế và Lâm Quân Bích về phi kiếm và thủ đoạn của năm kẻ ấy. Nếu về sau cần kề vai ra khỏi thành chém giết, hắn cũng chẳng ngại nói thêm. Bằng không, nhiều lời chẳng ích gì.
 
-Rất nhiều chuyện liên quan tới Ẩn Quan trẻ tuổi, nếu như chỉ biết đại khái, cho dù tận mắt thấy tận tai nghe thấy, vậy tương đương cái gì cũng không biết.
+Thành thật với người khác đâu có nghĩa là lúc nào cũng móc hết ruột gan ra. Một bên đã móc ra hết, chỉ cần bên kia sơ ý, chẳng đỡ nổi, rốt cuộc hại cả người lẫn mình.
 
-Ví dụ như hôm nay cũng đoán thanh bản mạng phi kiếm kia của Trần Bình An, hẳn là có thể ngăn cách ra một tòa tiểu thiên địa, nhưng mà chỉ là tiểu thiên địa, còn có ba bảy loại, thần thông khác nhau.
+Lâm Quân Bích hỏi: “Nói vậy, nguy hiểm nhất vẫn là phi kiếm bản mạng của Lưu Bạch?”
 
-Trần Bình An thu hồi hồ lô dưỡng kiếm, một lần nữa buộc ở bên hông, sau khi Lâm Quân Bích thu hồi quân cờ, đã bị Trần Bình An thu vào vật gang tấc.
+Trần Bình An gật đầu: “Sau này gặp nàng phải hết sức cẩn thận. Một khi nàng chen chân vào thượng ngũ cảnh, thanh phi kiếm bản mạng kia sẽ dễ lấy mạng người nhất. Thật sự phiền toái.”
 
-Trần Bình An không nói quá trình cụ thể, chỉ nói với Bàng Nguyên Tế cùng Lâm Quân Bích về phi kiếm cùng thủ đoạn của năm người đối phương.
+Nếu trận vây giết kia chỉ so sức chém giết, có thêm mấy Trần Bình An cũng phải bỏ mạng ở đó.
 
-Nếu cần kề vai chiến đấu, ra khỏi thành chém giết, Trần Bình An cũng không ngại cùng hai người nói thêm tin tức, nếu không cần, nhiều lời vô ích.
+Nói đến đây, hắn lại cười: “Nhưng tạm thời chúng ta nhất định chẳng gặp được nàng. Cho nên vụ mua bán ấy, ta chẳng kiếm được gì, song cũng chẳng thiệt quá nhiều.”
 
-Dù sao cũng đã đối xử thẳng thắn với người khác, không phải lúc nào cũng móc hết tim gan ra, một bên đã móc ra, đối phương chỉ cần không cẩn thận một cái liền không đỡ được, hại người hại mình.
+Lâm Quân Bích cảm khái: “Phi kiếm quỷ quyệt như vậy, đây là lần đầu ta nghe nói. Trước kia ta chỉ biết phi kiếm bản mạng của một số kiếm tiên nhỏ bé đến cực điểm[?], cũng chẳng đến nỗi khó lường như thanh kiếm của Lưu Bạch.”
 
-Lâm Quân Bích hỏi: "Nói như thế, vẫn là phi kiếm bản mạng Lưu Bạch kia, hung hiểm nhất?"
+Trần Bình An nói: “Đại thiên thế giới, chuyện lạ nào mà chẳng có.”
 
-Trần Bình An gật đầu nói: "Về sau nếu gặp được người này, nhất định phải cẩn thận nữa, một khi cô tễ thân thượng ngũ cảnh, thanh phi kiếm bản mạng kia sẽ lấy mạng người nhất, thật sự phiền toái."
+Trần Bình An dùng phép súc địa sơn hà, đi thẳng từ hành cung tránh nóng tới hành cung tránh rét.
 
-Nếu như trận vây giết kia thuần túy so đấu lực chém giết lớn nhỏ, mấy Trần Bình An đều để lại ở bên kia.
+Hắn chẳng thấy Bạch ma ma dạy quyền, lại gặp một vị khách không mời. Trông thấy thì bất ngờ, nghĩ lại cũng phải.
 
-Nói tới đây, Trần Bình An cười nói: "Nhưng chúng ta tạm thời nhất định là không gặp được nàng ta. Cho nên vụ mua bán đó, ta không kiếm được gì, nhưng cũng không thiệt thòi quá nhiều."
+Hóa ra Quách Trúc Tửu chẳng chịu ở nhà. Sáng sớm nàng đã đeo hòm trúc chạy tới hành cung tránh rét. Bây giờ ở diễn võ trường, đám trẻ có tư chất tập võ vây quanh nàng thành một vòng, nghe kể trận vây giết kinh tâm động phách kia.
 
-Lâm Quân Bích cảm khái nói: "Phi kiếm cổ quái quỷ quyệt như vậy, đây là lần đầu tiên ta nghe nói, trước kia nhiều nhất cũng chỉ biết bản mạng phi kiếm của một số kiếm tiên, cực kỳ nhỏ bé mà thôi, không khoa trương như phi kiếm màu trắng."
+Quách Trúc Tửu có tận mắt thấy trận chém giết ấy đâu. Trần Bình An trước kia dưỡng thương trong phủ họ Ninh, cũng chưa từng kể với nàng nửa lời. Từ đầu đến cuối đều là nàng nói hươu nói vượn, tự mình bịa ra.
 
-Trần Bình An nói: "Đại thiên thế giới, không thiếu cái lạ."
+Trần Bình An cũng chẳng ngăn, chỉ ngồi trên lan can ngoài hành lang, để mặc đệ tử ở đằng xa làm tiên sinh kể chuyện.
 
-Súc địa sơn hà, Trần Bình An trực tiếp từ hành cung nghỉ mát đi tới hành cung tránh rét.
+Quyền pháp khoan bàn, riêng tài kể chuyện, Quách Trúc Tửu quả đã được chân truyền.
 
-Kết quả không nhìn thấy Bạch ma ma dạy quyền, lại thấy được một khách không mời mà đến, hợp tình hợp lý ngoài dự liệu.
+Quách Trúc Tửu đứng một mình giữa sân, vẻ mặt nghiêm trang:
 
-Hóa ra là Quách Trúc Tửu lưng đeo hòm trúc, không ở nhà đợi, ngược lại sáng sớm đã chạy tới Ẩn Hàn hành cung, giờ phút này đang ở diễn võ trường, cùng với những võ đạo phôi thai vây thành một vòng kia, đang nói cái tràng vây giết kinh tâm động phách kia.
+“Tình thế hiểm nghèo lắm. Năm kiếm tu giết đến đỏ mắt, năm thanh phi kiếm phẩm trật cực cao, ít nhất phải ngang với hai thanh phi kiếm bản mạng của Nguyên Tạo Hóa, cùng lao tới một lượt. Các ngươi sợ không? Đừng nói các ngươi, ta còn sợ!
 
-Quách Trúc Tửu chưa từng thấy trận chém giết đó, Trần Bình An lúc trước luôn dưỡng thương ở Trữ phủ, cũng chưa từng nói với nàng một câu nửa câu, cho nên hoàn toàn là nàng đang nói hươu nói vượn, thuần thuộc về bịa đặt.
+“Nghĩ xem, Ly Chân là đệ tử quan môn của Thác Nguyệt Sơn. Trúc Liễn là khai sơn đại đệ tử của Lưu Xoa. Còn Lưu Bạch là đệ tử đích truyền của lão hồ ly thần thông quảng đại Chu Mật. Ba người này chỗ dựa lớn đến đâu, lai lịch lớn đến đâu? Rồi Vũ Tứ và Than, đã chen chân được vào lều Giáp Thân thì chắc chắn chẳng phải hạng tầm thường. Bằng không, mới tí tuổi đầu mà có thể lọt vào hàng Bách Kiếm Tiên của Man Hoang Thiên Hạ sao?
 
-Nhưng Trần Bình An cũng không ngăn cản, xa xa ngồi ở trên lan can hành lang, để vị đệ tử này làm thuyết thư tiên sinh kia.
+“Thế nhưng cũng chẳng có việc gì, chuyện cỏn con còn chẳng đáng kể. Sư phụ ta gặp nguy chẳng loạn, chỉ vào thế như vầy, khí thế đã đủ dọa người. Các ngươi cũng là người học quyền, hẳn biết mỗi thế quyền của một đại tông sư võ học đều có cái lý của nó…”
 
-Trước không nói quyền pháp, chỉ nói chuyện "Thuyết thư", Quách Trúc Tửu là được chân truyền.
+Trần Bình An thật sự nghe chẳng nổi nữa. Huống chi cái dáng đệ tử mình đang bày ra chẳng có lấy nửa phần phong phạm cao nhân hay khí độ tông sư.
 
-Quách Trúc Tửu một mình một ngựa, vẻ mặt nghiêm túc, "Tình thế hiểm trở, năm kiếm tu giết đỏ cả mắt, năm thanh phi kiếm phẩm cấp cực cao, ít nhất phải có Nguyên Tạo Hóa hai thanh phi kiếm bản mạng cao như vậy, đồng loạt tới, các ngươi có sợ không? Đừng nói các ngươi, ta cũng sợ! Các ngươi nghĩ đi, Ly Chân là đệ tử quan môn của Thác Nguyệt Sơn, Trúc Linh còn là khai sơn đại đệ tử của Lưu Xoa, về phần Lưu Bạch kia, cũng là đích truyền chu đáo chặt chẽ của Thông Thiên lão hồ thông thiên lão cáo., Ba người này có chỗ dựa lớn cỡ nào, lai lịch lớn cỡ nào? Hơn nữa, Vũ Tứ và XHP3DSS, nếu có thể ở lều Giáp Thân, khẳng định cũng không đơn giản, bằng không thì tuổi lớn như rắm, có thể chen thân hàng ngũ Bách Kiếm Tiên của Man Hoang Thiên Hạ? Nhưng không có việc gì, chuyện nhỏ trong mưa bụi cũng không có, sư phụ ta lúc ấy gặp nguy không loạn, chỉ một chút như vậy, khí thế đã rất dọa người, các ngươi cũng coi như là người học quyền, hẳn là biết mỗi một quyền giá của võ học đại tông sư, đều rất có chú ý..."
+Hắn vội đứng dậy, một bước lướt đến diễn võ trường, ho khan một tiếng, nhắc đệ tử đến lúc thu màn rồi.
 
-Trần Bình An là thật sự nghe không nổi nữa, huống chi tư thế đệ tử mình, thật sự là nửa điểm phong phạm cao nhân, khí độ tông sư cũng không có.
+Quách Trúc Tửu quay đầu thấy sư phụ, chỉ sợ sư phụ khiêm nhường quá, chẳng cho mình nói mấy lời công đạo. Nàng cuống lên, vẫn giữ nguyên tư thế, tuôn một hơi mấy trăm chữ kể tiếp trận đánh, nhanh như đổ đậu khỏi ống trúc.
 
-Vội vàng đứng dậy, một bước lướt tới trường diễn võ, ho khan một tiếng, nhắc nhở đệ tử này có thể giúp đỡ, kết thúc công việc.
+Trần Bình An đi tới bên cạnh, đưa tay đè đầu nàng lại.
 
-Quách Trúc Tửu quay đầu nhìn thấy sư phụ, lo lắng sư phụ quá đạo đức tốt, không cho mình nói vài câu công đạo, nàng liền có chút sốt ruột, tư thế không thay đổi, ống trúc đổ đậu, lấy tốc độ cực nhanh nói mấy trăm chữ tình hình chiến đấu tiếp sau tiến triển.
+Quách Trúc Tửu làm ra vẻ dồn khí xuống đan điền: “Chẳng kể nữa, chẳng kể nữa. Dù sao ta cũng chỉ tả được một phần vạn phong thái ra quyền của sư phụ. Tiếc thay!”
 
-Trần Bình An đi đến bên cạnh Quách Trúc Tửu, đưa tay đè lại đầu nàng.
+Đứa nhỏ tên Khương Quân khoanh tay trước ngực: “Trần Bình An, Quách tỷ tỷ bảo ngươi đánh một quyền, rắc một tiếng là hạ kiếm tu tên Lưu Bạch kia. Có thật không? Năm kiếm tu, bốn nam tử, ngươi chẳng đánh chết lấy một tên, sao cứ nhằm nữ tử mà ra tay? Có phải hồng mềm thì dễ bóp không?”
 
-Quách Trúc Tửu làm tư thế dồn khí đan điền, "Không nói không nói, dù sao ta cũng chỉ có thể nói ra phong thái sư phụ ra quyền một phần vạn, tiếc thay."
+Nói tới đây, Khương Quân cười hắc hắc, nhướng mày: “Đã bóp hồng mềm, vậy quyền ấy đánh vào đâu? Nghe nói chiến trường lúc ấy rất cổ quái, người ngoài chẳng nhìn rõ, cứ như có tấm chăn trùm lên. Ai mà biết trong chăn có những ai…”
 
-Đứa nhỏ tên Khương Quân kia hai tay ôm ngực, "Trần Bình An, Quách tỷ tỷ nói ngươi một quyền liền rắc rắc kiếm tu tên Lưu Bạch kia, có phải thật vậy hay không? Ngươi làm sao vậy, đối phương năm kiếm tu, bốn nam, ngươi không đi một quyền đánh giết, kết quả chuyên chọn nữ tử xuống tay, ngươi có phải nhặt quả hồng mềm hay không?"
+Quách Trúc Tửu lắc đầu, nhìn hắn bằng ánh mắt thương hại: “Khương Quân, hai ta coi như kết thù rồi.”
 
-Nói tới đây, Khương Quân cười hắc hắc, nhướng mày một cái: "Niết hồng mềm, vậy một quyền kia đánh về hướng nào? Ta nghe nói, lúc ấy chiến trường, vô cùng cổ quái, nhìn không rõ ràng, giống như đắp chăn, người ngoài nhìn không ra nằm trong chăn ai..."
+Khương Quân vốn chẳng sợ trời chẳng sợ đất, bấy giờ cũng cuống lên: “Quách tỷ tỷ, đừng mà. Hai ta là tỷ đệ kết nghĩa kim lan, đừng vì một người ngoài mà mất hòa khí. Có mất hòa khí thì về sau tỷ cũng đừng ra ngoài cửa sổ nhà đệ khua chiêng gõ trống nhé…”
 
-Quách Trúc Tửu lắc đầu, ánh mắt thương hại: "Khương Quân, thù của hai ta xem như đã kết rồi."
+Trần Bình An cười nói: “Được rồi, bắt đầu luyện quyền. Quách Trúc Tửu đứng một bên nhìn.”
 
-Khương Quân không sợ trời không sợ đất có chút tức giận, "Quách tỷ tỷ, đừng mà, chúng ta là tỷ đệ tốt kết nghĩa kim lan, đừng vì một người ngoài mà tổn thương hòa khí, cho dù tổn thương hòa khí, sau này tỷ cũng tuyệt đối đừng đi ngoài cửa sổ khua chiêng gõ trống nha..."
+Quách Trúc Tửu vâng lời sư phụ, đi sang một bên đứng.
 
-Trần Bình An cười nói: "Được rồi, bắt đầu luyện quyền. Quách Trúc Tửu ở một bên nhìn."
+Trần Bình An thường đến đây luyện quyền với bọn trẻ một canh giờ. Hắn bảo chúng cứ việc ra quyền nhắm vào mình, chẳng cần câu nệ chiêu thức. Đó là cách hắn cho quyền.
 
-Quách Trúc Tửu cẩn tuân sư mệnh, đi qua một bên đứng.
+Khương Quân liếc vị Ẩn Quan đại nhân: “Ta thấy ngươi bị thương chẳng nhẹ, chỉ sợ một quyền của ta đã đánh ngã ngươi. Liệu sức mình đấy, chớ cậy mạnh. Mấy ngày chẳng gặp ta, chắc ngươi chưa biết, quyền pháp của ta nay đã đại thành. Ra quyền mà chẳng biết nặng nhẹ, một đấm là trời long đất lở.”
 
-Trần Bình An thường xuyên sẽ đến bên này, giúp đỡ những đứa nhỏ này luyện quyền một canh giờ.
+Trần Bình An nhìn đứa nhỏ có tư chất luyện võ tốt nhất ở đây. Còn tài ăn nói của nó thì quả là trời sinh.
 
-Cái gọi là cho nắm đấm, chính là để bọn nhỏ chỉ để ý ra quyền đối với hắn, không cần chú ý bất kỳ quyền chiêu nào.
+Khương Quân lập tức lùi mấy bước, bày thế nghênh địch. Hắn đạp chân, lùi một bước rồi lại tiến một bước, nhảy vọt lên, xông thẳng tới trước mặt vị Ẩn Quan trẻ tuổi mà đấm.
 
-Khương Quân liếc Ẩn Quan Đại Nhân: "Nhìn ngươi bị thương không nhẹ, ta sợ một quyền của ngươi đánh ngã ngươi. Ngươi có thể kiềm chế một chút, đừng cậy mạnh. Ngươi mấy ngày không gặp ta, không biết đi, bây giờ quyền pháp của ta đại thành, ra quyền không nặng nhẹ, một quyền đánh xuống, trời long đất lở."
+Trần Bình An chắp một tay sau lưng, nghiêng đầu tránh, tay kia đè lên đầu Khương Quân, khẽ đẩy một cái. Đứa nhỏ đập mạnh xuống đất, lăn mấy vòng rồi lại đứng dậy.
 
-Trần Bình An nhìn đứa nhỏ có tư chất tập võ tốt nhất, khẩu thức càng là thiên phú dị bẩm này.
+Khương Quân vừa ra quyền, tiểu cô nương giả trai tên Nguyên Tạo Hóa lập tức áp sát từ sau lưng Trần Bình An, quét tới một cước. Hắn nghiêng mình, thúc khuỷu tay xuống, quật nàng ngã. Hắn bồi thêm một cước vào đầu, tiểu cô nương lập tức trượt ra xa.
 
-Khương Quân lập tức lùi lại mấy bước, kéo ra giàn giáo quyền nghênh địch, đạp chân một cái, lui một bước lại tiến một bước, nhảy lên thật cao, đi thẳng tới trước người Ẩn Quan trẻ tuổi, chính là một quyền.
+Lúc cho quyền, Trần Bình An dĩ nhiên phải ép cảnh giới xuống. Tới nay hắn vẫn chưa hề thất thủ. Theo ước định, bao giờ đánh trúng Trần Bình An được một quyền, bọn nhỏ mới coi như xuất sư, có thể về nhà một chuyến.
 
-Trần Bình An một tay chắp sau lưng, nghiêng đầu, một tay đè đầu Khương Quân, nhẹ nhàng đẩy, người sau nặng nề nện xuống đất, lăn lộn vài cái đứng dậy.
+Một đứa bị Trần Bình An đặt tay lên vai, khẽ đẩy một cái, va phải đứa nhào tới phía sau. Cả hai cùng bay ngược ra ngoài.
 
-Sau khi Khương Quân ra quyền trước, tiểu tử giả tên là Nguyên Tạo Hóa kia theo sát phía sau, từ phía sau Ẩn Quan trẻ tuổi, một chân quét tới, Trần Bình An nghiêng người, cùi chỏ nện xuống, trực tiếp ném tiểu cô nương xuống đất, lại một cước đá vào trên đầu nàng, cả người tiểu cô nương nháy mắt trượt ra ngoài.
+Một đứa khác vừa áp sát đã bị hắn dùng năm ngón tay chụp lấy mặt. Trần Bình An xoay cổ tay, hai chân đứa nhỏ lập tức rời đất, cả người văng ra xa.
 
-Trần Bình An cho quyền, tự nhiên cần áp cảnh, cũng chưa từng thất thủ.
+“Hình theo ý, khí xuống đan điền, ý thấu toàn thân. Võ phu chúng ta đứng giữa trời đất, ra quyền nhanh như phi kiếm, quyền ý chẳng thua kiếm tiên.”
 
-Dựa theo ước định, khi nào Trần Bình An bị trúng một quyền, cho dù những đứa nhỏ này xuất sư, có thể đều tự về nhà một chuyến.
+Trần Bình An vẫn chậm rãi bước đi, nhàn nhã như đang dạo chơi. Hắn đấm vào cổ một đứa nhỏ, đánh cho đầu nó ngoẹo sang bên, rồi xòe nắm tay, úp lòng bàn tay xuống, lấy mu bàn tay vỗ vào vai. Đứa nhỏ loạng choạng ngã xuống.
 
-Có đứa nhỏ bị Trần Bình An đè bả vai, nhẹ nhàng đẩy, đánh vào trên thân kẻ đến sau, hai người cùng nhau bay ngược ra ngoài.
+Hắn khẽ nhấc chân, dưới đế giày vải lộ ra từng tấc kình mang theo quyền ý. Đứa nhỏ hoảng hốt vẫn cố đấm chệch một quyền, bị hắn đá bay. Cước ấy cũng chặn đường ra quyền của một đứa khác. Đứa này đặt hai chân thành một đường, đấm thẳng tới.
 
-Một đứa nhỏ cận thân Trần Bình An bị năm ngón tay bắt lấy khuôn mặt, cổ tay vặn một cái, lập tức hai chân lơ lửng, bị đánh bay ra ngoài.
+“Kình cương mãnh liệt, chẳng có gì cứng đến mức không phá nổi, thì phải nghĩ cách thu quyền. Quyền ý đã vận dụng tinh tế như mũi kim, thì phải nghĩ cách tiến quyền.”[?]
 
-"Hình tùy ý đi, khí đi đan điền, ý quán quán toàn thân, võ phu chúng ta, trong thiên địa, quyền xuất nhanh như phi kiếm, quyền ý không thua kiếm tiên."
+Trần Bình An dịch bước, nghiêng người đấm vào gáy đứa nhỏ kia. Nó ngã nhào, đập mặt xuống sân, máu mũi chảy ròng ròng.
 
-Trần Bình An chậm rãi mà đi, nhàn nhã dạo chơi, một quyền đánh vào trên cổ một đứa nhỏ, đánh cho đối phương nghiêng đầu một cái, Trần Bình An biến quyền thành chưởng, lòng bàn tay hướng xuống, mu bàn tay vỗ vào đầu vai đứa nhỏ kia, người sau lảo đảo ngã xuống đất, nhẹ nhàng nhấc chân, quyền ý từng tấc kình từ dưới giày vải lộ ra, trong lúc hoảng loạn vẫn đánh ra một quyền nghiêng lệch đứa nhỏ, một cước đá bay, đồng thời ngăn trở đứa trẻ khác ra quyền, người sau hai chân một đường, đấm thẳng tới.
+Một đứa đổi hướng mấy lần, hai khuỷu tay chồng lên phía trước, hai bàn tay xoay chuyển cực nhanh, phối hợp với sáu bước tẩu thung. Nó áp sát Trần Bình An rất nhanh, quyền pháp đã có chút khí thế.
 
-"Cương kình mãnh liệt, vô kiên bất tồi, muốn tư quyền đình. Quyền ý hóa dụng, tinh mịn như châm, đương tư quyền tiến."
+Trần Bình An vẫn lấy khuỷu đỡ khuỷu, lấy chưởng đối chưởng, phá liên tiếp mấy chiêu nhanh đến hoa mắt, vừa vặn đẩy đứa nhỏ về chỗ cũ.
 
-Trần Bình An dịch bước nghiêng người, một quyền đánh vào ót đứa nhỏ kia, đứa nhỏ trực tiếp ngã nhào xuống đất, nện ở trên mặt đất diễn võ trường, máu mũi chảy ròng ròng.
+Khương Quân lén đá Trần Bình An một cước, nào ngờ đã bị hắn đá vào ngực trước. Nằm dưới đất, Khương Quân vừa định mắng Trần Bình An ỷ mình cao lớn, chợt nhận ra vị Ẩn Quan trẻ tuổi ấy vừa tung cước về phía sau.[?] Hắn lau máu ở khóe miệng, vỗ tay xuống đất, lộn một vòng đứng dậy.
 
-Một đứa nhỏ vài lần chuyển đổi quỹ tích, khuỷu tay trước chồng lên nhau, bàn tay xoay chuyển cực nhanh, phối hợp lục bộ tẩu thung, Trần Bình An áp sát cực nhanh, quyền pháp đã có chút khí thế.
+Bọn trẻ áp sát ra quyền đều bị Trần Bình An tiện tay đánh lui. Một đứa trúng cùi chỏ vào ngực, lăn lộn trên đất. Một đứa bị hắn dùng vai húc bay, lúc đứng lên thấy hơn nửa người như rã ra, vậy mà vẫn cắn răng gượng dậy.
 
-Vẫn là bị Trần Bình An lấy khuỷu tay đấu khuỷu tay, lấy chưởng đối chưởng, liên tiếp phá chiêu hoa cả mắt, vừa vặn đẩy đứa nhỏ về chỗ cũ.
+Theo lẽ thường, bị thương rồi, quyền sẽ chậm đi một chút. Nhưng tất cả bọn trẻ học quyền ở đây, kể cả Khương Quân, đều nhớ lời vị Ẩn Quan trẻ tuổi. Võ phu bị thương chút ít mà quyền ý cũng tổn hại thì chẳng khác nào tự tìm chết. Bị thương mà vẫn ra quyền nhanh hơn, bấy giờ mới xem như bước qua ngưỡng cửa của võ phu.
 
-Khương Quân lén lút một cước đá về phía Trần Bình An, kết quả bị Trần Bình An dẫn trước một cước đá vào ngực, sau khi nằm trên mặt đất, Khương Quân đang muốn mắng to Trần Bình An vóc dáng chiếm tiện nghi cao, nào ngờ nhìn thấy ẩn quan trẻ tuổi kia là một cước sau người chổng ra, Khương Quân lau vết máu khóe miệng, một chưởng vỗ xuống đất, lộn một vòng đứng dậy.
+Nguyên Tạo Hóa tung cước nhanh như tên bắn.
 
-Toàn bộ đứa nhỏ ra quyền cận thân đều bị Trần Bình An tùy ý đánh lui, một đứa bị Trần Bình An dùng khuỷu tay trái tim đánh cho lăn lộn khắp mặt đất, một đứa bị Trần Bình An lấy vai đánh bay, lúc đứng dậy chỉ cảm thấy hơn phân nửa thân thể đều tan rã, vẫn cắn răng đứng dậy, bình thường mà nói, ra quyền khó tránh khỏi chậm hơn một đường, nhưng mà không riêng gì bọn họ, toàn bộ đứa nhỏ tập võ ở đây, tính cả Khương Quân ở trong, đều nhớ kỹ một cách nói của ẩn quan trẻ tuổi, thể phách võ phu bị thương chút, sẽ bị thương tới quyền ý của bản thân, đó chính là tự mình cầu chết, có thể bị thương ra quyền nhanh hơn, mới là võ phu nhập môn.
+Có đứa vung mạnh cánh tay, một mình nổi giận tung quyền. Cũng có mấy đứa quen nhau hợp sức, chỉ mong một người đánh trúng Trần Bình An lấy một quyền.
 
-Nguyên Tạo hóa chân như mũi tên.
+Đứa nào áp sát rồi bị đánh lui thì thương thế chẳng nặng, song tuyệt đối chẳng dễ chịu.
 
-Có đứa bé vung mạnh cánh tay, một thân một mình, giận dữ ra quyền.
+Trần Bình An vẫn chậm rãi bước đi: “Quyền ý mà chẳng sống, dù lúc ra quyền các ngươi có quên sống chết, cũng vẫn là chết.”
 
-Cũng có mấy đứa nhỏ quen biết, phối hợp lẫn nhau, chỉ cầu có người một quyền rơi ở trên người Trần Bình An.
+Hắn hơi chùng hai gối. Một đứa nhỏ vừa nhảy vọt lên thì hai tay hắn đã dừng dưới cằm nó. Hắn khẽ nâng, đứa bé bay ngược ra xa hơn mười trượng.
 
-Một đứa bé bị đánh lui gần người, bị thương cũng không nặng, nhưng tuyệt đối sẽ không dễ chịu.
+“Quyền khởi từ chỗ thấp. Quyền chiêu cước pháp có hay đến mấy, đứng còn chẳng vững thì nói gì đến rời mặt đất.”
 
-Trần Bình An thủy chung chậm rãi mà đi, "Chỉ cần quyền ý không sống, cho dù các ngươi ở trong quyền pháp có thể quên sinh tử, vẫn là chết."
+Sau một nén nhang, phần lớn bọn trẻ đều nằm dưới đất. Chỉ vài đứa còn ngồi được, chẳng đứa nào đứng nổi.
 
-Trần Bình An hai đầu gối khẽ khụy xuống, hai tay chợt dừng ở một cái cằm đứa nhỏ nhảy lên thật cao, nhẹ nhàng nâng lên, người sau trực tiếp bay ngược ra ngoài hơn mười trượng, "Quyền từ chỗ thấp lên, quyền chiêu cước pháp tốt nữa, đứng cũng không vững, nói gì đến cách mặt đất."
+Trần Bình An đứng tại chỗ, nói: “Tiếp tục. Quyền cước có thể chậm, quyền ý phải nặng hơn. Bằng không ta sẽ chẳng khách khí.”
 
-Sau một nén nhang, đại đa số hài tử đều nằm trên mặt đất, chỉ có số rất ít người có thể ngồi dưới đất, đứng, một người cũng không có.
+Bọn trẻ gần như cùng lúc lảo đảo đứng dậy.
 
-Trần Bình An đứng tại chỗ, nói: "Tiếp tục. Quyền cước có thể chậm, ý phải nặng hơn. Bằng không ta sẽ không khách khí."
+Bên kia hành lang, A Lương và lão ẩu Bạch ma ma, một người ngồi, một người đứng xem Trần Bình An dạy quyền.
 
-Bọn nhỏ gần như đồng thời lắc lư đứng dậy.
+A Lương khẽ cười: “Đánh quyền có thực chất thì chẳng khó. Có thực chất mà còn đẹp mắt mới khó. Sau này nếu hắn về Hạo Nhiên Thiên Hạ, hễ ra quyền là trăm hoa đua nở khắp nơi.”
 
-Bên kia hành lang, A Lương cùng lão ẩu ngồi một ngồi một lập quan sát Trần Bình An dạy quyền.
+Lão ẩu mỉm cười nói: “Quyền pháp của cô gia quả thật xuất sắc. Quyền đánh đẹp, tướng mạo cũng đẹp, hai thứ càng tôn nhau lên. Có cô nương đem lòng thích cũng thường thôi. Dù sao cô gia chẳng để tâm tới chuyện ấy, tính tình như vậy càng khiến người ta yên lòng.”
 
-A Lương nhẹ nhàng cười nói: "Quyền pháp thật sự, không khó, thật sự lại đẹp mắt, sẽ rất khó, về sau nếu đến Hạo Nhiên Thiên Hạ, một khi ra quyền, vậy khắp nơi là trăm hoa đua nở."
+A Lương cười hỏi: “Tiểu tử này chẳng có lấy một khuyết điểm sao?”
 
-Lão ẩu mỉm cười nói: "Quyền pháp của cô gia, quả thật rất xuất sắc. Cô gia ra quyền cùng tướng mạo của cô gia, hợp nhau lại càng tăng thêm sức mạnh. Chọc cho cô nương thích, cũng là bình thường, dù sao cô gia sẽ không quan tâm, tính tình cô gia, càng làm cho người ta yên tâm.
+Lão ẩu nghĩ một lát rồi lắc đầu.
 
-A Lương cười nói: "Tiểu tử này không có chút khuyết điểm?"
+A Lương nhìn bọn trẻ, cảm khái: “Gánh nặng trên vai, chẳng qua là vất vả đôi chút. Gánh nặng trong lòng, biết đến bao giờ mới hết?”
 
-Bà lão suy nghĩ một chút, lắc đầu.
+Lão ẩu nghe rất phải, bèn nhẹ giọng nói: “Cô gia chỉ có mỗi chỗ ấy là chẳng được tốt lắm.”
 
-A Lương nhìn những đứa nhỏ đó, cảm khái nói: "Gánh nặng đầu vai, vất vả mà thôi. Gánh nặng trong lòng, cái gì là tận cùng?"
+Qua thêm một nén nhang, lần này cả bọn đều nằm dưới đất.
 
-Lão ẩu rất tán thành, nhẹ giọng nói: "Cô gia chỉ có điểm này không tốt lắm.
+Một đứa tinh mắt đang nằm sấp, vừa hay trông thấy A Lương ngoài hành lang. Nó đoán được người kia là ai, chẳng mấy chốc đám trẻ đã vừa nhăn nhó vì đau vừa xì xào với nhau.
 
-Lại một nén nhang sau, lần này toàn bộ bọn nhỏ nằm trên mặt đất.
+Trần Bình An quay đầu cười hỏi: “A Lương, hay tiếp theo ngươi dạy quyền đi?”
 
-Có đứa nhỏ mắt sắc nằm úp sấp ở trên mặt đất, vừa vặn liếc thấy A Lương bên kia hành lang, đoán được thân phận đối phương, rất nhanh liền bắt đầu nhe răng nhếch miệng xì xào bàn tán.
+A Lương đang nóng lòng muốn thử.
 
-Trần Bình An quay đầu cười nói: "A Lương, kế tiếp ngươi tới dạy quyền đi?"
+Quyền pháp của ta cũng khá lắm chứ.
 
-A Lương nóng lòng muốn thử.
+Hắn chống một tay lên lan can, nhẹ nhàng vọt qua, đặt chân đứng vững. Hắn hít sâu một hơi, lắc hai vai, hô một tiếng rồi thẳng đường tiến tới. Từ hành lang ra tới diễn võ trường, hắn đánh một bài quyền tự thấy trôi chảy như nước chảy mây trôi, tiện thể khoe cả cước pháp.
 
-Quyền pháp của ta vẫn rất được.
+Khương Quân nhảy bật dậy, vẻ mặt hiếm khi nghiêm túc: “Trần Bình An, chúng ta tập tiếp đi. Ngươi dạy quyền là được rồi.”
 
-Một tay chống ở trên lan can, phiêu nhiên đứng vững, hít sâu một hơi, hai vai nhoáng lên một cái, hô quát một tiếng, sau đó thẳng tắp hướng về phía trước, ở hành lang cùng diễn võ trường đánh một trận quyền pháp tự nhận là nước chảy mây trôi, cước pháp cũng thuận tiện khoe khoang.
+Bọn trẻ còn lại cùng gật đầu.
 
-Khương Quân nhảy nhót đứng dậy, vẻ mặt hiếm thấy nghiêm túc, nói: "Trần Bình An, chúng ta tiếp tục, ngươi tới dạy quyền là được."
+A Lương đứng tại chỗ, xoa cằm. Lạ thật.
 
-Những đứa trẻ khác cũng đều gật đầu.
+Quyền pháp của ta vừa đẹp vừa chắc, Đạo Lão Nhị từng chịu khổ vì nó đấy.
 
-A Lương đứng tại chỗ, xoa cằm, không nên nha.
+Quách Trúc Tửu nhẹ giọng an ủi: “A Lương tiền bối, kiếm pháp của người đã cao như vậy rồi. Quyền pháp thua sư phụ ta, có gì mà phải xấu hổ.”
 
-Quyền pháp này của ta, vừa đẹp vừa rắn chắc, Đạo Lão Nhị cũng từng chịu đau khổ lớn.
+A Lương hỏi: “Các ngươi nhìn ra quyền pháp của ta chẳng cao?”
 
-Quách Trúc Tửu nhẹ giọng an ủi: "A Lương tiền bối ngươi dù sao kiếm pháp cao như vậy, quyền pháp không bằng sư phụ ta, không cần xấu hổ."
+Quách Trúc Tửu lắc đầu quầy quậy.
 
-A Lương hỏi: "Các ngươi là nhìn ra quyền pháp của ta không cao?"
+A Lương lại dò hỏi: “Hay là ta đánh chẳng đẹp?”
 
-Quách Trúc Tửu ra sức lắc đầu như trống bỏi.
+Quách Trúc Tửu than một tiếng: “A Lương tiền bối muốn nghe lời thật hay lời dối?”
 
-A Lương lại thử hỏi: "Là đánh không đẹp?"
+A Lương đáp: “Lời dối!”
 
-Quách Trúc Tửu ca thán một tiếng, "A Lương tiền bối, là muốn nghe lời nói thật hay là lời nói dối?"
+Quách Trúc Tửu lập tức phấn chấn hẳn lên. Nói chuyện với A Lương tiền bối như thế này mới dễ, vừa chẳng mất lòng, vừa đỡ phải ăn đòn của sư phụ. Nàng giơ cả hai ngón tay cái, lớn tiếng khen: “Quyền pháp của tiền bối thật khó lường, khó lường lắm! Đẹp y như tiền bối vậy!”
 
-A Lương nói: "Nói dối!"
+A Lương chẳng để bụng. Lời hay nghe vẫn thích, hắn cười hỏi: “Trúc Tửu này, có muốn học kiếm pháp không? A Lương thúc thúc chẳng khoác lác đâu. Quyền pháp có lẽ chẳng đẹp bằng sư phụ ngươi, nhưng kiếm thuật ấy à, chậc chậc.”
 
-Quách Trúc Tửu lập tức thần thái phấn chấn, A Lương tiền bối nói chuyện phiếm như vậy là được rồi, còn không tổn thương cảm tình, không cần chịu đòn của sư phụ, cho nên hai tay đều dựng thẳng ngón tay cái, lớn tiếng khen ngợi: "Quyền pháp của tiền bối, thật khó lường, khó lường nha, đẹp mặt như tiền bối vậy!"
+Quách Trúc Tửu lắc đầu: “Không học.”
 
-A Lương căn bản không thèm để ý, lời dễ nghe, liền cười hỏi: "Trúc Tửu à, có muốn học kiếm pháp hay không? A Lương thúc thúc không phải khoác lác, quyền pháp có lẽ không đẹp bằng sư phụ ngươi, nhưng kiếm thuật này, chậc chậc."
+A Lương hỏi: “Vì sao?”
 
-Quách Trúc Tửu lắc đầu nói: "Không học."
+Tiểu cô nương giậm chân tại chỗ, nhún vai một cái, chiếc hòm trúc nhỏ trên lưng cũng nảy lên.
 
-A Lương hỏi: "Vì sao?"
-
-Tiểu cô nương ở tại chỗ dậm chân, đầu vai nhoáng lên một cái, hòm trúc nhỏ đảo lộn, "Sư phụ của ta, chỉ có một a."
+“Sư phụ của ta chỉ có một thôi.”

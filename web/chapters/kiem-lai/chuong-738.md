@@ -1,155 +1,175 @@
-# Chương 738: Thừa nhận tên thật
+# Chương 738: Gánh tên thật
 
-Đảo Huyền sơn, lúc trước cả tòa hoa viên mai hư không tiêu thất, thành một chuyện thần tiên kể chuyện say sưa, sau đó ngày nào đó Viên Nhựu Phủ bên kia có một nhóm lớn kiếm tu, hai vị kiếm tiên lĩnh hàm, một người là Tôn Cự Nguyên giao hữu rộng khắp, cùng với Mễ Hỗ nghe nói đã tễ thân Tiên Nhân Cảnh, lúc đến đi bộ, lúc đi xa ngựa phù thuyền liên miên, trên trời dưới đất đều rất náo nhiệt, chỉ là kiếm tu bày ra trận trượng như vậy, người Đảo Huyền sơn sinh trưởng ở địa phương, đều làm bộ không biết, người ngoại hương đi xa, cũng không dám tới gần quan sát.
+Ở Đảo Huyền sơn, chuyện cả tòa Mai Hoa viên đột nhiên biến mất từng khiến các vị thần tiên bàn tán say sưa. Rồi một hôm, một đoàn kiếm tu kéo đến Viên Nhựu phủ. Dẫn đầu là hai vị kiếm tiên, một người là Tôn Cự Nguyên có bằng hữu khắp nơi, người kia là Mễ Hỗ, nghe nói đã bước vào Tiên Nhân cảnh.
 
-Nếu là cùng Kiếm Khí Trường Thành cách thiên sơn vạn thủy, vị kiếm tiên nào không dám mắng?
+Lúc đến, bọn họ đều đi bộ. Lúc rời đi, xe ngựa dưới đất nối đuôi nhau, phù thuyền trên trời cũng không dứt. Trận trượng lớn như vậy mà dân Đảo Huyền sơn ai nấy đều làm như chẳng hay biết. Khách phương xa cũng không dám lại gần xem.
 
-Nhưng một khi gần kiếm tu trong gang tấc, còn có thể thế nào, chỉ có im lặng.
+Cách Kiếm Khí Trường Thành muôn trùng sơn thủy, có vị kiếm tiên nào mà người ta không dám mắng? Nhưng khi kiếm tu ở ngay trước mặt, còn làm được gì ngoài ngậm miệng?
 
-Chỉ có một vị tiên sư gia phả đi xa đến tận đây không tin tà, vụng trộm thi triển thần thông chưởng quan sơn hà, chỉ thấy được một cảnh tượng dọa người trong Viên Nhựu Phủ, đình đài lầu các bị hủy đi làn nhão nhoẹt, vị lão tu sĩ Nguyên Anh Ngai châu này biết không ổn, vừa muốn thu hồi bàn tay thần thông, trong màn đêm một đạo kiếm quang lấp lánh theo đuôi mà tới, đâm xuyên bàn tay lão tu sĩ ngay tại chỗ, kiếm quang lại chợt lóe, từ bên má bên trái đâm thủng, từ bên phải lướt ra, kiếm quang chợt lóe rồi biến mất, phi kiếm đã quay về Viên Nhựu Phủ.
+Chỉ có một vị tiên sư gia phả từ xa tới không tin chuyện ấy, lén thi triển thần thông chưởng quan sơn hà. Vừa nhìn vào Viên Nhựu phủ, lão đã thấy đình đài lầu các bị phá tan hoang. Vị lão tu sĩ Nguyên Anh của Ngai Ngai châu biết có chuyện chẳng lành, toan thu tay. Một đạo kiếm quang từ trong đêm đuổi theo, đâm xuyên bàn tay lão. Kiếm quang lại lóe lên, xuyên vào má trái rồi thoát ra bên má phải. Chớp mắt, phi kiếm đã trở về Viên Nhựu phủ.
 
-Lão tu sĩ ăn đau không ngớt liền hiểu, mắt không thể nhìn, miệng không thể nói.
+Đau đến xuýt xoa, lão tu sĩ lập tức hiểu ra. Mắt không được nhìn, miệng không được nói.
 
-Chỉ là ăn một cái thiệt thòi lớn như vậy, trong lòng khó tránh khỏi oán hận hành vi ương ngạnh của vị kiếm tiên kia, ở quê hương kia, đường đường Nguyên Anh, làm sao lại chịu nhục đến tận đây?!
+Chịu thiệt lớn như vậy, trong lòng lão khó tránh khỏi oán vị kiếm tiên kia ngang ngược. Ở quê nhà, một tu sĩ Nguyên Anh đường đường như lão đã bao giờ phải chịu nhục đến thế?
 
-Kiếm tu dời trống Viên Nhựu Phủ Ngai Ngai thị thị, đêm đó đã quay về Kiếm Khí Trường Thành. Mà ảo ảnh Kiếm Khí Trường Thành thương mậu phồn hoa, trong mấy tháng này, cũng ngày càng tiêu điều, hàng hóa cửa hàng không ngừng dời đi, lục tục dời hướng Đảo Huyền sơn, nếu là ở chỗ dừng chân không có tổ truyền của Đảo Huyền sơn, cũng chỉ có thể quay về các châu tông môn của Hạo Nhiên Thiên Hạ, dù sao Đảo Huyền sơn tấc đất tấc vàng, hơn nữa hôm nay lấy thành trì Kiếm Khí Trường Thành làm ranh giới, đi về phía nam đều là cấm địa, đã sớm mở ra sơn thủy đại trận., Bị thi triển thủ thuật che mắt, cho nên đầu tường nguy nga kia của Kiếm Khí Trường Thành không còn là nơi hình thắng chi địa có thể du lịch, khiến cho việc làm ăn của Đảo Huyền sơn càng thêm vắng vẻ, hôm nay đi tới đi lui ở độ thuyền giữa Đảo Huyền sơn cùng tám châu chi địa, du khách đã cực kỳ thưa thớt, chở người ít chở hàng nhiều, cho nên rất nhiều độ thuyền vượt châu đi trên nước, ăn nước cực sâu, tỷ như Lão Long thành Quế Hoa Đảo, cửa ra đã hoàn toàn chìm vào trong nước. Mà rất nhiều độ thuyền vượt châu xuyên mây qua mưa, tốc độ cũng chậm đi vài phần.
+Dọn sạch Viên Nhựu phủ của Lưu thị Ngai Ngai châu, đoàn kiếm tu trở về Kiếm Khí Trường Thành ngay trong đêm.
 
-Chiến sự căng thẳng, tình thế hiểm trở, nhất định là Man Hoang thiên hạ lần này công thành, khác với bình thường, Đảo Huyền sơn trong lòng biết rõ ràng. Chỉ là trong lịch sử Kiếm Khí Trường Thành bế quan như thế, không chỉ một hai lần, trái lại cũng không đến mức quá mức lòng người hoảng sợ, từng có rất nhiều kiếm khí Trường Thành vừa bế quan phong cấm, liền bán rẻ khế đất tiên gia giá thấp, gia phả tiên sư cửa hàng dinh thự, sau đó ai cũng đau lòng nhức óc, hối hận xanh ruột.
+Ảo ảnh Kiếm Khí Trường Thành vốn buôn bán nhộn nhịp, mấy tháng qua ngày một tiêu điều. Hàng hóa trong các cửa hiệu lần lượt được chuyển sang Đảo Huyền sơn. Ai không có chỗ đặt chân do tổ tiên để lại trên núi thì chỉ còn cách trở về tông môn ở các châu của Hạo Nhiên thiên hạ. Dù sao ở Đảo Huyền sơn, tấc đất tấc vàng.
 
-Một trong tứ đại tư trạch của Đảo Huyền sơn là Thủy Tinh Cung, người tọa trấn là một nữ tu sĩ Ngọc Phác cảnh, tên là Vân Thiêm, là một trong những tổ sư của Vũ Long tông, một vị đệ tử đích truyền của nàng, phúc duyên thâm hậu, nhìn trúng Dã tu nghèo túng tên là Phó Khác kia, người sau có cơ duyên Ngư Long Biến, phá cảnh cực nhanh, không thể tưởng tượng nổi, trong lịch sử Vũ Long tông anh tài xuất hiện lớp lớp đều được coi là người nổi bật.
+Bây giờ, từ thành trì trở về phía nam đều là cấm địa. Đại trận sơn thủy đã mở từ lâu, lại có thuật che mắt. Đầu tường cao ngất của Kiếm Khí Trường Thành từng là thắng cảnh cho khách dạo chơi, nay không còn đến được nữa. Việc làm ăn ở Đảo Huyền sơn vì thế càng thêm vắng vẻ.
 
-Vân Thiêm suy nghĩ càng xa, trừ tương lai tông môn Vũ Long Tông nhà mình, cũng đang lo lắng chiến sự Kiếm Khí Trường Thành, dù sao Thủy Tinh Cung không giống Xuân Phiên Trai cùng Mai hoa viên, chưa từng luyện hóa, không thể mang theo rời đi, lại càng không phải loại thần tài Ngai Ngai châu Lưu thị, một tòa Viên Nhựu Phủ giá trị liên thành, chỉ là có cũng được mà không có cũng không sao.
+Khách đi trên độ thuyền qua lại giữa Đảo Huyền sơn và tám châu thưa thớt hẳn. Thuyền chở ít người mà chất đầy hàng. Nhiều độ thuyền vượt châu chạy trên mặt nước chìm sâu đến nỗi lối ra của Quế Hoa đảo ở Lão Long thành đã ngập hẳn. Ngay cả những chiếc đi xuyên mây vượt mưa cũng chậm đi mấy phần.
 
-Chỉ là hôm nay Kiếm Khí Trường Thành đề phòng nghiêm ngặt, nhất là Ẩn Quan nhất mạch hôm nay cầm quyền, kiếm tu làm việc kín đáo hơn nữa tàn nhẫn, toàn bộ người tu đạo phá hỏng quy củ, mặc kệ là hữu tâm hay là vô ý, đều có đi không về, từng có mấy người trước sau tìm được Thủy Tinh Cung, đều là người đắc đạo có chút tình hương khói cùng Vũ Long Tông, Nguyên Anh còn có hai vị..., Còn có vị lão Chân Quân Ngọc Phác cảnh Phù Lục phái, đều hy vọng nàng có thể hỗ trợ chắp tay nói chuyện với Thiên Quân Đảo Huyền sơn, hoặc là cầu tình cùng một vị kiếm tiên quen biết nào đó của Kiếm Khí Trường Thành, Thiên Quân đã sớm bế quan, Vân Thiêm thì đi Cô Phong tìm vị lão Chân Quân luyện hóa râu giao long tạo ra tiên binh phất trần kia, chưa từng nghĩ sẽ trực tiếp bị đóng cửa, lại muốn nhờ người đưa tin cho vị kiếm tiên Tôn Cự Nguyên năm xưa quan hệ vẫn không tệ kia, chỉ là lá thư này trâu đất xuống biển, Tôn Cự Nguyên giống như căn bản cũng chưa nhận được mật tín.
+Người ở Đảo Huyền sơn đều hiểu chiến sự đang căng thẳng, lần công thành này của Man Hoang thiên hạ hẳn khác mọi khi. Có điều Kiếm Khí Trường Thành phong cấm như vậy cũng đâu chỉ một hai lần, nên người ta chưa đến nỗi hoảng sợ. Trước kia hễ thành vừa đóng cửa, đã có tiên sư gia phả vội bán rẻ khế đất, cửa hiệu và phủ đệ tiên gia. Về sau ai nấy đều tiếc đứt ruột.
 
-Vân Thiêm đang ở Thủy Tinh Cung, chỉ cảm thấy tâm thần không yên, không thể tĩnh tâm tu hành nữa, liền đi đến tổ sư đường của Vũ Long Tông, triệu tập hội nghị, đề nghị dời tông môn, kết quả bị châm chọc khiêu khích một phen. Vân Thiêm tuy sớm có chuẩn bị, cũng hiểu việc này không dễ, hơn nữa quá mức thiên phương dạ đàm, nhưng nhìn tổ sư đường vừa chuyển lời, liền đi đàm luận rất nhiều người tổ sư đường mua bán nghiệp sinh, Vân Thiêm khó tránh khỏi nản lòng thoái chí.
+Một trong bốn tư trạch lớn của Đảo Huyền sơn là Thủy Tinh cung. Người trấn giữ nơi ấy tên Vân Thiêm, nữ tu sĩ Ngọc Phác cảnh, cũng là một vị tổ sư của Vũ Long tông. Nàng có một đệ tử đích truyền phúc duyên sâu dày, từng nhìn trúng một dã tu nghèo túng tên Phó Khác. Sau khi gặp được cơ duyên Ngư Long Biến, Phó Khác phá cảnh nhanh đến khó tin. Vũ Long tông bao đời anh tài nối tiếp, hắn vẫn được xem là người nổi bật.
 
-Khi kiếm tu rời khỏi Viên Nhựu Phủ, một thanh phi kiếm đưa tin của Xuân Phiên Trai lặng yên đi tới Thủy Tinh Cung.
+Vân Thiêm nghĩ xa hơn. Ngoài chuyện tương lai của Vũ Long tông, nàng còn lo cho chiến sự ở Kiếm Khí Trường Thành. Thủy Tinh cung chưa từng được luyện hóa như Xuân Phiên Trai hay Mai Hoa viên, muốn mang theo cũng không được. Vũ Long tông lại chẳng giàu đến mức coi một tòa phủ giá trị liên thành là thứ có cũng được, bỏ cũng chẳng sao, như Lưu thị Ngai Ngai châu đối với Viên Nhựu phủ.
 
-Sau khi Vân Thiêm mở ra mật thư, trên giấy chỉ có hai chữ.
+Kiếm Khí Trường Thành lúc này đề phòng nghiêm ngặt. Từ khi nhất mạch Ẩn Quan nắm quyền, kiếm tu làm việc càng kín kẽ, ra tay cũng càng quyết liệt. Tu sĩ phạm quy củ, dù vô tình hay cố ý, đều có đi không về.
 
-Bắc Thiên.
+Có mấy vị tu sĩ đắc đạo từng có chút tình hương hỏa với Vũ Long tông lần lượt tìm đến Thủy Tinh cung. Trong đó có hai vị Nguyên Anh, còn có một lão Chân Quân Ngọc Phác cảnh của phái Phù Lục. Họ mong Vân Thiêm giúp nói vài lời với Thiên Quân của Đảo Huyền sơn, hoặc cầu tình với một vị kiếm tiên quen biết ở Kiếm Khí Trường Thành.
 
-Trên thư đã có Cự Nguyên Kiếm Tiên Tôn viết, Vân Thiêm rất quen thuộc đối với điều này.
+Thiên Quân đã bế quan từ lâu. Vân Thiêm lên Cô Phong tìm vị lão Chân Quân dùng râu giao long luyện thành cây phất trần cấp tiên binh kia, nào ngờ bị khước từ ngay ngoài cửa. Nàng lại nhờ người gửi thư cho kiếm tiên Tôn Cự Nguyên, người trước kia vẫn có giao tình với mình. Lá thư chìm như đá xuống biển, Tôn Cự Nguyên tựa hồ chưa từng nhận được mật tín.
 
-Còn có hai ấn văn cổ triện, ẩn quan. Vân Thiêm nghe nói đã lâu, nhưng là lần đầu tiên tận mắt nhìn thấy.
+Ở Thủy Tinh cung, Vân Thiêm lòng dạ chẳng yên, không sao tĩnh tâm tu hành. Nàng trở về tổ sư đường Vũ Long tông, triệu tập mọi người, đề nghị dời tông môn. Đáp lại chỉ là những lời châm chọc.
 
-Ẩn Quan Chỉ Văn ở trên, Kiếm Tiên Họa áp giải tại hạ.
+Vân Thiêm đã lường trước, biết chuyện này khó làm, nghe còn chẳng khác gì chuyện hoang đường. Nhưng nhìn những người trong tổ sư đường vừa gạt lời nàng sang một bên đã quay sang bàn chuyện làm ăn của tông môn, nàng vẫn không khỏi nản lòng.
 
-Rất hợp quy củ.
+Khi đoàn kiếm tu rời Viên Nhựu phủ, một thanh phi kiếm đưa tin từ Xuân Phiên Trai lặng lẽ tới Thủy Tinh cung.
 
-Hẳn không phải là giả tạo.
+Vân Thiêm mở mật thư. Trên giấy chỉ có hai chữ.
 
-Vân Thiêm không dám chậm trễ, lần nữa lặng yên rời khỏi Đảo Huyền sơn, vội vàng trở về Vũ Long Tông, lần này chỉ tìm được tông chủ sư tỷ.
+Bắc thiên.
 
-Nào ngờ sư tỷ tiện tay ném thư đi, cười lạnh nói: "Sao, hủy xong Viên Nhựu Phủ còn chưa đủ, lại hủy Thủy Tinh cung? Ẩn Quan trẻ tuổi, đánh cho thật tốt tính toán. Vân Thiêm, có tin ngươi chỉ cần đi Xuân Phiên Trai, hôm nay thành tâm phúc Ẩn Quan của Thiệu Vân Nham, sẽ cùng ngươi đàm luận chuyện Thủy Tinh Cung thuộc về ai hay không?"
+Nàng rất quen nét chữ của kiếm tiên Tôn Cự Nguyên. Trên thư còn có hai chữ triện cổ “Ẩn Quan”. Nàng nghe nói về dấu ấn ấy đã lâu, đến nay mới tận mắt thấy.
 
-Vân Thiêm nửa tin nửa ngờ, chỉ là không quên khống chế tờ giấy kia, cẩn thận từng li từng tí thu vào trong tay áo.
+Dấu tay Ẩn Quan ở trên, chữ ký của kiếm tiên ở dưới.
 
-Tông chủ thấy động tác này, càng phát hỏa lớn, tăng thêm vài phần ngữ khí, "Hôm nay phần gia nghiệp tổ tông Vũ Long Tông này, đến không dễ, trong đó gian khổ, ngươi ta rõ nhất. Vân Thiêm, chuyện ngươi và ta mở rộng lãnh thổ, quả thực chính là không hề có thành tựu, hiện tại chẳng lẽ ngay cả Thủ Thành cũng không làm được? Quên năm đó ngươi vì sao bị giáng chức đi hướng Thủy Tinh Cung? Ngay cả những cung phụng Nguyên Anh kia cũng dám khoa tay múa chân với ngươi, còn không phải ngươi chọc nhiều người ở Tổ Sư Đường sao, ngay cả Lô Hoa Đảo nho nhỏ kia cũng không ăn được, hôm nay nếu ngay cả Thủy Tinh Cung cũng bị ngươi ném đi, sau đó ngươi nên đối mặt lịch đại tổ sư Vũ Long Tông như thế nào? Biết sau lưng mọi người nói ngươi như thế nào? Nhân hậu như phụ nhân! Một vị tiên sư Ngọc Phác Cảnh, chính ngươi cảm thấy có giống không?"
+Đúng quy củ. Hẳn là thư thật.
 
-Tông chủ không muốn quá mức hạ thấp sư muội này, dù sao Thủy Tinh cung còn cần Vân Thiêm tự mình tọa trấn, Vân Thiêm tử não thật sự sẽ không còn chút ý nghĩa nào, tùy tiện moi móc cái cớ ra biển thăm tiên, hoặc là đi Đồng Diệp Châu du lịch giải sầu, nàng ta là tông chủ cũng không tiện ngăn cản. Vì thế ngữ khí chậm lại, nói: "Cũng đừng quên, vụ mua bán năm đó của chúng ta cùng lão tổ khai sơn thủy quật Phù Dao châu, bên Kiếm Khí Trường Thành là bị ghi nợ cũ. Tân nhiệm Ẩn quan tay nắm đại quyền, một sơn thủy quật to như vậy Phù Diêu châu, hôm nay thế nào rồi? Tổ Sư đường còn đó không? Vân Thiêm, chẳng lẽ ngươi muốn hại Vũ Long tông chúng ta nối gót? Thủ đoạn Ẩn quan này, tàng kim trong miệng lưỡi, không thể khinh thường, đặc biệt am hiểu mượn thế đè người."
+Vân Thiêm không dám chậm trễ. Nàng lại lặng lẽ rời Đảo Huyền sơn, vội trở về Vũ Long tông. Lần này, nàng chỉ tìm tông chủ sư tỷ.
 
-Vân Thiêm nhẹ nhàng gật đầu.
+Nào ngờ sư tỷ tiện tay ném lá thư đi, cười lạnh nói: “Sao, phá xong Viên Nhựu phủ vẫn chưa đủ, còn muốn phá cả Thủy Tinh cung? Vị Ẩn Quan trẻ tuổi ấy tính hay thật. Vân Thiêm, ngươi cứ thử đến Xuân Phiên Trai xem. Thiệu Vân Nham bây giờ là tâm phúc của Ẩn Quan, hẳn sẽ ngồi xuống bàn với ngươi xem Thủy Tinh cung nên thuộc về ai.”
 
-Tông chủ lại tăng thêm ngữ khí, "Vân Thiêm sư muội, ta cuối cùng chỉ nói một lời, Kiếm Khí Trường Thành có thù cũ với Vũ Long Tông ta, Ẩn Quan tân nhiệm kia cùng Vân Thiêm ngươi có nửa điểm tình cũ, dựa vào cái gì mưu đồ đường lui cho Vũ Long Tông ta? Thật sự là gió lớn trăng sáng lấy ơn báo oán?! Vân Thiêm, nói đến đây, ngươi suy nghĩ nhiều!"
+Vân Thiêm nửa tin nửa ngờ. Nàng vẫn giữ lấy tờ giấy, cẩn thận cất vào tay áo.
 
-Vân Thiêm buồn bã rời khỏi Vũ Long tông, trở về Thủy Tinh cung. Kỳ thật lời của tông chủ sư tỷ, Vân Thiêm nghe lọt tai, tiên sư trên núi lừa gạt ta gạt, quả thật khiến lòng người còn sợ hãi. Vân Thiêm trên đường tu hành đã bị hại sâu sắc, đời này từng có ba đại kiếp nạn, trừ một trận thiên tai, còn lại đều là nhân họa, hơn nữa đều là người bên cạnh. Chỉ là nàng vẫn chưa từ bỏ ý định, đi Xuân Phiên Trai một chuyến, kiếm tiên Thiệu Vân Nham kia tựa hồ sớm đã đoán trước, lại đưa cho nàng một phong mật tín, nói là Ẩn Quan đại nhân lật qua hồ sơ Vũ Long Tông, rất là bội phục phụ nhân đã ký tiên sư. Vân Thiêm nhíu mày không thôi, Thiệu Vân Nham cười nói, Ẩn Quan đại nhân cũng không hy vọng xa vời Vân Thiêm tiên sư tin kiến nghị của hắn, chỉ là phiền phức đọc xong mật tín, tiêu hủy ngay tại chỗ, bằng không dễ dàng sinh sự phức tạp, đối với Ẩn Quan với Vân Thiêm tiên sư, đều không phải là chuyện tốt gì.
+Thấy vậy, tông chủ càng nổi giận, nặng giọng nói: “Gia nghiệp Vũ Long tông do tổ tiên để lại, có được hôm nay đâu dễ dàng gì. Trong đó gian khổ thế nào, ngươi và ta rõ nhất. Hai ta chưa mở mang được cơ nghiệp chút nào. Chẳng lẽ bây giờ ngay cả phần có sẵn cũng giữ không nổi? Ngươi quên vì sao năm đó mình bị giáng xuống Thủy Tinh cung rồi sao? Ngay cả mấy cung phụng Nguyên Anh cũng dám chỉ tay năm ngón với ngươi. Chẳng phải vì ngươi đã đắc tội với quá nhiều người ở tổ sư đường đấy ư? Một Lô Hoa đảo nhỏ như vậy cũng không lấy được. Nay nếu lại để mất Thủy Tinh cung, sau này ngươi còn mặt mũi nào gặp các đời tổ sư Vũ Long tông? Có biết sau lưng người ta nói ngươi ra sao không? Lòng dạ đàn bà! Ngươi tự thấy mình có ra dáng một vị tiên sư Ngọc Phác cảnh không?”
 
-Vân Thiêm quay về Thủy Tinh cung, đối với nội dung mật thư tỉ mỉ xác thực, một đêm không ngủ, cuối thư, là tám chữ, "Tông phân nam bắc, sài tại Thanh Sơn."
+Tông chủ cũng chẳng muốn dồn sư muội đến đường cùng. Thủy Tinh cung còn cần Vân Thiêm đích thân trấn giữ. Nếu nàng thật sự nguội lòng, tùy tiện kiếm cớ ra biển thăm tiên hay qua Đồng Diệp châu du ngoạn cho khuây khỏa, thân là tông chủ cũng chẳng tiện ngăn.
 
-Bên Xuân Phiên Trai, sau khi đám mây rời đi, Mễ Dụ và Nạp Lan Thải Hoán đồng thời hiện thân. Mễ Dụ cười hỏi: "Thiệu huynh, ngươi cảm thấy Vân Thiêm sẽ dẫn theo người ta dời về phía bắc sao? Nếu như nàng ta thật sự có khí phách và thủ đoạn này thì có thể cứu được bao nhiêu đệ tử của Vũ Long Tông?"
+Vì thế, nàng dịu giọng: “Ngươi cũng đừng quên vụ làm ăn năm đó giữa chúng ta với khai sơn lão tổ của Sơn Thủy quật ở Phù Diêu châu. Bên Kiếm Khí Trường Thành vẫn còn ghi món nợ cũ ấy. Tân Ẩn Quan nắm đại quyền trong tay. Sơn Thủy quật lớn đến thế, nay ra sao rồi? Tổ sư đường còn đó không? Vân Thiêm, chẳng lẽ ngươi muốn Vũ Long tông giẫm lên vết xe đổ ấy? Vị Ẩn Quan này lời nói giấu đao[?], thủ đoạn chẳng thể xem thường, lại rất giỏi mượn thế ép người.”
 
-Thiệu Vân Nham nói: "Tiên gia chữ Tông, người chia theo nhóm trước nay. Vân Thiêm là người quen buôn bán ở Vũ Long tông, chỉ có cảnh giới tu vi, rất không được lòng người. Cho nên dù nàng chịu chuyển chỗ, cũng không mang đi được bao nhiêu người."
+Vân Thiêm khẽ gật đầu.
 
-Mễ Dụ nói: "Không mang theo Vân Thiêm đâu, vốn không cần mang đi."
+Tông chủ lại nặng giọng: “Vân Thiêm sư muội, ta chỉ nói thêm một câu. Kiếm Khí Trường Thành có thù cũ với Vũ Long tông, tân Ẩn Quan kia với ngươi lại chẳng có nửa điểm tình xưa. Dựa vào đâu mà hắn lại lo đường lui cho tông môn chúng ta? Chẳng lẽ hắn thật sự quang minh lỗi lạc đến mức lấy ơn báo oán? Ta nói đến đây thôi. Ngươi tự nghĩ cho kỹ!”
 
-Nạp Lan Thải Hoán vẻ mặt không vui: "Còn không biết xấu hổ mà nói đến lòng dạ đàn bà của Vân Thiêm. Có tin Vân Thiêm thật sự muốn dời về phía bắc, chia rẽ Vũ Long Tông, sau này tiên sư phía nam chạy trốn sống sót, dung nhập Bắc Tông, ngược lại càng oán hận Kiếm Khí Trường Thành thấy chết mà không cứu, nhất là vị Ẩn Quan Đại Nhân tâm địa Bồ Tát chúng ta, chỉ cần Vân Thiêm không để ý, nói ra nội dung hai phong thư, ngược lại bị ghi hận."
+Vân Thiêm buồn bã rời Vũ Long tông, trở về Thủy Tinh cung. Thật ra nàng vẫn nghe lọt tai lời sư tỷ. Tiên sư trên núi lừa gạt lẫn nhau, quả thật khiến người ta nghĩ lại vẫn sợ. Nàng đã chịu đủ khổ vì chuyện ấy trên đường tu hành. Ba trận đại kiếp trong đời, trừ một trận thiên tai, hai trận còn lại đều do người bên cạnh gây ra.
 
-Thiệu Vân Nham gật đầu: "Cho nên mật tín tiêu hủy Vân Thiêm hẳn đã dự liệu được lòng người khó lường này. Tin rằng Vân Thiêm một lòng tu đạo, chút lợi hại được mất ấy vẫn có thể nghĩ tới."
+Nhưng nàng vẫn chưa từ bỏ ý định, bèn đi một chuyến đến Xuân Phiên Trai. Kiếm tiên Thiệu Vân Nham dường như đã đoán trước nàng sẽ tới. Hắn đưa thêm một phong mật tín, nói Ẩn Quan đại nhân từng xem hồ sơ của Vũ Long tông, rất bội phục vị nữ tiên sư có ký tên trong đó[?].
 
-Mễ Dụ cười nói: "Vân Thiêm không nghĩ ra thì đã sao, Ẩn Quan đại nhân của chúng ta sẽ quan tâm những thứ này sao?"
+Vân Thiêm vẫn nhíu mày. Thiệu Vân Nham cười nói Ẩn Quan đại nhân cũng chẳng mong nàng nhất định phải tin lời khuyên của hắn, chỉ phiền đọc xong thì hủy mật tín ngay. Nếu lá thư sinh thêm chuyện, cả Ẩn Quan lẫn Vân Thiêm đều chẳng được lợi gì.
 
-Thiệu Vân Nham thở dài một tiếng: "E rằng Vũ Long Tông thờ phụng thiên hạ chẳng qua chỉ là một chuyện, không chỉ một vị thượng vị tổ sư đường nổi lên tâm tư thần phò trợ, còn cảm thấy đây vẫn là chuyện buôn bán."
+Về đến Thủy Tinh cung, Vân Thiêm suy xét từng lời trong thư, một đêm không ngủ. Cuối thư có tám chữ: “Tông phân nam bắc, sài tại thanh sơn.”
 
-Nạp Lan Thải Hoán cười lạnh nói: "Không có đầu óc của Ẩn Quan, cũng xứng ở dưới đại thế mà buôn bán bừa bãi?"
+Ở Xuân Phiên Trai, sau khi Vân Thiêm rời đi, Mễ Dụ và Nạp Lan Thải Hoán cùng hiện thân.
 
-Nữ tử tự biết mình lỡ lời, khoan thai rời đi, tiếp tục tính sổ.
+Mễ Dụ cười hỏi: “Thiệu huynh, ngươi nghĩ Vân Thiêm sẽ dẫn người dời lên phía bắc sao? Nếu nàng thật có khí phách và thủ đoạn ấy, có thể cứu được bao nhiêu đệ tử Vũ Long tông?”
 
-Thiệu Vân Nham và Mễ Dụ nhìn nhau cười cười.
+Thiệu Vân Nham đáp: “Trong một tiên gia mang chữ tông, xưa nay người vẫn tụ lại theo từng nhóm. Vân Thiêm tuy quen việc buôn bán trong Vũ Long tông[?], song ngoài tu vi ra, nàng chẳng được lòng bao nhiêu người. Cho nên dù chịu dời đi, nàng cũng chẳng mang theo được mấy ai.”
 
-Bến đò Đảo Huyền sơn, một độ thuyền vượt châu đến từ Bắc Câu Lô Châu, sáu mươi hai vị kiếm tu mới đến, ít nói, thẳng đi đại môn, đi Kiếm Khí Trường Thành mà thôi.
+Mễ Dụ nói: “Những người Vân Thiêm không mang đi được, vốn cũng chẳng cần mang đi.”
 
-Trong tòa kiến trúc tựa như đình đi dạo, Trần Bình An ngồi trên chiếu, hai nắm tay chống ở trên đầu gối, hô hấp kéo dài.
+Nạp Lan Thải Hoán sa sầm mặt: “Còn có mặt mũi chê Vân Thiêm lòng dạ đàn bà. Ngươi có tin, nếu nàng thật sự dời lên phía bắc, chia Vũ Long tông làm hai, sau này mấy vị tiên sư phía nam có chạy thoát tới nương nhờ Bắc tông cũng sẽ càng oán Kiếm Khí Trường Thành thấy chết không cứu? Nhất là vị Ẩn Quan đại nhân có lòng dạ Bồ Tát của chúng ta. Chỉ cần Vân Thiêm lỡ nói ra nội dung hai phong thư, chẳng khéo chính hắn lại bị ghi hận.”
 
-Vật ngồi ở đây, chính là chiếc chiếu trúc nhặt được từ Mai hoa viên, có thể giúp người tu đạo ngưng thần tĩnh khí, lại có diệu dụng, có thể làm cho Trần Bình An nhanh chóng luyện hóa những giọt nước xanh lục thủy vận tràn trề này, chẳng những như thế, có lẽ là do chất liệu chiếu trúc, trừ thủy phủ thu lợi lớn nhất, mộc trạch bên kia cũng ích lợi không nhỏ, thủy châu Trần Bình An luyện, dư thừa thủy vận linh khí, chỉ cần dẫn dắt, là có thể đi hướng khí phủ chỗ mộc trạch, một luồng kéo dài thủy vận, lấy tư thế sợi dài, một đường chảy đi, tưới nhuần tạng phủ.
+Thiệu Vân Nham gật đầu: “Cho nên mới nhờ Vân Thiêm hủy mật tín. Hẳn Ẩn Quan đại nhân đã lường được lòng người khó đoán. Vân Thiêm tuy một lòng tu đạo, chút lợi hại được mất ấy chắc vẫn nghĩ ra được.”
 
-Tu hành trên núi, loại vật tiên gia này, có lẽ phẩm trật sẽ không quá cao, nhưng mà không thể thiếu nhất, tích tiểu thành đại, ba hai năm thời gian, có lẽ sẽ không công hiệu rõ rệt, nhưng một khi dốc lòng tu hành, ở lâu trong núi không hỏi nóng lạnh mấy chục năm mấy trăm năm, sẽ là hai loại thiên địa. Cho nên gia phả tiên sư đại tông môn, như Lục Đài kia nói, nhất định có một vật bản mạng tương tự như vật phụ trợ tu hành, nếu là thần tiên tiền đủ, vật bản mạng bên ngoài, cũng cần, cầu chính là cầu đại đạo lâu dài, cao lầu vạn trượng nổi lên từ đất bằng.
+Mễ Dụ cười: “Nàng không nghĩ ra thì đã sao? Ẩn Quan đại nhân của chúng ta để tâm đến chuyện ấy à?”
 
-Căn cứ vào thời gian khác nhau, tiên gia động phủ khác nhau, cùng cảnh giới tu hành đối ứng khác nhau, còn phải không ngừng thay đổi đồ vật, chú ý rất nhiều.
+Thiệu Vân Nham thở dài: “E rằng với Vũ Long tông, đổi sang phụng sự một tòa thiên hạ khác cũng chỉ là thêm một việc phải làm[?]. Trong tổ sư đường đã có hơn một người nảy ý phò tá chủ mới[?], còn tưởng đây cũng là một vụ làm ăn.”
 
-Con Hóa Ngoại Thiên Ma kia bay tới bay lui quanh tòa nhà, cũng không nói gì, hình như người trẻ tuổi kia còn đáng tìm tòi nghiên cứu hơn cả Hình Quan Kiếm Tiên.
+Nạp Lan Thải Hoán cười lạnh: “Đầu óc chẳng bằng Ẩn Quan mà cũng dám làm bừa chuyện buôn bán giữa đại thế này?”
 
-Ẩn Quan trẻ tuổi vừa mới từ một bí cảnh trở về, bằng không thì lập tức tuyệt đối không có thoải mái thích ý như vậy, nơi lúc trước là bị Na Tâm bắt lấy cổ, kéo đi, thiên địa do thi hài của thần linh viễn cổ luyện hóa mà thành này, ở khu vực trái tim có một cấm địa, lão điếc, hóa ngoại thiên ma và thợ may đều không thể tiến vào trong đó, bên kia tồn tại một cánh cửa nhỏ, mang tính chất tượng trưng treo một cái khóa, chỉ có thể lão điếc móc chìa khóa ra lướt qua một sân, rồi để cho Mi Tâm ném Ẩn Quan trẻ tuổi vào trong đó.
+Biết mình lỡ lời, nàng khoan thai rời đi, tiếp tục tính sổ. Thiệu Vân Nham và Mễ Dụ nhìn nhau cười.
 
-Đó là một hồ nước màu vàng, trong đó nham thạch nóng chảy sôi trào, trong mật thất, kim quang chói mắt.
+Tại bến đò Đảo Huyền sơn, một chiếc độ thuyền vượt châu từ Bắc Câu Lô Châu vừa cập bến. Sáu mươi hai vị kiếm tu mới đến chẳng nói mấy lời, cứ thế đi thẳng qua cửa lớn đến Kiếm Khí Trường Thành.
 
-Trần Bình An mỗi lần bị người may mặc ném vào trong nham thạch nóng chảy màu vàng, nhiều nhất mấy canh giờ, sau khi đi ra khỏi cửa nhỏ, có thể khôi phục như lúc ban đầu, thương thế khỏi hẳn.
+Trong tòa hành đình, Trần Bình An ngồi trên chiếu, hai nắm tay chống trên đầu gối, hơi thở chậm và dài.
 
-Chỉ là Chỉ Xích Vật, hồ lô dưỡng kiếm, đều phải ở lại hành đình bên này.
+Chiếc chiếu trúc là vật hắn nhặt được ở Mai Hoa viên. Ngoài việc giúp tu sĩ ngưng thần tĩnh khí, nó còn có một diệu dụng là giúp hắn luyện hóa nhanh những giọt nước xanh biếc dồi dào thủy vận. Có lẽ nhờ chất trúc mà ngoài thủy phủ được lợi nhiều nhất, mộc trạch cũng hưởng không ít. Thủy vận và linh khí dư ra khi luyện hóa thủy châu chỉ cần được dẫn về khí phủ nơi mộc trạch, liền chảy thành một dòng mảnh như sợi tơ, đi một mạch tưới nhuần tạng phủ.
 
-Trần Bình An hỏi: "Viễn cổ thần linh cũng có khí phủ khiếu huyệt, cấu tạo không khác với người chúng ta là mấy?"
+Tu hành trên núi, những vật tiên gia như thế có thể chẳng thuộc phẩm trật cao, nhưng lại khó thiếu nhất. Tích tiểu thành đại, đôi ba năm chưa chắc nhìn ra công hiệu. Một khi dốc lòng tu hành trong núi, mấy chục hay mấy trăm năm chẳng kể nóng lạnh, có hay không có chúng sẽ khác nhau một trời một vực.
 
-Đồng tử tóc trắng dừng thân hình, "Đại thể không sai biệt lắm, chỉ là Nhân tộc các ngươi chung quy không đông như Thần linh, dù sao cũng là khôi lỗi do bọn chúng một tay tạo ra, sở cầu, đơn giản là hương hỏa kia, thân các ngươi nhỏ như trời đất, tự nhiên trời sinh sẽ không quá mức tinh xảo, chỉ là so với các loại khác, các ngươi đã xem như được trời ưu ái, nếu không sơn tinh quỷ quái, tính cả Yêu tộc Man Hoang thiên hạ, vì sao đều phải siêng năng không mệt mỏi, cứ muốn huyễn hóa hình người?"
+Bởi vậy, như Lục Đài từng nói, tiên sư gia phả ở các đại tông môn nhất định có một vật bản mệnh dùng để trợ giúp tu hành. Nếu có đủ tiền thần tiên, ngoài vật bản mệnh còn phải sắm thêm những món khác. Tu đạo là cầu đường dài. Lầu cao vạn trượng cũng phải xây từ mặt đất.
 
-Trần Bình An nghe được một lời nói mất chốt, "Trực kín? Có chút quan hệ với Vô Cấu mà Đạo gia theo đuổi?"
+Tùy thời điểm, động phủ tiên gia và cảnh giới tu hành mà đồ dùng cũng phải thay đổi, trong đó có nhiều điều cần cân nhắc.
 
-Thân hình Hóa Ngoại Thiên Ma chậm rãi xoay tròn, trả lời một đằng, hỏi một nẻo, cười nói: "Kiếm tu phi kiếm, có thể phá vạn pháp. Sài đao phố phường, cũng có thể chém dưa thái rau chẻ củi. Chẳng qua rốt cuộc phi kiếm đã phá được cái gì, lưỡi đao chẻ ra cái gì, ngươi có biết đạo lý trong đó không?"
+Con Hóa Ngoại Thiên Ma bay tới bay lui quanh hành đình, chẳng nói tiếng nào. Tựa hồ người trẻ tuổi trước mắt còn đáng để nó tìm hiểu hơn vị kiếm tiên Hình Quan kia.
 
-Trần Bình An lắc đầu.
+Ẩn Quan trẻ tuổi vừa từ một bí cảnh trở về, bằng không lúc này nào được thư thái như vậy. Trước đó hắn bị Niệp Tâm túm cổ kéo đi. Thiên địa này được luyện hóa từ thi hài một vị thần linh viễn cổ. Ở chỗ trái tim có một cấm địa, lão điếc, Hóa Ngoại Thiên Ma lẫn người may áo đều không vào được.
 
-Học sinh Thôi Đông Sơn, có thể mới rõ nguyên do trong đó.
+Nơi ấy có một cánh cửa nhỏ, treo ổ khóa như để làm lệ. Lão điếc lấy chìa ra mở khóa cho có lệ[?], rồi để Niệp Tâm ném vị Ẩn Quan trẻ tuổi vào trong.
 
-Trần Bình An rốt cuộc mở mắt, hỏi: "Để trao đổi, ta lại đáp ứng thêm ngươi, có thể vào tâm hồ ta ba lần, ngươi trước sau nhìn thấy cái gì?"
+Giữa mật thất là một hồ nham thạch nóng chảy màu vàng đang sôi trào. Kim quang chói mắt.
 
-Đồng tử đầu bạc của Kỳ Thanh Xà ngồi xếp bằng, giận tím mặt, nghiến răng nghiến lợi, không nói lời nào.
+Mỗi lần bị Niệp Tâm ném vào hồ, nhiều lắm chỉ mất vài canh giờ. Đến lúc bước ra khỏi cửa nhỏ, Trần Bình An đã lành lặn như trước, thương thế khỏi hẳn. Chỉ có Chỉ Xích vật và hồ lô dưỡng kiếm đều phải để lại bên hành đình.
 
-Làm buôn bán với người này bốn lần, hỗ trợ tạo kiến trúc, tặng một bộ thể xác nữ tử Kiếm Tiên, cộng thêm hai thanh đoản kiếm, thiệt thòi lớn.
+Trần Bình An hỏi: “Thần linh viễn cổ cũng có khí phủ, khiếu huyệt, cấu tạo chẳng khác con người chúng ta là mấy sao?”
 
-Trần Bình An có chút tò mò, cầm lấy hồ lô dưỡng kiếm trên mặt đất, lấy ra một thanh đoản kiếm, "Nếu ngươi nguyện ý nói, ta trả đoản kiếm lại cho ngươi."
+Đồng tử tóc trắng dừng lại: “Đại thể là vậy. Chỉ có điều thân thể Nhân tộc các ngươi rốt cuộc chẳng tinh vi bằng thần linh[?]. Các ngươi vốn là khôi lỗi do chính tay thần linh tạo ra, thứ chúng cầu chẳng qua là hương hỏa. Thân thể các ngươi là một tiểu thiên địa, sinh ra đã khó lòng quá tinh xảo. Nhưng so với các loài khác, Nhân tộc xem như được trời ưu ái rồi. Bằng không sơn tinh quỷ quái, kể cả Yêu tộc Man Hoang thiên hạ, cớ gì cứ khổ công tu luyện để hóa thành hình người?”
 
-Trong hồ lô dưỡng kiếm, còn có phi kiếm bản mạng "Thiên Lại" của vị kiếm tu Lâu Tông kia đang ôn dưỡng.
+Trần Bình An nghe ra một chữ then chốt: “Tinh vi[?]? Có liên quan đến cảnh giới Vô Cấu mà Đạo gia theo đuổi không?”
 
-Đồng tử tóc trắng đưa tay chụp một cái, thu đoản kiếm kia vào trong tay, giắt ở bên hông, còn thừa lại một thanh, vẫn được nuôi dưỡng ở trong hồ lô dưỡng kiếm phẩm cấp không được tốt kia, nói ra: "Lần đầu tiên làm khách, gặp được đạo nhân trung niên, muốn cùng ta luận bàn đạo pháp, gia gia thiếu chút nữa bị hắn hù chết."
+Hóa Ngoại Thiên Ma chậm rãi xoay người, cười đáp sang chuyện khác: “Phi kiếm của kiếm tu có thể phá vạn pháp. Dao chẻ củi nơi phố phường cũng có thể bổ dưa, thái rau, chẻ củi. Nhưng rốt cuộc phi kiếm phá được thứ gì, lưỡi dao chẻ ra thứ gì, ngươi có biết đạo lý trong đó không?”
 
-"Lần thứ hai không đi căn nhà rách nát đó, kết quả gặp một lão đầu tử khuôn mặt trẻ tuổi nhưng dáng vẻ già nua nặng nề, chân mang giầy rơm, lưng đeo sài đao, đi bốn phương, gặp ta, muốn nói với ta Phật pháp một chút, vừa nói hai chữ "Mời ngồi", gia gia ta liền bị dọa nhảy dựng lên."
+Trần Bình An lắc đầu. Có lẽ học trò Thôi Đông Sơn của hắn mới hiểu được nguyên do.
 
-Nói qua hai lần du lịch, chẳng biết tại sao Bạch Phát Đồng Tử lại trầm mặc.
+Rốt cuộc hắn mở mắt, hỏi: “Để đổi lấy sự giúp đỡ của ngươi, ta còn đáp ứng cho ngươi vào tâm hồ của ta ba lần. Trước sau ngươi đã thấy những gì?”
 
-Trần Bình An hỏi: "Một lần cuối cùng lại là như thế nào?"
+Đồng tử tóc trắng Kỳ Thanh Xà[?] ngồi xếp bằng, tức đến tím mặt, nghiến răng chẳng nói lời nào.
 
-Đồng tử tóc trắng hỏi ngược lại: "Ngươi thích giảng đạo lý như vậy?"
+Buôn bán với tên này bốn lần, nào là giúp dựng hành đình, nào là tặng một bộ thể xác của nữ kiếm tiên, lại mất thêm hai thanh đoản kiếm. Lỗ lớn rồi.
 
-Trần Bình An nghi hoặc nói: "Nói như thế nào?"
+Trần Bình An tò mò, nhấc hồ lô dưỡng kiếm dưới đất lên, lấy ra một thanh đoản kiếm: “Ngươi chịu nói, ta trả thanh kiếm này cho ngươi.”
 
-Đồng tử tóc trắng nhảy dựng lên, mắng to: "Có một tên, dựa theo tốc độ dòng sông thời gian khác nhau mà trôi đi, đại khái nói với gia gia ta đạo lý tương đương với thời gian mấy năm, còn không để ta đi! Ông nội ta thật đúng là sẽ không đi được!"
+Trong hồ lô vẫn còn ôn dưỡng “Thiên Lại”, phi kiếm bản mệnh của vị kiếm tu Lâu Tông kia.
 
-Trần Bình An mỉm cười nói: "Thì ra ta làm cho người ta phiền chán như vậy, có thể làm cho một con Hóa Ngoại Thiên Ma cũng chịu không nổi?"
+Đồng tử tóc trắng đưa tay chộp lấy đoản kiếm, giắt bên hông. Thanh còn lại vẫn được nuôi trong chiếc hồ lô dưỡng kiếm phẩm trật chẳng cao kia.
 
-Bạch Phát Đồng Tử vô tình hay cố ý liếc mắt nhìn bốn cây cột chống đỡ tòa kiến trúc kia.
+Nó nói: “Lần đầu vào làm khách, ta gặp một đạo nhân trung niên đòi luận bàn đạo pháp. Gia gia suýt bị hắn dọa chết.”
 
-Sau đó Trần Bình An tiếp tục tu hành, hóa ngoại thiên ma tiếp tục dạo chơi, hai bên trầm mặc.
+“Lần thứ hai ta tránh căn nhà rách nát ấy, thế mà lại gặp một lão nhân mặt mũi trẻ trung, trên người lại nặng vẻ già nua. Lão đi khắp nơi, chân mang giày cỏ, lưng đeo dao chẻ củi. Gặp ta, lão đòi nói chuyện Phật pháp. Vừa nghe hai chữ ‘mời ngồi’, gia gia đã sợ đến nhảy dựng.”
 
-Ngày hôm nay, Trần Bình An cởi áo, tr*n tr** lưng.
+Kể xong hai lần dạo chơi, chẳng biết vì sao đồng tử tóc trắng bỗng im lặng.
 
-Niệp Tâm tiện tay rút cột sống kia ra, bắt đầu lột da may y, lại lấy Cửu Điệp Tầm Văn cổ xưa ở bên trong, ở cột sống của người trẻ tuổi cùng với hai bên da thịt khắc lên "tên thật" tiếp theo, đều là đại yêu từng đầu chết ở dưới kiếm kiếm kiếm kiếm kiếm kiếm kiếm kiếm tiên, đều là hung vật viễn cổ giam giữ yêu tộc hôm nay, có ngàn tơ vạn lũ quan hệ, quan hệ càng gần, nhân quả càng lớn, hiệu quả may y tự nhiên càng tốt. Đương nhiên, nỗi khổ người trẻ tuổi chịu, sẽ càng lớn.
+Trần Bình An hỏi: “Còn lần cuối thì sao?”
 
-Phòng ngừa Ẩn Quan trẻ tuổi bởi vì không chịu nổi gánh nặng, đạo tâm sụp đổ, máu thịt tan rã, cuối cùng dẫn tới thất bại trong gang tấc, niết tim chỉ đành truyền thụ cho Trần Bình An một môn bí thuật độc môn, có thể hơi phân tâm.
+Đồng tử tóc trắng hỏi ngược lại: “Ngươi thích giảng đạo lý đến thế à?”
 
-Đây thật ra là hành động bất đắc dĩ, dù sao Trần Bình An chưa chen thân Viễn Du cảnh, cho dù trải qua nham thạch nóng chảy màu vàng rèn luyện, thể phách võ phu của Trần Bình An vẫn như trước không thể chịu tải qua tên thật của nhiều đại yêu, niết tâm mỗi lần viết ba cái, đã là cực hạn.
+Trần Bình An ngạc nhiên: “Sao lại hỏi vậy?”
 
-Người trẻ tuổi chỉ còn lại có một bàn tay có thể khống chế, thật ra may y đến hậu kỳ, sau khi niết tâm khắc họa tên thật con đại yêu thứ hai, Trần Bình An ngay cả một tia tâm niệm cũng không dám động, nhưng mặc dù không có bất cứ ý niệm gì chống đỡ, vẫn như cũ ngón tay lăng không, lặp đi lặp lại viết hai chữ, Trữ Diêu, Trữ Diêu...
+Đồng tử tóc trắng nhảy dựng lên, mắng to: “Có một tên giữ gia gia lại giảng đạo lý, còn chẳng cho đi! Dòng sông thời gian ở đó trôi khác bên ngoài. Tính ra hắn giảng chừng mấy năm liền. Mà gia gia muốn đi cũng thật sự đi không được!”
 
-Niệp Tâm thân ở trong lao ngục, đối với chuyện Kiếm Khí Trường Thành, cũng không hỏi được nửa câu, cho nên không biết Trữ Diêu này là ai.
+Trần Bình An mỉm cười: “Thì ra ta khiến người ta chán đến thế, ngay cả Hóa Ngoại Thiên Ma cũng không chịu nổi?”
 
-Trong lúc nghỉ ngơi, niết nết liếc mắt nhìn bút tích của người trẻ tuổi viết, khó tránh khỏi tò mò, nữ tử nào có thể khiến hắn thích như thế? Có cần thích như thế không?
+Đồng tử tóc trắng chẳng biết vô tình hay cố ý liếc qua bốn cây cột chống hành đình.
+
+Trần Bình An lại tu hành. Hóa Ngoại Thiên Ma lại bay dạo quanh. Cả hai đều im lặng.
+
+Hôm ấy, Trần Bình An cởi áo, để trần lưng.
+
+Niệp Tâm tiện tay rút cột sống của hắn ra, bắt đầu lột da may áo. Nàng dùng lối chữ Cửu Điệp Tầm Văn cổ xưa[?] khắc từng cái tên thật lên sống lưng và da thịt hai bên. Chủ nhân của những cái tên ấy đều là đại yêu đã chết dưới kiếm của các vị kiếm tiên, lại có quan hệ chằng chịt với đám hung vật viễn cổ của Yêu tộc đang bị giam giữ. Quan hệ càng gần, nhân quả càng lớn, may áo càng có hiệu quả. Dĩ nhiên, nỗi khổ Trần Bình An phải chịu cũng càng lớn.
+
+Niệp Tâm sợ Ẩn Quan trẻ tuổi không gánh nổi, đạo tâm sụp đổ, máu thịt tan rã, cuối cùng hỏng việc ngay lúc sắp thành. Nàng đành truyền cho hắn một môn bí thuật độc môn để hắn có thể phân tâm đôi chút.
+
+Đó cũng là chuyện bất đắc dĩ. Trần Bình An chưa bước vào Viễn Du cảnh. Dù đã trải qua rèn luyện trong hồ nham thạch vàng, thể phách võ phu của hắn vẫn chẳng chịu nổi tên thật của quá nhiều đại yêu. Mỗi lần Niệp Tâm khắc ba cái tên đã là cực hạn.
+
+Người trẻ tuổi chỉ còn điều khiển được một bàn tay. Về sau, khi Niệp Tâm khắc đến tên thật của con đại yêu thứ hai, ngay cả một tia tâm niệm hắn cũng chẳng dám động đến. Thế mà không cần ý niệm chống đỡ, ngón tay hắn vẫn viết đi viết lại hai chữ giữa không trung.
+
+Ninh Diêu, Ninh Diêu…
+
+Niệp Tâm ở trong lao ngục, chuyện bên Kiếm Khí Trường Thành chẳng hỏi được nửa câu, nên không biết Ninh Diêu là ai.
+
+Lúc nghỉ tay, nàng liếc nhìn nét chữ người trẻ tuổi viết, không khỏi tò mò. Nữ tử nào mà có thể khiến hắn thích đến vậy?
+
+Có cần thích đến thế không?
