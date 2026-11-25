@@ -1,607 +1,555 @@
 # Chương 755: Đá chưa ra
 
-Ở trước khi Bùi Tiền rời khỏi thành bích họa, hỏi quyền Tiết Hà Thần.
+Trước khi rời thành Bích Họa, Bùi Tiền từng hỏi quyền Hà thần họ Tiết.
 
-Trong bức họa thành, di chỉ tiên phủ, chưởng luật lão tổ Yến Túc, để cho đệ tử đích truyền duy nhất Bàng Lan Khê tiếp tục luyện kiếm, nếu muốn nghỉ ngơi một lát cũng không sao. Yến Túc mở ra cấm chế sơn thủy, trở về tổ sư đường Mộc Y sơn, sau đó ngự phong đi tới treo kiếm đình giữa sườn núi, bái kiến vị Nạp Lan lão tổ sư đến từ Trung Thổ Phi Ma tông thượng tông kia. Đừng nhìn Nạp Lan tổ sư bình dị gần gũi, là chưởng luật lão tổ của thượng tông, cực kỳ nghiêm khắc, đã từng tự tay xử trí tính mạng hai vị tu sĩ thượng ngũ cảnh.
+Trong di chỉ tiên phủ ở thành Bích Họa, chưởng luật lão tổ Yến Túc dặn đệ tử đích truyền duy nhất của mình là Bàng Lan Khê cứ tiếp tục luyện kiếm, mệt thì nghỉ một lát cũng được. Dứt lời, hắn mở cấm chế sơn thủy, trở về tổ sư đường Mộc Y sơn, rồi ngự phong đến đình Treo Kiếm giữa sườn núi để bái kiến Nạp Lan lão tổ sư của Phi Ma tông thượng tông ở Trung Thổ.
 
-Một vị chưởng luật lão tổ đến từ thượng tông, tuổi tác cực lớn, bối phận cực cao, là sư đệ của tông chủ thượng tông, lão tổ sư gia không truyền tin phi kiếm trước đó, cũng không đi thẳng lên Tổ Sư Đường trên đỉnh núi, Yến Túc đương nhiên có chút lo lắng đề phòng.
+Nạp Lan tổ sư trông bình dị, dễ gần, nhưng trên cương vị chưởng luật của thượng tông, lão xử sự hết sức nghiêm khắc, từng tự tay lấy mạng hai tu sĩ thượng ngũ cảnh. Lão tuổi đã cao, bối phận lại lớn, là sư đệ của tông chủ thượng tông. Chuyến này lão chẳng báo trước bằng phi kiếm truyền thư, đến nơi cũng chẳng lên thẳng tổ sư đường trên đỉnh núi. Yến Túc không khỏi lo lắng.
 
-Núi áo gỗ xanh tươi, giữa sườn núi quanh năm có mây trắng vờn quanh, như thanh sam trích tiên nhân lưng quấn một cái bạch ngọc đái.
+Mộc Y sơn xanh ngắt, giữa sườn núi quanh năm mây trắng vấn vít, tựa một vị trích tiên mặc thanh sam, ngang lưng buộc đai ngọc trắng.
 
-Khi Yến Túc đến bên ngoài treo kiếm đình, vị Nạp Lan tổ sư kia đang đối ẩm với Vi Vũ Tùng. Lão nhân say khướt, cười to không ngớt, đưa tay lung tung, vò nát mây trắng ngoài đình.
+Yến Túc tới ngoài đình Treo Kiếm thì thấy Nạp Lan tổ sư đang uống rượu với Vi Vũ Tùng. Lão nhân say khướt, cười không ngớt, thỉnh thoảng lại khoát tay vò nát một cụm mây trắng ngoài đình.
 
-Yến Túc nhẹ nhàng thở ra, Nạp Lan tổ sư chỉ cần uống rượu, sẽ dễ nói chuyện hơn, Vi Vũ Tùng xem như lập được một công.
+Yến Túc khẽ thở phào. Nạp Lan tổ sư hễ có rượu vào là dễ nói chuyện hơn. Vi Vũ Tùng coi như lập được một công.
 
-Đôi nam nữ trẻ tuổi đeo kiếm kia, cùng Yến Túc chủ động hành lễ, mí mắt Yến Túc khẽ run lên.
+Đôi nam nữ trẻ tuổi đeo kiếm chủ động hành lễ với hắn. Mí mắt Yến Túc khẽ giật. Hắn đã nghe danh hai người từ lâu. Nam tử tên Toại Nguyện, nữ tử tên Xưng Tâm. Hai người là đạo lữ, đều ở Nguyên Anh cảnh. Tuy chưa bước vào thượng ngũ cảnh, về sau bọn họ ắt sẽ làm chủ tổ sư đường của Vô Thường bộ ở thượng tông.
 
-Ngưỡng mộ đại danh đã lâu, nam tử tên là toại nguyện, danh xưng tâm nữ tử, một đôi đạo lữ, đều là Nguyên Anh cảnh, tuy tạm thời còn chưa tễ thân thượng ngũ cảnh, nhưng nhất định là chủ nhân tương lai của tổ sư đường thượng tông Vô Thường bộ.
+Vô thường đi lại khắp thế gian, trừ một ít kẻ thuộc bàng môn tà đạo, đều xuất thân từ Phi Ma tông thượng tông. Nạp Lan tổ sư vượt châu tới đây, không dẫn đệ tử đích truyền mà lại mang theo hai nhân vật khó đối phó này. Chỉ riêng chuyện đó đã là một lời nhắc nhở.
 
-Thế gian đi vô thường, trừ một ít bàng môn tà đạo không nói, đều xuất thân từ Phi Ma tông thượng tông.
+Yến Túc vừa ngồi xuống, Vi Vũ Tùng đã nói thẳng: “Nạp Lan tổ sư đến hỏi tội đấy. Người thấy chúng ta qua lại quá nhiều với Tống thị Đại Ly.”
 
-Nạp Lan Tổ Sư không mang theo đích truyền vượt châu đi xa, lại dẫn theo hai nhân vật khó chơi này đến hạ tông, bản thân chính là một loại nhắc nhở.
+Xưng Tâm lấy một quyển sách trong tay áo đưa cho Yến Túc, mỉm cười nói: “Yến chưởng luật cứ xem quyển này trước.”
 
-Vi Vũ Tùng ngồi xuống sau Yến Túc, thẳng thắn nói: "Nạp Lan tổ sư là hưng sư vấn tội rồi, cảm thấy chúng ta liên quan quá nhiều với Đại Ly Tống thị."
+Yến Túc chưa hiểu đầu đuôi, nhưng vừa cầm trên tay đã biết đó chỉ là sách thường, chẳng phải vật tiên gia. Nhìn sang thấy Vi Vũ Tùng mặt mày buồn rầu, hắn bèn lật sách ra đọc.
 
-Nữ tử tên là Xưng Tâm kia lấy từ trong tay áo ra một quyển sách, giao cho Yến Túc, cười nói: "Yến chưởng luật xem sách này trước."
+Nạp Lan tổ sư lại kéo vị vãn bối hạ tông Vi Vũ Tùng uống tiếp. Lúc ở thành Bích Họa, lão suýt mua một chiếc bút tẩy sứ xanh hình tiên nhân ngồi [?]. Dưới đáy chẳng có khoản thức theo lễ chế, chỉ đề hai câu thơ không ghi tên người viết: “Thừa Thiền [?] tiếp dẫn thần tiên khách, từng đến bên hàng Tam Tinh Liệt Túc.”
 
-Yến Túc không rõ nội tình, thư tịch vào tay liền biết phẩm tướng, căn bản không phải sách tiên gia gì. Vi Vũ Tùng mặt có vẻ buồn rầu, Yến Túc bắt đầu lật sách xem.
+Lão vừa nhìn đã thích, bởi lão biết lai lịch hai câu thơ. Chiếc bút tẩy sứ xanh có tốt đến đâu cũng chẳng phải pháp bảo ghê gớm, giá chỉ hai ba đồng tiền tiểu thử. Vậy mà lão sẵn lòng bỏ một đồng tiền cốc vũ để mua. Bài thơ ấy ít được truyền tụng ở Trung Thổ Thần Châu. Lão chẳng những biết thơ mà còn từng tận mắt gặp thi nhân, tận tai nghe hắn đọc.
 
-Nạp Lan Tổ Sư thì tiếp tục lôi kéo vãn bối hạ tông Vi Vũ Tùng cùng uống rượu. Lão tu sĩ lúc trước ở thành Bích Họa, thiếu chút nữa mua một con tiên nhân ngồi 《 sửu bút thanh, nền không hợp quy củ lễ chế, chỉ là một câu thơ không ghi lại: "Thừa Thiền tiếp dẫn thần tiên khách, từng đến bên cạnh Tam Tinh Liệt Túc."
+Các vị thần tiên trên núi giao hảo với Nạp Lan tổ sư ở Trung Thổ Thần Châu đều biết lão giỏi thơ từ. Ngoài thanh từ và thơ du tiên, lão còn thích thơ quỷ giáng qua phép phù kê. Có loại lời lẽ phong nhã như quỷ hàn lâm, thơ phần nhiều theo thể Quán Các. Lại có những con quỷ già từ tiền triều, thích nhắc đến cổ nhân và các bậc đứng đầu thi đàn qua các đời. Phàm những gì mắt thấy tai nghe, lão đều lần lượt chép lại.
 
-Lão tu sĩ thấy mà vui, bởi vì biết hàng, càng vừa mắt, không phải là đồ vật tiên gia rửa bút sứ xanh tốt bao nhiêu, là pháp bảo ghê gớm gì, cũng chỉ đáng giá hai ba đồng tiền Tiểu Thử, nhưng lão tu sĩ lại nguyện ý tiêu một đồng tiền Cốc Vũ để mua. Bởi vì câu thi từ này, ở Trung Thổ Thần Châu truyền lưu không rộng, lão tu sĩ lại vừa vặn biết, chẳng những biết, còn là tận mắt nhìn thấy thi nhân, chính tai nghe thấy bài thơ này.
+Nhưng lão thấy thú vị nhất ở bài thơ kia là cái tên dài hơn cả bài: “Cuối năm Nguyên Bảo, ban ngày say rượu dựa cửa xuân mà ngủ, mộng cùng Thanh Đồng thiên quân dạo chơi Tinh Hà, rượu tan mộng tỉnh, nhân hứng làm thơ.”
 
-Trung Thổ Thần Châu cùng vị Nạp Lan tổ sư đỉnh núi thần tiên giao hảo, đều biết lão nhân giỏi thơ từ, trừ thanh từ, du tiên thi ra, cũng thích một loại phù kê quỷ thi, một loại giống như hàn lâm quỷ phong nhã nói năng, thơ tác phần nhiều là Quán Các thể, một loại là tiền triều lão quỷ, thích ở trong thơ từ, đề cập đến cổ nhân, các đời thi văn tông chủ. Lão nhân chỉ cần có chứng kiến, có nghe thấy, liền nhất nhất ghi chép lại.
+Năm ấy Nạp Lan tổ sư còn là thiếu niên, có lần theo sư phụ xuống núi đi xa. Tại một vương triều thế tục đang lúc ngả nghiêng, hai thầy trò gặp một thư sinh nghèo túng tên Bạch Dã. Sư phụ mời hắn uống rượu, hắn lấy bài thơ ấy trả tiền rượu. Nghe xong cái tên dài dằng dặc, thiếu niên cứ tưởng bài thơ phải đến mấy trăm chữ. Nào ngờ tính cả hai câu “Thừa Thiền tiếp dẫn thần tiên khách, từng đến bên hàng Tam Tinh Liệt Túc”, cả thảy chỉ có hai mươi tám chữ. Thiếu niên không nhịn được, hỏi hết rồi sao. Người đọc sách kia đã cười lớn bước ra cửa.
 
-Nhưng Nạp Lan tổ sư cảm thấy bài thơ này thú vị nhất không phải là nội dung thi từ mà là tên thơ rất dài, thậm chí còn nhiều hơn cả nội dung, cuối năm Nguyên Bảo, ban ngày say rượu dựa vào xuân môn mà ngủ, mộng cùng Thanh Đồng thiên quân ngồi du ngoạn Tinh Hà, say rượu tỉnh mộng, hưng chí, mà làm thơ.
+Nạp Lan tổ sư đặt bầu rượu xuống, hỏi: “Đọc xong rồi?”
 
-Năm đó lão nhân vẫn chỉ là thiếu niên, có lần theo sư phụ cùng nhau xuống núi đi xa, sau đó ở một vương triều thế tục bấp bênh, gặp một thư sinh nghèo túng tên là "Bạch Dã", sư phụ mời hắn uống rượu, người đọc sách liền lấy thơ này làm tiền rượu. Lúc ấy thiếu niên sau khi nghe qua cái tên thật dài, vốn tưởng rằng sẽ là bài thơ dài động cái mấy trăm chữ, nào ngờ tính cả "Thừa Hỗ tiếp dẫn thần tiên khách", từng đến bên tam tinh liệt túc", tổng cộng chỉ có hai mươi tám chữ. Sau đó thiếu niên không nhịn được hỏi một câu, không còn nữa? Người đọc sách kia cũng đã cười to ra cửa.
+Yến Túc mặt mày tái xanh, trầm giọng hỏi: “Chẳng lẽ Nạp Lan tổ sư cũng tin lời trong sách?”
 
-Nạp Lan Tổ Sư buông bầu rượu xuống, hỏi: "Xem xong rồi?"
+Nạp Lan tổ sư cười nhạt.
 
-Sắc mặt Yến Túc tái xanh, trầm giọng nói: "Nạp Lan tổ sư, chẳng lẽ cũng tin nội dung trên sách này?"
+Vi Vũ Tùng nói: “Nạp Lan tổ sư muốn làm rõ vì sao thứ sách này lại lan ra khắp Trung Thổ Thần Châu, đến nỗi lên độ thuyền vượt châu cũng có thể tiện tay lấy được một quyển. Những lời viết trong sách có thể quan trọng, cũng có thể chẳng đáng kể. Tổ sư chỉ muốn biết rốt cuộc ai viết, viết để làm gì, và vì sao Phi Ma tông chúng ta lại bị kéo vào chuyện của Trần Bình An trong sách.”
 
-Nạp Lan Tổ Sư cười nhạo một tiếng.
+Nạp Lan tổ sư vò nát mây trắng trong núi. Yến Túc cũng vò nát quyển sách trong tay, tiện tay ném ra ngoài đình. Việc chưởng luật hắn còn làm được, chứ tranh luận hơn thua với người khác thì chẳng thạo. Hắn đành nén bực, xin Vi Vũ Tùng một bầu rượu.
 
-Vi Vũ Tùng nói: "Nạp Lan tổ sư muốn xác định một chuyện, loại sách này sao có thể dần dần lưu truyền ra ở Trung Thổ Thần Châu, thế cho nên có thể tiện tay lấy được trên độ thuyền vượt châu. Trên sách viết cái gì, có thể quan trọng, cũng có thể không quan trọng, nhưng rốt cuộc là ai, vì sao lại viết sách này, tại sao Phi Ma tông chúng ta lại dính dáng tới Trần Bình An viết trong sách, là chuyện duy nhất mà Nạp Lan tổ sư muốn biết."
+Nạp Lan tổ sư chậm rãi nói: “Trúc Tuyền quá thật thà, chuyện rắc rối đến đâu cũng nghĩ cho đơn giản. Vi Vũ Tùng thì chỉ mong kiếm tiền, một lòng muốn thoát cảnh giật gấu vá vai, đã chui vào lỗ đồng tiền thì chẳng ra nổi. Còn hai vị lão tổ Yến gia các ngươi chỉ biết đánh mắng, chẳng buồn quản việc. Ta không đích thân tới nhìn tận mắt thì không yên lòng.”
 
-Nạp Lan Tổ Sư vò nát mây trắng trong núi, Yến Túc vò nát quyển sách trong tay, tiện tay vung ra ngoài treo kiếm đình. Yến Túc chưởng luật còn được, tranh luận đạo lý với người khác, không am hiểu. Cho nên đành phải vô cùng nghẹn khuất, gọi Vi Vũ Tùng một bầu rượu.
+Yến Túc nốc một ngụm rượu, giọng nặng nề: “Nạp Lan tổ sư chẳng lẽ chỉ đến bãi Hài Cốt nhìn qua hai lượt? Nếu thượng tông nổi giận, nhất định phải tìm người gánh tội thì dễ thôi. Một mình Yến Túc ta chịu, chẳng liên quan đến Trúc Tuyền hay Vi Vũ Tùng.”
 
-Nạp Lan tổ sư chậm rãi nói: "Trúc Tuyền quá đơn thuần, nghĩ sự tình, thích phức tạp suy nghĩ theo hướng đơn giản. Vi Vũ Tùng quá muốn kiếm tiền, một lòng muốn thay đổi cục diện giật gấu vá vai, thuộc loại trong mắt chui không ra. Yến Túc hai lão tổ Yến gia các ngươi, lại chỉ đánh chửi mắng người ta không quản sự, ta không tự mình đến bên này một chuyến, tận mắt nhìn xem, không yên tâm."
+Nạp Lan tổ sư đáp: “Trước khi ta lên đường, thượng tông đã quyết. Bất kể thế nào cũng phải dừng mối làm ăn với Phi Vân sơn và Tống thị Đại Ly. Vì sao lại cử ta đi ư? Tổ sư đường thượng tông giận lắm rồi. Các ngươi cũng rõ, dù là Phi Ma tông bên này hay thượng tông bên Trung Thổ, xưa nay đều ghét nhất hạng người được tả trong sách. Mưu mẹo đầy mình, ỷ có số tốt, ngoài mặt làm bộ tu tâm, thực chất chỉ lo tăng tu vi, dọc đường tu hành chỉ biết lấy về, chẳng chịu bỏ ra. Chân tướng còn chưa rõ, nhưng thà tin là có. Huống hồ sách truyền nhanh như vậy, thượng tông chẳng muốn vì chút tiền thần tiên mà kéo cả Phi Ma tông xuống hố phân.”
 
-Yến Túc hung hăng hớp một ngụm rượu, buồn bực nói: "Nạp Lan tổ sư sẽ không chỉ đến bãi Cốt nhìn hai lần đi. Dù sao thượng tông bên kia nếu vì thế mà căm tức, nhất định phải tìm người chịu tội thay, rất đơn giản. Việc này một mình Yến Túc ta gánh chịu, không liên quan đến Trúc Tuyền và Vi Vũ Tùng."
+Lão quay sang Yến Túc: “Trúc Tuyền dù không buồn quản chuyện vẫn là tông chủ. Nói khó nghe một chút, Yến Túc ngươi lấy tư cách gì mà đòi gánh tội thay? Với tính nết của tiểu Tuyền Nhi, đâu đến lượt ngươi làm người tốt.”
 
-Nạp Lan tổ sư nói: "Trước khi đến, thượng tông bên kia đã có định luận, mặc kệ như thế nào, đều phải đoạn khoản làm ăn này với Phi Vân sơn, Đại Ly Tống thị kia. Về phần vì sao là ta, đương nhiên là tổ sư đường thượng tông tương đối tức giận, các ngươi hẳn là rất rõ ràng, Phi Ma tông cũng tốt, Trung Thổ thượng tông cũng thế, tạm thời không nói chân tướng như thế nào, chỉ nói đối với loại người trên sách này, cơ xảo chồng chất, một mặt dựa vào số mệnh tốt, giả mù sa mưa tu tâm, thực ra chỉ biết tu lực, trên đường tu hành chỉ lấy không bỏ, xưa nay thống hận nhất, thà tin nó có, huống chi sách này tốc độ truyền lưu cực nhanh, thượng tông bên kia không quá nguyện ý vì chút tiền thần tiên, để cả tòa Phi Ma tông rơi vào trong hố phân."
+Yến Túc lẩm bẩm: “Nạp Lan tổ sư cùng các vị tiền bối cũng đâu có mù. Nhà ta sẵn có độ thuyền vượt châu, đi thêm mấy bước đường…”
 
-Nạp Lan tổ sư nói với Yến Túc: "Trúc Tuyền mặc kệ mọi chuyện, hay là người đứng đầu một tông, nói khó nghe, Yến Túc ngươi muốn gánh tội thay, dựa vào cái gì? Hơn nữa chỉ tính tình đó của tiểu Tuyền Nhi, không tới phiên ngươi tới làm người tốt."
+Nói đến đây, Yến Túc chợt nghẹn lời. Đến núi Lạc Phách ở Bảo Bình châu thì gặp được tiểu tử họ Trần sao? Nạp Lan tổ sư có đi cũng chẳng gặp được.
 
-Yến Túc nhỏ giọng thầm thì nói: "Nạp Lan tổ sư đi theo các tiền bối, cũng không phải mắt mù, nhà chúng ta có độ thuyền vượt châu, đi thêm mấy bước đường..."
+Vi Vũ Tùng nói: “Vì giữ chút hư danh mà sợ người ta chửi, tu sĩ Phi Ma tông ta chẳng làm chuyện ấy. Nạp Lan tổ sư, ta vẫn nói câu cũ. Thượng tông đã có lệnh, hạ tông tự nhiên vâng theo. Muốn cắt hết mối làm ăn với núi Lạc Phách cũng được. Có điều từ hôm nay, Vi Vũ Tùng ta xin đổi chỗ ngồi trong tổ sư đường, không quản tiền nong nữa. Ta đến trấn Thanh Lư theo Trúc tông chủ, ngày ngày giao thiệp với đám xương trắng còn hơn. Ở với Quỷ Tranh, trái lại thấy nhẹ lòng.”
 
-Nói tới đây, Yến Túc tức cười. Đi tới Lạc Phách Sơn Bảo Bình châu, thấy được Trần tiểu tử kia sao? Nạp Lan Tổ Sư căn bản là không gặp được a.
+Yến Túc nổi giận: “Ta chịu ân sư môn đã lâu, thượng tông muốn xử thế nào thì cứ xử. Nhưng ta không thể liên lụy đệ tử của mình, lại còn vứt bỏ đạo nghĩa! Làm tu sĩ Phi Ma tông cái quái gì nữa! Ta sang núi Lạc Phách, làm cung phụng làm gì, vào thẳng tổ sư đường thắp hương bái tổ!”
 
-Vi Vũ Tùng nói: "Vì giữ hư danh, sợ mắng chửi, không phải do tu sĩ Phi Ma tông ta gây nên. Nạp Lan tổ sư, ta vẫn có ý đó, nếu thượng tông có lệnh, hạ tông tự nhiên tuân theo, có thể cắt đứt tất cả sinh ý với Lạc Phách sơn, nhưng từ hôm nay trở đi, Vi Vũ Tùng ta sẽ chuyển ghế ở Phi Ma tổ sư đường, không quản tiền tài, đi Thanh Lư trấn, đi theo Trúc tông chủ, cùng nhau giao tiếp với bộ xương trắng là được, ở chung với Quỷ Tranh, ngược lại thoải mái."
+Nạp Lan tổ sư cười: “Chà, cả hai định dọa ta đấy à? Hóa ra bầu rượu ban nãy là rượu mời, không uống thì phải uống rượu phạt?”
 
-Yến Túc cả giận nói: "Ta nhận ân sư đã lâu, thượng tông nên như thế nào thì như thế đó, nhưng ta không thể gây họa cho đệ tử của mình, mất đạo nghĩa! Làm một tu sĩ Phi Ma tông chim bay, đi Lạc Phách sơn, làm cung phụng cái gì, trực tiếp thắp hương bái tượng ở tổ sư đường Lạc Phách sơn!"
+Vi Vũ Tùng lắc đầu: “Không dám.”
 
-Nạp Lan Tổ Sư mỉm cười nói: "Ai u, ai nấy dọa ta hả? Hóa ra lúc trước mời ta uống rượu, không phải mời rượu thì là phạt rượu?"
+Yến Túc ném bầu rượu xuống: “Dọa một lão mắt mờ thì đã sao?”
 
-Vi Vũ Tùng lắc đầu nói: "Không dám."
+Nạp Lan tổ sư chẳng chấp, cười rồi đứng lên: “Đi lên tổ sư đường Phi Ma. Nhớ gọi cả Trúc Tuyền về.”
 
-Yến Túc ném bầu rượu, "Hù dọa một tên mắt mờ, có thể làm sao chứ?!"
+Vi Vũ Tùng trừng mắt nhìn Yến Túc, trách hắn hành sự theo cơn nóng giận.
 
-Nạp Lan tổ sư không chấp nhặt với Yến Túc, cười đứng dậy, "Đi Phi Ma tổ sư đường, nhớ gọi Trúc Tuyền trở về."
+Trên đường lên đỉnh Mộc Y sơn, Vi Vũ Tùng vẫn chưa hết hy vọng. Hắn nói với Nạp Lan lão tổ: “Trận pháp sơn thủy của Phi Ma tông ta có được như hôm nay cũng nhờ núi Lạc Phách. Quỷ Vực cốc đã yên ổn mười năm rồi.”
 
-Vi Vũ Tùng hung hăng trừng mắt nhìn Yến Túc hành động theo cảm tính.
+Nạp Lan tổ sư cười: “Chuyện đó tổ sư đường thượng tông đã bàn từ lâu. Ngươi tưởng ta mắt mờ thì trí nhớ cũng kém sao?”
 
-Trên đường đi hướng đỉnh Mộc Y sơn, Vi Vũ Tùng hiển nhiên còn chưa hết hy vọng, nói với Nạp Lan lão tổ: "Ta có trận pháp sơn thủy của Phi Ma tông có thể có quang cảnh hôm nay, kỳ thật còn phải quy công cho Lạc Phách sơn, Quỷ Minh cốc đã an ổn mười năm rồi."
+Vi Vũ Tùng hết hy vọng, chẳng khuyên thêm nữa.
 
-Nạp Lan Tổ Sư cười nói: "Chuyện này, tổ sư đường của thượng tông đã sớm đề cập qua, là cho rằng mắt già mờ, trí nhớ cũng không được sao?"
+Trúc Tuyền bị gọi về tổ sư đường, vừa đến chỉ nói một câu: “Không ai bắt nạt người ta như vậy. Lão nương chẳng làm cái chức tông chủ rách này nữa!”
 
-Vi Vũ Tùng hoàn toàn tuyệt vọng, không khuyên can gì nữa.
+Nạp Lan tổ sư không gật đầu, cũng không phản đối, chỉ hỏi: “Ngươi còn biết mình là tông chủ à?”
 
-Trúc Tuyền sau khi bị gọi về tổ sư đường, chỉ nói một câu, không bắt nạt người ta như vậy, lão nương không làm tông chủ rách nát này nữa.
+Trúc Tuyền sa sầm mặt, không nói được lời nào.
 
-Nạp Lan Tổ Sư không gật đầu, cũng không phản bác, chỉ hỏi ngươi còn biết mình là tông chủ?
+Yến Túc có chút tức giận. Ta làm ầm lên thế đã đủ rồi, Trúc Tuyền ngươi chớ có làm bừa.
 
-Trúc Tuyền ảm đạm không nói nên lời.
+Nạp Lan lão tổ sư quả thật khó đối phó. Không làm tông chủ nữa cũng được. Trước hết cứ đóng cửa trong tổ sư đường vài ngày, tự mình nghĩ cho kỹ. Nếu đến lúc đó vẫn muốn từ chức, cứ thưa một lời với từng bức chân dung tổ sư rồi đi thẳng đến trấn Thanh Lư trong Quỷ Vực cốc. Dù sao Phi Ma tông có tông chủ hay không cũng chẳng khác mấy. Không cần chào lão, chỉ cần gửi phi kiếm báo cho thượng tông là chẳng mấy chốc có người thay. Phi Ma tông tuy là hạ tông, nhưng làm chủ một tông ở Hạo Nhiên thiên hạ cũng đâu phải chuyện nhỏ. Trong tổ sư đường thượng tông, các vị sẵn lòng đến Bắc Câu Lô Châu đông vô kể.
 
-Yến Túc có chút tức giận, mình đã đủ khí phách hành sự, Trúc Tuyền ngươi đừng làm bừa.
+Từ đó Trúc Tuyền ở trong tổ sư đường, cách vài hôm Yến Túc lại đem rượu tới. Không tiện uống bên trong, hai người ra ngồi trước cửa. Thỉnh thoảng Trúc Tuyền quay lại, giơ bầu rượu về phía các bức chân dung, coi như uống giúp các vị tổ sư một ngụm cho đỡ thèm.
 
-Nạp Lan lão tổ sư kia thật sự là một kẻ khó chơi, nói không làm tông chủ, cũng được, trước tiên nghĩ kỹ, đóng cửa tĩnh tư vài ngày ở trong tổ sư đường, đến lúc đó vẫn là quyết định từ chức tông chủ, chỉ cần nói với mỗi bức họa chân dung của tổ sư đường là được. Đến lúc đó Trúc Tuyền ngươi rời khỏi tổ sư đường, chỉ việc đi trấn Thanh Lư của Quỷ Lâu cốc, dù sao Phi Ma tông có tông chủ hay không cũng không khác biệt lắm. Không cần chào hỏi hắn, sau khi phi kiếm truyền tin cho thượng tông, rất nhanh có thể đổi thành người có thể làm tông chủ. Phi Ma tông tuy nói là một tòa hạ tông, nhưng rốt cuộc vẫn là chủ nhân một tông của Hạo Nhiên Thiên Hạ, lão gia tổ sư đường bên thượng tông vui vẻ đến Bắc Câu Lô châu, một nắm lớn.
+Ở một cửa hàng trong thành Bích Họa, nữ chưởng quầy thấy Bàng Lan Khê tới thì khẽ cười.
 
-Sau đó, Trúc Tuyền ở trong tổ sư đường, dù sao Yến Túc cách vài bữa mang rượu đi, không tiện uống rượu ở trong tổ sư đường, hai người ở cửa chính bên kia uống rượu. Trúc Tuyền thỉnh thoảng xoay người hướng trong cửa lớn giơ bầu rượu, giúp các tổ sư treo bức tượng không uống được nữa đỡ thèm.
+Trong tiệm không có khách. Bàng Lan Khê nằm bò trên quầy, hết than khổ lại trách kiếm thuật sư phụ truyền cho quá khó hiểu, luyện mãi chẳng được. Hắn kể Bùi Tiền và một bằng hữu tên Lý Hòe từng ghé qua, không gặp được nàng nên bảo trên đường về sẽ tới tìm.
 
-Cửa hàng trong thành Bích Họa, nữ tử chưởng quầy gặp được Bàng Lan Khê, nàng thản nhiên cười.
+Bàng Lan Khê nén cười: “Bùi Tiền ấy, có phải tính tình quái lạ lắm không?”
 
-Bên trong cửa hàng không có khách, Bàng Lan Khê ghé vào trên quầy, kêu khổ không ngừng, oán trách sư phụ truyền thụ kiếm thuật quá mức tối nghĩa, quá khó học.
+Nữ tử trẻ tuổi lắc đầu: “Ta chẳng thấy thế. Nàng ấy rất biết lễ.”
 
-Nó liền nói Bùi Tiền kia cùng một bằng hữu tên là Lý Hòe, lúc trước đến cửa hàng bên này, thấy ngươi không có mặt, liền nói lúc về nhà sẽ tới tìm ngươi.
+Rồi nàng chợt thở dài. Đôi mắt thiếu nữ kia dường như biết nói. Sau đó nghĩ lại, nàng tựa hồ đã hiểu điều Bùi Tiền muốn gửi gắm trong ánh mắt ấy.
 
-Bàng Lan Khê nhịn cười, nói: "Tên Bùi Tiền kia, có phải rất quái lạ hay không?"
+Nhân lúc Bàng Lan Khê đang ở bên cạnh, nàng mím môi, hạ quyết tâm nói ra nỗi lòng bấy lâu: “Lan Khê, trước kia ta nghĩ mấy năm trông tiệm cũng để dành được chút tiền thần tiên, đủ mua một hộp linh đan giữ dung nhan của tiên gia ở phố Xuân Lộ. Có vậy ta sẽ già chậm một chút, tóc cũng bạc muộn một chút…”
 
-Cô gái trẻ tuổi lắc đầu, "Không biết, cô ấy rất hiểu lễ nghĩa."
+Bàng Lan Khê vừa định mở miệng, nàng đã lắc đầu: “Để ta nói hết đã. Trước kia ta chỉ mong sống được đến trăm tuổi. Đến lúc ta già xấu, tóc bạc rũ xuống, ngươi có đổi ý ta cũng chẳng oán. Nhưng bây giờ ta không muốn như vậy nữa. Vừa hay thổ địa nương nương của thành Bích Họa nói nàng đã muốn gác trọng trách xuống để ra ngoài ngắm nhìn một chuyến từ lâu. Ta có một cơ hội nối chức nàng. Thổ địa nương nương nói phẩm trật của thần linh nơi này chẳng cao, ta chỉ làm một bà thổ địa thôi. Nhưng ta không có tiên căn, cũng chẳng có tiên duyên. Một chút cơ hội ấy phải nhờ các vị lão thần tiên trên Mộc Y sơn chúc phúc. Ta muốn hỏi, chuyện ấy có làm khó ngươi không?”
 
-Chỉ là nàng đột nhiên thở dài, ánh mắt thiếu nữ lúc trước kia, giống như biết nói chuyện. Sau đó nàng giống như lại xem hiểu ngôn ngữ trong ánh mắt Bùi Tiền.
+Bàng Lan Khê gật đầu. Ánh mắt hắn dịu dàng, giọng lại chắc nịch, chỉ đáp một tiếng: “Được!”
 
-Vừa lúc thừa dịp Bàng Lan Khê ở bên cạnh, nàng mím môi, hạ quyết tâm, nên nói với hắn về tâm sự kia, nàng cố lấy dũng khí nói: "Lan Khê, ý tưởng lúc trước của ta, là ở cửa hàng mấy năm nay, cũng tích góp chút tiền thần tiên, những linh đan tiên gia Xuân Lộ Phố có thể giúp đỡ nữ tử trú nhan có thuật, ta vẫn mua được một hộp, già thì chậm một chút, tóc bạc dài ra chậm một chút..."
+Nàng khẽ thở phào, nhưng trong lòng vẫn không khỏi lo sợ. Bà thổ địa từng nói đến chuyện xương cốt tiêu tan [?], hồn phách chịu giày vò. Nghe thôi đã đủ sợ rồi.
 
-Bàng Lan Khê vừa muốn nói, nàng lắc đầu, "Để cho ta nói trước. Trước kia ta chỉ nghĩ như vậy, tranh thủ sống lâu trăm tuổi, đến lúc đó trở nên khó coi, thành lão ẩu tóc trắng buông thỏng, ngươi nếu thay đổi tâm tư, cũng không oán ngươi. Nhưng ta hiện tại không muốn như vậy, vừa vặn thổ địa nương nương thành Bích Họa chúng ta, nói nàng vẫn muốn tháo xuống trọng trách, đi ra ngoài xem một chút, mà ta có một đường cơ hội kế thừa thân phận của nàng, bất quá thổ địa nương nương nói với ta, trở thành thần linh nơi đây, tuy phẩm trật không cao, chỉ là thổ địa bà, nhưng ta không có tiên căn tiên duyên, cái gọi là một đường cơ hội, chính là dựa vào các lão thần tiên trên núi Mộc Y chúc phúc, cho nên ta muốn hỏi ngươi, làm như vậy, ngươi có làm khó dễ không?"
+Bên ngoài cửa hàng, một thiếu nữ xinh đẹp có lưng hơi còng từ dưới đất chui lên. Nàng chính là bà thổ địa của Mộc Y sơn.
 
-Bàng Lan Khê gật đầu, ánh mắt ôn nhu, ngữ khí kiên định, chỉ một chữ: "Được!"
+Thiếu nữ nghiêm mặt: “Một người thật dám nhận lời ta, một người thật dám nhận lời nàng. Các ngươi có biết chuyện đó nguy hiểm thế nào không? Ta nói trước, Phi Ma tông các ngươi thạo phép hồn phách đến đâu cũng khó tránh chuyện ngoài ý muốn. Theo ta thì chi bằng để nàng đến sông Diêu Duệ làm thần nữ trên danh nghĩa. Hồn phách vẫn thuộc hàng nữ quỷ phải chịu quản thúc [?], chưa có thân thần linh, nhưng yên ổn hơn nhiều so với mạo hiểm làm thổ địa một phương. Lão lái đò họ Tiết còn nương nhờ Phi Ma tông, chẳng lẽ lại không nể mặt Bàng Lan Khê ngươi?”
 
-Nữ tử trẻ tuổi nhẹ nhàng thở ra, lại khó tránh khỏi có chút lo sợ bất an, dù sao thổ địa bà bà nói cái gì tiêu cốt lập, hồn phách giày vò, thật là dọa người.
+Bàng Lan Khê nghĩ ngợi rồi nói: “Dù sao cũng chưa vội. Sau này ta sẽ hỏi Trần Bình An. Hắn suy nghĩ chu toàn nhất.”
 
-Một thiếu nữ xinh đẹp lưng còng, từ mặt đất bên ngoài cửa hàng "Phá đất chui lên", mà nàng chính là thổ địa bà bà núi Mộc Y.
+Nói đến đây, Bàng Lan Khê kéo nhẹ cổ áo: “Ta là cung phụng ký danh của núi Lạc Phách. Chút việc ấy chẳng lẽ hắn không giúp?”
 
-Nàng nghiêm mặt: "Hai người các ngươi một thật dám đáp ứng ta, một người thực sự dám đáp ứng nàng, trong đó có nguy hiểm rất lớn. Ta nói rất tốt, tuy rằng Phi Ma tông các ngươi tinh thông đạo hồn phách, nhưng mà khó tránh khỏi bất ngờ. Thật muốn ta nói, vẫn là để nàng đi Diêu Du Hà làm thần nữ trên danh nghĩa thì tốt hơn. Cho dù trên thực tế hồn phách vẫn là hàng ngũ nữ quỷ bị bắt, không phải thân thần chỉ, nhưng so với mạo hiểm trở thành thổ địa một phương, an ổn hơn nhiều lắm. Tiết lão chu tử kia, lại là ăn nhờ ở đậu của Phi Ma tông, sẽ không thể không nể mặt Bàng Lan Khê ngươi."
+Nữ tử mỉm cười gật đầu, đưa ngón tay khẽ móc lấy tay hắn. Bàng Lan Khê trở tay nắm lấy bàn tay thon dài của nàng.
 
-Bàng Lan Khê nghĩ nghĩ, "Dù sao việc này không vội, sau này ta đi hỏi Trần Bình An, hắn suy nghĩ chu đáo nhất."
+Thiếu nữ thổ địa chậc lưỡi: “Ngấy quá, thật sự ngấy quá. Sao không đóng cửa tiệm rồi tha hồ làm càn một phen? Ta có nhìn trộm, nghe lén gì đâu.”
 
-Nói tới đây, Bàng Lan Khê giật giật cổ áo, "Ta chính là cung phụng ký danh của Lạc Phách Sơn, chút việc nhỏ này hắn cũng không giúp?"
+Vị lão tổ sư thượng tông chẳng nể tình ai đã khiến cả Phi Ma tông giận, vậy mà lão chẳng vì thế rời Mộc Y sơn. Trái lại, lão cùng đôi đạo lữ trẻ tuổi của Vô Thường bộ ở hẳn lại. Hiếm khi ra ngoài một chuyến, dĩ nhiên phải đi chơi nhiều nơi, có việc thì cứ phi kiếm truyền thư. Thật ra lão rất muốn đến Phù Kê tông ở Đồng Diệp châu xem một lần. Thuật phù kê bên ấy cực kỳ hay.
 
-Nữ tử trẻ tuổi cười gật đầu, vươn ngón tay, nhẹ nhàng ôm lấy tay Bàng Lan Khê. Bàng Lan Khê trở tay nắm lấy bàn tay ngọc thon dài của nàng.
+Nạp Lan tổ sư cũng chẳng ở không. Hằng ngày lão xem kính hoa thủy nguyệt, chủ yếu để biết tình hình trên núi ở Nam Bà Sa châu và Phù Diêu châu. Có lúc lão dùng thần thông chưởng quan sơn hà nhìn sông Diêu Duệ. Khi khác, lão giở tập thơ mình biên soạn, vốc mấy đám mây ngoài đình Treo Kiếm giữa sườn núi, kết thành án thư để đặt một chồng tập thơ. Rồi lão vớt bóng trăng dưới sông Diêu Duệ, treo bên án làm đèn.
 
-Thiếu nữ Thổ Địa chậc chậc nói: "Mê ngấy, thật sự là chán ngấy. Sao không đóng cửa hàng thẳng thừng làm xằng làm bậy một trận? Ta cũng không biết nhìn lén nghe lén cái gì."
+Tiên sư trên núi đủ hạng người. Có người vui thú chốn nhân gian, phong vị đậm đà như một lão thôn ông. Tuy vậy, phần đông vẫn tiên phong đạo cốt như Nạp Lan tổ sư, chẳng vướng chút bụi trần.
 
-Vị lão tổ sư Thượng tông bất cận nhân tình kia đã rước lấy cơn giận của mọi người tê dại, nhưng cũng không thức thời rời khỏi Mộc Y sơn, ngược lại mang theo đôi quyến lữ trẻ tuổi của Thượng Tông Vô Thường bộ kia, xem như ở lại. Khó được ra ngoài một chuyến, chung quy phải dạo chơi nhiều một chút, có việc phi kiếm truyền tin là được, thật ra Nạp Lan lão tổ sư rất muốn đi Phù Kê tông Đồng Diệp châu một lần, Phù Kê thuật bên kia, cực kỳ hay.
+Ấy vậy mà lão tu sĩ vốn xuất thân phố phường, chẳng thuộc nhà quyền quý, càng chẳng phải dòng dõi thần tiên sinh ra trên núi. Chẳng qua lão lên núi tu hành từ nhỏ mà thôi.
 
-Nhưng lão tổ sư cũng không nhàn rỗi, mỗi ngày ngắm nhìn trăng trong gương, chủ yếu là để thuận tiện hiểu rõ tình hình gần đây trên núi Nam Bà Sa châu và Phù Diêu châu, hoặc là thi triển chưởng quan sơn hà thần thông, nhìn một chút dòng sông chập chờn kia, bằng không chính là lật ra tập thơ do mình biên soạn, từ giữa sườn núi treo kiếm đình bên ngoài lấy ra một ít mây trắng, ngưng tụ thành một thư án, đặt một chồng lớn thơ tập, lại từ sông chập chờn hái một vầng trăng trong nước, treo ở bên cạnh thư án, làm đèn đuốc.
+Một đêm nọ, lão khép tập thơ lại. Lão vẫn nhớ lần đầu mình đi xa, sư phụ tiễn đến sơn môn và dặn: “Vào núi đi.”
 
-Tiên sư trên núi, ngư long hỗn tạp, tuy nói cũng có nhân gian vui đùa như lão thôn ông, phong vị lớn. Bất quá phần lớn vẫn là Nạp Lan tổ sư như vậy, không nhiễm hồng trần, tiên phong đạo cốt.
+Thiếu niên không hiểu, hỏi vì sao lại không phải xuống núi. Sư phụ chẳng giải thích.
 
-Nhưng trên thực tế, lão tu sĩ lại xuất thân phố phường, cũng không phải là đệ tử hào môn, càng không phải là thần tiên sinh ra trên núi, chỉ là từ nhỏ đã vào núi tu hành.
+Rất lâu về sau, khi đã qua tuổi thiếu niên nhiều năm, lão mới hiểu ý sư phụ. Đường lên núi tu đạo vốn khó đi, nhưng lòng người chốn nhân gian cũng có biết bao núi hiểm. Vào những ngọn núi ấy để học làm người còn khó hơn.
 
-Lão tu sĩ ở trong một đêm, khép lại một bản thơ tập.
+Lão thở dài, mở quyển sơn thủy du ký duy nhất giữa chồng tập thơ, xem tiếp mấy nghìn chữ mở đầu. Còn những đoạn sau, nào là kỳ ngộ với phúc duyên, nào là thiếu niên vừa học quyền vừa đọc sách cùng thần nữ, diễm quỷ làm thơ xướng họa, quấn quýt thề non hẹn biển. Lên giang hồ đánh hai ba quyền đã thành hiệp khách trượng nghĩa, để lại một đống rối ren cũng làm như không thấy. Rồi dăm lần lập danh trên giang hồ, roi vung dưới bóng tà dương, cưỡi ngựa quý, uống rượu hát vang mà đi xa. Toàn những chuyện chướng tai gai mắt, thật chẳng đọc nổi.
 
-Nhớ rõ lần đầu tiên mình đi ra ngoài du lịch, sư phụ đưa đến cửa núi, nói: "Vào núi đi."
+Lão vẫn nhìn trang sách, hỏi đôi nam nữ bên cạnh: “Toại Nguyện, Xưng Tâm, các ngươi thấy sách này có mấy phần thật, mấy phần giả?”
 
-Thiếu niên không hiểu, hỏi vì sao không phải xuống núi.
+Xưng Tâm lắc đầu: “Chỉ xét quyển sách này, dù có một hai phần là thật, về sau gặp người đó ta nhất định đi đường vòng, kính nhi viễn chi. Còn Cố Sán thì chẳng cần đề phòng đến thế.”
 
-Sư phụ lại không giải thích gì.
+Toại Nguyện nói: “Rời nhà đi xa rồi, đến đâu cũng lấy đạo lý của nhà giảng học ra trách người khác, lại chẳng tự hỏi lòng mình. Thật uổng mấy trang du ký mộc mạc ban đầu.”
 
-Là rất về sau, không phải chính mình thiếu niên quá nhiều năm, mới hiểu được thâm ý của sư phụ, thì ra con đường tu đạo lên núi không dễ đi, nhân gian lòng người lòng dạ nhiều núi nguy hiểm, vào núi này, làm người ta càng không dễ đi.
+Hắn liếc đạo lữ bên cạnh, thận trọng nói thêm: “Nếu chỉ xét phần đầu sách thì thiếu niên ấy sống khá khổ. Ta thật lòng mong hắn có ngày làm nên chuyện, qua hết đắng cay mà được hưởng chút ngọt bùi.”
 
-Lão nhân than thở một tiếng, mở ra một quyển sơn thủy du ký duy nhất ở ngoài tập thơ, tiếp tục xem mấy ngàn văn tự mở đầu, về phần nội dung sau đó, cái gì kỳ ngộ phúc duyên, cái gì thiếu niên lang vừa học quyền vừa đọc sách cùng thần nữ kia, thơ ca diễm quỷ hát hòa, khanh khanh ta ta, hải thề sơn minh, cái gì ở trên giang hồ hai ba quyền đó là nhâm hiệp trượng nghĩa, để lại cục diện rối rắm làm như không thấy, không đi quản nữa, nhiều lần sau khi giang hồ nổi danh lập vạn, chỉ có cái gì trời chiều hạ tiên danh mã, uống rượu cao ca đi xa, cái đồ chơi chướng khí mù mịt gì đó, quả thực khó coi.
+Xưng Tâm mỉm cười: “Trong thư phòng có hồng tụ thêm hương, ra giang hồ lại được tựa hồng ôi thúy. Nam nhi tính tình chân thật nào mà chẳng hâm mộ?”
 
-Lão nhân tiếp tục đọc sách, cùng nam nữ trẻ tuổi bên cạnh hỏi: "Toại nguyện, Xưng Tâm, các ngươi cảm thấy trong sách viết, thật giả đều có mấy phần?"
+Toại Nguyện chỉ biết cười khổ. Hắn hiểu có những lời càng nói càng khó giải thích.
 
-Nữ tử lắc đầu nói: "Nếu chỉ xem sách này, cho dù chỉ có một hai phần thật, về sau ta gặp được người này, nhất định đi đường vòng, kính nhi viễn chi. Ngược lại là Cố Sán kia, không cần đề phòng như thế nào."
+Hôm ấy, lão tu sĩ đang chăm chú nhìn bức họa sơn hà trên bàn, chợt tỏ vẻ bất ngờ. Lão đưa tay trải bức họa ra ngoài án thư để đôi đạo lữ cùng nhìn cảnh sống muôn vẻ dưới phố. Hai vãn bối Nguyên Anh của Vô Thường bộ là những đệ tử xuất chúng của Phi Ma tông Trung Thổ. Cha mẹ hai bên đều là tu sĩ, bọn họ sinh ra đã là người trên núi. Ngày Toại Nguyện và Xưng Tâm kết làm đạo lữ, đó là một chuyện vui không nhỏ. Lão vẫn đặt nhiều kỳ vọng ở hai người, chỉ tiếc cả hai từ nhỏ đã sống đủ đầy, chẳng biết được bao nhiêu về cảnh mưu sinh của dân nghèo phố chợ, nghĩ chuyện đời còn nông.
 
-Nam tử nói: "Sau khi ra ngoài đi xa, khắp nơi đều dùng giảng học gia trách móc người khác, cũng không hỏi lòng mình, thật sự là lãng phí văn tự thuần phác của du ký."
+Trong bức họa, một tiểu cô nương và một người đọc sách trẻ tuổi vừa tới miếu Hà thần dâng hương.
 
-Nói tới đây, nam tử liếc mắt nhìn đạo lữ bên cạnh, cẩn thận từng li từng tí nói: "Nếu như chỉ nhìn văn tự mở đầu, tình cảnh của thiếu niên khá khổ, ta thật ra rất hy vọng thiếu niên này có thể thăng chức rất nhanh, khổ tận cam lai."
+Lão vuốt râu cười: “Đến hương trong miếu cũng tiếc tiền không mua, chẳng giống phong thái sư phụ nàng trong sách chút nào. Mà cũng phải, tiểu cô nương ấy từng trải giang hồ, xử sự già dặn, lại rất lanh lợi. Toại Nguyện, Xưng Tâm, nếu chỉ có cùng cảnh giới với nàng, e các ngươi bị nàng bán còn vui vẻ đếm tiền giúp.”
 
-Nữ tử mỉm cười nói: "Trong thư phòng, hồng tụ thêm hương, trên giang hồ dựa hồng ôi thúy, nam nhi nào tính tình chân tình không hâm mộ."
+Bùi Tiền dâng hương, dạo một vòng miếu Hà thần, sau đó hỏi quyền Tiết Nguyên Thịnh. Trận hỏi quyền chấn động cả dòng sông, kinh thế hãi tục, vậy mà cuối cùng cũng chẳng sinh sóng gió gì lớn.
 
-Nam tử cười khổ không thôi, cũng biết có chút không thể nói.
+Lão lái đò Tiết Nguyên Thịnh đích thân chèo thuyền đưa hai người qua sông. Có lẽ cũng coi như không đánh không quen.
 
-Hôm nay, lão tu sĩ nhìn chằm chằm bức họa sơn hà trên bàn, giống như bất ngờ, đưa tay một cái, đem bức họa đổ ra ngoài án thư, thuận tiện cho đôi thần tiên đạo lữ kia quan sát phố phường trăm vẻ, xuất thân từ hai vị Nguyên Anh trẻ tuổi của Vô Thường bộ, là thiên chi kiêu tử của Phi Ma Tông Trung Thổ, song phương sinh ra chính là thần tiên chủng trên núi, cha mẹ hai bên, chính là người tu đạo, lúc trước nguyện cùng Xưng Tâm kết làm đạo lữ, là một chuyện vui không nhỏ. Lão tu sĩ đối với hai vãn bối Vô Thường bộ này, vẫn là gửi gắm kỳ vọng cao. Khuyết điểm duy nhất, chính là thỏa mãn cùng vừa lòng, tiên thiên không đủ, đối với tầng dưới chót của phố phường chung quy hiểu biết không nhiều, ý tưởng quá nông cạn.
+Còn thiếu niên móc túi ở miếu Hà thần thì bị đám người của hán tử đã mất một bàn tay đánh no đòn. Hắn ôm đầu lăn lộn dưới đất, khóc lóc van xin, nước mắt nước mũi tèm lem, máu đen trộn với bụi đất, nom chẳng ra hình người. Trước khi đi, bọn chúng dặn hắn chịu khó động tay động chân, trong vòng một tháng phải trộm đủ năm mươi lượng bạc trả tiền thuốc. Bằng không, nợ mới nợ cũ tính luôn một lượt.
 
-Trên bức hoạ cuộn tròn, thì ra là tiểu cô nương cùng người đọc sách trẻ tuổi đến từ miếu hà thần thắp hương.
+Thiếu niên Nguyễn Cung [?] một mình lách qua đám lau sậy ra bờ sông Diêu Duệ. Hắn cởi áo ngoài giặt rửa, đau đến nhe răng, rồi lên đường về thành Bích Họa. Đường đi chừng sáu trăm dặm, áo hắn đã phơi khô từ lâu mà mình mẩy vẫn còn những vết bầm tụ máu, mạng sườn âm ỉ đau. Riêng gương mặt trông chẳng có thương tích gì, nhờ lúc lăn dưới đất hắn che chắn rất kỹ. Hai bàn tay cũng bình an vô sự. Hán tử kia trước khi sai người đánh hắn đã căn dặn, bởi thiếu niên có ngón nghề trời cho, cả bang trông vào đôi tay trộm đồ thần không biết quỷ không hay ấy mà kiếm tiền.
 
-Lão tu sĩ vuốt râu mà cười, "Từ miếu thủy hương cũng không nỡ mua, không giống phong phạm sư phụ nàng viết trên sách. Nhưng cũng đúng, tiểu cô nương từng trải giang hồ vẫn rất sâu, xử thế lão đạo, cực lanh lợi. Toại nguyện, Xưng Tâm, nếu là các ngươi cùng cảnh giới với tiểu cô nương này, hai ngươi nhắm chừng bị nàng bán còn phải hỗ trợ đếm tiền, rất vui vẻ."
+Thiếu niên trở về một ngõ nhỏ ngoài thành Bích Họa. Trước cửa sân nhà vẫn dán tranh môn thần, câu đối và một chữ xuân trên cao. Mới dán chưa bao lâu, giấy còn chưa bạc màu hay nhăn nhúm.
 
-Ở Bùi Tiền thắp hương đi dạo xong từ đường hà thần, sau đó là trận quyền vấn lay động sông ngòi Tiết Nguyên Thịnh kinh thế hãi tục kia, cuối cùng lại không có sóng gió gì lớn.
+Hắn nhìn quanh, đợi chắc bốn bề vắng người mới ngó vào khe tường đất vàng cạnh một bức môn thần. Thấy hai đồng tiền vẫn còn đó, hắn nhẹ nhõm, bất giác mỉm cười.
 
-Lão hán chèo thuyền Tiết Nguyên Thịnh tự mình chèo thuyền qua sông cho hai người, đại khái cũng có thể coi như là một trận không đánh không quen biết.
+Hai đồng tiền trong khe vốn chẳng đáng giá, nhưng với nhà hắn lại có ý nghĩa không nhỏ. Hắn và muội muội gọi đùa chỗ cất ấy là “trong cùng nhà môn thần lão gia”. Thuở hắn suýt chẳng chịu nổi cảnh nhà, có lần dắt muội muội chơi đùa, vô tình tìm được hai đồng tiền ở đó.
 
-Mà thiếu niên ăn cắp ở thần từ sông, hán tử thanh tráng bị chặt đứt cổ tay kia bị người ta đánh no đòn, đánh cho thiếu niên ôm đầu, lăn lộn đầy đất, nước mũi tèm lem nước mắt đau khổ cầu khẩn, một thân máu đen, cộng thêm bụi đất dính chung một chỗ, cực kỳ ghê tởm, sau khi đám hán tử kia rời đi, muốn thiếu niên kia tay chân chịu khó một chút, trong vòng một tháng trộm đủ năm mươi lượng bạc, coi như là tiền mua thuốc, bằng không nợ mới nợ cũ cùng nhau tính.
+Tiền thần tiên, hai đồng tiền tuyết hoa.
 
-Thiếu niên Nguyễn Cung, một mình xuyên qua một bụi cỏ lau, đi bờ sông chập chờn, cởi áo ngoài tẩy rửa một phen, nhe răng nhếch miệng, cuối cùng mặt mũi bầm dập đi thành bích họa, ước chừng sáu trăm dặm lộ trình, quần áo thiếu niên sớm đã phơi nắng, chỉ là trên người còn có chút máu ứ đọng, sườn mơ hồ đau đớn, nhưng thật ra khuôn mặt đó, bởi vì lúc lăn lộn trên mặt đất, bảo vệ thiếu niên nghiêm ngặt, không nhìn ra thương thế. Duy chỉ có đôi tay thiếu niên kia, chưa gặp chút tai ương, bởi vì hán tử lúc bảo người ta đánh hắn, từng có nhắc nhở, dù sao thiếu niên râu quai nón thiên phú dị bẩm, làm một gốc cây rụng tiền trong bang phái nhà mình, liền dựa vào hai tay đi trộm thần không biết quỷ không hay.
+Bao nhiêu năm qua, nhà hắn vẫn chưa tiêu hai đồng tiền tuyết hoa ấy. Một là chẳng dám, sợ rước tai họa. Hai là mẫu thân sống chết không chịu đụng tới. Bà bảo một đồng để cưới vợ cho hắn, đồng kia để dành làm của hồi môn cho muội muội, thế chẳng tốt hay sao.
 
-Thiếu niên trở về một ngõ nhỏ bên ngoài thành Bích Họa, ngoài cửa một chỗ sân, vẫn như cũ dán môn thần, câu đối, còn có chữ xuân chỗ cao nhất kia.
+Về sau hắn mới biết năm ấy, nếu không bất ngờ có được hai đồng tiền thần tiên, mẫu thân hắn suýt nhận lời đám chủ nợ lòng dạ độc ác kia mà đi làm nữ lái đò. Đó là thứ đò ban ngày đưa khách qua sông, trả tiền thì được sờ soạng tùy ý. Đêm đến đò neo bên bờ, thắp một ngọn đèn lồng. Hán tử thấy đèn có thể lên thuyền qua đêm. Đợi lớn tuổi thêm chút nữa thì vào kỹ viện bán thân kín đáo. Nếu làm thế, bất kể ra sao, nhà cũng dư dả ít nhiều, huynh muội hắn sẽ sống dễ chịu hơn. Nhờ hai đồng tiền ấy mà mẫu thân gắng gượng được, thà chịu khổ thêm, mang theo hai đứa nhỏ cắn răng sống qua từng ngày nghèo đói.
 
-Bởi vì dán không bao lâu, cho nên chưa trắng, nhăn nheo.
+Mỗi lần kể đến đó, mẫu thân chẳng kiêng dè gì. Thiếu niên dĩ nhiên không muốn bà làm vậy. Muội muội nghe lần nào mặt cũng trắng bệch, rồi lén ra cửa lí nhí cảm tạ các vị môn thần lão gia. Bởi thế nhà hắn có lệ, thay tranh môn thần mới cũng không được vứt tranh cũ. Mẫu thân bảo hai đứa mỗi đứa cẩn thận thỉnh một vị xuống, xếp ngay ngắn rồi cất kỹ. Còn chỗ bỗng dưng có hai đồng tiền tuyết hoa, bà thay bằng hai đồng tiền thường.
 
-Thiếu niên nhìn quanh bốn phía, thấy bốn bề vắng lặng, lúc này mới nhìn về khe hở của bức tường đất vàng bên cạnh một môn thần, thấy hai đồng tiền vẫn còn, liền thả lỏng miệng, sau đó cười rộ lên.
+Thiếu niên chỉ có một chuyện không hài lòng về mình, ấy là hắn chẳng có tư chất đọc sách. Bản thân hắn thật ra cũng chẳng muốn theo đường ấy, nhưng mỗi lần nhớ vẻ thất vọng của mẫu thân, dù bà không nói gì, trong lòng vẫn khó chịu.
 
-Đồng tiền đương nhiên không đáng tiền, nhưng đối với gia đình này mà nói, ý nghĩa trọng đại.
+Có lần hắn lén lấy một đồng tiền tuyết hoa đi đổi bạc. Hắn định mua bánh ngọt cho muội muội ăn thỏa thuê trước, rồi lo cho mẫu thân và muội muội được sống sung sướng. Mẫu thân như phát điên, túm hắn lôi về nhà. Đó là lần đầu bà nỡ đánh hắn, mà đánh như muốn lấy mạng. Muội muội nhỏ tuổi đứng bên khóc nức nở, trông còn đau hơn cả hắn.
 
-Nơi ẩn nấp này, bị hắn và muội muội gọi đùa là "Bên trong cùng của môn thần lão gia".
+Từ hôm ấy, là nam đinh duy nhất trong nhà, hắn thề phải kiếm tiền. Mãi đến khi lớn thành thiếu niên, hắn mới hiểu hồi đó nếu mẫu thân không ngăn lại, ba mẹ con chẳng những không khá lên mà còn gặp họa. Đừng nói hai đồng tiền tuyết hoa, có là hai đồng tiền tiểu thử thì đám du côn từng giết người, từng thấy máu kia cũng có đủ cách moi cho bằng hết. Chỉ bằng hắn và mẫu thân, làm sao giữ được hai đồng tiền thần tiên từ trên trời rơi xuống?
 
-Khi hắn sắp không chịu nổi ở ngôi nhà này, mang theo muội muội chơi đùa đùa giỡn, trong lúc vô tình hắn đã tìm được hai đồng tiền.
+Đến lúc nhờ vào bản lĩnh và những người quen biết, hắn đã có thể lén đổi tiền tuyết hoa ra bạc, thì hắn lại đổi ý. Cả hai đồng phải để cho muội muội. Đám súc sinh ấy đừng hòng động đến nàng. Sau này nàng phải gả cho một người tốt, nhất định phải cùng mẫu thân rời bãi Hài Cốt. Nơi đó có một mình hắn là đủ. Bằng bản lĩnh của mình, hắn tin hắn sẽ sống được.
 
-Tiền thần tiên, hai đồng tiền Tuyết Hoa.
+Hôm ấy hắn đẩy cửa vào nhà, thấy muội muội đang cắt hoa giấy dán cửa sổ trong căn phòng nàng ở chung với mẫu thân. Nàng khéo tay, hoa văn tinh xảo đến đâu chỉ nhìn một lần cũng học được. Nghề này chẳng kiếm được bao nhiêu, còn không đủ ăn no, nhưng dù sao cũng có tiền vào.
 
-Qua nhiều năm như vậy, hai đồng Tuyết Hoa tiền vẫn chưa dùng hết, một là không dám, sợ rước lấy tai họa, hơn nữa mẫu thân cũng chết sống không muốn tiêu ra ngoài, nói một đồng Tuyết Hoa tiền, muốn để lại cho hắn làm vợ, một đồng khác, là đồ cưới sau này của muội muội hắn, tốt bao nhiêu.
+Thiếu nữ mừng rỡ đứng dậy: “Ca, sao huynh về? Để muội gọi mẹ về làm bữa ngon cho huynh nhé?”
 
-Hắn là sau đó mới biết được, năm đó mẫu thân bọn họ, nếu không phải đột nhiên chiếm được hai đồng tiền thần tiên này, lập tức dâng lên một ngụm tâm khí, thà rằng chịu khổ nhiều hơn, mang theo hai đứa nhỏ, mang cuộc sống ti tiện bần hàn bẩn thỉu ngày một ngày một chịu đựng, nàng thiếu chút nữa phải đáp ứng những chủ nợ tâm ngoan thủ lạt kia, đi làm thuyền gia nữ, chính là loại chèo thuyền chèo thuyền cho khách qua tiền có thể sờ loạn, ban đêm không qua sông, liền ngừng lại ở bờ sông lay động, điểm hỏa một đèn lồng, hán tử dã dã nhìn thấy ánh đèn, liền có thể qua đêm, đợi đến khi tuổi thêm chút nữa, sẽ lại đi kỹ viện làm kỹ nữ ngầm, mặc kệ như thế nào như thế nào..., Nếu mẫu thân thật sự làm như vậy, tiền tài trong nhà sẽ nhiều hơn chút, cuộc sống của hắn và muội muội cũng sẽ tốt hơn rất nhiều, mẫu thân mỗi lần nói đến những thứ này, cũng không kiêng kỵ gì, nhưng thiếu niên không đương nhiên nguyện ý như thế, muội muội hắn mỗi lần nghe được những thứ này, sắc mặt lại càng trắng bệch, một mình vụng trộm đi cửa bên kia, nhỏ giọng cảm ơn các môn thần lão gia, cho nên tập tục nhà hắn, là sau khi đổi môn thần mới, môn thần cũ cũng sẽ không vứt bỏ, mẫu thân sẽ bảo hắn cùng muội muội, đều cẩn thận mời một vị môn thần hạ môn, sau đó cẩn thận thu thập, cất giữ thật kỹ. Mà chỗ không hiểu sao có thêm hai đồng tiền Tuyết Hoa, mẫu thân đổi hai đồng tiền.
+Thiếu niên vớ một chiếc ghế băng, ngồi xuống cạnh nàng, cười lắc đầu: “Khỏi. Ca sống tốt thế nào muội còn chẳng biết ư? Tay nghề của mẹ chúng ta ấy mà, trong nhà hết tiền thì chẳng thấy giọt dầu, có tiền thì món nào cũng ngập dầu. Thật chẳng biết ăn thế nào. Có điều lần này về vội, ca chẳng mang được quà gì cho muội.”
 
-Thiếu niên duy nhất không hài lòng đối với mình, chính là không thể làm hạt giống đọc sách gì, hắn cũng quả thật không có ý niệm này, chỉ là bộ dáng thất vọng của mẫu thân lại không nói gì, khiến trong lòng hắn khó chịu.
+Nàng nhoẻn miệng cười. Đôi mắt trong veo, đẹp đến lạ, cong lên như hai mảnh trăng non: “Không cần, không cần đâu.”
 
-Trước kia có lần hắn trộm một đồng Tuyết Hoa tiền, muốn đi đổi ngân lượng, trước tiên để cho muội muội thèm một phần bánh ngọt ăn no, sau đó để mẫu thân và muội muội sống cuộc sống giàu có, kết quả bị mẫu thân giống như phát điên bắt về nhà, đó là lần đầu tiên mẫu thân cam lòng đánh hắn, đánh hắn đến chết. So với hắn, muội muội còn nhỏ tuổi hơn thì ở một bên khóc rống, hình như còn đau hơn cả hắn.
+Thiếu niên cười toe, đưa nắm tay lên trước mặt nàng rồi từ từ xòe ra, để lộ một mẩu bạc vụn: “Cầm lấy đi.”
 
-Từ ngày đó trở đi, làm nam đinh duy nhất trong nhà, hắn đã thề phải kiếm tiền! Cho đến sau khi trở thành thiếu niên, hắn mới biết được năm đó nếu như không phải mẫu thân ngăn cản, một nhà ba người chẳng những không sống được ngày tốt lành gì, ngược lại chỉ gặp tai họa, đừng nói là hai đồng Tuyết Hoa tiền, cho dù là hai đồng Tiểu Thử tiền, cũng có thể bị những tên vô lại từng giết người đã thấy máu du đãng, dùng các loại biện pháp vơ vét hầu như không còn, chỉ bằng hắn, cộng thêm mẫu thân, căn bản không bảo vệ được hai đồng tiền thần tiên từ trên trời rơi xuống kia.
+Nàng định nói lại thôi, cuối cùng vẫn nhận. Bạc nặng tay, phải đến bảy tám tiền.
 
-Đợi cho thiếu niên có thể dựa vào bản lãnh cùng nhân mạch của mình, lúc vụng trộm đổi Tuyết Hoa tiền thành bạc, thiếu niên cũng đã đổi ý tưởng, hai đồng Tuyết Hoa tiền đều để lại cho muội muội, muội muội tuyệt đối không thể để cho đám súc sinh đó nhúng chàm, tương lai nàng nhất định phải gả cho người tốt, nàng cùng mẫu thân nhất định phải rời khỏi bãi Hài Cốt, nơi này có hắn là đủ rồi. Dựa vào bản lãnh của mình, khẳng định có thể sống.
+Thiếu niên ngồi trên ghế băng, nghiêng người về trước, hai tay chống má nhìn hai vị môn thần lão gia. Cửa mở, hai vị cũng quay mặt vào trong nhà.
 
-Hôm nay, thiếu niên đẩy cửa vào, muội muội ở cùng phòng với mẫu thân, đang cắt cửa sổ hoa, muội muội khéo tay, rất nhiều hoa cửa sổ tinh xảo, nàng liếc mắt một cái là có thể học được, tuy nói dựa vào cái này không kiếm được nhiều tiền, ăn không đủ no, nhưng rốt cuộc là có thể kiếm tiền.
+Thiếu niên sớm hiểu chuyện, bây giờ đã chẳng mấy tin thần tiên hiển linh. Hắn đoán rất có thể hai đồng tiền là của vị du hiệp trẻ tuổi đội nón rộng vành năm ấy. Mẫu thân và muội muội thì vẫn đinh ninh là môn thần hiển linh.
 
-Thiếu nữ kinh hỉ đứng dậy nói: "Ca, sao huynh lại tới. Ta đi gọi mẫu thân về nhà, làm bữa ngon cho huynh?"
+Mà có phải hay không thì đã sao.
 
-Thiếu niên chọn lấy băng ghế, ngồi ở bên cạnh thiếu nữ, cười lắc đầu, nhẹ giọng nói: "Không cần, ta lăn lộn tốt bao nhiêu, ngươi còn không biết? Tay nghề nấu ăn kia của mẹ chúng ta, trong nhà không tiền không dầu mỡ, trong nhà có tiền tất cả đều là dầu, thực không hạ được miệng. Nhưng lần này tới gấp, không thể mang cho ngươi lễ vật gì."
+Hai ông cháu suýt bị thiếu niên móc túi ra khỏi miếu, ngồi lên chiếc xe ngựa đơn sơ thuê ở quê nhà, men theo sông Diêu Duệ đi về phía bắc.
 
-Cô gái nở nụ cười, một đôi mắt sạch sẽ đẹp cực kỳ, nheo lại một đôi trăng non, "Không cần không cần."
+Đứa nhỏ đòi đọc sách. Lão nhân cười, bảo đường xóc, đọc lúc này hại mắt, về nhà đọc cũng chưa muộn.
 
-Thiếu niên nhếch miệng cười, đưa tay hướng trên đầu, đưa ra nắm tay, chậm rãi mở ra, là một hạt bạc vụn, "Cầm lấy đi."
+Đứa nhỏ cười hì hì, bảo về nhà gia gia lại chẳng nói thế đâu. Lão nhân xoa đầu nó. Đứa nhỏ chợt nói: “Hồi nãy trong ngôi nhà lớn của Hà thần lão gia, có một tỷ tỷ đi cạnh chúng ta. Tỷ ấy mím môi cười, đẹp lắm.”
 
-Thiếu nữ muốn nói lại thôi, vẫn nhận lấy viên bạc kia, nặng, bảy tám tiền.
+Lão nhân nghĩ một lát rồi nhớ ra: “Cháu nói hai người đeo hòm trúc ấy à?”
 
-Thiếu niên ngồi ở trên băng ghế, thân thể nghiêng về phía trước, hai tay chống má, nhìn về phía hai vị môn thần lão gia mở cửa liền mặt hướng về trong phòng.
+Đứa nhỏ gật đầu lia lịa: “Về sau chúng ta đi nhanh, tỷ tỷ đi chậm hơn. Hễ cháu ngoái đầu nhìn là tỷ ấy lại cười.”
 
-Thật ra vị thiếu niên sớm thông minh này, hôm nay đã không quá tin là thần tiên linh gì nữa, có chút suy đoán của mình, vô cùng có khả năng là du hiệp trẻ tuổi đội mũ rộng vành năm đó.
+Lão nhân cười: “Đó là người đọc sách mang hòm đi du học.”
 
-Nhưng mẫu thân và muội muội vẫn luôn chắc chắn hai đồng Tuyết Hoa tiền kia chính là môn thần hiển linh.
+“Gia gia, cây gậy trúc kia là gậy chống sao? Cháu thấy cả tỷ tỷ lẫn ca ca ấy đi đứng có sao đâu.”
 
-Nhưng có phải hay không thì có quan hệ gì đâu.
+Lão nhân buồn cười, kiên nhẫn giảng: “Cây ấy có tên, gọi là Hành Sơn trượng. Người đọc sách ra ngoài đi xa thường phải trèo đèo lội suối. Có người nhà chẳng mấy dư dả mà vẫn muốn học hỏi thêm. Bên cạnh không có gia nhân hay thư đồng, phải tự đeo hành lý qua núi qua sông, vậy thì cần một cây Hành Sơn trượng.”
 
-Mà hai ông cháu thiếu chút nữa bị thiếu niên trộm đi tiền tài, sau khi ra khỏi từ miếu, ngồi trên chiếc xe ngựa đơn sơ thuê ở quê nhà, dọc theo con sông chập chờn về phương Bắc.
+Đứa nhỏ cười: “Nhà mình cũng chẳng có mấy tiền. Sau này chắc cháu cũng phải kiếm một cây.”
 
-Đứa nhỏ nói muốn đọc sách, lão nhân cười nói trên đường xóc nảy, đọc sách như vậy quá đau mắt, về đến nhà nhìn cũng không muộn.
+Lão nhân xoa đầu cháu, nói: “Đọc vạn quyển sách thì phải tốn nhiều tiền, đi nghìn dặm đường chỉ cần chịu được khổ. Thuở trẻ gia gia cũng từng cùng bằng hữu đi xa, tìm đến tàng thư lâu của các họ lớn, các nhà có truyền thống đọc sách. Ngày nào cũng mượn sách, chép sách, trả xong lại mượn. Có những người đọc sách chẳng so đo, nhiệt tình đón đám con nhà nghèo chúng ta vào chép, cùng lắm chỉ dặn đừng làm hỏng sách. Ngày nào họ cũng đãi cơm ngon. Thỉnh thoảng mới có vài gia nhân lẩm bẩm đôi câu. Thấy chúng ta đêm nào cũng khêu đèn chép sách, bọn họ cười bảo hôm nay dầu đèn lại lên giá, đại loại thế.”
 
-Đứa nhỏ cười hắc hắc, nói đến nhà thì không nói như vậy nữa. Lão nhân sờ sờ đầu đứa nhỏ, đứa nhỏ đột nhiên nói: "Lúc trước ở trong nhà lớn như Hà thần lão gia, có một tỷ tỷ đi bên cạnh chúng ta, mím môi mỉm cười, thật là đẹp."
+Đứa nhỏ nghe đến ngáp dài. Lão nhân ôm nó vào lòng. Cơn háo hức ban đầu qua rồi, đường lại còn dài, chẳng mấy chốc nó đã ngủ say.
 
-Lão nhân nghĩ nghĩ, nhớ ra rồi, "Là nói hai người đeo hòm trúc kia?"
+Lão nhân khẽ lẩm bẩm: “Ngoài hai mươi tuổi, chữ nghĩa như chen nhau xông ra ngòi bút, cản cũng chẳng được. Qua ba mươi, tài hoa dần vơi, phải cố công nung nấu. Đến lúc nhiều tuổi hơn, không ngờ lại thấy phép tắc viết lách chẳng còn quan trọng mấy [?]. Chẳng qua mời mấy người bằng hữu cũ lên trang giấy, chào hỏi một tiếng, kể đôi ba chuyện xưa mà thôi.”
 
-Đứa nhỏ gật mạnh đầu, "Về sau chúng ta đi nhanh, tỷ tỷ kia đi chậm chút, ta vừa quay đầu nhìn cô ấy, cô ấy sẽ cười."
+Người đánh xe chợt nói: “Lại mang theo thư kiếm lưỡng mang [?].”
 
-Lão nhân cười nói: "Là người đọc sách phụ cấp du học."
+Lão nhân trong xe hết sức kinh ngạc. Sao một xa phu lại nói được câu nhã đến vậy? Lão nhẹ nhàng đặt đứa nhỏ xuống, vén rèm lên.
 
-Đứa nhỏ hỏi: "Gia gia, cây trúc kia là quải trượng sao? Con thấy tỷ tỷ ca ca kia, đi đứng cũng không có vấn đề gì a."
+Xa phu trẻ tuổi quay đầu: “Lão gia có chuyện gì?”
 
-Lão nhân buồn cười, kiên nhẫn giải thích: "Đó cũng không phải là quải trượng gì, có tên, tên là Hành Sơn trượng, người đọc sách xuất môn đi xa, thường xuyên cần trèo đèo lội suối, có một số người, trong nhà không phải đặc biệt giàu có, nhưng lại nghĩ học vấn lớn hơn nữa, bên cạnh không có nô bộc thư đồng đi theo, được mình đeo hành lý túi đi qua núi qua sông, thì cần một cây Hành Sơn trượng rồi."
+Lão nhân cười, hỏi: “Sao ngươi lại nói ‘lại mang theo thư kiếm lưỡng mang’?”
 
-Đứa nhỏ cười nói: "Ha ha, nhà chúng ta cũng không có tiền gì, xem ra sau này ta cũng cần một cây gậy leo núi."
+Xa phu ngơ ngác: “Lão gia nói gì vậy?”
 
-Lão nhân xoa xoa đầu tôn tử, nói: "Đọc vạn quyển sách, phải tốn rất nhiều tiền, đi ngàn dặm đường, thật ra chịu khổ là được. Lúc gia gia còn trẻ, cũng từng đi xa cùng với bạn tốt, là đi tàng thư lâu của các quận vọng đại tộc, thư hương môn đệ, mỗi ngày chính là mượn sách chép sách, trả sách lại mượn sách. Có một số người đọc sách, không so đo gì, rất nhiệt tình, hoan nghênh những con em hàn môn chúng ta đi chép sách, nhiều nhất dặn dò chúng ta một câu, chớ làm hư hao sách vở là được, mỗi ngày còn có thể tiếp đón món ăn ngon, nhưng ngẫu nhiên, cũng sẽ có một số hạ nhân người hầu, thầm oán vài câu nho nhỏ, ví dụ như mỗi đêm khêu đèn chép sách, bọn họ chỉ nói cười một câu, dầu thắp hôm nay lại tăng giá các thứ.
+Lão nhân im lặng, rồi cười bảo chẳng có gì, lùi vào trong xe, bụng nghĩ có lẽ mình nghe nhầm.
 
-Đứa nhỏ nghe mà ngáp thẳng.
+Còn xa phu thô lỗ chẳng biết chữ kia, trong đầu bỗng dưng nảy ra một ý nghĩ: Hay là đi tìm Trần Linh Quân?
 
-Lão nhân ôm đứa nhỏ vào trong lòng, đứa nhỏ có chút buồn ngủ, sức mới vừa qua đi, đi đường lại nhiều, liền bắt đầu ngủ say. Lão nhân nhẹ giọng lẩm bẩm nói: "Hai mươi mấy tuổi, vội vã hò hét ầm ĩ giết ra văn tự trên bút, ngăn cũng không ngăn được, ba mươi sau, tài hoa dần suy yếu, chỉ có thể hầm một phen, lại lên tuổi, chưa từng nghĩ ngược lại, viết không đúng chỗ viết, chẳng qua là coi như mời các bạn tốt vào giấy, lên tiếng chào, kể chút chuyện xưa mà thôi."
+Ngay sau đó, hắn quên bẵng chuyện này.
 
-Người đánh xe kia đột nhiên nói: "Lại mang theo thư kiếm lưỡng mang."
+Trên Mộc Y sơn, thấy Bùi Tiền và Lý Hòe lên thuyền, Nạp Lan tổ sư thu bức họa sơn hà lại, trầm ngâm hồi lâu.
 
-Trong xe, lão nhân kinh ngạc không thôi, xa phu kia không nên có nhã ngôn này mới đúng, nhẹ nhàng buông đứa nhỏ xuống, vén rèm lên.
+Toại Nguyện nói: “Cùng một mạch truyền thừa. Có kỳ sư ắt có kỳ đồ, có kỳ đồ ắt có kỳ sư.”
 
-Xa phu trẻ tuổi kia quay đầu, hỏi: "Lão gia đây là?"
+Xưng Tâm gật đầu, vẻ ngưỡng mộ.
 
-Lão nhân cười hỏi: "Vì sao có câu "Lại mang theo thư kiếm lưỡng mịt mờ" này?"
+Một lát sau, lão tu sĩ muốn xem lại, bèn thi triển thần thông lần nữa. Lão “ồ” một tiếng. Bên cạnh hai đứa nhỏ sao lại có thêm một con hồ mị Kim Đan cảnh?
 
-Xa phu ngơ ngác nói: "Lão gia nói gì?"
+Rồi chẳng hiểu vì sao, bức họa tự mờ đi. Đôi đạo lữ nhìn nhau, còn Nạp Lan lão tổ sư chỉ cười, thu lại thần thông.
 
-Lão nhân im lặng, cười nói không có gì, lui về thùng xe, chỉ cho là ảo giác của mình.
+Trong quán trà bên sông Diêu Duệ, khách đã thưa thớt [?], quán sắp đóng cửa. Chưởng quầy lấy ra hai chiếc lông vũ, một chiếc của văn tước, một chiếc của võ tước. Hắn nói với tiểu nhị trẻ tuổi đang gà gật bên bàn: “Có việc phải làm.”
 
-Mà phu xe thô bỉ không biết chữ kia, không khỏi có thêm một ý niệm trong đầu, tìm Trần Linh Quân kia đi?
+Một nữ tử trẻ tuổi bỗng hiện ra, ngồi xuống: “Ta khuyên các ngươi đừng làm.”
 
-Ngay sau đó, xa phu lại hồn nhiên quên mất việc này.
+Trong màn đêm, Lý Hòe đi bên cạnh Bùi Tiền, khẽ hỏi: “Bùi Tiền, ngươi dạy ta quyền pháp đi?”
 
-Trên núi Mộc Y, ở lúc Bùi Tiền và Lý Hòe lên thuyền, Nạp Lan tổ sư liền thu hồi bức hoạ cuộn tròn núi sông, lâm vào trầm ngâm.
+Bùi Tiền muốn nói lại thôi, vẻ mặt kỳ quái. Chuyến này đi xa, ghé thăm Sư Tử phong chẳng qua là để chịu đòn.
 
-Nam tử liền nguyện nói: "Nhất mạch tương thừa. Có kỳ sư tất có kỳ đồ, có kỳ đồ tất có kỳ sư."
+Nàng do dự hồi lâu, cuối cùng vẫn lắc đầu: “Học quyền khổ lắm.”
 
-Nữ tử vừa ngưỡng mộ vừa gật đầu.
+Ngừng một lát, nàng nói thêm: “Huống chi ta cũng chẳng biết dạy.”
 
-Sau một lát, lão tu sĩ dự định nhìn lại, cho nên một lần nữa thi triển thần thông, ồ một tiếng, bên cạnh hai đứa nhỏ kia, sao lại nhiều thêm một con tiểu hồ mị Kim Đan cảnh?
+Lý Hòe nghe vậy lại vui, cười nói: “Ta học gì cũng chậm rì. Ngươi không biết dạy quyền càng tốt. Học chẳng thành thì ta không buồn, ngươi cũng chẳng cần áy náy vì dạy hỏng con cháu nhà người ta [?]. Chứ đổi lại là Trần Bình An thì ta chẳng học đâu. Tính hắn như vậy, một khi đã dạy quyền, ta muốn lười cũng không được… Bùi Tiền, ta chỉ nói thật, ngươi đừng giận nhé.”
 
-Sau đó chẳng biết tại sao, bức họa cuộn tròn kia tự động mơ hồ.
+Bùi Tiền nghĩ một lát: “Hai môn quyền thung của sư phụ ta, chẳng phải ngươi đã thấy trước cả ta sao? Có khó học lắm đâu, lẽ ra ngươi phải biết chứ.”
 
-Đôi thần tiên quyến lữ kia hai mặt nhìn nhau.
+Lý Hòe nói: “Ta chỉ học bừa cái thế nằm ‘Thiên thu’. Thật ra Trần Bình An nói gì ta cũng chẳng nhớ kỹ, cứ coi như mình đã học. Còn lục bộ tẩu thung với kiếm lô lập thung thì ta càng không dám tập, sợ đám Lý Bảo Bình cười cho.”
 
-Nạp Lan lão tổ sư cười thu hồi thần thông.
+Bùi Tiền lắc đầu: “Ta không dạy quyền. Bản thân ta cũng chẳng biết quyền pháp gì.”
 
-Quán trà bên bờ sông chập chờn.
+“Ngươi biết chứ! Chẳng phải vừa hỏi quyền Hà thần họ Tiết sao?”
 
-Khách nhân mơ hồ, chuẩn bị đóng cửa.
+Bùi Tiền vẫn không chịu nhận lời.
 
-Chưởng quỹ lấy ra hai mảnh lông vũ, phân biệt đến từ văn võ song tước.
+Quyền pháp của ta, một quyền đánh xuống sẽ rơi vào đâu?
 
-Hắn nói với tiểu nhị trẻ tuổi đang ngủ gật trên bàn: "Có chuyện cần làm."
+Bùi Tiền ngẩng đầu nhìn màn trời. Dưới đất, tiếng côn trùng đêm râm ran bốn phía.
 
-Một cô gái trẻ tuổi đột nhiên hiện thân ngồi xuống, "Khuyên các ngươi đừng làm."
+Cách Bạch Vân quán của Thanh Loan quốc không xa, có một lão tăng từ nơi khác đi xa tới, thuê một căn nhà có sân. Ngày nào lão cũng nấu canh uống. Rõ ràng là canh chay mà lại có vị canh gà.
 
-Trong màn đêm, Lý Hòe đi ở bên cạnh Bùi Tiền, nhỏ giọng nói: "Bùi Tiền, ngươi dạy ta quyền pháp đi?"
+Bởi vậy người ta gọi lão là Kê Thang hòa thượng.
 
-Bùi Tiền muốn nói lại thôi, vẻ mặt cổ quái. Lần này nó đi xa, trong đó bái phỏng Sư Tử phong là chịu đòn.
+Lão không giải quẻ, chỉ xem tướng tay. Có khi đoán mệnh, nhưng phần nhiều là giải mối nghi hoặc cho người ta. Mỗi lượt một lượng bạc, vào cửa phải trả. Dù nghe giải đáp có vừa lòng hay không, lão cũng chẳng trả lại tiền.
 
-Bùi Tiền do dự hồi lâu, vẫn lắc đầu nói: "Học quyền quá khổ."
+Hôm ấy có một người đọc sách đến hỏi mình có thi đỗ, kiếm được công danh hay không. Lão hòa thượng xem tay rồi lắc đầu.
 
-Tạm dừng một lát, sau đó Bùi Tiền bổ sung một câu, "Huống chi con cũng sẽ không dạy quyền."
+Người đọc sách thoạt đầu thất vọng, sau nổi giận. Chắc đã ôm nỗi oán này lâu ngày, hắn thao thao bất tuyệt kể khoa cử làm hỏng người thế nào, bày ra đủ thứ đạo lý. Hắn còn hỏi trong mấy vị trạng nguyên trên đời, có mấy ai viết được một bài thơ lưu danh thiên cổ?
 
-Lý Hòe ngược lại có chút vui vẻ, cười nói: "Ta học cái gì cũng đều là tặc chậm tặc chậm, ngươi không biết dạy quyền tốt hơn, học quyền không thành, ta không thương tâm, ngươi cũng không cần lo lắng lầm bầm gì đó của con cháu. Đổi lại là Trần Bình An, ta sẽ không học, tính tình đó của hắn, một khi dạy quyền, ta muốn lười biếng cũng không được... Bùi Tiền, ta chỉ là ăn ngay nói thật, ngươi không được tức giận nha."
+Lão hòa thượng chìa tay. Người đọc sách hậm hực ném ra một mẩu bạc.
 
-Bùi Tiền cân nhắc một phen, nói: "Hai quyền thung kia của sư phụ ta, ngươi không phải nhìn thấy sớm hơn ta? Lại không khó học, ngươi hẳn là sẽ biết."
+Lão cất bạc vào túi cho chắc rồi mới cười: “Khoa cử có hại người hay không, ta chưa bàn. Có điều nó làm lỡ mất đường làm quan của ngươi thì đúng là thật.”
 
-Lý Sàm nói: "Ta chỉ học cái cọc ngủ "Thiên thu" lung tung, thật ra Trần Bình An nói gì, ta cũng chưa nhớ kỹ, chỉ coi là mình học. Lục bộ tẩu thung cùng kiếm lô lập thung, ta lại càng không dám học, sợ bị bọn Lý Bảo Bình chê cười."
+Người đọc sách đỏ mặt tía tai: “Ngươi xem tướng chẳng chuẩn!”
 
-Bùi Tiền lắc đầu nói: "Ta không dạy quyền. Bản thân ta cũng không biết quyền pháp gì."
+Lão tăng vẫn cười: “Ngươi còn chê trạng nguyên viết chẳng ra danh thiên, cứ như ngươi viết được vậy. Xưa nay có bao nhiêu trạng nguyên, đếm ra cũng không khó. Chứ thư sinh thi rớt vì văn bài chưa tinh như ngươi thì nhiều đến đếm không xuể. Có thư sinh nghèo văn chương thật sự hay mà chẳng được đề tên bảng vàng, chỉ có thể nói tính tình không hợp, mệnh cũng không hợp. Còn ngươi thì chẳng riêng gì thi cử, làm việc gì cũng khó thành. Dẫu vậy, dựa vào chút vốn sẵn có mà sống qua ngày thì vẫn được.”
 
-Lý Hòe nói: "Ngươi biết đó! Không phải vừa mới cùng Tiết Hà Thần hỏi quyền sao?"
+Người đọc sách phất tay áo bỏ đi.
 
-Bùi Tiền chỉ là không đáp ứng.
+“Đồ ngốc.”
 
-Quyền pháp của ta, quyền rơi ở nơi nào.
+Lão tăng lắc đầu: “Muốn oán lớn, ít ra phải từng chịu nạn lớn. Đức chẳng xứng với ngôi, oán chẳng xứng với khổ, vậy mà còn tự nhận là hảo hán sao?”
 
-Bùi Tiền ngẩng đầu nhìn màn trời.
+Người đọc sách đang xỏ giày ngoài cửa, nghe vậy càng thêm nổi nóng. Hắn ngoảnh đầu quát: “Con lừa trọc muốn ăn đòn!”
 
-Mà trên mặt đất, bốn phía có tiếng côn trùng đêm râm ran.
+“Đánh thì được.” Lão tăng đáp. “Phải đưa tiền thuốc!”
 
-Bên ngoài cách Bạch Vân quan của Thanh Loan quốc không xa, một lão tăng đi xa đến tận đây, thuê một gian sân, mỗi ngày đều sẽ nấu canh uống, rõ ràng là món ăn chay, thế mà lại có mùi vị canh gà.
+Người đọc sách chần chừ, cuối cùng vẫn bỏ đi. Ra ngoài hắn bảo mọi người lão tăng là kẻ lừa đảo, chớ phí một lượng bạc.
 
-Cho nên mới có biệt hiệu là Kê Thang hòa thượng.
+Chỉ tiếc lão tăng bây giờ đã khá nổi danh ở kinh thành Thanh Loan quốc, người đứng đợi xem tướng vẫn nối nhau không dứt.
 
-Không giải quẻ, chỉ xem tướng tay. Ngẫu nhiên đoán mệnh, càng nhiều giải thích nghi hoặc cho người ta. Mỗi lần một lượng bạc, vào cửa phải đưa tiền, giải thích nghi hoặc hay không hài lòng, đều không trả tiền.
+Một nam tử trẻ tuổi mặt mày khổ sở vào phòng, hỏi nhân duyên đã đứt liệu có thể nối lại hay không. Lão tăng xem tướng tay, lắc đầu bảo khó.
 
-Hôm nay có một người đọc sách đến nhà, hỏi mình có thể thi đậu công danh hay không.
+Nam tử tự oán tự thương, lẩm bẩm nàng thật vô tình, phụ tấm lòng si mê của hắn. Nhưng hắn chẳng oán nàng, chỉ hận mình không tiền không thế. Nói đến chỗ thương tâm, đường đường một nam tử mà hai tay nắm chặt, khóc không thành tiếng.
 
-Lão hòa thượng nhìn qua tay của người đọc sách, lắc đầu.
+Lão tăng gật đầu: “Tốt, tốt. Biết trách mình, chẳng oán người khác, ấy là thói quen tốt.”
 
-Người đọc sách đầu tiên là thất vọng, tiếp đó giận dữ, hẳn là oán hận chất chứa đã lâu, thao thao bất tuyệt, bắt đầu nói khoa cử kia làm hỏng người, bày ra một đống lớn đạo lý, trong đó có nói mấy trạng nguyên lang thế gian kia, có thể viết thơ nổi danh lưu thiên cổ?
+Nam tử nức nở: “Pháp sư, ta chỉ muốn biết làm sao gỡ nổi khúc mắc này. Cứ thế này ta sống không nổi. Thật sự không sống tiếp nổi nữa.”
 
-Lão hòa thượng đưa tay ra, người đọc sách thở phì phì ném ra một hạt bạc.
+Có lẽ trước hắn đã có người cùng cảnh nếm mùi, nam tử bỗng ngẩng đầu nói: “Đừng bảo ta mấy lời nhảm nhí về chuyện buông bỏ! Cũng đừng nói ai buộc chuông thì người ấy phải tháo. Lão tử buông không được, buông không được! Ta chỉ cần nàng hồi tâm chuyển ý, bảo làm gì ta cũng chịu…”
 
-Lão hòa thượng nhận được tiền, vào túi vì an, lúc này mới cười nói: "Khoa cử hại người không lầm người, ta không nói nữa, làm lỡ ngươi không thể làm quan lão gia, thật sự là sự thật."
+Cuối cùng hắn lại khe khẽ gọi khuê danh nữ tử kia. Quả là si tình.
 
-Người đọc sách mặt đỏ tới mang tai, "Ngươi xem tình hình không chuẩn!"
+Lão tăng đáp: “Có hai cách. Cách dễ là để bụng đói, đói trị được trăm bệnh. Cách rắc rối hơn cũng có thể cho ngươi hiểu, cuộc sống hiện tại cắn răng chịu một chút vẫn qua được. Thật ra còn cách nữa, nhưng cách ấy thì phải đi tìm Nguyệt Lão.”
 
-Lão tăng tự mình cười nói: "Còn nữa ngươi nói Trạng Nguyên lang kia viết không ra thiên cổ danh thiên, nói giống như ngươi viết ra được. Trong lịch sử có mấy Trạng Nguyên lang, về cơ bản vẫn có thể tính ra được. Thư sinh thi rớt chế nghệ không tinh như ngươi, nhưng nhiều đến đếm không hết. Có chút thư sinh nghèo, tài văn chương đó quả thật là tốt, không cách nào đề tên bảng vàng, chỉ có thể nói là tính cách cho phép, mệnh lý không hợp. Ngươi như vậy, chẳng những khoa cử không thành, thật ra mọi sự không thành, dựa vào vốn liếng lăn lộn, vẫn là có thể."
+Nói xong lão xoa xoa mấy ngón tay.
 
-Người đọc sách vung tay áo rời đi.
+Nam tử lắc đầu: “Ta không mang bạc.”
 
-"Đứa ngốc."
+Lão tăng lộ vẻ chán ghét: “Vậy cứ nhịn đói đi.”
 
-Lão tăng lắc đầu, "Oán lớn, hẳn là gặp đại khổ nạn mới có thể oán. Đức không xứng vị, oán không xứng khổ, ngay cả tự cho mình là Hán cũng không đảm đương nổi a."
+Nam tử quỳ sụp xuống đất khóc lớn.
 
-Người đọc sách kia đang đi giày ở cửa, nghe nói lời ấy, lửa cháy đổ thêm dầu, quay đầu cả giận nói: "Con lừa trọc muốn ăn đòn!"
+Lão tăng đành nói: “Thôi, thôi. Đưa tay đây.”
 
-"Đánh người có thể."
+Nam tử chìa tay. Lão tăng nhẹ nhàng điểm vào giữa lòng bàn tay, hắn lập tức ngây ra như phỗng. Một lúc sau, hắn mơ màng tỉnh lại, tựa hồ vừa trải qua cả một đời, trên trán đẫm mồ hôi.
 
-Lão tăng nói: "Phải đưa tiền thuốc!"
+Lão tăng bảo: “Ta lấy của ngươi một lượng bạc [?]. Với ngươi, đó chỉ là một cơn ác mộng. Còn nỗi khổ bị róc thịt lóc xương, bị ném vào vạc dầu [?] mà ta chịu thay ngươi thì rõ rành rành. Đi đi.”
 
-Người đọc sách do dự một phen, vẫn là rời đi, nói với mọi người lão tăng này là kẻ lừa đảo, chớ lãng phí một lượng bạc đó.
+Nam tử loạng choạng rời khỏi phòng. Lão tăng khẽ thở dài, khép mấy ngón tay kéo nhẹ một cái, rồi khoác lại cà sa lên người.
 
-Đáng tiếc lão tăng hôm nay ở kinh thành Thanh Loan quốc danh khí không nhỏ, người phía sau chờ xem bói, vẫn nối liền không dứt.
+Tiếp đến là một hán tử cảm thấy mình bị lừa, ném một lượng bạc xuống đất. Hắn ngồi xuống, hai tay chống đầu gối, nghiến răng hỏi: “Đánh người phải trả tiền, vậy ta chẳng đánh, chỉ mắng ngươi thôi, được chứ? Hả?”
 
-Một nam tử trẻ tuổi thần sắc đau khổ vào phòng, hỏi nhân duyên có thể nối lại hay không.
+Lão tăng lắc đầu: “Không được.”
 
-Lão tăng xem qua thủ tướng, lắc đầu nói khó.
+Hán tử cười khẩy: “Vì sao?”
 
-Nam tử tự oán tự ái, lẩm bẩm nàng thật sự vô tình, cô phụ si tâm, nhưng ta không oán nàng là được, chỉ hận mình không tiền không thế. Nói đến chỗ thương tâm, một đại nam nhân, không ngờ hai tay nắm chặt, khóc không thành tiếng.
+“Ngươi cứ mắng ta, ta chẳng hề gì. Chỉ là ta không nỡ để ngươi tăng khẩu nghiệp. Đã lấy bạc của ngươi rồi mà còn hại ngươi, sao ta nỡ? Người đời mắc vào nghiệp chướng mà chẳng tự biết, cứ thế làm khổ mình. Phúc họa không cửa, đều do người tự chuốc. Miệng và tâm là hai cánh cửa, phúc họa đều do người gọi đến. Phật gia nói giữ lời nói, giữ tâm cho thanh tịnh. Nho gia giảng thận độc, cũng là đóng cửa. Đạo gia chuộng thanh tịnh, vẫn là đóng cửa. Cửa lòng khó giữ, ngay cả luyện sư trên núi còn sợ. Phàm phu tục tử chúng ta mà đến mấy lời nói cũng chẳng giữ nổi thì đâu có tốt. Bây giờ ngươi còn muốn mắng không?”
 
-Lão tăng gật đầu nói: "Tốt tốt tốt, oán trách bản thân không trách người, là thói quen tốt."
+Hán tử chẳng cần nghĩ, lập tức chửi ầm lên, nước bọt văng khắp nơi.
 
-Nam tử nức nở nói: "Pháp sư, chỉ muốn biết làm sao để giải được khúc mắc, nếu không sẽ không sống nổi nữa, thật sự không thể sống tiếp được nữa."
+Lão tăng liếc mẩu bạc dưới đất rồi nhịn. Lão chẳng đuổi người, cứ để hắn mắng đến cạn sức. Đợi hắn ra về, lão mới duỗi hai ngón tay, nhẹ nhàng móc một cái, rồi chùi vào cà sa. Chuyện trong phòng cứ để lại trong phòng [?]. Còn những chuyện khác, đều có duyên pháp.
 
-Đại khái là phía trước có người trong đồng đạo, bị thua thiệt, nam tử ngẩng đầu nói: "Chớ có nói với ta mấy lời hỗn trướng cái gì mà buông xuống không buông! Chớ có nói với ta là Giải Linh còn phải dong nước của Linh nhân. Lão tử không buông được, không buông được! Ta chỉ muốn nàng hồi tâm chuyển ý, cái gì ta cũng nguyện ý làm..." Cuối cùng nam nhân nhỏ giọng nhớ kỹ khuê danh nữ tử, thật sự là si tâm.
+Có một văn sĩ trung niên chắp tay thi lễ ngoài cửa, cởi giày vào phòng, ngồi xuống bồ đoàn rồi nhẹ nhàng đặt bạc xuống đất. Hắn hỏi: “Xin hỏi pháp sư, Phật gia giảng nhân quả luân hồi. Nếu thật có kiếp sau để chịu báo ứng, thì ta ở kiếp này chẳng biết gì về kiếp trước, vậy ta còn là ta sao? Ngay cả là ai cũng không biết, cứ mê mê muội muội mà nhận đủ nghiệp báo, thiện cũng được, ác cũng được. Đến bao giờ mới dứt?”
 
-Lão tăng nói: "Hai biện pháp, một cái đơn giản chút, đói trị bách bệnh. Một cái phức tạp chút, nhưng cũng có thể giúp ngươi hiểu được cuộc sống hiện tại, chịu đựng một chút, vẫn có thể qua được. Thật ra còn có một cái, nhưng ngươi phải tìm Nguyệt Lão."
+“Hỏi hay.” Lão tăng mỉm cười. “Giải được. Để ta chậm rãi nói.”
 
-Sau khi nói xong, lão tăng xoa xoa ngón tay.
+Người kia vẫn không nhịn được, hỏi thêm: “Vì sao báo ứng chốn nhân gian không thể ứng hết ngay trong kiếp này?”
 
-Nam nhân lắc đầu nói: "Trên người không có bạc."
+Mắt lão tăng sáng lên, bỗng quát lớn: “Kẻ nào đang hỏi ở đây mà hỏi hay thế?”
 
-Lão tăng vẻ mặt ghét bỏ, "Đói đi."
+Người kia đứng dậy, chắp tay trước ngực: “Ta chẳng biết mình hỏi có hay không, chỉ biết pháp sư đáp hay.”
 
-Nam nhân quỳ xuống đất khóc lớn.
+Hắn ra ngoài, bỏ quên cả giày.
 
-Lão tăng bất đắc dĩ, "Thôi thôi. Đưa tay ra."
+Kế tiếp là một lão nhân tướng mạo thanh nhã. Sau khi đưa một mẩu bạc, lão hỏi về lai lịch của một vị sơn thần. Lão tăng giải thích đôi lời theo cách hiểu của mình, rồi nói thẳng mấy vị văn nhân Nho gia các ngươi quen rập khuôn theo sách, thấy có chút đạo lý là tin [?].
 
-Nam nhân vươn tay ra, lão tăng nhẹ nhàng điểm vào lòng bàn tay người trước, nam tử lập tức ngây ra như phỗng, sau một lát, mơ màng tỉnh lại, phảng phất như đã cách một thế hệ, cái trán tràn đầy mồ hôi.
+Lão nhân chẳng để bụng, chỉ than người đời quá nhiều kẻ ngu độn và cả đám nịnh bợ kết bè. Nhất là bọn sĩ tử trẻ tuổi, ham công danh lợi lộc đến quá mức…
 
-Lão tăng nói: "Ta thu ngươi một lượng bạc, ngươi chẳng qua chỉ là ác mộng mà thôi, nhưng ta thay ngươi chịu nỗi khổ róc thịt róc xương róc thịt, nồi chảo kia, lại là thật sự rõ ràng, đi đi."
+Lão tăng nghe đối phương lo buồn cho thế đạo hồi lâu, rồi cười ha hả hỏi: “Thí chủ hôm nay ăn cơm với món gì vậy?”
 
-Nam nhân lảo đảo rời đi.
+Lão nhân mỉm cười: “Chỉ là vài món chay thanh đạm ở Bạch Vân quán gần đây thôi.”
 
-Lão tăng khẽ thở dài, ngón tay khép lại, nhẹ nhàng kéo một cái, sau đó nhẹ nhàng khoác lên áo cà sa trên người.
+Lão tăng gật đầu: “Nếu chẳng phải người quen ăn thịt cá, đâu có thật lòng khen cơm chay thanh đạm. Chỉ thấy khó ăn thôi.”
 
-Sau đó có một hán tử bị tự giác lừa gạt, ném một lượng bạc xuống đất, sau khi ngồi xuống, hai tay chống lên đầu gối, nghiến răng nghiến lợi nói: "Nếu đánh người cần trả tiền, vậy ta không đánh người, chỉ mắng người, như thế nào? A?!"
+Sắc mặt đối phương hơi đổi. Lão tăng nói tiếp: “Kẻ ăn no căng bụng lại quay sang bảo hán tử đang đói rằng đồ ăn chẳng ngon. Lỡ còn ợ một tiếng thì càng dễ làm người ta ghét.”
 
-Lão tăng lắc đầu, "Không được."
+Lão nhân đứng dậy, cười lạnh: “Cao tăng đắc đạo gì chứ, toàn hư danh!”
 
-Người nọ cười nhạo nói: "Vì sao?!"
+Lão tăng nhặt bạc lên, cười đáp: “Bạc thì thật.”
 
-"Mắng ta, đương nhiên mắng ta, ta lại không sao cả, chỉ là ta không đành lòng ngươi tăng khẩu nghiệp mà thôi. Đã thu bạc của ngươi, còn muốn hại ngươi, còn nhẫn tâm thế nào? Thế gian thân hãm nghiệp chướng mà không tự biết, rất là lầm mình. Phúc họa vô môn duy nhân tự triệu. Nhân chi khẩu, tâm lưỡng phiến môn, phúc họa vô môn duy nhân tự triệu. Ta nói với ngươi, nói khẩu nghiệp thanh tịnh, tâm cảnh thanh tịnh, nho gia kia giảng thận độc, cũng là đóng cửa. Đạo gia sùng thanh tịnh, hay là đóng cửa. Tâm quan khó thủ, ngay cả luyện sư trên núi kia cũng sợ thật sự, nhưng chúng ta những phàm phu tục tử này, nếu ngay cả nói mấy câu cũng làm không được, thì không tốt lắm. Bây giờ còn muốn mắng?
+Sau đó có một hán tử cao to vạm vỡ mà rụt rè bước tới: “Đại hòa thượng, ta làm nghề đồ tể. Kiếp sau đầu thai còn được làm người không?”
 
-Người nọ không chút hàm hồ, chửi ầm lên, nước bọt văng khắp nơi.
+Lão tăng hỏi: “Ngày ngày giết súc vật bán thịt, ngươi cầu điều gì?”
 
-Lão tăng liếc mắt nhìn viên bạc trên mặt đất, nhịn. Cũng không đuổi người, chỉ chờ người nọ mắng đến không còn khí lực, sau khi người nọ rời đi, lão tăng mới lại duỗi ra hai ngón tay, nhẹ nhàng móc một cái, sau đó cọ cọ trên áo cà sa. Trong phòng, trong phòng, về phần khác, đều có duyên pháp.
+Hán tử hơi mất tự nhiên, nhỏ giọng đáp: “Kiếm tiền nuôi cả nhà.”
 
-Có vị văn sĩ trung niên chắp tay thi lễ ngoài cửa, sau đó cởi giày đi vào trong phòng, ngồi trên bồ đoàn, nhẹ nhàng đặt bạc xuống đất, sau đó hỏi: "Xin hỏi pháp sư, Phật gia giảng nhân quả luân hồi, nhưng nếu thật sự có kiếp sau, báo lại một lần, vậy kiếp này của ta, lại không biết kiếp trước, ta vẫn là ta sao? Ta không biết là ta, đủ loại nghiệp báo, thiện báo cũng tốt, ác báo cũng tốt, tỉnh mê vô tri, mờ mịt thừa nhận, khi nào mới kết thúc?"
+Lão tăng cười: “Xòe tay ra. Ta xem giúp ngươi.”
 
-"Dễ hỏi."
+Cuối cùng hán tử mỉm cười ra về.
 
-Lão tăng mỉm cười nói: "Có thể giải. Để ta chậm rãi nói."
+Người vào sau đó vốn chẳng đến xem tướng tay, chỉ hỏi pháp sư mở miệng là xưng ta, sao chưa từng xưng “bần tăng”. Hình như chẳng hợp quy củ nhà Phật.
 
-Người nọ nhịn không được lại hỏi: "Vì sao báo ứng nhân gian, không thể đều là hiện thế?"
+Lão tăng đáp: “Ta rất có tiền, cũng có chút Phật pháp.”
 
-Ánh mắt lão tăng sáng lên, hét lớn một tiếng: "Lúc này là ai, hỏi như vậy dễ hỏi?!"
+Người nọ dở khóc dở cười, thấy câu ấy thú vị, bèn hài lòng ra về.
 
-Người nọ đứng lên, chắp hai tay trước ngực, "Không biết có dễ hỏi hay không, chỉ biết pháp sư dễ đáp."
+Một nữ tử ngượng ngùng đứng ngoài cửa. Lão tăng cười bảo: “Nữ thí chủ cứ để giày mà vào.”
 
-Người nọ đi ra ngoài.
+Tiểu phụ nhân hỏi đứa con có tư chất đọc sách hay không, về sau có thể thi đỗ tú tài không.
 
-Hắn quên mất đôi giày kia.
+Lão tăng cười, chìa tay ra. Nữ tử đỏ mặt, đưa tay đến nửa chừng lại rụt về. Lão tăng liếc qua, cũng thu tay lại: “Trong mắt ngươi có nam tử, trong lòng ta chẳng có nữ tử. Lời này ta nói được, chứ tăng nhân bình thường nghe đã chẳng lọt tai, càng chẳng làm được. Cũng giống như giữa mẹ chồng và nàng dâu các ngươi. Có nhiều đạo lý ngươi nghe được thì nàng chẳng nghe được. Nàng nghe được thì ngươi lại chẳng nghe được. Thường cả hai đều có lý. Chỉ xem ai chịu buông trước, ai chịu nhường nhiều hơn.”
 
-Kế tiếp là một vị lão nhân tướng mạo thanh nhã.
+Nữ tử hết sức ngạc nhiên, khẽ gật đầu, dường như hiểu ra. Rồi nàng lại có vẻ khó xử. Chút uất ức trong nhà nàng chịu được, chỉ hiềm phu quân nàng cũng buồn phiền. Hắn chẳng quá thiên vị mẹ, nhưng ở bên nàng chỉ biết thở ngắn than dài. Thật ra hắn nói một lời ấm lòng thôi cũng được. Nàng đâu nỡ thật sự làm khó hắn.
 
-Sau khi cho một viên bạc, hỏi một ngọn núi thần linh nguồn gốc, lão tăng liền cho mình một ít giải thích, nhưng nói thẳng là văn nhân nho gia các ngươi rập khuôn theo sách mà đến, cảm thấy có chút đạo lý.
+Lão tăng cười: “Ngươi hiểu cách sống lâu dài với nhau, chẳng qua còn cần một cách gỡ chuyện trước mắt, phải không?”
 
-Vị lão giả kia cũng không để ý, liền cảm khái thế nhân thật sự quá nhiều hạng người Lỗ Đôn si ngốc, hạng người bè lũ xu nịnh, nhất là những sĩ tử trẻ tuổi kia, quá mức ham thích công danh lợi lộc...
+Nữ tử gật đầu lia lịa, nở nụ cười tươi.
 
-Lão tăng chỉ là nghe đối phương ưu sầu thế đạo, hồi lâu sau, cười ha ha hỏi: "Thí chủ, hôm nay dùng cơm, có những cái nào a?"
+Lão tăng nói: “Nhà có gia phong thế nào thì dạy ra con cái thế ấy. Phu quân ngươi bản tính không tệ, chỉ là…”
 
-Đối phương mỉm cười nói: "Cách đó không xa là cơm chay Thanh đạm của Bạch Vân quán mà thôi."
+Nữ tử vội xua tay.
 
-Lão tăng gật đầu nói: "Không phải người quen ăn thịt cá, cũng sẽ không tự đáy lòng cảm thấy cơm chay thanh đạm, mà là cảm thấy khó ăn."
+Lão tăng cười ha hả, đổi lời: “Tục ngữ nói chọn heo thì xem chuồng. Chuyện nữ tử xuất giá, nam tử lấy vợ, xét nhân duyên cũng chẳng khác mấy. Nhà ngươi kể ra cũng dư dả, lại có đủ cả trai lẫn gái. Vậy cứ yên lòng dạy dỗ con cái. Đừng để con nhà khác sau này về nhà ngươi phải chịu nỗi uất ức ngươi đang chịu. Cũng đừng để con mình thành người như bà mẹ chồng trong mắt ngươi bây giờ. Những chuyện ấy đều có thể làm được. Ta dám nói vậy vì chắc ngươi cũng nghĩ đến từ lâu rồi. Đổi sang phụ nhân khác, ta tuyệt đối chẳng dám nói.”
 
-Đối phương sắc mặt khẽ biến, lão tăng còn nói thêm: "Chỉ là người ăn no chống đỡ, cùng hán tử đói nói đồ ăn không ngon, dễ dàng nấc cục khiến người ta chán ghét a."
+Nữ tử làm lễ vạn phúc, cảm tạ rồi ra về. Vì mang giày vào phòng, nàng không quên xin lỗi lão tăng.
 
-Lão nhân đứng dậy, cười lạnh nói: "Cao tăng đắc đạo cái gì, hư danh kỳ danh!"
+Lão cười nói: “Ta nên thay mặt ba gia đình ấy cảm tạ ngươi mới phải.”
 
-Lão tăng thu bạc lại, cười nói: "Bạc thì thật."
+Tiếp đó, một vị công tử trẻ tuổi tuấn tú bước vào, đưa bạc rồi hỏi vì sao biết bao nhiêu đạo lý trên sách rốt cuộc vẫn vô dụng.
 
-Sau đó có một hán tử cao lớn vạm vỡ đến, lại sợ hãi rụt rè, "Đại hòa thượng, ta là đồ tử, kiếp sau đầu thai còn có thể làm người sao?"
+Lão tăng cười: “Thánh hiền trong sách Nho gia của các ngươi đã hết lòng khuyên bảo, chỉ hỏi cày cấy, chớ hỏi thu hoạch. Vậy mà vừa khép sách lại, các ngươi chỉ hỏi kết quả, chẳng chịu hỏi đã bỏ ra bao nhiêu công. Cuối cùng lại oán rằng biết vô số đạo lý trong sách mà chẳng sống cho tốt được. Thế chẳng hay chút nào, phải không? Nếu vốn sống tốt mà vẫn bảo mình sống chẳng ra gì, chẳng phải càng tệ hơn sao?”
 
-Lão tăng hỏi: "Mỗi ngày giết người bán thịt, cần cầu chuyện gì?"
+Cuối cùng lão hỏi: “Ngươi thật sự biết đạo lý ư?”
 
-Hán tử có chút co quắp, nhỏ giọng nói: "Kiếm tiền, nuôi sống gia đình."
+Người trẻ tuổi hơi nổi giận: “Sao ta lại không biết? Ta từng đọc sách, từng học chư tử bách gia. So với ngươi chỉ đọc kinh thư, ta biết còn nhiều hơn!”
 
-Lão tăng cười cười: "Rót tay ra. Ta giúp ngươi nhìn một chút."
+Lão tăng lắc đầu: “Ngươi đọc nhiều sách, nhưng ngươi không biết. So với người đọc chẳng bao nhiêu sách, ngươi có khi còn biết ít hơn.”
 
-Hán tử cuối cùng cười rời đi.
+Người trẻ tuổi quen sống sung sướng, cũng chẳng buồn quanh co: “Ta biết! Ngươi làm gì được ta?”
 
-Một người sau đó, căn bản cũng không phải vì xem tướng tay mà đến, chỉ là hỏi lão tăng kia, pháp sư mở miệng một tiếng ta, vì sao chưa từng tự xưng "Bần tăng"? Hình như không phù hợp quy củ Phật môn a?
+Hắn nói một câu, lão tăng đáp một câu, vẫn cứ lặp lại: “Ngươi không biết.”
 
-Lão tăng trả lời, ta rất có tiền, có chút Phật pháp.
+Lão tăng dĩ nhiên chẳng chịu dây dưa để lỡ việc kiếm tiền. Lão mời vị khách kế tiếp vào, hai bên chẳng phải chậm việc vì nhau.
 
-Người nọ dở khóc dở cười, cũng cảm thấy thú vị, hài lòng rời đi.
+Người trẻ tuổi bỗng buột miệng: “Ta không biết.”
 
-Có nữ tử ngượng ngùng đứng ở cửa, lão tăng cười nói: "Nữ thí chủ, không cần cởi giày."
+Lão tăng đang nói chuyện với người khác cũng thuận miệng đáp: “Ngươi không biết mình biết cái rắm gì.”
 
-Tiểu phụ nhân là hỏi đứa con đó có hạt giống đọc sách hay không, tương lai có thể thi tú tài hay không.
-
-Lão tăng cười vươn tay, nữ tử lại đỏ mặt, vươn tay lại rụt về, lão tăng liếc mắt bàn tay, chính mình cũng buông tay, cười nói: "Trong mắt ngươi có nam tử, trong lòng ta lại không có nữ tử. Chỉ là lời như vậy, ta nói, tăng nhân bình thường nghe không được, càng không làm được. Cái này giống như giữa mẹ chồng con dâu các ngươi, có nhiều đạo lý, ngươi nghe được, nàng liền không nghe được. Nàng nghe được, ngươi lại nghe không được. Thường thường hai loại đạo lý, đều là đạo lý tốt. Liền xem ai bỏ được trước, ai càng nỡ bỏ được."
-
-Nữ tử vô cùng kinh ngạc, nhẹ nhàng gật đầu, hình như có điều ngộ ra. Sau đó thần sắc nàng như có chút khó xử, trong nhà có chút uất ức, nàng có thể chịu đựng, chỉ là phu quân nàng thật sự có chút ưu sầu. Phu quân cũng không thiên vị mẹ chồng quá nhiều, chỉ biết thở vắn than dài ở bên mình. Kỳ thật dù hắn nói một câu ấm lòng cũng tốt. Nàng cũng sẽ không để cho hắn thật sự khó xử.
-
-Lão tăng cười nói, "Hiểu phương pháp ở chung tế thủy trường lưu, chỉ là còn cần biện pháp giải khẩn cấp?"
-
-Nữ tử gật mạnh đầu, cười tươi như hoa.
-
-Lão tăng nói: "Có gia phong nhà nào, ắt có con cái, phu quân kia của ngươi, bản tính không tệ, chính là..."
-
-Nữ tử vội vàng xua tay.
-
-Lão tăng cười ha ha, đổi đề tài: "Chỉ là tục ngữ nói chọn heo xem vòng, chuyện gả cho nữ tử, nam tử kết hôn, nhân duyên đều không khác mấy. Ngươi cũng coi như gia đình giàu có, lại là nhi nữ song toàn, vậy thì an tâm dạy con cái. Đừng để con cái của hắn, tương lai ở nhà ngươi chịu cơn giận này, đừng để con cái ngươi trở thành bà bà trong mắt ngươi. Cũng có thể làm được. Nói vậy với ngươi, đại khái là ngươi đã sớm nghĩ như vậy. Đổi thành phụ nhân khác, ta tuyệt đối không dám nói như vậy."
-
-Nữ tử làm lễ vạn phúc, nói lời cảm tạ rồi rời đi, bởi vì là mang giày vào phòng, nàng không quên nói một tiếng xin lỗi với lão tăng.
-
-Lão tăng cười nói: "Thay ba gia đình kia, nên nói lời cảm tạ với ngươi mới phải."
-
-Sau đó có một công tử ca anh tuấn trẻ tuổi đến, cho bạc, bắt đầu hỏi lão tăng vì sao trên sách đạo lý biết nhiều hơn nữa cũng vô dụng.
-
-Lão tăng cười nói: "Những lời thánh hiền dạy trên sách nho gia các ngươi đã sớm tận tình khuyên bảo, nhưng hỏi cày cấy, Mạc Vấn thu hoạch. Kết quả sau khi khép sách lại, chỉ hỏi kết quả, không hỏi quá trình. Cuối cùng oán trách trên sách như vậy đạo lý biết vô số, sau đó không sống tốt được. Không tốt lắm nhỉ? Thật ra thời gian trôi qua rất tốt, còn nói không tốt, càng không tốt hơn nữa?"
-
-Cuối cùng lão tăng hỏi: "Ngươi quả thật biết đạo lý?"
-
-Người tuổi trẻ kia mơ hồ nổi giận, "Ta làm sao không biết? Ta từng đọc sách, học qua chư tử bách gia, so với ngươi từng đọc kinh thư chỉ biết càng nhiều!"
-
-Lão tăng lắc đầu, "Ngươi đọc sách nhiều, nhưng ngươi không biết. Ngược lại so với người đọc sách không nhiều lắm, biết càng ít hơn."
-
-Người trẻ tuổi kia quen sống an nhàn sung sướng, càng là người thẳng thắn nói: "Ta biết! Ngươi có thể làm khó dễ được ta sao?"
-
-Lão tăng một hỏi một đáp, lặp lại lời nói của mình, ngươi không biết.
-
-Lão tăng đương nhiên sẽ không dây dưa với hắn như vậy, chậm trễ kiếm tiền, liền để vị khách tiếp theo vào phòng, việc làm ăn của hai bên cũng không chậm trễ.
-
-Người trẻ tuổi kia đột nhiên thình lình nói, ta không biết.
-
-Lão tăng đang nói chuyện với người khác cũng nói theo, ngươi không biết mình biết cái rắm.
-
-Người trẻ tuổi lúc trước một mực ở trong viện nghe lén trong phòng đối thoại, bỗng nhiên thoải mái cười to, "Ha ha, con lừa trọc kia cũng phạm khẩu nghiệp!"
+Công tử nãy giờ vẫn đứng trong sân nghe lén chuyện trong phòng, nghe vậy bỗng cười khoái chí: “Ha ha, con lừa trọc cũng phạm khẩu nghiệp!”
 
 Lão tăng nhìn chằm chằm vào hắn.
 
-"Nhiều thế hệ thương nhân nhà ngươi, thật vất vả mới bồi dưỡng ra hạt giống đọc sách như ngươi, hy vọng ngươi vinh quang gia môn, tâm tư mình không chắc chắn, hy vọng xa vời ngẫu nhiên gặp quý nhân ưu ái, trưởng bối hỗ trợ lung lạc nhân tình, ngươi dương dương tự đắc, may mắn áp trúng đề thi, trước mặt người khác vẻ mặt tự nhiên, người sau vui như điên, trên đường đi xa, nghe nói thần nữ bên sông đa tình, gửi thư từ miếu, chưa bị để ý tới, ngươi liền viết diễm thi uyển ngữ nọ, hỏi bạn cùng trường học văn vẻ như thế nào?, Bêu tụng thanh danh thần nữ, thần nữ truy trách, may mà ngươi còn có mấy phần tổ ấm che chở, thổ địa xã công lại nhớ nhung tổ tông nhà ngươi, mỗi khi gặp nạn đói, nhất định mở ra cháo phố, bố thí cô khổ bần hàn, lại thành tâm không cầu hồi báo, cho nên giúp ngươi hết sức xoa dịu gò má, cho dù u minh khác biệt, thần nhân có khác, vẫn muốn phá lệ báo mộng cho ngươi, thấy ngươi vẫn dương dương tự đắc như cũ, lại không biết tổ tông đau lòng vô cùng. Dưới cơn tức giận, thổ địa xã công không quan tâm nữa. Ngươi thủy chung không phát hiện, từ đường gia tộc, sớm đã móc cột cho tay ngươi."
+“Nhà ngươi mấy đời buôn bán, khó khăn lắm mới nuôi được một hạt giống đọc sách như ngươi, mong ngươi làm rạng danh gia môn. Ngươi chẳng chịu chuyên tâm, lại mong tình cờ gặp quý nhân ưu ái. Trưởng bối lo chạy vạy vun đắp nhân tình, ngươi ở đó dương dương tự đắc. May mắn đoán trúng đề thi, trước mặt người khác thì làm vẻ thản nhiên, sau lưng lại mừng đến phát cuồng.
 
-"Vừa lui lại lui, ta không nói nửa điểm Phật pháp ngươi nghe không hiểu, chỉ nói ngươi nghe hiểu được, giả như ta phạm vào khẩu nghiệp, trong lòng ngươi ngoài miệng đều mắng ta con lừa trọc, nghiệp chướng chẳng phải càng lớn hơn sao, như vậy ngươi đã biết đạo lý mênh mông nhiều, vậy ta chỉ nói chuyện lập thân, mua bán nhà ngươi, nghĩ hẳn là biết, lấy khẩu nghiệp của ta, đổi khẩu nghiệp của ngươi, ta thua lỗ, ngươi cũng thua lỗ, vụ làm ăn này, ngươi thật sự có lời sao? Kiếm lời cái gì? Ngươi nếu biết đạo lý nhiều, làm phiền dạy ta một chút?"
+“Trên đường đi xa, nghe nói thần nữ bên sông đa tình, ngươi gửi thư vào miếu. Người ta chẳng đoái hoài, ngươi liền viết thơ tình lả lơi, còn hỏi người cùng trường văn chương của mình thế nào, làm ô danh thần nữ. Đến khi nàng truy tội, may mà ngươi còn chút phúc tổ che chở. Vị thổ địa nhớ tổ tông nhà ngươi hễ gặp năm đói là mở quầy phát cháo, giúp đỡ người nghèo khổ cô quạnh, thật lòng chẳng cầu báo đáp. Bởi vậy thần mới ra sức dàn xếp cho ngươi. Dẫu âm dương cách biệt, thần và người mỗi bên một ngả, thần vẫn định phá lệ báo mộng cho ngươi. Vậy mà ngươi vẫn dương dương tự đắc, nào biết tổ tông đau lòng đến chừng nào. Vị thổ địa nổi giận, chẳng buồn quản nữa. Ngươi từ đầu chí cuối đâu hay từ đường gia tộc đã bị chính tay ngươi moi rỗng đến tận cột nhà [?].
 
-"Ngươi chỉ là sợ ta làm sao biết được những hoạt động không thể lộ ra ngoài ánh sáng kia của ngươi, chuyện cho tới bây giờ, nói đến đây, vẫn là không muốn bản thân rốt cuộc có biết hay không, ngươi rốt cuộc biết cái gì?"
+“Ta đã lùi hết bước này đến bước khác, chẳng đem nửa lời Phật pháp ngươi nghe không hiểu ra nói. Bây giờ chỉ nói chuyện ngươi nghe được. Cứ cho là ta phạm khẩu nghiệp đi. Ngươi trong lòng mắng ta con lừa trọc, ngoài miệng cũng mắng, chẳng phải nghiệp chướng còn lớn hơn sao? Ngươi đã biết bao nhiêu đạo lý, ta chỉ nói chuyện lập thân, chuyện buôn bán của nhà ngươi, chắc ngươi hiểu được. Lấy khẩu nghiệp của ta đổi khẩu nghiệp của ngươi, ta lỗ, ngươi cũng lỗ. Vụ làm ăn này ngươi lời chỗ nào? Kiếm được gì? Ngươi biết nhiều đạo lý, phiền ngươi dạy ta một chút.
 
-Người trẻ tuổi kia đột nhiên biến tư thế ngồi quỳ xuống đất không dậy nổi, khẩn cầu lão tăng cứu hắn ra khỏi bể khổ.
+“Ngươi chỉ sợ, chẳng hiểu vì sao ta biết những việc không dám để lộ ra ánh sáng của ngươi. Đến nước này, nói đến từng ấy chuyện rồi, ngươi vẫn chẳng chịu tự hỏi rốt cuộc mình có biết hay không. Ngươi biết được cái gì?”
 
-Lão tăng nói: "Cầu người không bằng cầu mình."
+Người trẻ tuổi đột nhiên quỳ sụp xuống, không chịu đứng dậy, khẩn cầu lão tăng cứu mình ra khỏi bể khổ.
 
-"Tiền tài thế gian, chưa từng khác biệt không có tịnh uế, chỉ là lòng người, luôn có phân hắc bạch."
+Lão tăng bảo: “Cầu người không bằng cầu mình.”
 
-Người trẻ tuổi kia chỉ là quỳ xuống đất dập đầu, cầu khẩn không thôi.
+“Tiền tài trên đời vốn chẳng phân sạch bẩn. Chỉ lòng người mới có đen trắng.”
 
-Lão tăng cả giận nói: "Chỉ cảm thấy trên đời này không có thị phi gì, chỉ có lập trường? Lại nhìn ngươi kiêu căng khôn khéo tự đắc mừng thầm có thể được vài năm! Chỉ để ý hưởng phúc đi!"
+Người trẻ tuổi vẫn quỳ dập đầu, cầu khẩn không thôi.
 
-Người tiếp theo.
+Lão tăng nổi giận: “Ngươi tưởng trên đời chẳng có phải trái, chỉ có lập trường sao? Cứ xem cái thói kiêu căng, tự cho mình khôn khéo rồi mừng thầm ấy còn kéo được mấy năm. Cứ lo hưởng phúc đi!”
 
-Cũng là người từ nơi khác tới, nhìn khuôn mặt ước chừng đứng, diện mạo hiên ngang, hắn mỉm cười nói: "Hòa thượng, canh gà này của ngươi... mùi vị hơi kỳ lạ."
+Người tiếp theo cũng đến từ nơi khác. Hắn chừng ngoài ba mươi [?], diện mạo hiên ngang. Hắn mỉm cười: “Hòa thượng, canh gà của ngươi… mùi vị hơi lạ.”
 
-Lão tăng cười nói: "Thí chủ nói thẳng không dễ uống là được. Bởi vì phần lớn thời gian, sẽ chỉ làm người buồn bực hơn, người khổ càng khổ."
+Lão tăng cười: “Thí chủ cứ nói thẳng là khó uống. Phần lớn thời gian, nó chỉ khiến người buồn thêm buồn, người khổ thêm khổ.”
 
-Người nọ buông xuống một hạt bạc, "Ta tin tưởng pháp sư là thật có Phật pháp, chỉ là nhiều người phiền não, nếu cũng không lớn, vì sao không truyền thụ lấy tiểu thuật, dựng sào thấy bóng, chẳng phải là phát huy Phật pháp càng nhiều?"
+Người nọ đặt xuống một mẩu bạc: “Ta tin pháp sư thật sự có Phật pháp. Chỉ là phiền não của nhiều người cũng chẳng có gì lớn, sao không dạy họ vài phép nhỏ, hiệu nghiệm ngay như dựng sào thấy bóng? Chẳng phải làm vậy thì Phật pháp được dùng nhiều hơn sao?”
 
-Lão tăng lắc đầu nói: "Dùng thuốc cấp tính, có nhiều lang trung hiệu thuốc như vậy, muốn ta làm gì, nếu là ngày thường vô sự, ăn nhiều cơm là được rồi."
+Lão tăng lắc đầu: “Có bệnh gấp cần thuốc thì lang trung và hiệu thuốc ngoài kia đầy ra, cần ta làm gì? Ngày thường không có bệnh, ăn thêm cơm là đủ.”
 
-Người nọ cảm thấy chưa thỏa mãn, còn xa mới đủ để giải thích nghi hoặc.
+Người nọ nghe vẫn chưa thỏa. Chừng ấy còn xa mới giải được mối nghi của hắn.
 
-Lão tăng đã cười nói: "Phiền não nhỏ của phàm phu tục tử, nhỏ bao nhiêu? Ngươi cảm thấy Phật pháp trong lòng ta, lại lớn bao nhiêu? Thật có thể dựng sào thấy bóng? Ta cũng không cần đi nói phiền não phật pháp như thế nào, chỉ nói thí chủ ngươi có thể từ nơi xa vạn dặm, đi đến nơi này ngồi xuống, sau đó nói với ta câu này, ngươi đã trải qua bao nhiêu thăng trầm? Trong lòng thí chủ chưa nổi lên một phiền não nhỏ, nhưng việc này nhìn xa một chút, thì không tính là nhỏ nhỉ?"
+Lão tăng đã cười hỏi tiếp: “Phiền não nhỏ của phàm phu tục tử, nhỏ được bao nhiêu? Phật pháp trong lòng ta, ngươi tưởng lớn đến đâu? Thật sự dựng sào là thấy bóng ngay sao? Ta cũng chẳng cần bàn phiền não hay Phật pháp thế nào. Chỉ nói một chuyện thôi. Thí chủ từ xa vạn dặm đến đây, ngồi xuống nói với ta câu ấy, đã trải qua bao nhiêu thăng trầm? Trong lòng thí chủ có khi chưa dấy lên chút phiền não nào. Nhưng đứng xa nhìn lại, chuyện này đâu có nhỏ, phải không?”
 
-Người nọ bật cười, không cho là đúng, lắc đầu nói: "Ta đời này chứng kiến nghe thấy, sở học sở ngộ, đăm chiêu suy nghĩ, cũng không phải chỉ vì hôm nay cùng pháp sư, đánh mũi nhọn này."
+Người nọ bật cười, không cho là phải. Hắn lắc đầu: “Những gì đời ta đã thấy, đã nghe, đã học, đã ngộ, những gì từng đăm chiêu nghĩ ngợi, chẳng lẽ chỉ để hôm nay đấu khẩu với pháp sư đôi câu?”
 
-Lão tăng phất phất tay, "Vậy thì đi nơi khác."
+Lão tăng phất tay: “Vậy thì đi nơi khác.”
 
-Trong vòng một ngày, trong sân kín người hết chỗ, rộn rộn ràng ràng, phi thường náo nhiệt.
+Suốt ngày hôm ấy, người đứng kín cả sân, ra vào rộn ràng.
 
-Người cuối cùng hôm nay, đúng là vị tiểu đạo quán kinh thành, quán chủ trung niên Bạch Vân quán.
-
-Người thứ hai đếm ngược là một tinh mị biến ảo hình người.
-
-Lão tăng hiểu được, quán chủ trung niên đương nhiên cũng biết.
+Vị khách cuối ngày là đạo nhân trung niên trông coi Bạch Vân quán, một đạo quán nhỏ ở kinh thành. Vị khách ngay trước quán chủ là một tinh mị hóa thành hình người. Lão tăng nhận ra, quán chủ trung niên dĩ nhiên cũng biết.
 
 Lão tăng vừa nói với tinh mị kia ba câu.
 
-"Đã có lòng người, chính là người."
+“Đã có lòng người thì là người.”
 
-"Thiên địa lớn sao? Chẳng qua chỉ là một mình ta, một mình hắn."
+“Trời đất lớn sao? Chẳng qua chỉ có một mình ta, một mình hắn.”
 
-"Thiên hạ nhiều chuyện sao? Chẳng qua chỉ là một vật được mất, một cảm thụ trong lòng."
+“Thiên hạ nhiều chuyện sao? Chẳng qua chỉ được mất một vật, một phen buồn vui trong lòng.”
 
-Đạo nhân trung niên trước khi cởi giày, không chắp tay trước đạo môn kia, đúng là hai tay chắp mười hành lễ Phật gia.
+Trước khi cởi giày, đạo nhân trung niên không thi lễ theo lối Đạo môn, mà chắp hai tay theo lễ nhà Phật.
 
-Lão tăng cười nói: "Quán chủ không cần cho một lượng bạc kia, trong mắt ta, chỉ nhìn một chút phật quang trong lòng chúng sinh hữu tình kia, không nhìn thấy cái khác, không có tinh quái quỷ mị gì."
+Lão tăng cười: “Quán chủ không cần đưa một lượng bạc ấy. Ta chỉ nhìn chút Phật quang trong lòng chúng sinh hữu tình, chẳng thấy gì khác, cũng chẳng thấy tinh quái quỷ mị nào.”
 
-Đạo nhân trung niên hiểu ý cười, nhẹ nhàng gật đầu.
+Đạo nhân hiểu ý, mỉm cười khẽ gật đầu.
 
-Lão tăng tiếp tục nói: "Ta sợ ngộ sai Phật pháp, nói sai Phật pháp. Không sợ dạy người ta biết rốt cuộc Phật pháp tốt ở đâu, chỉ e dạy người ta bước đầu tiên sẽ đi thế nào, sau đó sẽ từng bước đi thế nào. Khó khăn. Khổ nỗi, trong lòng tiểu sa di có Phật nhưng chưa chắc đã nói Phật pháp. Đại hòa thượng nói Phật pháp, nhưng chưa chắc trong lòng đã có Phật."
+Lão tăng nói tiếp: “Ta sợ hiểu sai Phật pháp rồi nói sai Phật pháp. Chỉ cho người ta biết Phật pháp hay ở đâu thì ta không sợ. Chỉ e dạy họ bước đầu tiên đi thế nào, rồi từng bước sau đó đi ra sao. Khó lắm. Khổ nỗi tiểu sa di trong lòng có Phật chưa chắc giảng được Phật pháp. Đại hòa thượng giảng Phật pháp, trong lòng chưa chắc đã có Phật.”
 
-Đạo nhân trung niên nói hai câu.
+Đạo nhân trung niên chỉ nói hai câu.
 
-Ngộ đạo là từ trong giác ngộ.
+“Ngộ đạo bắt đầu từ giác ngộ.”
 
-Dần ngộ là hướng tới đốn ngộ.
+“Tiệm ngộ là để đi tới đốn ngộ.”
 
-Lão tăng nhân cúi đầu chắp tay trước ngực, "A Di Đà Phật, thiện tai thiện tai."
+Lão tăng cúi đầu chắp tay: “A Di Đà Phật, thiện tai, thiện tai.”
 
-Trung Thổ Thần Châu, một vị tiên nhân đi đến trong một động thiên.
+Tại Trung Thổ Thần Châu, một vị tiên nhân đi vào một động thiên.
 
-Dưới chân tiên nhân là một cái gương cổ đồng xanh phạm vi trăm trượng, nhưng mà bày hai mươi cái ghế tựa như một tòa tổ sư đường.
+Dưới chân hắn là một tấm gương đồng xanh cổ, rộng đến trăm trượng. Trên gương bày hai mươi chiếc ghế, nom như một tòa tổ sư đường.
 
-Sau khi vị tiên nhân này hiện thân, mở ra trận pháp kính cổ, trong một nén nhang, từng thân ảnh bồng bềnh xuất hiện, sau khi ngồi xuống, hơn mười người, chỉ là khuôn mặt đều mơ hồ không rõ.
+Vị tiên nhân hiện thân, mở trận pháp trong gương. Trong vòng một nén nhang, bóng người lần lượt hiện ra, hơn mười người ngồi vào chỗ. Gương mặt ai nấy đều mơ hồ. Hai chiếc ghế gần đầu nhất vẫn để trống.
 
-Nhưng hai cái ghế ở vị trí gần phía trước nhất, tạm thời không có người ngồi xuống.
+Mọi người chẳng ai lên tiếng, chỉ dùng tiếng lòng trò chuyện. Người ngồi ghế cuối hỏi trước: “Quỳnh Lâm tông ta có cần âm thầm giúp một tay không?”
 
-Mọi người đều trầm mặc không nói, dùng tiếng lòng nói chuyện với nhau.
+Vị tiên nhân chủ trì cười lạnh: “Ngu xuẩn. Âm thầm? Âm thầm thế nào được? Ngươi tưởng các vị thánh nhân Văn Miếu là kẻ ngốc sao?”
 
-Một người có vị trí thấp nhất trên ghế ngồi, mở miệng nói trước: "Quỳnh Lâm Tông ta có cần âm thầm trợ giúp một phen không?"
+Vị tiên sư của Quỳnh Lâm tông im thin thít, rồi bối rối đứng dậy tạ lỗi với mọi người. Từ đó cả bọn không dùng tiếng lòng nữa.
 
-Vị tiên nhân kia thân là chủ nhân nơi này cười lạnh nói: "Ngu xuẩn. Âm thầm? Sao lại âm thầm?! Ngươi cho rằng những thánh nhân văn miếu kia là kẻ ngốc sao?"
+Tiên nhân dặn vị tông chủ Quỳnh Lâm tông kia: “Nói với Từ Sưởng rằng hắn đòi hỏi quá nhiều. Với cảnh giới hiện giờ, hắn chưa có tư cách bàn chuyện này. Còn Hạ Tiểu Lương của Thanh Lương tông, bảo hắn đừng trêu vào.”
 
-Vị tiên sư đến từ Quỳnh Lâm tông câm như hến, sau đó bối rối đứng dậy, xin lỗi mọi người.
+Người kia gật đầu lĩnh mệnh.
 
-Từ đó về sau, lời nói của mọi người không còn lấy tiếng lòng nữa.
+Tiên nhân nói: “Hố Tứ Thủy quả nhiên có biến. May mà chúng ta chẳng dính dáng nhiều. Ngoài ra vùng biển Bảo Bình châu và Bắc Câu Lô Châu đều có dị tượng.”
 
-Tiên nhân nói với vị Quỳnh Lâm tông tông chủ kia: "Nói cho Từ Sưởng, hắn yêu cầu quá lớn, lấy cảnh giới hôm nay của hắn, không có tư cách nói việc này. Thanh Lương tông Hạ Tiểu Lương kia, bảo hắn không nên đi trêu chọc."
+Một người cười nói: “Chúng ta đâu phải Vũ Long tông. Cứ đứng ngoài xem là được.”
 
-Người sau gật đầu lĩnh mệnh.
+Lại có một giọng già nua cười lạnh: “Ta muốn xem Trần Thuần An độc chiếm hai chữ ‘thuần nho’ thế nào.”
 
-Tiên nhân nói: "Hố Tứ Thủy quả nhiên có biến số, may mắn chúng ta cùng hố Tứ Thủy không có dính dáng quá nhiều, trừ cái đó ra, hải vực Bảo Bình châu cùng Bắc Câu Lô Châu đều có dị tượng xảy ra."
+Tiên nhân chẳng buồn để ý đến ân oán riêng ấy. Hắn nhìn sang nữ tử ngồi đối diện, nhíu mày hỏi: “Bảo Bình châu là địa bàn của ngươi, ngươi chẳng có lời nào muốn nói ư?”
 
-Một người trong đó cười nói: "Chúng ta cũng không phải Vũ Long Tông, đứng ngoài cuộc quan sát là được."
+Cổ tay nữ tử buộc một sợi chỉ đỏ. Nàng mỉm cười: “Quả thật chẳng có gì để nói.”
 
-Lại có một giọng nói già nua cười lạnh nói: "Ta ngược lại muốn xem Trần Thuần An độc chiếm thuần nho như thế nào."
+Tiên nhân hỏi: “Ai đi dò xem rốt cuộc quyển sách kia do ai viết? Nếu thu được người ấy về giúp chúng ta thì tốt nhất.”
 
-Tiên nhân không để ý tới ân oán cá nhân này, nhìn phía nhân vật ngồi đối diện mình trong trang phục nữ tử, nhíu mày nói: "Bên Bảo Bình châu, là địa bàn của ngươi, sẽ không có lời gì muốn nói?"
+Một người lên tiếng: “Ta đi.”
 
-Cổ tay nữ tử buộc dây đỏ, mỉm cười nói: "Thật đúng là không còn lời nào để nói."
+Nữ tử cười: “Quả là mũi chó.”
 
-Tiên nhân hỏi: "Ai đi thăm dò xem quyển sách kia rốt cuộc là do ai làm ra? Có thể sử dụng chúng ta là tốt nhất."
+Người kia lạnh nhạt nói: “Chẳng nhờ có một sư huynh tốt, ngươi đã chết từ lâu.”
 
-Một người trong đó nói: "Ta đi."
+Nàng khẽ lắc cổ tay: “Tiếc thay, ta lại có.”
 
-Nữ tử kia cười nói: "Thật sự là mũi chó."
+Vị tiên nhân chủ trì nói: “Bàn việc tiếp!”
 
-Người nọ lạnh nhạt nói: "Nếu không phải ngươi có một sư huynh tốt, đã sớm chết."
+Nữ tử lên tiếng: “Để ta thử xem. Trước hết cứ cho Lưu Tiện Dương đến Chính Dương sơn một chuyến.”
 
-Cô gái nhẹ nhàng lắc lắc cổ tay, "Đáng tiếc ta có a."
+Ở một vùng quê nơi biên ải Đại Ly, lũ trẻ đang chơi đùa. Vừa thấy bụi đất tung lên đằng xa, chúng lập tức nhảy nhót reo hò.
 
-Tiên nhân nơi đây nói: "Tiếp tục nghị sự!"
+Một đội tinh kỵ phóng qua. Lũ trẻ chạy như bay trên sườn núi.
 
-Nữ tử nói: "Ta thử xem, trước để cho Lưu Tiện Dương đi Chính Dương sơn một chuyến."
+Một kỵ binh trên lưng ngựa ngoảnh lại nhìn, khẽ nắm tay gõ nhẹ vào ngực mình.
 
-Đại Ly biên quan hương dã, một đám trĩ đồng chơi đùa, rốt cuộc nhìn thấy xa xa bụi đất bay lên, lập tức nhảy nhót hô quát.
+Thác Nguyệt sơn ở Man Hoang thiên hạ khẽ rung. Chấn động mỗi lúc một mạnh, cả ngọn núi tựa hồ sắp đổ xuống.
 
-Một chi tinh kỵ lao nhanh qua.
+Đại trận Thác Nguyệt sơn mở ra. Ngọn núi bỗng lún xuống hơn mười trượng, chấn động liền dứt.
 
-Bọn nhỏ chạy như bay trên sườn núi.
-
-Một vị kỵ tốt trên lưng ngựa quay đầu nhìn lại, nhẹ nhàng nắm tay gõ ngực.
-
-Man Hoang Thiên Hạ Thác Nguyệt Sơn, hơi rung động, sau đó động tĩnh càng lúc càng lớn, gần như có dấu hiệu núi cao đổ xuống.
-
-Sau đó đại trận của Thác Nguyệt sơn mở ra, cả tòa núi cao chợt chìm xuống hơn mười trượng. Động tĩnh không còn nữa.
-
-Phía trên đầu tường Kiếm Khí Trường Thành, một bộ áo bào đỏ, nhắm mắt dưỡng thần, ngồi im như chết, hắn đột nhiên đứng lên, cười to nói: "A Lương, có rảnh tới làm khách!"
+Trên đầu tường Kiếm Khí Trường Thành, một người mặc hồng bào đang nhắm mắt dưỡng thần, ngồi im như đã chết. Hắn đột nhiên đứng dậy, cười lớn: “A Lương, rảnh thì đến làm khách!”

@@ -2,692 +2,700 @@
 
 Ngày qua ngày, năm qua năm.
 
-Kiếm Khí Trường Thành, phía trên đầu tường.
+Trên đầu tường Kiếm Khí Trường Thành cuối cùng cũng đón trận tuyết lớn đầu tiên.
 
-Cuối cùng cũng nhận được trận tuyết lớn đầu tiên.
+Gương mặt và thân hình người trẻ tuổi đứng bên vách đá dần ngưng thực. Dưới tấm pháp bào đỏ tươi là một vết kiếm suýt chém đôi người hắn. Xương sống đang tự liền lại.
 
-Người thanh niên khuôn mặt, thân hình dần dần vững chắc, lúc này đứng ở trên vách núi đầu tường, dưới pháp bào đỏ tươi, trên người một vết kiếm gần như cắt đứt toàn bộ thân hình, cột sống đang tự động khỏi hẳn.
+Trần Bình An định lén rời Kiếm Khí Trường Thành một đoạn, tìm cách chặn giết đại quân yêu tộc ở chỗ dòng lũ ấy đứt quãng. Dù sao cũng phải kiếm chút việc mà làm.
 
-Là đại quân Yêu tộc mà hắn muốn lén lút rời khỏi Kiếm Khí Trường Thành một khoảng cách, đánh giết dòng lũ Yêu tộc đứt gãy nơi Kiếm Khí Trường Thành.
+Nào ngờ bộ áo bào xám xuất quỷ nhập thần kia thoắt đã đuổi tới, giáng xuống một kiếm. Nếu không nhờ bí thuật giữ làm của để dành giúp quay về Kiếm Khí Trường Thành, dù Trần Bình An thật sự là tu sĩ Ngọc Phác cảnh, hắn cũng đã chết.
 
-Dù sao cũng phải tìm một chút chuyện để làm.
+Trần Bình An đứng nhìn Long Quân từ xa. Hai người ở hai phía đầu tường, giằng co hồi lâu. Long Quân vẫn im lặng. Người trẻ tuổi cầm đao xoay lưng bỏ đi.
 
-Kết quả bị một bộ áo bào xám xuất quỷ nhập thần trong nháy mắt đuổi tới.
+Bấy giờ Long Quân mới cất giọng khàn khàn: “Trần Thanh Đô kiếm đâu ra một tên phế vật như ngươi, để lại đây làm chó giữ nhà?”
 
-Cuối cùng bị đối phương một kiếm hung hăng bổ trúng, nếu không phải sử dụng một bí thuật áp đáy hòm, có thể quay về Kiếm Khí Trường Thành, cho dù Trần Bình An là Ngọc Phác cảnh thật sự, cũng tuyệt đối đã chết.
+Ly Chân ngự kiếm tới, cười nói: “Đáng thương, đáng thương. Chẳng biết hắn giữ cửa cho Kiếm Khí Trường Thành hay canh cửa giúp Man Hoang Thiên Hạ chúng ta?”
 
-Trần Bình An giờ phút này xa xa giằng co cùng vị Long Quân đầu tường đối diện kia.
+Bóng lưng ấy chỉ càng lúc càng xa.
 
-Cuối cùng Long Quân cũng không nói gì, người trẻ tuổi cầm đao xoay người rời đi.
+Ở thành Bích Họa, gần chỗ treo tranh thần nữ, Bùi Tiền tìm được cửa hàng nhỏ bán bản sao tranh thiên quan và thần nữ. Tám phần phúc duyên đã tan đi, cửa hàng cũng vắng khách, chẳng khác tiệm Áp Tuế nhà mình ở ngõ Kỵ Long là bao.
 
-Long Quân khàn khàn mở miệng nói: "Trần Thanh đã tìm một tên phế vật như ngươi, ở lại chỗ này làm chó giữ nhà?"
+Chưởng quầy là một tỷ tỷ trẻ tuổi, dung mạo thanh tú. Bùi Tiền từng nghe sư phụ kể, nàng tuy không phải tu sĩ Phi Ma tông, song cùng Bàng Lan Khê kết thành một đôi thần tiên quyến lữ hiếm có.
 
-Ly Chân ngự kiếm mà tới, cười nói: "Đáng thương đáng thương, thật sự là không biết, là canh cửa cho Kiếm Khí Trường Thành, hay là giúp Man Hoang Thiên Hạ chúng ta canh cửa?"
+Bùi Tiền lại có chút lo. Bàng Lan Khê là kiếm tu trên núi, có thuật giữ dung nhan. Vị tỷ tỷ này sống dưới núi, năm này qua năm khác vẫn cứ già đi. Dù có linh đan diệu dược, rồi cũng đến ngày tóc bạc trắng. Tới chừng ấy, tỷ ấy biết làm sao? Dù hai người vẫn ở bên nhau, Bàng Lan Khê chẳng hề để tâm, tỷ ấy hẳn cũng sẽ có lúc lén buồn.
 
-Bóng lưng kia chỉ là càng lúc càng xa.
+Bùi Tiền gãi đầu. Hay là nhớ kỹ gương mặt tỷ ấy, về nhờ lão đầu bếp làm một tấm giống hệt? Nghĩ lại, nàng sợ mình làm chuyện thừa. Phiền thật. Có sư phụ ở đây thì tốt rồi.
 
-Thành bích họa, gần bức họa Thần Nữ treo, Bùi Tiền tìm được gian cửa hàng nhỏ bán thần nữ thiên quan vẽ, lâm bản kia, theo tám phần phúc duyên đều đã mất đi, cửa hàng làm ăn thật sự bình thường, không khác mấy so với cửa hàng Áp Tuế ngõ Kỵ Long nhà mình.
+Lần trước sư phụ tới thành Bích Họa, năm vị thần nữ cầm bảo cái, linh chi, xuân quan, trường kỳ và tiên trượng, tục gọi là thần nữ Trảm Khám [?], đã từ tranh màu hóa thành hình nét trắng. Mãi đến khi sư phụ lên đường đi Quỷ Vực cốc, ba vị thần nữ treo khánh, làm mưa và cưỡi hươu mới chọn chủ.
 
-Chưởng quầy là một tỷ tỷ trẻ tuổi dung mạo thanh tú, từng nghe sư phụ nói qua, tuy nàng không phải người tu đạo Phi Ma tông, nhưng lại có một đôi thần tiên quyến lữ hiếm thấy với Bàng Lan Khê.
+Hồi ấy Bùi Tiền và Tiểu Mễ Lạp đều bất bình thay sư phụ. Ba vị thần nữ ấy làm sao thế nhỉ? Lớn tuổi rồi, mắt cũng kém đi sao? Chẳng hiểu sao bấy giờ Bùi Tiền trông sư phụ như trút được gánh nặng, còn cười rất vui.
 
-Bùi Tiền liền có chút lo lắng, Bàng Lan Khê kia là kiếm tu trên núi có thuật trú nhan, nữ tử dưới núi, lại chỉ có thể năm này qua năm khác già đi dung nhan, dù có chút linh đan diệu dược, cũng sẽ có một ngày tóc trắng xoá, đến lúc đó nó làm sao bây giờ? Cho dù hai người luôn ở bên nhau lâu dài, Bàng Lan Khê không chút để ý, nhưng chung quy nó vẫn sẽ vụng trộm đau lòng. Bùi Tiền gãi gãi đầu, không bằng nhớ khuôn mặt vị tỷ tỷ này, trở về bảo lão đầu bếp tạo ra một tấm giống nhau như đúc? Chỉ là Bùi Tiền lại lo lắng mình có thể làm điều thừa, ài, phiền, sư phụ ở thì tốt rồi.
+Bùi Tiền tới đây cho biết thôi. Trừ phi bán sạch gia sản, nàng tuyệt đối chẳng mua nổi Thần Nữ Đồ. Còn Lý Hòe thì khỏi nói. Hắn nghèo rớt mồng tơi, trong người chỉ có ít bạc vụn, đến một đồng tiền thần tiên cũng chẳng có, theo nàng ăn uống ké mà thôi.
 
-Bảo cái, linh chi, xuân quan, trường kỳ, tục xưng trảm khám thần nữ tiên trượng, năm vị thần nữ này, là sư phụ lần trước tới thành bích họa này, đã từ bích họa màu sắc biến thành bức vẽ trắng, sau khi sư phụ hướng Quỷ Sán Cốc, treo khánh, hành vũ, cưỡi hươu ba vị thần nữ, mới đều lựa chọn chủ nhân của mình. Lúc ấy Bùi Tiền cùng Chu Mễ đều rất bênh vực kẻ yếu, ba vị thần nữ kia sao lại thế chứ, lớn tuổi ánh mắt cũng không dùng được? Chỉ là không biết vì sao, Bùi Tiền phát hiện sư phụ lúc ấy có loại vẻ mặt như trút được gánh nặng, cười còn rất vui vẻ.
+Không sao. Bùi Tiền định làm một vụ buôn bán nhỏ. Trước khi xuống núi, nàng đã thưa với Vi Vũ Tùng, vị Thần Tài của Phi Ma tông. Vi tiền bối bằng lòng cho nàng và Lý Hòe bày một sạp Bao Phục trai trong thành, miễn tiền chỗ.
 
-Bùi Tiền đến bên này chính là góp vui, trừ phi nó đập nồi bán sắt, là tuyệt đối không mua nổi Thần Nữ Đồ bên này.
+Từ biệt vị tỷ tỷ dịu dàng kia, Bùi Tiền dẫn Lý Hòe tới chỗ đông người, chọn một khoảng đất trống. Nàng tháo hòm trúc, lấy tấm vải bông đã chuẩn bị sẵn trải xuống đất, đặt hai lá bùa giấy vàng lên trên rồi liếc Lý Hòe.
 
-Về phần Lý Hòe thì càng quên đi, một kẻ nghèo kiết xác triệt để, trên người ngay cả một đồng tiền thần tiên cũng không có, chỉ mang theo chút bạc vụn, đi theo mặt hàng ăn uống miếng.
+Lý Hòe lập tức hiểu ý. Cơ hội lấy công chuộc tội đã tới. Chắc Bùi Tiền sẽ thôi kiếm chuyện với hắn. Tốt quá! Hắn vội lấy chiếc bát rửa bút bằng sứ men xanh của Nguyễn Thanh [?] ra đặt lên tấm vải, rồi lại định lấy nốt mấy món còn lại.
 
-Không sao, Bùi Tiền tính làm chút mua bán nhỏ ở bên này, trước khi xuống núi cùng Phi Ma tông Tài thần gia Vi Vũ Tùng, trước đó đã chào hỏi, Vi tiền bối đã đáp ứng nó và Lý Hòe ở thành Bích Họa bên này, nếu làm cái túi nhỏ, có thể không cần giao tiền cho Phi Ma tông.
+Hai người chia đôi số đồ mua được. Ngoài bát rửa bút, Lý Hòe còn được một chiếc chặn giấy nhỏ dáng đàn cổ kiểu Lạc Hà và một chiếc bát xanh sẫm khắc hình châu long [?]. Bức Hồ Ly Bái Nguyệt Đồ, chiếc hộp men ba màu có hình một đôi sư tử và nghiên mực khắc hình tiên nhân say rượu nâng trăng đều thuộc về Bùi Tiền.
 
-Nói lời từ biệt với tỷ tỷ dịu dàng động lòng người kia, Bùi Tiền mang theo Lý Hòe đi chỗ nhiều người, tìm được một mảnh đất trống, Bùi Tiền tháo hòm trúc xuống, từ bên trong lấy ra một miếng vải bông đã sớm chuẩn bị sẵn, đặt ở trên mặt đất, đem hai tờ phù lục giấy vàng đặt ở trên vải bông, sau đó ném ánh mắt cho Lý Hòe, Lý Hòe lập tức ngầm hiểu, cơ hội lấy công chuộc tội tới rồi, nguy cơ bị Bùi Tiền đi giày nhỏ xem như không còn, chuyện tốt chuyện tốt, cho nên lập tức từ hòm trúc lấy ra món bút sứ thanh sứ kia của Nguyễn Thanh, dẫn đầu đặt ở trên vải bông trước., Sau đó liền muốn đi lấy ba kiện còn lại, lúc ấy hai người chia nhau một nửa, trừ rửa bút sứ xanh này, Lý Hòe còn được một tờ giấy trấn nhỏ kiểu dáng đàn cổ kiểu Lạc Hà, cùng với bát châu long khắc họa màu lục đậm kia. Còn lại hồ ly Bái Nguyệt Đồ, chứa một đôi hộp văn sư tử ba màu, còn có phương tiên nhân nâng trăng say rượu, đều thuộc về Bùi Tiền, nàng nói về sau đều là phải lấy ra tặng người, nghiên mực để lại cho sư phụ, bởi vì sư phụ là người đọc sách, còn thích uống rượu. Về phần Bái Nguyệt Đồ thì tặng hạt gạo nhỏ là được rồi, hộp văn phòng cho Noãn Thụ tỷ tỷ, nàng là tiểu quản gia Lạc Phách sơn cùng phòng thu chi nhỏ, Noãn Thụ tỷ tỷ vừa vặn dùng được.
+Nàng đã tính để nghiên mực cho sư phụ. Sư phụ là người đọc sách, lại thích uống rượu. Bức tranh thì tặng Tiểu Mễ Lạp, chiếc hộp đựng đồ văn phòng đem về cho Noãn Thụ tỷ tỷ. Tỷ ấy vừa là tiểu quản gia núi Lạc Phách, vừa trông coi sổ sách, hẳn sẽ dùng đến.
 
-Về phần một xấp lớn lá bùa cùng sợi dây đỏ kia, Bùi Tiền lấy nhiều lá bùa, Lý Hòe thì ngoan ngoãn thu hồi sợi dây đỏ Bùi Tiền ghét bỏ kia, hắn thật ra càng ghét bỏ hơn. Một đại lão gia muốn thứ đồ chơi này làm gì.
+Còn xấp bùa và sợi dây đỏ, Bùi Tiền lấy phần lớn bùa. Lý Hòe ngoan ngoãn cất sợi dây nàng chê vào hòm. Thật ra hắn còn chê hơn. Một nam tử hán cần thứ này làm gì?
 
-Không ngờ Bùi Tiền trừng mắt nhìn Lý Hòe một cái, cả giận nói: "Có ngốc hay không, chúng ta như là người nhà đại phú đại quý ra ngoài hay sao? Ngươi một hơi lấy ra nhiều bảo bối như vậy, ai tin? Bức thư dán lên đầu mình "Thiên chân vạn thực là hàng giả" sao? Hai lá bùa, một cái rửa bút sứ xanh, vậy là đủ rồi!"
+Bùi Tiền trừng mắt: “Ngươi ngốc à? Hai ta trông có giống con nhà đại phú đại quý đi chơi xa không? Một hơi bày ra lắm bảo bối như thế, ai mà tin? Chi bằng dán ngay lên trán mấy chữ ‘Hàng giả, xin cứ tin’! Hai lá bùa, một bát rửa bút là đủ rồi!”
 
-Cuối cùng Bùi Tiền và Lý Hòe ngồi xổm phía sau sạp vải bông, Tiểu Bao Phục trai vừa mới khai trương này thật ra chỉ bán hai thứ, hai tấm quỷ họa phù lục hố người không cạn, một món tiên nhân cưỡi 《 Thanh từ bút sứ rửa.
+Thế là hai người ngồi xổm sau tấm vải. Tiểu Bao Phục trai vừa khai trương chỉ bày hai thứ. Một là hai lá bùa trông như quỷ vẽ, hai là chiếc bát sứ men xanh có hình tiên nhân cưỡi hạc [?].
 
-Trên đường, đa số người đi đường đều liếc mắt nhìn bùa chú, rửa bút xong thì đi ra.
+Người qua đường phần nhiều chỉ liếc qua rồi đi.
 
-Lý Hòe nhỏ giọng hỏi: "Muốn ta giúp thét to vài tiếng hay không?"
+Lý Hòe hỏi nhỏ: “Có cần ta rao vài tiếng không?”
 
-"Gấp cái gì, không có ngươi làm buôn bán như vậy."
+“Vội gì? Làm ăn đâu có như ngươi nghĩ.”
 
-Bùi Tiền hai tay áo lồng lồng ngồi tại chỗ, cười lạnh nói: "Vốn dĩ quả thật là cần giúp đỡ, làm loại mua bán không thiết lập này, chỉ bày hàng phù du, thật ra đức hạnh không khác gì trên giang hồ chọn người bán thuốc, môn lộ không thể so với việc kinh doanh dựng lều trên núi An Sơn nhiều như vậy, nhưng cũng không ít, nếu chúng ta nhiều người, có thể tung ra bài viết, trước mượn hơi người, chờ người nhiều, còn phải có người đầu đội sổ, nói rõ ràng, hoài nghi chúng ta là bán hàng giả, sau đó một hỏi một đáp..., Miệng lưỡi lanh lợi chút, rất nhanh có thể mang các khán giả nghi ngờ đánh giết sạch sẽ, lại có làm đầu đàn dê sống, ăn mặc phải tinh thần, ăn nói phải giống như kẻ có tiền thật, ở trong đám người, phải cố ý cách xa người khác một chút, do hắn mở miệng tuyên bố muốn đều mua hết... Thôi, nói những điều này không có ý nghĩa, bên cạnh ta chỉ có một mình ngươi ngu ngốc, nếu thật sự hỗ trợ chỉ có thể giúp ngược lại, kế tiếp ngươi ở một bên nhìn chính là, chỗ tốt duy nhất của ngươi, chính là khẩu âm, sau này lại giải thích cẩn thận với ngươi."
+Bùi Tiền lồng hai tay vào tay áo, cười lạnh: “Bày hàng một chốc rồi dẹp, vốn cũng cần người giúp. Cái nghề này chẳng khác phường bán thuốc rong ngoài giang hồ. Mánh khóe tuy không nhiều bằng bọn dựng lều bày cuộc ở An Sơn [?], song cũng chẳng ít. Đông người thì mới bày được trò. Đầu tiên cho mấy người tới vây quanh, đợi khách xúm lại rồi cử một kẻ mở miệng chê hàng giả.”
 
-Bùi Tiền tạm dừng một lát, vẻ mặt phức tạp, nhẹ nhàng nói: "Một loại lợi hại nhất, là một người bao trọn tất cả công việc, đó mới là người có năng lực trên giang hồ, đến nơi nào cũng không đói chết, còn có thể kiếm được nhiều tiền, nhưng loại người này đi lại giang hồ, quy củ kiêng kị cũng nhiều, ví dụ như tuyệt đối không kiếm tiền tuyệt hộ, lấy ví dụ, người bị lừa, trong túi vốn có mười lượng bạc, cuối cùng nhất định sẽ để lại cho người này một hai lượng bạc. Trừ quy củ của lão bối, cũng cất giấu đại học vấn, một khi để lại đường lui cho người ta, người bị lừa thường thường không đến mức quá mức thù hận, có thể không kết tử thù. Nhưng người như thế rất ít, ta cũng chỉ nghe người ta nói, chưa từng thấy."
+“Sau đó ta hỏi một câu, hắn đáp một câu. Miệng lưỡi lanh lợi một chút, chẳng mấy chốc đã dẹp hết ngờ vực của người xem. Lại phải có một kẻ làm dê đầu đàn. Ăn mặc tươm tất, nói năng như người lắm tiền thật, đứng trong đám đông mà cố ý cách người ta ra một chút. Đến lúc ấy, hắn cứ mở miệng đòi mua hết là xong.”
 
-Lý Hòe cảm thán nói: "Bùi Tiền, những chuyện làm ăn ngầm giang hồ này, ngươi hiểu được thật nhiều nha."
+Nàng liếc Lý Hòe: “Thôi, nói cũng vô ích. Bên cạnh ta chỉ có mỗi một tên ngốc là ngươi. Ngươi giúp thì chỉ tổ hỏng việc, cứ ngồi nhìn là được. Có mỗi cái giọng của ngươi còn dùng được, lát nữa ta nói sau.”
 
-Ở trên Lạc Phách Sơn, Bùi Tiền không như vậy.
+Dừng một lát, Bùi Tiền nhẹ giọng nói: “Hạng lợi hại nhất, một mình lo được hết. Người có bản lĩnh ấy đi đâu cũng sống được, còn kiếm được nhiều tiền. Nhưng họ cũng phải kiêng đủ chuyện. Chẳng hạn tuyệt đối không vét sạch túi người ta. Kẻ mắc lừa có mười lượng bạc, thế nào cũng để lại cho một hai lượng. Đó là quy củ người đi trước truyền lại, bên trong còn có đạo lý. Chừa cho người ta một đường lui, người ta cũng ít khi hận đến mức kết tử thù. Hạng ấy hiếm lắm, ta chỉ nghe nói, chưa từng gặp.”
 
-Đến trong giang hồ, Bùi Tiền như cá gặp nước, con đường quy củ gì đó đều rõ ràng.
+Lý Hòe cảm thán: “Bùi Tiền, ngươi hiểu chuyện làm ăn ngầm ngoài giang hồ thật đấy.”
 
-Bùi Tiền trầm mặc hồi lâu, "Không có gì, lúc nhỏ thích vô giúp vui, từng thấy mà thôi. Còn nữa, ngươi đừng hiểu lầm, khi ta đi cùng giang hồ với sư phụ, không đi xem những thứ này, càng không làm."
+Ở núi Lạc Phách, Bùi Tiền đâu có thế này. Ra giang hồ, nàng như cá gặp nước. Ngõ ngách, quy củ gì cũng rành.
 
-Năm đó, giang hồ nhỏ ở kinh thành Nam Uyển quốc chỉ dựa vào cọ chuyện vui mừng đỏ trắng, không sống nổi.
+Bùi Tiền im lặng hồi lâu mới nói: “Chẳng có gì. Hồi nhỏ thích chen vào chỗ náo nhiệt, có trông thấy qua. Ngươi cũng đừng hiểu lầm. Ta theo sư phụ đi giang hồ, mấy chuyện này chẳng đi xem, càng không làm.”
 
-Sau đó đi theo sư phụ, nàng bắt đầu ăn uống không lo, áo cơm không lo, có thể nhớ một bữa thậm chí ngày mai lớn hơn, có thể ăn món gì ngon, cho dù sư phụ không đáp ứng, chung quy trong túi thầy trò, là có tiền, hơn nữa đều là tiền sạch sẽ.
+Năm ấy, trong cái giang hồ bé nhỏ ở kinh thành Nam Uyển quốc, chỉ chực ăn ké ở đám cưới đám ma thì làm sao sống nổi.
 
-Bùi Tiền nói với Lý Hòe: "Nhớ kỹ, hai tấm phù lục này, chúng ta cắn chết giá một đồng tiền Tiểu Thử, nói là trấn sơn bảo lục tổ truyền môn phái ngươi, là pháp bảo công phạt hạng nhất! Sư phụ ngươi sau khi qua đời, liền truyền cho ngươi dòng độc đinh này, bởi vì ngươi cần gấp một khoản tiền tài, đi bãi hài cốt làm gì còn chợ Quan Trung bên kia thử vận khí. Bằng không đánh chết cũng không mua. Ai cò kè mặc cả với chúng ta, cũng đừng để ý tới, ngươi cứ việc lắc đầu, nhiều nhất nói không bán, thực không thể bán, về phần món đồ sứ xanh rửa bút kia, không chỉ bán, nếu là mua phù lục, vốn đã không đáng giá một đồng tiền Tuyết Hoa, cho nên có thể phụ tặng, không cần tiền."
+Về sau đi theo sư phụ, nàng chẳng còn lo cơm áo. Nàng có thể nghĩ đến bữa sau, thậm chí nghĩ xem ngày mai ăn món gì ngon. Dù sư phụ có bằng lòng hay không, trong túi hai thầy trò vẫn có tiền. Đồng nào cũng sạch sẽ.
 
-Lý Hòe liếc hai lá bùa kia, líu lưỡi nói: "Hai lá bùa rách nát này, ra giá một đồng Tiểu Thử tiền? Kẻ ngốc cũng sẽ không mua nhỉ? Còn có món tẩy này, chúng ta thật sự bỏ ra mười đồng Tuyết Hoa tiền mua được."
+Bùi Tiền dặn: “Nhớ cho kỹ. Hai lá bùa, cắn chết giá một đồng tiền tiểu thử. Cứ bảo đó là bảo lục trấn sơn do môn phái ngươi truyền lại, pháp bảo công phạt hạng nhất. Sau khi qua đời, sư phụ ngươi để lại cho mỗi mình ngươi là truyền nhân. Ngươi đang cần tiền, muốn tới chợ Nại Hà quan ở bãi Hài Cốt thử vận may, bằng không đánh chết cũng chẳng bán.”
 
-Bùi Tiền luôn đánh giá du khách bốn phía, cười lạnh nói: "Ngươi ngay cả kẻ ngốc cũng không bằng. Rửa bút này là vật trên núi Hư Hận phường ra giá mười đồng Tuyết Hoa tiền, cho dù chúng ta bị hố, bốn năm đồng Tuyết Hoa tiền, tóm lại khẳng định có. Ta cố ý nói thành một đồng Tuyết Hoa tiền cũng không đáng, vì cái gì? Chỉ vì tỏ vẻ hai ta là tiêu tiền như rác, có khoản tẩy này có thể khiến người ta nhặt của hời, mấu chốt là có thể giúp đỡ phụ trợ hai lá bùa, trừ phi người trong nghề thật sự, sẽ càng thêm không dám xác định phẩm cấp phù lục, đến lúc đó khẳng định sẽ có người cố ý chê, lại quay về, đến lúc đó chúng ta vẫn là không bán, đợi tới lần thứ ba, ta liền bắt đầu khuyên ngươi, ngươi cứ tùy tiện nói thầm cái gì, có lỗi với sư phụ linh tinh."
+“Ai mặc cả cũng mặc họ. Ngươi chỉ việc lắc đầu, cùng lắm thì nói không bán, thật sự không bán được. Bát rửa bút không bán riêng. Ai mua bùa thì tặng luôn, cứ bảo nó chẳng đáng một đồng tiền tuyết hoa.”
 
-Lý Hòe buồn bực nói: "Vì sao là sư phụ ta qua đời? Ngươi lại có thể giả trang đồng hương của ta mà?"
+Lý Hòe liếc hai lá bùa, líu lưỡi: “Hai tấm rách nát này mà đòi một đồng tiền tiểu thử? Kẻ ngốc cũng chẳng mua. Còn bát rửa bút rõ ràng tốn mười đồng tiền tuyết hoa mới mua được.”
 
-Bùi Tiền thở phì phì cầm lấy Hành Sơn Trượng, dọa Lý Hòe vừa lăn vừa chạy xa. Đợi tới khi Lý Hòe thật cẩn thận dịch chuyển về chỗ ngồi, Bùi Tiền tức không chỗ phát tiết, "Đồ ngốc, ta thực sự có sư phụ, Lý Hòe ngươi có không?!"
+Bùi Tiền vẫn nhìn khách qua đường, cười lạnh: “Ngươi còn chẳng bằng kẻ ngốc. Đồ trên núi, phường Hư Hận ra giá mười đồng tiền tuyết hoa. Dù chúng ta bị hớ, nó cũng đáng bốn năm đồng. Ta cố ý nói nó chẳng đáng một đồng để làm gì? Để người ta tưởng hai ta vung tiền như rác, thấy có món hời mà nhặt. Quan trọng hơn, nhờ cái bát nâng giá hai lá bùa. Trừ phi thật sự thạo nghề, ai trông thấy cũng phải phân vân, chẳng dám chắc bùa thuộc phẩm cấp nào.”
 
-"Lại có nhã ngôn Bắc Câu Lô châu này, hôm nay ngươi còn nói không linh, cho nên vừa lúc "Giả trang" người địa phương xa xứ từ nhỏ, một người có chút tuổi lớn như vậy, lại có thể ngồi thuyền vượt châu nơi bãi xương cốt trở về quê nhà, trên người có một hai món bảo bối, không phải rất bình thường sao? Mua bán chống đỡ hơn mấy chục đồng Tuyết Hoa tiền, còn không đến mức để thần tiên trên núi mưu tài hại mạng, nếu thật có, cũng không sợ, nơi này dù sao cũng là địa bàn của Phi Ma tông. Nếu là những người trong giang hồ, ta nếu nhỡ đâu đánh không lại, chúng ta bỏ chạy thôi."
+“Đến lúc ấy sẽ có người cố tình chê rồi quay lại. Ta vẫn không bán. Chờ họ hỏi lần thứ ba, ta mới quay sang khuyên ngươi. Còn ngươi cứ lẩm bẩm mấy câu như có lỗi với sư phụ là được.”
 
-Nửa canh giờ trôi qua, Lý Hòe ngồi xổm chân mỏi nhừ, đành phải ngồi ở trên mặt đất, bên cạnh Bùi Tiền vẫn là hai tay khoanh lại ngồi xổm tại chỗ, không chút sứt mẻ.
+Lý Hòe buồn bực: “Sao cứ phải là sư phụ ta qua đời? Ngươi cũng có thể giả làm đồng hương của ta mà?”
 
-Rất nhiều du khách vừa hỏi giá liền không có ý tưởng gì, tính tình tốt một chút, không nói hai lời liền rời đi, tính tình kém một chút, hùng hùng hổ hổ đều có.
+Bùi Tiền tức tối chộp lấy Hành Sơn trượng, dọa Lý Hòe vừa chạy vừa lăn. Chờ hắn rón rén nhích về chỗ cũ, nàng mới quát: “Đồ ngốc, ta có sư phụ thật! Lý Hòe ngươi có không?”
 
-Lý Hòe cảm thấy hôm nay mua bán với Bùi Tiền cái Bao Phục trai này không còn gì nữa. Trong lúc nhất thời càng thêm áy náy, nếu không phải mình ở phường Hư Hận thuyền bên kia mua loạn một phen, Bùi Tiền cũng không cần vất vả như vậy.
+“Vả lại, nhã ngôn Bắc Câu Lô Châu ngươi nói chưa sõi, vừa hay giả làm người địa phương xa quê từ nhỏ. Bằng tuổi ngươi mà đã ngồi được thuyền vượt châu về bãi Hài Cốt, trong người có một hai món bảo bối cũng thường thôi. Vụ mua bán cùng lắm đáng mấy chục đồng tiền tuyết hoa, chưa đến mức để thần tiên trên núi mưu tài hại mạng. Có thật cũng chẳng sợ. Đây là địa bàn Phi Ma tông. Còn gặp người giang hồ, nếu ta đánh không lại thì hai ta chạy.”
 
-Bùi Tiền nói: "Đợi nửa canh giờ nữa, không được thì lên đường. Sư phụ từng nói, trên đời này không có Bao Phục trai làm tốt, bán không được, rất bình thường."
+Qua nửa canh giờ, Lý Hòe ngồi xổm mỏi chân, đành ngồi bệt xuống đất. Bùi Tiền vẫn lồng tay áo, ngồi xổm y nguyên.
 
-Lại nửa canh giờ trôi qua, Lý Hòe đành phải ở trong lòng yên lặng lẩm bẩm thiên linh linh linh linh, Tam Thanh thần tiên Bồ Tát thánh nhân sắp hiển linh...
+Khách hỏi giá không ít, nghe xong đều chẳng muốn mua. Người tính tình tốt thì quay đi ngay. Kẻ nóng tính còn lầm bầm chửi mấy câu.
 
-Một vị lão tu sĩ mũ cao áo trắng liếc Bao Phục trai, sau khi đi ra vài bước, dừng bước, tới bên vải bông ngồi xổm xuống, muốn đưa tay cầm lấy một tấm phù lục giấy vàng, Bùi Tiền nhanh chóng xoay người đưa tay che ở trên phù lục, lắc đầu nói: "Không thể chạm vào. Chỉ có thể nhìn. Lão tiền bối các ngươi các ngươi thần tiên trên núi, thuật pháp rất cổ quái, tâm hại người không thể có, tâm phòng người không thể không có, tiền bối thứ tội cái gì."
+Lý Hòe cảm thấy Bao Phục trai của hai người hôm nay ế chắc. Hắn càng nghĩ càng áy náy. Nếu hắn không mua bừa ở phường Hư Hận trên thuyền, Bùi Tiền đâu phải vất vả thế này.
 
-Lão nhân cười gật đầu, tùy tay lấy hai tay vê lên bát rửa bút sứ men xanh ở bên cạnh, Bùi Tiền lần này không ngăn trở, lại giũ bỏ lý do thoái thác liên quan tới Lý Hòe một phen, lão nhân nghe Bùi Tiền nói, không yên lòng, lắc lắc đồ rửa bút trong tay, sau đó nhẹ nhàng ném lên trên vải bông, chỉ chỉ hai tờ phù lục giấy vàng kia, cười hỏi: "Hai tờ bao nhiêu tiền?"
+Bùi Tiền nói: “Chờ thêm nửa canh giờ. Không được thì lên đường. Sư phụ từng nói, trên đời đâu có Bao Phục trai nào làm ăn trăm vụ trúng cả trăm. Bán không được cũng bình thường.”
 
-Bên cạnh lão nhân có một đôi nam nữ trẻ tuổi đi theo, đều đeo kiếm, chỗ thần kỳ nhất, ở chỗ kiếm tuệ vàng óng ánh còn có một hạt châu tuyết trắng rơi.
+Lại qua nửa canh giờ, Lý Hòe chỉ còn biết khấn thầm trời linh linh, đất linh linh, Tam Thanh, Bồ Tát, thánh nhân mau hiển linh...
 
-Bùi Tiền nói: "Một đồng Tiểu Thử tiền, thiếu một đồng Tuyết Hoa tiền cũng không được. Đây là tiền thần tiên liên quan đến tính mạng bằng hữu của ta, thật sự không thể thiếu. Mua phù lục, rửa bút không tặng, coi như là kết giao bằng hữu."
+Một lão tu sĩ đội mũ cao, mặc bạch y, liếc nhìn Bao Phục trai. Đi qua mấy bước, lão dừng lại, trở về ngồi xổm trước tấm vải, đưa tay định cầm một lá bùa. Bùi Tiền vội nghiêng người che bùa, lắc đầu: “Chỉ được nhìn, không được chạm. Thần tiên trên núi các vị có nhiều thuật pháp kỳ lạ. Lòng hại người không thể có, lòng phòng người không thể không. Xin tiền bối thứ lỗi.”
 
-Lý Hòe ở một bên mặt căng thẳng.
+Lão nhân cười gật đầu, thuận tay nhấc chiếc bát sứ men xanh bên cạnh. Lần này Bùi Tiền không ngăn, chỉ kể một lượt câu chuyện đã bịa cho Lý Hòe. Lão nhân nghe có vẻ lơ đãng, xoay xoay chiếc bát rồi nhẹ tay đặt lại lên vải, chỉ hai lá bùa: “Hai lá này bao nhiêu tiền?”
 
-Chỉ thấy thời điểm Bùi Tiền nói những lời này, trán nó thế mà lại rịn ra mồ hôi hột. Nó làm vậy là giả vờ mình không phải người giang hồ, ra vẻ giang hồ ngữ?
+Theo sau lão là một đôi nam nữ trẻ tuổi, cả hai đều đeo kiếm. Nơi tua kiếm vàng óng của họ có đính một hạt châu trắng như tuyết.
 
-Lão tu sĩ hỏi: "Năm mươi đồng Tuyết Hoa tiền bán hay không?"
+Bùi Tiền nói: “Một đồng tiền tiểu thử, thiếu một đồng tiền tuyết hoa cũng không được. Món tiền này liên quan đến tính mạng bằng hữu của ta, thật sự không thể bớt. Mua bùa thì bát rửa bút xin tặng, coi như kết giao bằng hữu.”
 
-Bùi Tiền hỏi ngược lại: "Tiền bối, không có lão nhân gia ngài làm buôn bán như vậy, nếu ta mang đồ rửa bút chém thành hai nửa, bán cho ngài một nửa, có mua hay không?"
+Lý Hòe đứng bên cạnh, mặt căng thẳng. Bùi Tiền nói đến đó, trên trán còn rịn mồ hôi. Nàng làm vậy là để người ta tưởng mình chẳng phải người giang hồ, chỉ đang học đòi nói giọng giang hồ hay sao?
 
-Lão tu sĩ nhịn không được cười lên.
+Lão tu sĩ hỏi: “Năm mươi đồng tiền tuyết hoa, bán chứ?”
 
-Lão nhân nói: "Một đồng Tiểu Thử tiền? Được rồi, ta mua."
+Bùi Tiền hỏi lại: “Tiền bối, đâu có ai làm ăn như ngài. Nếu ta chém đôi chiếc bát, bán cho ngài một nửa, ngài có mua không?”
 
-Bùi Tiền đột nhiên nói: "Ta không bán."
+Lão tu sĩ nhịn không được, bật cười: “Một đồng tiền tiểu thử chứ gì? Được, ta mua.”
 
-Lão tu sĩ ngẩng đầu, cười hỏi: "Đây là vì sao? Là muốn nâng giá, hay là thật tâm không bán?"
+Bùi Tiền đột nhiên nói: “Ta không bán.”
 
-Bùi Tiền nói: "Thật tình không bán."
+Lão tu sĩ ngẩng đầu: “Vì sao? Ngươi muốn nâng giá hay thật lòng không bán?”
 
-Lão tu sĩ mỉm cười: "Là ta quá hào sảng, ngươi cảm thấy mình làm hỏng phù lục?"
+“Thật lòng không bán.”
 
-Bùi Tiền gật đầu.
+“Ta bằng lòng trả giá dễ quá, khiến ngươi nghĩ mình bán rẻ bùa?”
 
-Lão tu sĩ đứng lên, rời đi.
+Bùi Tiền gật đầu. Lão tu sĩ đứng dậy, bỏ đi.
 
-Lý Hòe chuyển đến bên cạnh Bùi Tiền, "Bùi Tiền, Bùi đại đà chủ, đây là náo loại nào?"
+Lý Hòe nhích lại gần: “Bùi Tiền, Bùi đại đà chủ, ngươi diễn trò gì vậy?”
 
-Bùi Tiền nâng cằm, chỉ chỉ chỉ cây bút sứ xanh kia, "Hắn thật ra là chạy tới rửa bút. Hơn nữa hắn là người từ nơi khác đến, nhã ngôn Bắc Câu Lô châu nói rất hay, nhưng chung quy mấy người phát âm không đúng, tu sĩ Bắc Câu Lô châu thật sự, tuyệt đối sẽ không như thế. Loại người ngoại hương vượt châu đi xa này, tiền thần tiên trong túi sẽ không thiếu. Đương nhiên chúng ta ngoại lệ. Đối phương không đến mức đùa giỡn với chúng ta, là thật muốn mua xuống đồ rửa bút."
+Bùi Tiền hất cằm về phía bát rửa bút: “Lão tới vì cái bát. Lão cũng là người nơi khác. Nhã ngôn Bắc Câu Lô Châu nói khá hay, nhưng vẫn có mấy tiếng phát âm sai, tu sĩ bản xứ sẽ không nói như vậy. Người từ châu khác đi xa, trong túi thường chẳng thiếu tiền thần tiên. Hai ta thì ngoại lệ. Lão chẳng rỗi hơi đùa với chúng ta, lão thật lòng muốn mua cái bát.”
 
-Lý Hòe tò mò nói: "Không quan tâm đến cái gì mà đến, chỉ cần bán được một đồng Tiểu Thử tiền, chúng ta không phải sẽ đem tiền thần tiên bị hố của Hư Hận phường kiếm về hết sao?"
+Lý Hòe tò mò: “Mặc kệ lão đến mua gì, bán được một đồng tiền tiểu thử là đủ kiếm lại món tiền phường Hư Hận lừa của chúng ta rồi mà?”
 
-Bùi Tiền thu hồi Bao Phục trai, mang món đồ rửa bút kia trả lại cho Lý Hòe, đã tính trước nói: "Gấp gáp cái gì, thu hồi chăn gối lập tức rời đi, chúng ta chậm chút đi đến thành Bích Họa bên kia, bọn họ khẳng định sẽ tới tìm chúng ta. Ta ở trên đường nghĩ cái giá càng thích hợp hơn. Bán không được, càng không sợ, ta có thể khẳng định bút sứ xanh kia có thể giá trị một đồng Tiểu Thử tiền, sớm hay muộn là vật trong bàn tay chúng ta."
+Bùi Tiền thu dọn Bao Phục trai, trả cái bát cho Lý Hòe: “Vội gì? Cuốn vải lên, đi thôi. Hai ta cứ thong thả ra cửa thành, họ nhất định sẽ tìm tới. Dọc đường ta nghĩ lại xem giá nào thích hợp. Không bán được cũng chẳng ngại. Ta dám chắc cái bát đáng một đồng tiền tiểu thử. Sớm muộn gì cũng có người mua với giá ấy.”
 
-Lý Hòe mang đồ rửa bút bọc lại, để vào hòm trúc của mình, ưu thương nói: "Bùi Tiền, ngươi thông minh như vậy, sẽ không ngày nào đó thiếu tiền tiêu, thì đem ta đều bán đi."
+Lý Hòe gói bát bỏ vào hòm trúc, rầu rĩ nói: “Bùi Tiền, ngươi khôn như vậy, có khi nào một hôm thiếu tiền tiêu, ngươi bán cả ta đi không?”
 
-Bùi Tiền lạnh nhạt nói: "Làm ăn là làm ăn, kết giao bằng hữu là kết giao bằng hữu, hai việc khác nhau. Ngươi trừ bằng hữu của ta, còn là người sư phụ ta chiếu cố lâu như vậy, ngoài Lạc Phách Sơn, Bùi Tiền ta cho dù ai cũng dám bán đổi tiền, duy chỉ có sẽ không bán ngươi."
+Bùi Tiền thản nhiên nói: “Làm ăn và kết giao bằng hữu là hai chuyện. Ngươi là bằng hữu của ta, lại là người sư phụ ta đã chăm nom lâu như vậy. Ngoài người núi Lạc Phách ra, Bùi Tiền ta có thể bán bất cứ ai lấy tiền, riêng ngươi thì không.”
 
 Lý Hòe cười lên.
 
-Bùi Tiền liếc Lý Hòe, "Có gì đáng để vui?"
+Bùi Tiền liếc hắn: “Có gì mà vui?”
 
-Bùi Tiền và Lý Hòe đi hướng cửa vào thành bích họa, nhắc nhở với Lý Hòe: "Có một số tiền thiên môn, thật ra là dựa vào đánh cược mạng sống kiếm được. Nhưng một người vận khí tốt nữa, có thể thắng lão thiên gia vài lần? Đương nhiên, thật sự không thể sống tiếp, thì bất chấp cái gì. Nhưng chúng ta làm Bao Phục Trai, không tính là cửa hông, cũng đừng kiếm tiền tuyệt hộ kia. Lý Hòe bằng bản lãnh thật bị phường Hư Hận chơi một tấm mộc bài, Bùi Tiền ta muốn bằng bản lãnh thật sự kiếm về một đồng Tiểu Thử tiền."
+Hai người đi về phía cửa thành. Bùi Tiền nhắc: “Có những món tiền ngoài đường ngay, phải lấy mạng ra đánh cược mới kiếm được. Nhưng một người may đến mấy, thắng ông trời được bao lần? Nếu thật sự hết đường sống thì đành bất chấp. Còn chúng ta làm Bao Phục trai, vẫn là làm ăn đàng hoàng, cũng đừng vét sạch túi người khác. Lý Hòe ngươi dựa vào bản lĩnh của mình mà bị phường Hư Hận lừa bằng một tấm mộc bài [?], Bùi Tiền ta sẽ dựa vào bản lĩnh của mình kiếm lại một đồng tiền tiểu thử.”
 
-Lý Hòe vò đầu. Sổ sách nhỏ của đà chủ đã tái xuất giang hồ.
+Lý Hòe vò đầu. Cuốn sổ nhỏ của đại đà chủ lại tái xuất giang hồ rồi.
 
-Lý Hòe bắt đầu nói sang chuyện khác, "Nghĩ kỹ giá chưa?"
+Lý Hòe đổi chuyện: “Nghĩ ra giá chưa?”
 
-"Nghĩ kỹ rồi, một đồng Cốc Vũ tiền."
+“Rồi. Một đồng tiền cốc vũ.”
 
-Lý Hòe ngây ra như phỗng. Hai ta làm như vậy làm ăn, có phải quá hung ác hay không?
+Lý Hòe ngây người. Hai ta làm ăn vậy có ác quá không?
 
-Bùi Tiền nói: "Đã không phải Bao Phục trai lúc trước nữa, có thể ra giá trên trời mà trả tiền. Lão nhân kia tính tình như thế nào, chỉ cần nhìn hai vãn bối nam nữ bên cạnh hắn là rõ ràng, lúc trước ta trả giá qua tính lại với lão nhân, nam nữ đều chỉ là cảm thấy... Ý tứ, ánh mắt đều rất chính, người lấy quần phân, cho nên lão nhân không tệ đến đâu. Nếu thật sự là đồ đệ âm hiểm lòng dạ thâm trầm kia, cũng chỉ có thể oán Bùi Tiền ta ánh mắt không tốt, oán hai người chúng ta không nên đến Bích Họa thành làm Bao Phục trai, không nên đến Bắc Câu Lô châu này đi giang hồ."
+Bùi Tiền nói: “Đã dẹp sạp rồi, giờ cứ ra giá cao, người ta có thể trả xuống. Muốn biết tính tình lão nhân thế nào, nhìn hai vãn bối đi bên cạnh là rõ. Lúc ta mặc cả với lão, hai người họ chỉ thấy thú vị, ánh mắt ngay thẳng. Người cùng tính mới đi với nhau, lão nhân ấy cũng chẳng tệ đến đâu. Nếu thật sự gặp hạng lòng dạ hiểm sâu, chỉ trách Bùi Tiền ta nhìn lầm, trách hai chúng ta không nên bày sạp ở thành Bích Họa, không nên tới Bắc Câu Lô Châu đi giang hồ.”
 
-Lý Hòe cười nói: "Ta cũng sẽ không oán những cái này có cũng không."
+Lý Hòe cười: “Ta chẳng oán tới mấy chuyện đâu đâu ấy.”
 
-Bùi Tiền gật đầu nói: "Cho nên ta mới mang theo ngươi cùng đi giang hồ."
+Bùi Tiền gật đầu: “Thế nên ta mới dẫn ngươi đi giang hồ.”
 
-Lý Hòe khoanh hai tay, nghiêng người mà đi, "Tạ đà chủ đại nhân thưởng thức."
+Lý Hòe khoanh tay, nghiêng người bước: “Đa tạ đà chủ đại nhân đã coi trọng.”
 
-Bùi Tiền nói: "Cút."
+“Cút.”
 
-Lý Hòe cười nói một câu đắc lệnh, sóng vai mà đi cùng Bùi Tiền.
+Lý Hòe cười, đáp một tiếng “đắc lệnh”, rồi lại sóng vai đi với nàng.
 
-Bùi Tiền nói: "Giang hồ nước sâu, nếu ngày nào đó thực có nguy hiểm, ta bảo ngươi lúc đi một mình nhớ đừng do dự."
+Bùi Tiền nói: “Nước giang hồ sâu lắm. Ngày nào đó thật sự gặp nguy hiểm, ta bảo ngươi đi một mình thì nhớ đừng chần chừ.”
 
-Lý Hòe im lặng không lên tiếng.
+Lý Hòe không đáp.
 
-Bùi Tiền từng nói nó là võ phu lục cảnh, Lý Hòe cảm thấy còn tốt, năm đó trên đường du học, lúc ấy tuổi Vu Lộc còn nhỏ hơn Bùi Tiền hôm nay một chút, hình như đã sớm là lục cảnh, đến thư viện không bao lâu, vì mình đánh trận đó, Vu Lộc lại chen thân thất cảnh. Sau đó thư viện đi học nhiều năm, ngẫu nhiên có theo phu tử tiên sinh ra ngoài đi xa, cũng không có cơ hội giao tiếp với người giang hồ. Cho nên Lý Hòe đối với lục cảnh, thất cảnh các thứ, không có khái niệm quá lớn. Hơn nữa Bùi Tiền nói mình võ phu lục cảnh, chưa từng thật sự chém giết với người ta, cơ hội luận bàn với người cùng thế hệ cũng không nhiều, cho nên cẩn thận suy xét, giảm giá một chút, đến trên giang hồ, đối địch với người ta, coi như Bùi Tiền ta ngũ cảnh tốt rồi.
+Bùi Tiền từng bảo nàng là võ phu lục cảnh. Lý Hòe nghe cũng thấy bình thường. Năm ấy trên đường đi cầu học, Vu Lộc còn nhỏ hơn Bùi Tiền bây giờ một chút, hình như đã sớm là lục cảnh. Đến thư viện không bao lâu, vì đánh một trận cho hắn mà Vu Lộc lại bước vào thất cảnh.
 
-Lý Hòe rầu rĩ nói: "Sẽ không, Trịnh Đại Phong luôn nói ta là có phúc khí, đi đường không giẫm cứt chó cũng không kêu ra cửa, cho nên lần này chúng ta đi lại giang hồ, vận khí nhất định không kém đến đâu."
+Sau đó Lý Hòe học ở thư viện nhiều năm. Thỉnh thoảng theo các phu tử, tiên sinh đi xa, hắn cũng chẳng có dịp giao thiệp với người giang hồ. Bởi vậy lục cảnh, thất cảnh lợi hại đến đâu, hắn chẳng rõ. Hơn nữa, Bùi Tiền tuy là lục cảnh, song chưa từng thật sự chém giết với ai, cũng ít khi luận bàn với người cùng thế hệ. Tính cho cẩn thận, cứ bớt đi một cảnh. Ra giang hồ đối địch với người ta, coi như Bùi Tiền ngũ cảnh là được.
 
-Lý Hòe đột nhiên tươi cười sáng lạn hẳn lên, xóc xóc hòm trúc sau lưng, "Nhìn xem, đồ rửa bút sứ xanh bên cạnh hòm của ta, không phải là chứng minh sao?"
+Lý Hòe rầu rĩ nói: “Không đến nỗi đâu. Trịnh Đại Phong vẫn bảo ta có phúc, ra đường không giẫm phải cứt chó thì chưa gọi là ra cửa. Lần này hai ta đi giang hồ, vận may chắc chắn chẳng kém đâu.”
 
-Bùi Tiền hỏi: "Mỗi lần ra ngoài đạp cứt chó, ngươi rất vui?"
+Hắn đột nhiên cười tươi, xốc xốc hòm trúc sau lưng: “Nhìn xem, cái bát sứ men xanh trong hòm ta chẳng phải là bằng chứng sao?”
 
-Lý Hòe không còn lời nào để chống đỡ.
+Bùi Tiền hỏi: “Thế mỗi lần ra ngoài giẫm phải cứt chó, ngươi vui lắm à?”
 
-Lý Hòe nghiến răng, nhẹ nhàng nói: "Bùi Tiền, hai ta thương lượng một chuyện đi, rửa bút sứ xanh kia, có thể không bán hay không, ta muốn tặng cho tỷ ta, nàng ở Sư Tử Phong làm ngoại môn đệ tử không ký danh cho lão tiên sư, thật ra chính là làm nha hoàn cho người ta, mẫu thân cùng tỷ của ta đều không có ý tứ nói mà thôi, nhà ta nghèo, tỷ tỷ của ta năm đó khẳng định cũng chưa cho ra lễ bái sư ra dáng, tỷ tỷ của ta thật ra đối với ta rất tốt, mẫu thân lại thiên vị ta, tỷ tỷ của ta cũng chưa từng tức giận..."
+Lý Hòe cứng họng.
 
-Lý Hòe đã chuẩn bị tâm lý bị Bùi Tiền đánh một trận.
+Cắn răng một lúc, hắn mới nhẹ giọng nói: “Bùi Tiền, ta bàn với ngươi một chuyện. Cái bát rửa bút kia đừng bán, được không? Ta muốn tặng tỷ ta. Tỷ ấy ở Sư Tử phong làm đệ tử ngoại môn không ghi danh cho lão tiên sư, kỳ thực chỉ là làm nha hoàn cho người ta. Mẹ ta với tỷ ta ngại nói thôi. Nhà ta nghèo, năm ấy tỷ ta chắc cũng chẳng có lễ bái sư ra hồn. Tỷ ấy đối với ta rất tốt. Mẹ ta thiên vị ta, tỷ ấy cũng chưa từng giận...”
 
-Không ngờ Bùi Tiền nói: "Được rồi được rồi, đương nhiên có thể. Chiếc bút sứ xanh kia rửa vốn là đồ của ngươi, cho dù một đồng Cốc Vũ tiền bán đi, ta cũng sẽ không kiếm được một đồng tiền, chính ngươi vui vẻ, ta ngăn cản ngươi làm cái gì."
+Lý Hòe đã sẵn lòng chịu Bùi Tiền đánh một trận.
 
-Lý Hòe có chút không kịp trở tay, đang muốn nói chuyện, Bùi Tiền trợn mắt nói: "Cút."
+Nào ngờ Bùi Tiền nói: “Được rồi, đương nhiên là được. Cái bát vốn là của ngươi. Có bán được một đồng tiền cốc vũ, ta cũng chẳng kiếm một đồng nào. Ngươi vui là được, ta cản làm gì?”
 
-Lý Hòe cười nói: "Được rồi."
+Lý Hòe ngẩn ra, đang định nói thì Bùi Tiền đã trừng mắt: “Cút.”
 
-Lý Hòe trầm mặc một lát, "Vì sao?"
+Lý Hòe cười: “Được rồi.”
 
-Bùi Tiền nhớ tới mình lúc còn nhỏ, ở Mai Hà Bích Du phủ một chuyện nhỏ.
+Im lặng một lúc, hắn lại hỏi: “Vì sao?”
 
-Có một số việc, có một số vật, căn bản không phải là chuyện có tiền hay không.
+Bùi Tiền nhớ tới một chuyện nhỏ hồi nàng còn bé, ở Bích Du phủ bên sông Mai Hà. Có những chuyện, có những món đồ, đâu thể đem tiền ra mà tính.
 
-Bùi Tiền lại không nói gì với Lý Hòe.
+Nàng không nói với Lý Hòe.
 
-Quả nhiên, Bùi Tiền và Lý Hòe đợi một lát ở cửa thành Bích Họa, vị lão nhân kia đã tới.
+Quả nhiên, hai người đợi ở cửa thành Bích Họa chưa bao lâu thì lão nhân tới.
 
-Bùi Tiền ôm quyền chắp tay, "Lão tiền bối, xin lỗi, đồ rửa bút kia thật sự không bán nữa."
+Bùi Tiền ôm quyền: “Lão tiền bối thứ lỗi, bát rửa bút thật sự không bán nữa.”
 
-Lão tu sĩ nhìn tiểu cô nương ánh mắt trong suốt kia, tuy có chút kỳ quái, lão nhân vẫn gật đầu, lấy tiếng lòng cười nói: "Tiểu cô nương, phù lục có đáng giá hay không, trong lòng ngươi ta biết rõ, nhưng tiên nhân kia ngồi bút lông rửa bút, quả thật có thể giá trị ba hai đồng tiền Tiểu Thử, chỗ tốt không ở trên cuống gốm, mấy chữ kia rất đáng giá. Về sau ngươi cùng bằng hữu làm Bao Phục trai nữa, chớ bán giá rẻ. Đương nhiên cũng phải cẩn thận người bên ngoài ác ý. Tốt nhất vẫn là ở bích họa thành, hoặc là Long cung động thiên, Xuân Lộ Phố những đỉnh núi lớn này bán vật ấy, trừ đi chi tiêu của độ thuyền tiên gia, tóm lại là có lời."
+Thấy ánh mắt trong veo của tiểu cô nương, lão tu sĩ tuy có chút lạ, vẫn gật đầu. Lão lấy tiếng lòng cười nói: “Tiểu cô nương, bùa có đáng tiền hay không, ngươi và ta đều rõ. Còn chiếc bát rửa bút hình tiên nhân kia quả thật đáng hai ba đồng tiền tiểu thử. Chỗ quý chẳng nằm ở phôi gốm, mà ở mấy chữ trên đó. Sau này hai ngươi làm Bao Phục trai, đừng bán rẻ.”
 
-Bùi Tiền do dự một phen, cười hỏi: "Có thể hỏi lão tiền bối đạo hiệu, môn phái không? Về sau nếu có cơ hội, chúng ta muốn tới nhà bái phỏng."
+“Cũng phải đề phòng người ngoài có ác ý. Tốt nhất đem bán ở thành Bích Họa, Long Cung động thiên, phố Xuân Lộ hay nơi nào lớn một chút. Trừ đi tiền ngồi thuyền tiên gia, vẫn có lời.”
 
-Lão tu sĩ cười xua tay, trêu ghẹo nói: "Giang hồ vô tình gặp được, Mạc Vấn tính danh, có duyên sẽ gặp lại. Huống chi tiểu cô nương ngươi không phải đã sớm đoán ra thân phận của người châu khác sao? Cho nên lời khách khí này cũng không quá thành tâm a."
+Bùi Tiền do dự một lát, cười hỏi: “Có thể xin đạo hiệu và môn phái của tiền bối được không? Sau này có dịp, chúng ta muốn đến bái phỏng.”
 
-Bùi Tiền nhìn lão nhân, đột nhiên ôm quyền, tụ âm thành tuyến, trầm giọng nói với lão nhân: "Võ phu Bùi Tiền, tạm biệt tiền bối ở đây!"
+Lão tu sĩ xua tay, cười trêu: “Gặp nhau ngoài giang hồ, hỏi tên làm gì. Có duyên ắt gặp lại. Huống chi tiểu cô nương đã sớm đoán được ta từ châu khác đến, lời khách khí này cũng chẳng thành tâm lắm đâu.”
 
-Lão nhân ngẩn người, thoải mái cười nói: "Tốt!"
+Bùi Tiền nhìn lão rồi đột nhiên ôm quyền, tụ âm thành tuyến: “Võ phu Bùi Tiền xin từ biệt tiền bối!”
 
-Lý Hòe nhìn nơi đây, Bùi Tiền kia giống như có chút xa lạ, có chút hâm mộ, có chút hướng tới.
+Lão nhân ngẩn người, rồi khoan khoái cười: “Tốt!”
 
-Lão tu sĩ mang theo hai đệ tử, đi lên tổ sơn Phi Ma tông, ở tòa đình treo kiếm giữa sườn núi tạm thời nghỉ ngơi một lát.
+Lý Hòe đứng nhìn. Bùi Tiền lúc này có phần xa lạ, khiến hắn vừa hâm mộ, vừa có chút hướng tới.
 
-Lão tu sĩ cười nói: "Muốn hỏi thì cứ hỏi đi."
+Lão tu sĩ dẫn hai đệ tử lên tổ sơn Phi Ma tông, nghỉ chân ở ngôi đình treo kiếm giữa sườn núi.
 
-Nữ tử hỏi: "Sư tôn, cô gái kia là võ phu thuần túy? Mấy cảnh?"
+Lão cười: “Muốn hỏi gì thì hỏi đi.”
 
-Lão tu sĩ nghĩ nghĩ, vuốt râu mà cười, nhìn ra xa dòng sông chập chờn cách chân núi không xa, chỉ nói hai chữ, trả lời không phải câu hỏi, "Cũng lạ. Đều kỳ quái."
+Nữ tử hỏi: “Sư tôn, thiếu nữ ấy là võ phu thuần túy sao? Đã đến cảnh giới nào?”
 
-Vi Vũ Tùng tự mình đi tới treo kiếm đình, ôm quyền cười nói: "Cung nghênh Nạp Lan tổ sư gia. Tông chủ ở trấn Thanh Lư, Yến Túc ở trong di chỉ tiên gia của Thần Nữ Đồ chỉ điểm kiếm thuật cho Bàng Lan Khê, không tới được. Vị còn lại phỏng chừng chỉ cần nghe nói Nạp Lan tổ sư gia tới, dù có tới chân núi cũng sẽ lập tức quay đầu đi xa."
+Lão tu sĩ nghĩ một lát, vuốt râu cười, nhìn ra sông Diêu Duệ cách chân núi không xa. Lão chỉ đáp lạc đi: “Lạ thật. Cả hai đều lạ.”
 
-Lão nhân cười nói: "Đều không sao cả, chỉ cần ngươi đừng nói chuyện tiền bạc với ta, không có."
+Vi Vũ Tùng đích thân đến đình treo kiếm, ôm quyền cười nói: “Cung nghênh Nạp Lan tổ sư gia. Tông chủ đang ở trấn Thanh Lư. Yến Túc chỉ điểm kiếm thuật cho Bàng Lan Khê trong di chỉ tiên gia ở Thần Nữ Đồ, cũng không tới được. Còn vị kia, e rằng chỉ cần nghe Nạp Lan tổ sư gia đến, dù đã tới chân núi cũng lập tức quay đầu đi xa.”
 
-Vi Vũ Tùng ồ một tiếng, "Vậy ta đi đây."
+Lão nhân cười: “Chẳng sao cả. Miễn ngươi đừng nói tiền bạc với ta. Ta không có đâu.”
 
-Lão nhân ngoắc tay nói: "Đừng giới thiệu a, ngồi xuống tán gẫu một lát, nơi này ngắm cảnh, vui vẻ thoải mái, có thể làm người ta thấy mà quên tiền."
+Vi Vũ Tùng ồ một tiếng: “Vậy ta đi đây.”
 
-Vi Vũ Tùng mỉm cười ngồi xuống, hai vị nam nữ trẻ tuổi còn lại đều hành lễ với vị thần tài hạ tông này. Vi Vũ Tùng lần lượt hoàn lễ.
+Lão ngoắc tay: “Thôi nào, ngồi xuống chuyện trò một lát. Ngắm cảnh ở đây thật khoan khoái, nhìn một hồi có khi quên cả tiền.”
 
-Lão nhân hỏi: "Ta thấy tiểu cô nương tay cầm gậy leo núi, đeo hòm trúc tên Bùi Tiền, cũng không biết là thật hay giả, quá nửa là thật, ngươi có nhận ra không?"
+Vi Vũ Tùng mỉm cười ngồi xuống. Đôi nam nữ trẻ hành lễ với vị Thần Tài của hạ tông, Vi Vũ Tùng lần lượt đáp lễ.
 
-Vi Vũ Tùng cười nói: "Nó à, quả thật tên Bùi Tiền, là con gái nuôi mà Trúc tông chủ chúng ta vừa nhận."
+Lão nhân hỏi: “Ta gặp một tiểu cô nương tay cầm gậy, lưng đeo hòm trúc, tự xưng Bùi Tiền. Chẳng biết tên thật hay giả, có lẽ là thật. Ngươi có biết không?”
 
-Lão nhân mỉm cười nói: "Khó trách."
+Vi Vũ Tùng cười: “Nàng đúng là Bùi Tiền, nghĩa nữ mà Trúc tông chủ chúng ta vừa nhận.”
 
-Trong lãnh thổ bãi Hài Cốt, có một dòng sông lớn hướng nam bắc, không nhánh không rễ, không có bất cứ khe nước nhánh sông nào, ở Hạo Nhiên Thiên Hạ cũng cực kỳ hiếm thấy.
+Lão nhân mỉm cười: “Thảo nào.”
 
-Bùi Tiền kế tiếp muốn đi tòa từ miếu lay động lòng sông kia, bái kiến vị Tiết Hà Thần kia một phen, bởi vì sư phụ trước kia từng nói, vị hà thần kia có ân với hắn, tuy lúc ấy hắn chưa lĩnh tình, nhưng vị hà thần này, cùng miếu thần lửa trong tòa thành nào đó, mới xem như sơn thủy thần linh hoàn toàn xứng đáng, chỉ cần đi ngang qua, đều nên thắp hương lễ kính, về phần có phải sơn thủy hương bí chế trên núi hay không không quan hệ. Bùi Tiền đương nhiên sẽ không tự báo danh hiệu, đi vào trong từ miếu yên lặng thắp hương là được. Trên ý nghĩa nghiêm khắc, lay động từ miếu hà đình vẫn là dâm từ đường, bởi vì chưa từng được bất cứ một triều đình nào chính thức phong chính thức, cũng chưa được thư viện nho gia khâm điểm.
+Trong địa phận bãi Hài Cốt có một con sông lớn chạy theo hướng nam bắc, không nguồn không nhánh, chẳng nhận nước của một khe suối nào. Ngay ở Hạo Nhiên Thiên Hạ cũng hiếm có con sông như vậy.
 
-Cách xa hà thần từ ước chừng sáu trăm dặm, bên cạnh có Lý Hòe, có người đi.
+Bùi Tiền định tới miếu bên sông Diêu Duệ lễ bái Tiết Hà Thần. Sư phụ từng kể vị hà thần ấy có ân với mình, dù bấy giờ hắn chưa nhận. Vị ấy và vị Hỏa Thần trong ngôi miếu ở tòa thành nọ mới thật xứng danh sơn thủy thần linh. Đi ngang qua thì nên thắp một nén hương tỏ lòng kính trọng, dùng hương thường hay sơn thủy hương bí chế trên núi cũng chẳng quan trọng.
 
-Sau khi đi hà thần từ thắp hương, dọc theo sông lay động một đường bắc thượng, chính là cổng chào lối vào Quỷ Lâu cốc, Bùi Tiền nhìn từ xa là được, về phần chợ Nại Hà quan kia, thật ra có thể mang theo Lý Hòe đi dạo một chút.
+Bùi Tiền đương nhiên chẳng báo danh, cứ vào miếu lặng lẽ thắp hương là được. Nói cho nghiêm thì miếu Hà Thần sông Diêu Duệ vẫn là một tòa dâm từ, bởi chưa được triều đình nào sắc phong, cũng chưa từng được thư viện Nho gia khâm định.
 
-Lý Hòe bắt đầu nhớ nhung những bức họa hành lang của bức họa thành thần nữ kia điền vào hộp, nhìn thật sự là tốt, ai cũng đẹp hơn tỷ tỷ hắn, đó thật sự là bộ dạng xinh đẹp hơn nhiều lắm, không hổ là thần nữ trong tranh. Cũng chính là không có tiền, bằng không nhất định phải mua một bộ, chia làm hai phần, phân biệt đưa cho lão nhân hiệu thuốc bắc, cùng Trịnh Đại Phong từng đeo mình đi dạo lung tung kia, để cho hai tên lưu manh xem cho đã ghiền, cũng tốt.
+Từ đây đến miếu chừng sáu trăm dặm. Có Lý Hòe đi cùng, cứ thong thả mà đi. Thắp hương xong thì men sông lên phía bắc, tới cổng vào Quỷ Vực cốc. Bùi Tiền chỉ định đứng xa nhìn một cái. Còn chợ Nại Hà quan thì có thể dẫn Lý Hòe đi dạo.
 
-Mặt nước Diêu Du hà cực rộng, cho người ta cảm giác nhìn sông như xem hồ, không có một cây cầu, thủy vận nồng đậm, Bùi Tiền bên này đường có hai con đường, đường nhỏ ven sông, cực kỳ u tĩnh, trên đường lớn, ngựa xe như nước, Bùi Tiền và Lý Hòe đều cầm gậy leo núi, đi ở trên đường nhỏ, dựa theo cách nói của sư phụ, rất nhanh có thể gặp được một quán trà bờ sông, ba bát trà âm trầm, một đồng tiền Tuyết Hoa khởi bước, có thể mua ba bát trà âm trầm, chưởng quầy kia là một gã lười biếng, người làm trẻ tuổi thì tính tình không tốt lắm, chưởng quầy cùng tiểu nhị, tổng thể người đều không xấu, nhưng ra ngoài, vẫn phải cẩn thận.
+Lý Hòe lại nhớ tới những bức tranh thần nữ cuộn trong hộp ở thành Bích Họa. Thật đẹp mắt, ai nấy đều đẹp hơn tỷ hắn, mà còn đẹp hơn nhiều lắm. Quả không hổ là thần nữ trong tranh. Tiếc là chẳng có tiền, nếu không hắn nhất định mua một bộ chia làm hai phần. Một phần tặng lão nhân ở hiệu thuốc, phần kia cho Trịnh Đại Phong, người từng cõng hắn đi chơi khắp nơi. Để hai tên lưu manh ấy ngắm cho đã mắt cũng tốt.
 
-Bùi Tiền ngẩng đầu nhìn phương xa, thấy biển mây bảy màu, đại khái chính là cái gọi là điềm lành khí tượng, phía dưới biển mây, hẳn chính là từ miếu thủy thần lay động sông ngòi.
+Mặt sông Diêu Duệ rộng như mặt hồ, chẳng có lấy một cây cầu, thủy vận nồng đậm. Bên bờ có hai lối đi. Đường nhỏ ven sông rất yên tĩnh, còn đường lớn thì xe ngựa qua lại như nước. Hai người đều cầm gậy, chọn đường nhỏ mà đi.
 
-Bùi Tiền thuận miệng hỏi: "Lý Hòe, nhìn thấy đám mây bên kia không?"
+Theo lời sư phụ, dọc bờ sông chẳng mấy chốc sẽ gặp một quán trà. Bỏ ra một đồng tiền tuyết hoa mua được ba bát trà Âm Trầm. Chưởng quầy là một kẻ lười nhác, tiểu nhị trẻ tuổi thì tính tình chẳng tốt lắm. Hai người ấy nhìn chung đều không xấu, nhưng ra ngoài vẫn phải cẩn thận.
 
-Lý Hòe theo phương hướng ngón tay Bùi Tiền chỉ, gật đầu nói: "Nhìn là thấy, một mảng lớn mây lành màu sắc rực rỡ, ta chính là người đọc sách nghiêm túc của thư viện, đương nhiên biết đây là công đức thần linh một phương hiển hóa."
+Bùi Tiền ngẩng đầu, thấy phía xa có biển mây bảy màu, hẳn là tường vân báo điềm lành. Bên dưới biển mây chắc là miếu thủy thần sông Diêu Duệ.
 
-Bùi Tiền nhìn Lý Hòe.
+Nàng thuận miệng hỏi: “Lý Hòe, thấy đám mây bên kia không?”
 
-Lý Hòe hỏi: "Làm gì?"
+Lý Hòe nhìn theo ngón tay nàng, gật đầu: “Thấy chứ, cả một vùng mây lành rực rỡ. Ta đường đường là người đọc sách của thư viện, đương nhiên biết ấy là công đức của thần linh một phương hiện ra.”
 
-Bùi Tiền do dự một chút, nhẹ giọng hỏi: "Ngươi là Luyện khí sĩ?"
+Bùi Tiền quay sang nhìn hắn.
 
-Lý Hòe hắc một tiếng, "Thật ra ta cũng muốn a, học cây rừng kia cùng không khách khí, có thể trong gió qua lại trong mưa, nhiều thần tiên."
+Lý Hòe hỏi: “Làm gì?”
 
-Là nói Lâm Thủ Nhất kia, Tạ Tạ.
+Bùi Tiền do dự một lát mới hỏi nhỏ: “Ngươi là luyện khí sĩ à?”
 
-Bùi Tiền nghĩ nghĩ, cuối cùng vẫn không đi "Đi cẩn thận nhìn" Lý Hòe một cái.
+Lý Hòe hừ một tiếng: “Ta cũng muốn lắm chứ. Học cái cây họ Lâm kia với cái đứa chẳng biết khách khí, có thể qua lại trong mưa gió, thần tiên biết bao.”
 
-Sư phụ đã dặn dò qua, sư phụ càng không ở bên cạnh, đại đệ tử khai sơn như hắn càng phải tuân thủ quy củ, giống như sao chép sách vậy.
+Ý hắn là Lâm Thủ Nhất và Tạ Tạ.
 
-Lý Hòe nói: "Bùi Tiền, bộ kiếm pháp điên khùng năm đó ngươi chơi ở thư viện, rốt cuộc khi nào có thể dạy ta?"
+Bùi Tiền nghĩ một lát, cuối cùng vẫn không dò xét kỹ Lý Hòe. Sư phụ từng dặn, người càng không ở bên cạnh, đại đệ tử khai sơn như nàng càng phải giữ quy củ. Chuyện ấy cũng như chép sách vậy.
 
-Bùi Tiền đen mặt, "Ta không biết Phong Ma kiếm pháp gì cả."
+Lý Hòe hỏi: “Bùi Tiền, cái bộ kiếm pháp điên khùng ngươi múa ở thư viện hồi ấy, bao giờ mới dạy ta?”
 
-Lý Hòe nói thầm: "Không muốn dạy thì không muốn dạy, keo kiệt như vậy. Ta cùng Lưu Quan, Mã Nhĩ cũng thèm thuồng bộ kiếm thuật này rất nhiều năm, rét lạnh lòng các tướng sĩ."
+Bùi Tiền sầm mặt: “Ta chẳng biết Phong Ma kiếm pháp gì cả.”
 
-Bùi Tiền ngoảnh mặt làm ngơ.
+Lý Hòe lẩm bẩm: “Không muốn dạy thì thôi, keo kiệt thế. Ta với Lưu Quan, Mã Nhĩ thèm bộ kiếm thuật ấy bao năm rồi. Làm buốt lòng tướng sĩ quá.”
 
-Không biết Trần Linh Quân đi sông như thế nào.
+Bùi Tiền coi như không nghe thấy.
 
-Thật ra lúc trước sau khi Trần Linh Quân đến bãi Hài Cốt, xuống thuyền, cũng không dám đi dạo, trừ thành Bích Họa dưới chân núi, cái gì lay động miếu Hà Từ, Quỷ Tranh cốc, toàn bộ kính nhi viễn chi. Lão tử ở Bắc Câu Lô Châu, không có chỗ dựa. Vì thế đi thẳng đến núi Mộc Y của Phi Ma tông. Đương nhiên khi Trần Linh Quân xuống núi, mới phát hiện chỗ dựa của mình hơi lớn, là tông chủ Trúc Tuyền. Vị dì Trúc kia bộ dáng bình thường, nhưng mà nhiệt tình a. Về phần Trần Linh Quân hôm nay, đã như kẻ trộm, thật cẩn thận vòng qua Vân Tiêu cung của Sùng Huyền thự, tiếp tục đi về phía tây, đợi đến tận cùng phía tây Đại Độc, Trần Linh Quân mới bắt đầu chân chính đi xuống sông, cuối cùng dọc theo con sông lớn trở về cửa biển của con sông lớn Xuân Lộ Phố.
+Không biết Trần Linh Quân đi sông đến đâu rồi.
 
-Có hai chỗ cửa biển vào, quái vật châu đầu độc hơn xa con sông chập chờn không nhánh không rễ bên cạnh Bùi Tiền này.
+Thật ra lần trước xuống thuyền ở bãi Hài Cốt, Trần Linh Quân nào dám đi dạo. Trừ thành Bích Họa dưới chân núi ra, miếu Hà Thần sông Diêu Duệ, Quỷ Vực cốc gì đó, hắn đều kính mà tránh xa. Lão tử ở Bắc Câu Lô Châu có chỗ dựa đâu. Hắn bèn đi thẳng tới núi Mộc Y của Phi Ma tông.
 
-Sư phụ quả nhiên chưa từng gạt người, có quán trà ven sông bán trà Âm Trầm, khách nhân rất nhiều.
+Dĩ nhiên đến lúc xuống núi, Trần Linh Quân mới biết chỗ dựa của mình chẳng nhỏ chút nào. Đó là tông chủ Trúc Tuyền. Vị dì Trúc ấy trông bình thường, được cái hết sức nhiệt tình.
 
-Bùi Tiền do dự một phen, đang rối rắm có muốn xa xỉ hay không một lần hay không. Trước khi nó ra khỏi nhà, lão đầu bếp muốn cho nó một đồng tiền Tiểu Thử và mấy trăm đồng tiền Tuyết Hoa, nói là tiền thần tiên áp tiền, mỗi vị đệ tử Lạc Phách sơn ra ngoài, đều sẽ có một khoản tiền như vậy, có thể chiêu tài vận, nhưng Bùi Tiền không dám đòi nhiều, chỉ cầm năm đồng tiền Tuyết Hoa, khác với tiền thần tiên trước kia rơi vào túi nó, mỗi một đồng đều có tên, đều xem như ở trên gia phả ghi chép của "tổ sư đường" nho nhỏ kia của nó, mà năm đồng tiền Tuyết Hoa này nếu không ở nhà nó, không tên không họ, vậy thì không tính là bỏ nhà đi, chi tiêu sẽ không làm nó quá đau lòng, cho nên Bùi Tiền nói với Lý Hòe: "Ta mời ngươi uống một chén trà Âm Trầm."
+Bây giờ Trần Linh Quân đã rón rén như kẻ trộm, vòng qua Vân Tiêu cung của Sùng Huyền thự, tiếp tục đi về phía tây. Đến tận đầu tây của Đại Độc mới thật sự xuống nước. Cuối cùng hắn sẽ xuôi dòng tới cửa biển của con sông lớn bên phố Xuân Lộ.
 
-Lý Hòe nói: "Thôi, quá mắc."
+Dòng Đại Độc thông biển hai đầu ấy, chẳng thể đem so với sông Diêu Duệ không nguồn không nhánh bên cạnh Bùi Tiền được.
 
-Bùi Tiền nói: "Vậy ngươi cứ nhìn ta uống liền ba bát."
+Sư phụ quả nhiên chưa từng gạt người. Ven sông thật có quán bán trà Âm Trầm, khách còn rất đông.
 
-Lý Hòe chỉ phải ngồi cùng Bùi Tiền, Bùi Tiền cho một đồng Tuyết Hoa tiền, người làm trẻ tuổi bưng tới ba chén trà âm trầm nổi tiếng nhất Diêu Duệ Hà, dù sao cũng là nước trà Phi Ma tông thường xuyên lấy đến "Đãi khách", không đắt chút nào.
+Bùi Tiền do dự, không biết có nên xa xỉ một lần không. Hôm nàng rời nhà, lão đầu bếp muốn cho nàng một đồng tiền tiểu thử và mấy trăm đồng tiền tuyết hoa, gọi là tiền dằn túi. Đệ tử núi Lạc Phách nào đi xa cũng được một khoản như thế để chiêu tài. Bùi Tiền chẳng dám lấy nhiều, chỉ cầm năm đồng tiền tuyết hoa.
 
-Lý Hòe cầm lấy một chén nước trà trong đó, cảm giác mình mỗi một ngụm đều là đang uống vàng bạc, vừa đau lòng vừa hưởng phúc, cho nên uống chậm.
+Tiền thần tiên trước kia đã rơi vào túi nàng, đồng nào cũng có tên, được ghi vào gia phả của “tổ sư đường” bé tẹo của nàng. Năm đồng này thì khác, vốn đâu phải người nhà, chẳng có tên có họ. Tiêu đi cũng không tính là bỏ nhà, nàng đỡ đau lòng hơn.
 
-Bùi Tiền hai ba ngụm đã uống xong một chén trà âm trầm, bát thứ hai mới chậm rãi uống.
+Bùi Tiền bèn nói: “Lý Hòe, ta mời ngươi một bát trà Âm Trầm.”
 
-Bùi Tiền quay đầu nhìn phía dòng sông chập chờn kia, suy nghĩ xuất thần.
+Lý Hòe nói: “Thôi, đắt quá.”
 
-Lúc này mới vừa đến Bắc Câu Lô Châu, cũng rất nhớ Lạc Phách Sơn.
+“Vậy ngươi cứ nhìn ta uống liền ba bát.”
 
-Uống xong trà Âm Trầm, tiếp tục lên đường.
+Lý Hòe đành ngồi xuống cùng nàng. Bùi Tiền đưa một đồng tiền tuyết hoa, tiểu nhị trẻ tuổi bưng tới ba bát trà Âm Trầm nổi tiếng nhất sông Diêu Duệ. Dù sao cũng là thứ trà Phi Ma tông thường lấy ra đãi khách, giá chẳng đắt chút nào.
 
-Sau khi một hơi đi ra mấy chục dặm đường, Bùi Tiền hỏi: "Lý Hòe, ngươi không cảm thấy đi đường mệt mỏi?"
+Lý Hòe bưng một bát, mỗi ngụm cứ như uống vàng uống bạc, vừa xót vừa thích, cho nên nhấp rất chậm. Bùi Tiền uống hai ba ngụm đã cạn bát đầu, đến bát thứ hai mới uống thong thả.
 
-Lý Hòe cầm gậy leo núi phất qua bụi cỏ lau, cười ha ha nói: "Đùa gì vậy, trong đoàn người đi Đại Tùy cầu học năm đó, chỉ ta tuổi nhỏ nhất, có thể chịu khổ nhất, không kêu mệt nhất!"
+Nàng quay nhìn dòng sông, nghĩ ngợi đến thất thần.
 
-Bùi Tiền nghĩ nghĩ, theo hắn đi.
+Mới đặt chân tới Bắc Câu Lô Châu mà nàng đã nhớ núi Lạc Phách lắm rồi.
 
-Hai người đều là từ nhỏ liền đi đường quen sơn thủy, cho nên ở bờ sông chập chờn màn trời chiếu đất, sớm đã tự nhiên mà vậy.
+Uống hết trà, hai người lại lên đường.
 
-Cuối cùng đến tòa hà thần hương khói cường thịnh kia, Bùi Tiền và Lý Hòe tiêu tiền mua ba nén nhang tầm thường, ở ngoài đại điện đốt hương, gặp được vị tượng thần kim giáp kia hai tay đều cầm kiếm giản, chân đạp rắn đỏ.
+Đi một hơi mấy chục dặm, Bùi Tiền hỏi: “Lý Hòe, ngươi đi đường không thấy mệt sao?”
 
-Tượng thần kim thân của Hà Thần lão gia cực cao, thế mà so với tượng thần của thủy thần nương nương Thiết Phù Giang quê nhà còn cao hơn ba thước, còn phải thêm một tấc rưỡi nữa.
+Lý Hòe lấy gậy phất qua bụi lau, cười ha hả: “Đùa gì thế! Trong đám người sang Đại Tùy cầu học năm ấy, ta nhỏ tuổi nhất, chịu khổ giỏi nhất, cũng ít kêu mệt nhất!”
 
-Bùi Tiền trí nhớ luôn rất tốt.
+Bùi Tiền nghĩ một lát, mặc hắn nói.
 
-Mọi người, cảnh vật, sau khi bị nàng xem qua, không muốn chẳng khác nào hoàn toàn quên mất, nhớ tới liền rõ ràng nhớ lại.
+Hai người từ nhỏ đã quen trèo núi lội sông. Lấy trời làm màn, lấy đất làm chiếu bên sông Diêu Duệ, với họ đã là chuyện thường.
 
-Từ đường hà thần đầu người đông đảo, khách hành hương như dệt cửi, Bùi Tiền và Lý Hòe ở giữa dòng người rất không bắt mắt. Bùi Tiền và Lý Hòe sau khi bước ra khỏi cửa đại điện, tiếp tục đi về phía sau, từ đường hà thần diện tích rộng lớn, điện các rất nhiều, nơi có thể đi dạo không ít. Bùi Tiền ở trên đường nhíu nhíu mày, để Lý Hòe bước nhanh đuổi kịp, sau đó Bùi Tiền lấy gậy leo núi mở đường, đứng ở giữa một thiếu niên tinh hãn và ông lão, người sau dắt tiểu cô nương, lão nhân đang giảng giải cho đứa nhỏ đủ loại kỳ văn dị sự ở từ đường hà thần này, thiếu niên kia bị một cây gậy leo núi đánh gãy cánh tay, cũng không đau, nhưng hỏng chuyện tốt, thấy thiếu nữ gầy gò kia luôn đứng ở giữa lão ông nội cùng mình, hắn cười cười, thế mà đi tới trước lão nhân, Bùi Tiền tiến lên một bước, nhẹ nhàng đập đầu vai thiếu niên.
+Cuối cùng hai người tới ngôi miếu Hà Thần hương khói thịnh vượng, mua ba nén hương thường, thắp ở ngoài đại điện. Trong điện, tượng thần mặc giáp vàng, hai tay cầm kiếm giản, chân đạp rắn đỏ.
 
-Thiếu niên kia thân hình bất ổn, lướt ngang mấy bước về sau, nhe răng nhếch miệng, thấy cô gái hơi đen dừng bước lại, cùng hắn đối mặt.
+Tượng kim thân của Hà Thần lão gia rất cao, còn cao hơn tượng thủy thần nương nương sông Thiết Phù ở quê nhà đúng ba thước một tấc rưỡi.
 
-Thiếu niên nhếch miệng cười, "Người trong đồng đạo?"
+Trí nhớ Bùi Tiền xưa nay rất tốt. Người hay cảnh vật, chỉ cần đã nhìn qua, lúc không muốn nghĩ tới thì như quên sạch, lúc muốn nhớ lại thì từng nét đều rõ ràng.
 
-Hắn chậm rãi đi về phía trước, thiếu nữ cầm trong tay lục trúc, đeo rương sách kia giống như sóng vai mà đi với hắn.
+Miếu đông nghịt khách hành hương. Bùi Tiền và Lý Hòe lẫn trong dòng người, chẳng mấy ai để ý. Ra khỏi đại điện, hai người men ra phía sau. Miếu Hà Thần chiếm một khoảnh đất rộng, điện các san sát, còn nhiều chỗ để xem.
 
-Bùi Tiền nhẹ giọng nói: "Lúc trước ngươi đã lấy được túi bạc kia từ trên người một vị phú ông, nhưng lão nhân này, nhìn bộ dáng phong trần mệt mỏi của hắn, còn có đôi giày kia mài mòn, sẽ biết chút tiền tài trên người, vô cùng có khả năng là sau khi hai ông cháu thắp hương cầu nguyện, tiền ngựa về quê còn sót lại, ngươi cũng hạ thủ được?"
+Đi được một đoạn, Bùi Tiền nhíu mày, bảo Lý Hòe bước nhanh theo rồi lấy gậy rẽ đường, chen vào giữa một thiếu niên lanh lẹ và một lão nhân. Lão nhân đang dắt tay cháu gái, kể cho đứa nhỏ nghe những chuyện lạ về miếu Hà Thần. Cây gậy của Bùi Tiền gạt cánh tay thiếu niên ra, chẳng đau, nhưng làm hỏng chuyện tốt của hắn.
 
-Thiếu niên cười nói: "Ngươi quản được sao? Có thể gánh được sao? Nếu là đồng hành, vậy ngươi phải biết, lão tử nếu có thể khai lò ở bên này, khẳng định là có chỗ dựa. Ngươi có tin ra khỏi thần từ sông, không đi ra mười dặm được không? Có biết được con cá bên sông lay động này vì sao to lên không? Ăn người ăn no!"
+Thấy thiếu nữ gầy gò cứ chắn giữa mình và lão nhân, hắn cười, vòng lên phía trước. Bùi Tiền tiến một bước, khẽ gõ vào đầu vai hắn. Thiếu niên mất thăng bằng, loạng choạng dạt ngang mấy bước, nhe răng nhăn mặt. Thiếu nữ da hơi ngăm đã dừng lại, đối diện với hắn.
 
-Bùi Tiền tiếp tục nói: "Xem thủ pháp sờ đồ của ngươi, đã có thể ở trước mặt người ta trộm đồ, căn bản sẽ không thiếu bạc, ở trong Hà Thần từ này, ngươi cho dù không tích đức làm việc thiện, trộm đồ trang sức vàng bạc của người giàu thì thôi, nhưng ngươi chung quy không thể quá thiếu đạo đức, trộm chút tiền tài vô cùng có khả năng hại tính mạng người ta nhỉ?"
+Thiếu niên nhếch miệng: “Người cùng nghề?”
 
-Thiếu niên nói: "Ngươi là quyết tâm muốn phá hỏng chuyện tốt của ta?"
+Hắn thong thả đi tiếp. Thiếu nữ đeo hòm sách, tay cầm gậy trúc xanh cũng đi ngang hàng với hắn.
 
-"Phá chuyện tốt của ngươi? Trộm gà trộm chó, trong lòng ta không biết, tốt xấu không chia sao?"
+Bùi Tiền nhẹ giọng nói: “Lúc nãy ngươi đã lấy một túi bạc của vị phú ông kia rồi. Còn lão nhân này, nhìn dáng vẻ phong trần và đôi giày mòn của lão thì biết, chút bạc trên người có khi là tiền đi đường về quê của hai ông cháu sau khi thắp hương cầu nguyện. Thế mà ngươi cũng xuống tay được?”
 
-Sau đó Bùi Tiền nói: "Ngẩng đầu ba thước có thần minh, ngươi cẩn thận Tiết Thủy Thần thật sự "thủy thần nổi giận"."
+Thiếu niên cười: “Ngươi quản nổi sao? Gánh nổi sao? Nếu đã cùng nghề thì phải biết lão tử dám kiếm ăn ở đây, ắt có chỗ dựa. Có tin ra khỏi miếu Hà Thần, ngươi đi chưa được mười dặm không? Biết vì sao cá sông Diêu Duệ lớn thế không? Ăn thịt người đến no đấy!”
 
-Thiếu niên khịt mũi coi thường, "Chờ xem. Ta ở ngoài cửa chờ ngươi, ta ngược lại muốn nhìn xem ngươi có thể trốn nơi đây bao lâu."
+Bùi Tiền nói tiếp: “Xem thủ pháp của ngươi, ngay trước mắt người ta cũng lấy được đồ, hẳn chẳng thiếu bạc. Ở trong miếu Hà Thần, ngươi không tích đức làm việc thiện thì thôi, lấy vàng bạc trang sức của nhà giàu cũng thôi. Đằng này ngươi trộm chút tiền có khi liên quan đến mạng người. Có phải quá thất đức rồi không?”
 
-Bùi Tiền gật đầu nói: "Thử xem."
+Thiếu niên hỏi: “Ngươi quyết phá chuyện tốt của ta?”
 
-Lý Hòe không hiểu ra sao theo phía sau Bùi Tiền.
+“Chuyện tốt? Trộm gà bắt chó mà cứ tưởng người ta chẳng biết, tốt xấu cũng không phân biệt được sao?”
 
-Thấy thiếu niên hung hãn kia cười lạnh xoay người rời khỏi, Bùi Tiền còn nhắc nhở: "Vào đạo quán chùa miếu thắp hương, cố gắng ít đi đường về."
+Bùi Tiền nói thêm: “Ngẩng đầu ba thước có thần minh. Cẩn thận Tiết Thủy Thần thật sự nổi giận.”
 
-Thiếu niên xì một tiếng khinh miệt, bước nhanh rời đi.
+Thiếu niên khịt mũi: “Chờ xem. Ta đợi ngươi ngoài cửa. Để xem ngươi trốn ở đây được bao lâu.”
 
-Lý Hòe hỏi: "Trược tặc?"
+Bùi Tiền gật đầu: “Thử xem.”
 
-Bùi Tiền gật đầu nói: "Tuổi không lớn, là tay già đời."
+Lý Hòe đi sau nàng, chẳng hiểu đầu đuôi. Thấy thiếu niên hung hăng kia cười lạnh, xoay người bỏ đi, Bùi Tiền còn nhắc: “Đã vào chùa miếu, đạo quán thắp hương thì cố mà bớt đi đường cũ [?].”
 
-Lý Hòe lo lắng nói: "Xem ra tên kia là muốn chặn cửa chúng ta? Làm sao? Tòa hà thần từ này có cửa hông cửa nhỏ có thể đi hay không?"
+Thiếu niên khinh khỉnh xì một tiếng, bước nhanh đi mất.
 
-Bùi Tiền lắc đầu nói: "Không sao, đối phương không dám gây chuyện ở cửa từ miếu, chỉ biết chọn lựa chỗ sông lay động yên tĩnh động thủ. Đến lúc đó chúng ta không đi đường nhỏ ven sông, đi đường lớn kia."
+Lý Hòe hỏi: “Kẻ móc túi?”
 
-Hậu điện bên kia, một bức câu đối chữ vàng nền đen, nội dung câu đối, được sư phụ khắc ở trên thẻ trúc, trước kia phơi thẻ tre, Bùi Tiền từng thấy.
+Bùi Tiền gật đầu: “Tuổi không lớn, tay nghề già dặn lắm.”
 
-Tâm thành chớ có dập đầu, tự có âm đức phù hộ, vì ác mặc ngươi thắp hương, chỉ khiến Thủy Thần nổi giận.
+Lý Hòe lo lắng: “Xem ra hắn muốn chặn ở cửa. Làm sao bây giờ? Miếu Hà Thần có cửa hông hay lối nhỏ nào để ra không?”
 
-Bùi Tiền chắp hai tay, trong lòng mặc niệm.
+Bùi Tiền lắc đầu: “Không sao. Hắn chẳng dám làm loạn ngay cửa miếu, chỉ dám đợi ở chỗ vắng ven sông. Lúc ra, chúng ta bỏ đường nhỏ, đi đường lớn.”
 
-Lý Hòe đứng ở một bên, chỉ là cảm thấy nội dung câu đối thú vị. Khó trách lúc trước Bùi Tiền khuyên bảo thiếu niên trộm vặt kia, cẩn thận thuỷ thần phát hỏa.
+Ở hậu điện có một đôi câu đối chữ vàng nền đen. Trước đây, khi đem thẻ tre ra phơi, Bùi Tiền từng thấy sư phụ khắc hai câu ấy lên một thẻ.
 
-Sau khi hai người rời khỏi từ đường hà thần, dọc đường vô sự, trước khi đêm xuống đến bến đò kia, bởi vì dựa theo quy củ, các người chèo thuyền vào đêm không chống thuyền qua sông nữa, nói là sợ quấy rầy Hà Thần lão gia nghỉ ngơi, tục lệ quê cha truyền lưu hết đời này đến đời khác, hậu bối làm theo là được.
+“Lòng thành chẳng cần dập đầu, tự có âm đức che chở. Làm ác mặc ngươi thắp hương, chỉ khiến thủy thần nổi giận.”
 
-Bệnh nặng cầu y, sĩ tử đi thi, nhảy sông tự vẫn. Ba loại người này, đò ngang chèo thuyền đều không thu tiền. Loại thứ nhất là không thể thu, tổn thương âm đức. Loại thứ hai là tích góp tình hương khói. Loại cuối cùng là không dám thu.
+Bùi Tiền chắp tay, lặng lẽ nhẩm lại.
+
+Lý Hòe đứng bên cạnh, thấy đôi câu đối thú vị. Thảo nào lúc nãy Bùi Tiền nhắc tên móc túi cẩn thận thủy thần nổi giận.
+
+Hai người rời miếu, dọc đường bình yên vô sự. Trước khi trời tối, họ tới bến đò. Theo tục lệ, đêm xuống người lái đò không đưa khách sang sông nữa, sợ quấy rầy Hà Thần lão gia nghỉ ngơi. Lệ làng truyền hết đời này sang đời khác, con cháu cứ thế làm theo.
+
+Người bệnh nặng đi cầu y, sĩ tử đi thi và người nhảy sông tự vẫn, cả ba hạng đều không phải trả tiền đò. Hạng đầu không thể lấy, lấy sẽ tổn âm đức. Hạng thứ hai được miễn để kết chút tình hương hỏa. Hạng cuối thì chẳng ai dám lấy.
 
 Bùi Tiền nheo mắt.
 
 Đến rồi.
 
-Bùi Tiền thoáng nhìn một đám người nơi xa, xem bộ dáng là đang ôm cây đợi thỏ, trong đó thiếu niên kia đang chỉ trỏ mình, bảy tám hán tử thanh tráng bước đi tới, một người thân hình cao lớn, nắm tay vang lên tiếng kẽo kẹt.
+Đằng xa có một đám người, xem ra đang ôm cây đợi thỏ. Thiếu niên kia chỉ trỏ về phía nàng. Bảy tám hán tử trai tráng bước tới, một kẻ cao lớn bóp nắm tay kêu răng rắc.
 
-Nhìn qua thì thấy rất dọa người.
+Thoạt nhìn cũng dọa được người.
 
-Bùi Tiền nói với Lý Hòe: "Đứng ở phía sau ta."
+Bùi Tiền nói với Lý Hòe: “Đứng sau ta.”
 
-Lý Hòe nói: "Chịu nhận lỗi tặng tiền, không giải quyết được?"
+Lý Hòe hỏi: “Xuống nước nhận lỗi, đưa chút tiền cũng không xong sao?”
 
-Bùi Tiền nói: "Không dọn dẹp được, lăn lộn giang hồ, sĩ diện, mặt mũi đáng tiền hơn, không phải chỉ nói hư danh, mà là rất nhiều thời điểm thật sự có thể đổi tiền. Huống chi cũng không nên dẹp yên như vậy, căn bản không phải chuyện gì có thể phá của, trừ họa."
+“Không xong. Người lăn lộn giang hồ quý thể diện. Thể diện đáng tiền, nhiều khi còn thật sự đổi được tiền, đâu chỉ là hư danh. Huống hồ chuyện này cũng chẳng nên dẹp yên như thế. Có bỏ tiền cũng chẳng trừ được họa.”
 
-Lý Hòe nói: "Vậy ta có thể làm gì?"
+“Vậy ta làm gì được?”
 
-Bùi Tiền nói: "Nhỡ đâu ta đánh không lại, ngươi cứ tự xưng là người đọc sách của Dũng Kim thư viện, đối phương khẳng định không tin, nhưng động thủ đánh ngươi, nhắm chừng sẽ thu chút khí lực, sợ đánh chết ngươi."
+“Nếu ta đánh không lại, ngươi cứ xưng là người đọc sách của Dũng Kim thư viện. Chúng nhất định chẳng tin, nhưng lúc đánh ngươi chắc vẫn nhẹ tay một chút, vì sợ lỡ đánh chết ngươi.”
 
-Lý Hòe nói: "Vậy ngươi cẩn thận chút, một khi không chịu nổi đau, thì đổi ta đến gánh."
+“Vậy ngươi cẩn thận. Khi nào đau quá không chịu nổi, đổi ta ra gánh.”
 
-Trận phong ba này, thật ra xét đến cùng, là vì Bùi Tiền xen vào việc của người khác, mới đưa tới phiền toái, nhưng đối với Lý Hòe mà nói, không có ý niệm này trong đầu, càng sẽ không oán giận Bùi Tiền.
+Nói cho cùng, chuyện rắc rối này là do Bùi Tiền xen vào việc người khác. Nhưng Lý Hòe chẳng hề nghĩ như vậy, càng không oán nàng.
 
-Một đám người vây Bùi Tiền Lý Hòe lại, thiếu niên kia châm ngòi thổi gió nói: "Chính là tiểu nha đầu lừa đảo không biết trời cao đất rộng này, chẳng những phá hỏng một vụ làm ăn lớn ở hà thần từ đường, vốn đắc thủ, ít nhất nên có hai mươi lượng bạc, ta sau khi báo lên bang hiệu của chúng ta, muốn nó thức thời một chút, nó thế mà còn tuyên bố muốn đem chúng ta tận diệt, nói mình biết chút công phu quyền cước thật sự, căn bản không sợ kiểu mèo ba chân của chúng ta."
+Đám người vây lấy cả hai. Thiếu niên kia thêm mắm dặm muối: “Chính con nha đầu lừa đảo không biết trời cao đất dày này phá vụ làm ăn lớn của ta trong miếu. Vốn đã sắp đắc thủ, ít nhất cũng được hai mươi lượng bạc. Ta báo tên bang, bảo nó biết điều một chút, nó còn dọa diệt sạch cả bọn chúng ta. Nó bảo có công phu quyền cước thật sự, chẳng sợ mấy ngón mèo cào của chúng ta.”
 
-Hán tử cầm đầu kia một bàn tay đẩy thiếu niên lanh lợi cây rụng tiền ra, cười nói với thiếu nữ kia: "Tiểu nha đầu, quyền cước của ngươi quả thật lợi hại như thế?"
+Hán tử cầm đầu đưa tay gạt cây hái tiền nhỏ của mình sang bên, cười hỏi thiếu nữ: “Tiểu nha đầu, quyền cước ngươi lợi hại đến thế thật sao?”
 
-Bãi Hài Cốt, sông chập chờn, xưa nay có rất nhiều thần tiên du lịch đến tận đây, kỳ nhân dị sĩ rất nhiều.
+Xưa nay chẳng thiếu thần tiên du lịch qua bãi Hài Cốt và sông Diêu Duệ, kỳ nhân dị sĩ cũng nhiều. Còn hai đứa đeo hòm trúc trước mắt này thì thôi đi.
 
-Chỉ có điều hai cái rương trúc trước mắt này, coi như xong đi.
+Bùi Tiền lắc đầu: “Chẳng lợi hại chút nào.”
 
-Bùi Tiền lắc đầu nói: "Không lợi hại chút nào."
+Nàng lập tức nói thêm: “Nhưng ngươi muốn hỏi quyền, ta sẽ tiếp.”
 
-Nàng lập tức bổ sung một câu, "Nhưng ngươi muốn hỏi quyền, ta liền tiếp quyền."
+Bốn phía cười ầm. Con bé gầy nhẳng này xem chừng đầu óc chẳng được tốt lắm.
 
-Bốn phía ồn ào cười to.
+Hán tử bước nhanh tới, giày xới đất, bụi bay lên. Hắn vung nắm đấm thẳng vào mặt thiếu nữ. Tiểu cô nương đã chẳng đẹp đẽ gì, vậy chớ trách đại gia không biết thương hoa tiếc ngọc.
 
-Cô gái nhỏ gầy nho nhỏ này, đầu óc hình như không tốt lắm.
+Bùi Tiền đứng yên, nhận trọn một quyền.
 
-Hán tử kia bước nhanh về phía trước, giày bới bùn, bụi đất bay lên, đập về phía mặt thiếu nữ kia. Tiểu cô nương dù sao bộ dạng không ra sao, vậy không trách đại gia không thương hương tiếc ngọc.
+Hán tử giấu tay vừa ra quyền sau lưng, gật đầu: “Ta cũng biết giảng đạo nghĩa giang hồ. Hôm nay chỉ dạy ngươi một bài học nhỏ. Sau này bớt xen vào việc người khác.”
 
-Bùi Tiền không chút sứt mẻ, trúng một quyền đó.
+Hắn vung tay kia, gọi cả đám đi.
 
-Hán tử kia ra quyền một tay chắp sau lưng, gật đầu nói: "Ta cũng không phải không giảng đạo nghĩa giang hồ, hôm nay cho ngươi một chút giáo huấn nho nhỏ, về sau đừng xen vào việc của người khác."
+Bọn vừa hò reo cổ vũ chẳng hiểu đại ca làm gì. Nhất là thiếu niên nọ, không được thấy con bé da đen ngã lăn ra đất, hắn càng thất vọng. Chẳng rõ đại ca hôm nay đang giở trò gì.
 
-Hán tử vung tay lên, hô người rời khỏi.
+Ra xa mấy chục bước, hắn mới đánh bạo gọi: “Đại ca?”
 
-Những kẻ vừa mới bắt đầu ủng hộ, bị đại ca giày vò như vậy, cũng có chút không hiểu ra sao, nhất là thiếu niên kia chưa thể nhìn thấy thiếu nữ đen sì ngã xuống đất không dậy nổi, lại càng thất vọng, không biết trong hồ lô của đại ca nhà mình, hôm nay rốt cuộc đang bán thuốc gì.
+Hán tử mồ hôi đầy đầu, tay trái ôm cổ tay phải, cả người run bần bật vì đau: “Gặp phải tay cứng rồi. Tay lão tử... gãy rồi! Thằng khôn lỏi hại người, cứ chờ đó...”
 
-Đợi đến khi đi ra mấy chục bước, thiếu niên kia to gan hỏi: "Đại ca?"
+Thiếu niên thầm kêu khổ.
 
-Hán tử kia đầu đầy mồ hôi, tay trái che cổ tay phải, cả người run rẩy, vẻ mặt thống khổ, run giọng nói: "Gặp phải cứng, cứng rắn, tay lão tử... đứt rồi, ngươi là tinh ranh hại người, chờ đó cho lão tử..."
+Mọi người vừa hoa mắt, thiếu nữ đeo hòm trúc đã đứng chắn đường. Nàng chống gậy xuống đất. Hán tử lập tức giấu cả hai tay ra sau lưng.
 
-Thiếu niên kia trong lòng kêu khổ không ngừng.
+Bùi Tiền trầm giọng nói: “Nhà có gia pháp, môn phái có môn quy. Rắn có đường rắn, chuột có đường chuột. Hạng Tiểu Mạn các ngươi cũng có lối đi riêng. Ta không rõ tục lệ bãi Hài Cốt thế nào, nhưng ở quê ta, xưa nay không được trộm trong chùa miếu, đạo quán. Phạm rồi thì sống hết đời cũng chỉ bằng nửa đời người khác [?].”
 
-Mọi người hoa mắt một cái, thiếu nữ cõng rương trúc kia đã ngăn cản đường đi, dùng gậy leo núi chống xuống đất, trầm giọng nói với hán tử hai tay lập tức chắp sau kia: "Nhà có gia pháp môn có môn quy, rắn có rắn, chuột có chuột, Tiểu Mạn các ngươi có con đường của Tiểu Mạn, ta không biết phong tục bên bãi Cốt Ma như thế nào, nhưng bên trong chùa miếu đạo quán không được trộm, nơi quê nhà ta xưa nay như thế, bằng không cả đời sẽ chỉ có kết cục của người khác nửa đời người. Đầu tiên là thuộc hạ của ngươi, ở trong miếu Hà Thần trộm tiền tài sẽ làm hại tính mạng người ta., Sau đó là một quyền kia của ngươi, nếu là nữ tử tầm thường, một quyền hạ xuống, sẽ bị thương nặng không nói, còn muốn phá hủy khuôn mặt nữ tử, một quyền này của ngươi, càng không hợp quy củ. Cho dù là giang hồ võ phu hỏi quyền lẫn nhau, người lớn tuổi luận bàn với vãn bối, quyền đầu tiên, chưa bao giờ nên tâm ngoan như thế, đúng, quyền thuật không tinh, mấu chốt là tâm ngoan."
+“Trước hết, thuộc hạ của ngươi toan trộm trong miếu Hà Thần số tiền có thể liên quan đến mạng người. Sau nữa là một quyền của ngươi. Gặp nữ tử bình thường, đánh như vậy đã khiến người ta bị thương nặng, còn có thể hủy cả dung mạo. Một quyền ấy càng chẳng hợp quy củ. Võ phu giang hồ hỏi quyền lẫn nhau, người lớn tuổi luận bàn với vãn bối, nào có ai mở đầu đã đánh hiểm như thế? Ừ, quyền thuật thì chẳng tinh, chỉ được cái lòng dạ độc.”
 
-Bùi Tiền tự mình gật đầu, "Được rồi, ta đã vuốt xuôi đạo lý, có thể yên tâm ra quyền."
+Bùi Tiền tự gật đầu: “Được rồi, đạo lý đã nói rõ. Ta có thể yên tâm ra quyền.”
 
-Một lão hán chèo thuyền da thịt ngăm đen, dáng người chắc nịch, không biết khi nào đứng ở cách đó không xa, cười nói: "Tiểu cô nương, ra quyền kiềm chế chút, cẩn thận đánh chết người, bên Hài Cốt Than Than không có vương pháp ước thúc gì, nhưng dù sao cũng là ở quanh miếu Hà Thần, ở dưới mí mắt Tiết Hà Thần, gây ra tai nạn chết người chung quy không tốt."
+Chẳng biết từ lúc nào, một lão thuyền phu da ngăm, thân hình chắc nịch, đã đứng cách đó không xa. Lão cười nói: “Tiểu cô nương, nhẹ tay chút, cẩn thận đánh chết người. Bãi Hài Cốt chẳng có vương pháp quản thúc, nhưng dù sao cũng ở quanh miếu Hà Thần. Gây chuyện chết người ngay dưới mắt Tiết Hà Thần, chung quy chẳng hay.”
 
-Bùi Tiền quay đầu nhìn lão giả kia, nhíu mày nói: "Thiên vị kẻ yếu? Không hỏi đạo lý?"
+Bùi Tiền quay đầu nhìn lão, nhíu mày: “Chỉ bênh kẻ yếu, chẳng cần hỏi đạo lý?”
 
-Lão hán chèo thuyền khoát tay nói: "Lại không ngăn cản ngươi ra quyền, chỉ nhắc nhở ngươi ra quyền nhẹ một chút."
+Lão thuyền phu xua tay: “Ta có cản ngươi ra quyền đâu. Chỉ nhắc ngươi nhẹ tay chút.”
 
-Bùi Tiền hỏi: "Lời này nghe rất đúng. Chỉ là vì sao ngươi không quản bọn họ trước, lúc này lại muốn tới quản ta?"
+Bùi Tiền hỏi: “Lời ấy nghe phải lắm. Sao ngươi không quản họ từ trước, bây giờ lại tới quản ta?”
 
-Lão hán chèo thuyền nhếch miệng cười nói: "Ui, nghe oán khí không nhỏ, sao thế, muốn hướng lão thuyền phu ta đây hỏi quyền hay sao? Ta là người chèo thuyền, có thể quản cái gì? Tiểu cô nương, ta lớn tuổi rồi, nhưng không chịu được một quyền nửa quyền của ngươi."
+Lão thuyền phu nhếch miệng cười: “Chà, oán khí chẳng nhỏ nhỉ. Sao, muốn hỏi quyền lão chèo đò này à? Ta chỉ là người chèo đò, quản được gì? Tiểu cô nương, ta già rồi, nửa quyền của ngươi cũng chịu không nổi.”
 
-Bùi Tiền nói với hán tử bị gãy cổ tay kia: "Cút xa một chút, về sau lại để ta phát hiện các ngươi thói quen không thay đổi, đến lúc đó ta lại trả ngươi một quyền."
+Bùi Tiền nói với hán tử gãy cổ tay: “Cút xa một chút. Sau này lại để ta thấy các ngươi chứng nào tật nấy, ta sẽ trả ngươi một quyền.”
 
-Một đám người liều mạng chạy như điên rời đi.
+Cả đám cắm đầu chạy. Nhìn tư thế của lão thuyền phu và thiếu nữ sau lưng, dường như sắp có trận thần tiên đánh nhau.
 
-Bởi vì hai bên phía sau, lão hán chèo thuyền cùng thiếu nữ, xem tư thế, có chút manh mối thần tiên đánh nhau.
+Lão thuyền phu cũng định bỏ đi.
 
-Lão hán chèo thuyền muốn rời đi.
+Bùi Tiền lẩm bẩm: “Sư phụ không sai, tuyệt đối không sai! Chính Tiết Nguyên Thịnh ngươi khiến sư phụ ta nhìn lầm người!”
 
-Bùi Tiền lẩm bẩm: "Sư phụ không có sai, tuyệt đối sẽ không! Là Tiết Nguyên Thịnh ngươi khiến sư phụ ta nhìn lầm người!"
+Nàng tháo hòm sách, ném Hành Sơn trượng cho Lý Hòe, giận dữ quát: “Hà thần Tiết Nguyên Thịnh, đứng lại cho ta!”
 
-Bùi Tiền tháo rương sách xuống, lại đem Hành Sơn trượng kia ném cho Lý Hòe, giận dữ hô: "Hà thần Tiết Nguyên Thịnh, ngươi đứng lại đó cho ta!"
+Hồi nhỏ, hầu như ngày nào nàng cũng lang thang khắp phố lớn ngõ nhỏ. Chỉ khi đói quá không đi nổi, nàng mới tìm một chỗ nằm bẹp. Vì thế nàng từng tận mắt thấy không ít “chuyện nhỏ”. Có kẻ lừa lấy tiền cứu mạng, có kẻ bán thuốc giả hại chết người vốn còn cứu được.
 
-Khi còn bé, hầu như mỗi ngày nàng đều lang thang ở phố lớn ngõ nhỏ. Chỉ khi nào đói đến độ không đi nổi nữa mới tìm một chỗ nằm úp sấp bất động. Cho nên nàng tận mắt nhìn thấy rất nhiều "Việc nhỏ" như lừa người khác lấy tiền cứu mạng. Bán thuốc giả hại chết người vốn có thể sống, lừa bán trẻ con lạc đàn ở chốn kinh kỳ. Để cho mấy tháng cuộc sống phú quý, dụ dỗ đi đánh bạc, chính là do cha mẹ thân nhân tìm thấy, mang về nhà., Đứa bé kia sẽ tự mình rời nhà đi, tập trung lại nghề cũ, cho dù không tìm thấy "sư phụ" dẫn đường lúc trước, cũng sẽ tự mình lo liệu việc làm ăn. Mang phụ nữ kia chôn vào kỹ viện, lại vụng trộm bán tới địa phương, hoặc là nữ tử cảm thấy không có đường quay về có thể đi, hợp lại lừa gạt tiền lễ hỏi của những hộ nhỏ cả đời tích góp, được tiền tài liền trộm chạy đi, nếu là bị ngăn cản, liền tìm chết kiếm sống, hoặc là dứt khoát nội ứng ngoại hợp, hoặc là không làm thì đã làm đến cùng...
+Có kẻ bắt cóc trẻ lạc giữa kinh thành, cho chúng sống sung sướng mấy tháng rồi dụ đi đánh bạc. Đến khi cha mẹ tìm được và đưa về, đứa trẻ lại tự bỏ nhà đi làm nghề cũ. Không tìm được “sư phụ” ban đầu, nó cũng tự xoay xở làm ăn được.
 
-Nhưng kinh thành Nam Uyển quốc năm đó thật sự không có sơn thuỷ thần kỳ gì, nha môn quan phủ lại khó quản, thì thôi. Mà sông lay động thủy vực này, hà thần Tiết Nguyên Thịnh này cái gì nhìn không thấy? Cái gì không thể quản?!
+Lại có kẻ lừa bán nữ tử vào kỹ viện rồi lén bán đi nơi khác. Có người cảm thấy chẳng còn đường quay lại, bèn liều hợp sức lừa lấy tiền sính lễ mà một nhà nghèo chắt chiu cả đời. Cầm được tiền thì trốn, bị cản lại thì dọa sống dọa chết, hoặc trong ngoài cấu kết, đã làm thì làm cho đến cùng...
 
-Lão hán chèo thuyền kia trong lòng hơi chấn động, nào ngờ bị một võ phu thuần túy tuổi còn nhỏ nhìn thấu thân phận, lão nhân dừng bước, xoay người nhìn phía thiếu nữ kia, cười ha ha nói: "Tiểu cô nương, quyền pháp của cô khẳng định không tầm thường, hẳn là xuất thân tiên gia, hào phiệt nhỉ, nhưng chuyện tầng dưới chót giang hồ này, đặc biệt là rất nhiều quy củ u minh khác thường, nhân quả báo ứng, cô liền không hiểu. Thế sự tình cảm động phức tạp, không phải không phải trắng thì đen."
+Kinh thành Nam Uyển quốc năm ấy quả thật chẳng có sơn thủy thần linh gì, nha môn quan phủ cũng khó quản, thế thì thôi. Còn vùng sông Diêu Duệ này, Hà Thần Tiết Nguyên Thịnh có chuyện gì không nhìn thấy? Có chuyện gì không quản được?
 
-Bùi Tiền im lặng không lên tiếng, chỉ chậm rãi xắn tay áo.
+Lão thuyền phu hơi chấn động trong lòng. Nào ngờ một võ phu thuần túy tuổi còn nhỏ lại nhìn thấu thân phận mình. Lão dừng chân, xoay người nhìn thiếu nữ, cười ha hả: “Tiểu cô nương, quyền pháp của ngươi hẳn chẳng tầm thường. Chắc xuất thân từ tiên gia hay hào môn nhỉ? Nhưng chuyện dưới đáy giang hồ, nhất là bao nhiêu quy củ cõi u minh, nhân quả báo ứng, ngươi chưa hiểu đâu. Thế sự nhân tình phức tạp lắm, đâu phải cứ trắng thì không đen.”
 
-Lý Hòe đột nhiên nói: "Tiết Hà Thần, nàng chưa chắc hiểu hết, nhưng tuyệt đối hiểu biết nhiều hơn so với ngươi tưởng tượng. Khẩn cầu hà thần nói chuyện tử tế, có lý chậm rãi nói."
+Bùi Tiền chẳng nói, chỉ thong thả xắn tay áo.
 
-Lý Hòe tươi cười sáng lạn hẳn lên, "Dù sao Tiết Hà Thần là Hà Thần lão gia không thích lo chuyện bao đồng, vậy khẳng định rất nhàn rỗi."
+Lý Hòe đột nhiên lên tiếng: “Tiết Hà Thần, nàng có thể chưa hiểu hết, nhưng nhất định hiểu nhiều hơn ngài tưởng. Xin Hà Thần nói chuyện tử tế. Có đạo lý gì, cứ chậm rãi nói.”
 
-Lão hán chèo thuyền ngược lại không tức giận chút nào, chỉ là nói với hai đứa nhỏ những chuyện phức tạp huyền diệu khó giải thích kia, Tiết Nguyên Thịnh ông ta thật sự không quá vui lòng, cho nên cười nói: "Xảy ra việc của người khác thì phải trả giá bằng việc xen vào việc của người khác, đám người kia sau này hẳn là sẽ thu liễm rất nhiều, tiểu cô nương có lý có quyền, đương nhiên là ngươi nên có được, sau đó ngươi cảm thấy thủy thần lay động giang hồ này của ta, xử sự bất công... Được rồi, ta đứng bất động, ăn một quyền của ngươi là được. Sau khi đánh xong, ta lại đến xem tiểu cô nương này có tâm khí tiếp tục phân rõ ràng với ta hay không. Nếu là còn nữa, ta sẽ nói tỉ mỉ với ngươi, không thu tiền, chống thuyền chở các ngươi qua con sông chập chờn này, đến lúc đó có thể nói không ít, từ từ nói."
+Hắn nở nụ cười rạng rỡ: “Dù sao Tiết Hà Thần cũng là vị lão gia chẳng thích xen vào việc người khác, chắc hẳn rảnh rỗi lắm.”
 
-Bùi Tiền vẻ mặt lạnh lùng, đôi mắt yên lặng như vực sâu, nhìn chằm chằm thuỷ thần lay động kia, "Tiết Nguyên Thịnh, ngươi là cảm thấy "Gặp nhiều rồi, cứ như vậy đi", đúng hay không?!"
+Lão thuyền phu chẳng giận. Có điều Tiết Nguyên Thịnh thật sự không muốn giảng những chuyện phức tạp, huyền diệu khó nói ấy với hai đứa nhỏ.
 
-Lý Hòe nhẹ giọng nói với Bùi Tiền: "Bùi Tiền, đừng đi cực đoan, Trần Bình An sẽ không như vậy."
+Lão cười nói: “Xen vào việc người khác thì phải trả giá. Đám kia sau này hẳn sẽ thu liễm nhiều. Tiểu cô nương có lý, lại có quyền, đương nhiên việc ấy là công của ngươi. Còn nếu thấy thủy thần sông Diêu Duệ ta xử sự bất công... Được, ta đứng yên chịu ngươi một quyền. Đánh xong, xem tiểu cô nương còn lòng dạ phân rõ phải trái với ta không. Còn thì ta nói tỉ mỉ. Ta chống đò chở các ngươi qua sông, chẳng lấy tiền. Dọc đường có đủ thì giờ, cứ từ từ mà nói.”
 
-Bùi Tiền không biết sao giận tím mặt, một thân quyền ý như thác nước đổ xuống, thế cho nên sông chập chờn phụ cận đều bị dẫn dắt, kích động vỗ bờ, xa xa độ thuyền giữa sông phập phồng bất định.
+Bùi Tiền nhìn chằm chằm thủy thần, sắc mặt lạnh lẽo, đôi mắt lặng như vực sâu: “Tiết Nguyên Thịnh, ngươi thấy nhiều rồi, nghĩ cứ mặc kệ như vậy đi, phải không?”
 
-Tiết Nguyên Thịnh không thể không lập tức vận chuyển thần thông, trấn áp nước sông phụ cận, rất nhiều tinh quái quỷ mị trong chập chờn sông tựa như bị áp thắng, trong nháy mắt chui vào đáy nước.
+Lý Hòe nhẹ giọng khuyên: “Bùi Tiền, đừng đi tới cực đoan. Trần Bình An sẽ không làm vậy.”
 
-Nàng nghiến răng nghiến lợi nói: "Cho nên trên đời này cũng chỉ có một mình sư phụ, là sư phụ ta!"
+Chẳng biết vì đâu, Bùi Tiền bỗng nổi giận. Quyền ý toàn thân đổ xuống như thác. Nước sông gần bờ lập tức bị kéo theo, sóng dồn dập vỗ bờ, mấy chiếc đò ngoài xa nhấp nhô không ngừng.
 
-Bùi Tiền hơi xoay người, một cước đạp đất, lấy Thần Nhân Lôi Cổ Thức khởi thủ.
+Tiết Nguyên Thịnh buộc phải vận thần thông trấn áp khúc sông. Tinh quái quỷ mị dưới nước như bị thứ gì đè xuống, chớp mắt đã chui hết xuống đáy.
 
-Tư thế quyền mở rộng.
+Bùi Tiền nghiến răng: “Cho nên trên đời này chỉ có một người như sư phụ, chỉ người ấy là sư phụ ta!”
 
-Sơn hà biến sắc.
+Nàng hơi nghiêng mình, giậm chân xuống đất, lấy Thần Nhân Lôi Cổ thức khởi thủ.
 
-Đến mức mấy tòa võ miếu thượng du sông Dao Duệ gần như đồng thời kim thân rung động.
+Quyền giá vừa mở, sơn hà biến sắc.
 
-Tiết Nguyên Thịnh ngạc nhiên.
+Kim thân trong mấy tòa võ miếu thượng du sông Diêu Duệ gần như cùng lúc chấn động.
 
-Đây là muốn phá cảnh? Lấy hai chữ mạnh nhất, đạt được võ vận thiên hạ?!
+Tiết Nguyên Thịnh kinh ngạc. Nàng muốn phá cảnh, lấy hai chữ “mạnh nhất” mà giành võ vận thiên hạ sao?
 
-Bùi Tiền lạnh nhạt nói với lão hán chèo thuyền kia: "Một quyền này của ta, mười quyền trăm quyền đều là một quyền, nếu đạo lý chỉ ở trên quyền, xin tiếp quyền!"
+Bùi Tiền thản nhiên nói với lão thuyền phu: “Một quyền này của ta, mười quyền trăm quyền cũng chỉ là một quyền. Nếu đạo lý chỉ nằm trên nắm đấm, xin tiếp quyền!”
 
-Lý Hòe luôn cảm thấy Bùi Tiền có điểm không thích hợp, muốn đi ngăn trở Bùi Tiền ra quyền, nhưng đi lại rất gian nan, đúng là chỉ có thể nhấc chân, lại căn bản không thể đi về phía trước bước ra một bước.
+Lý Hòe thấy nàng không ổn, muốn bước tới cản, nhưng chân nặng trĩu. Hắn nhấc được chân lên mà chẳng sao tiến nổi nửa bước.
 
-Lý Hòe kiệt lực hô: "Bùi Tiền, ngươi nếu ra quyền như vậy, cho dù hai chúng ta bằng hữu đều không làm được, ta cũng nhất định phải nói cho Trần Bình An!"
+Hắn dốc sức hét: “Bùi Tiền, ngươi mà ra quyền như thế, dù hai ta chẳng còn làm bằng hữu được nữa, ta nhất định cũng nói cho Trần Bình An!”
 
-Bùi Tiền nức nở nói: "Sư phụ ta có thể sẽ không bao giờ về nhà nữa."
+Bùi Tiền nghẹn ngào: “Sư phụ ta có thể chẳng bao giờ về nhà nữa.”
 
-Thiếu nữ thất hồn lạc phách, một thân quyền ý mãnh liệt vẫn luôn tăng vọt.
+Thiếu nữ thất hồn lạc phách. Quyền ý trên người nàng vẫn cuồn cuộn dâng cao. Biển mây bảy màu trên miếu Hà Thần lúc tụ lúc tan.
 
-Biển mây bảy màu lay động hà thần từ miếu kia bắt đầu tụ tán bất định.
+Tiết Nguyên Thịnh cười khổ. Thôi rồi, vừa nãy lỡ nói mạnh miệng. Sao lão lại có cảm giác tiểu cô nương đánh xuống một quyền là kim thân của mình sẽ vỡ? Tuyệt đối chẳng có đạo lý ấy, trừ phi...
 
-Tiết Nguyên Thịnh cười khổ không thôi, được rồi, nói nhảm. Sao cảm giác tiểu cô nương kia một quyền đánh xuống, kim thân sẽ vỡ vụn? Hoàn toàn không có đạo lý, trừ phi...
+Trừ phi nàng phá cảnh, được võ vận nhập thân, rồi trong chớp mắt lại phá thêm một cảnh! Cứ mơ mơ hồ hồ mà một mạch phá liền hai cảnh, bước thẳng vào Viễn Du cảnh?
 
-Trừ phi tiểu cô nương này phá cảnh, võ vận trong người, sau đó trong giây lát lại... phá nhất cảnh! Cứ như vậy mơ mơ hồ hồ hăng hái thêm, liên tục phá hai cảnh, chen thân viễn du cảnh?
+Tiết Nguyên Thịnh cảm thấy đường đường một vị thần sông như mình mà đầu óc chắc đã ngập nước.
 
-Tiết Nguyên Thịnh cảm thấy thần sông của mình, hẳn là đầu óc bị nước vào.
+Ấy thế mà dị tượng trước mắt quả thật chưa từng xuất hiện trong lịch sử bãi Hài Cốt và sông Diêu Duệ.
 
-Thế nhưng mà thiên địa dị tượng trước mắt này, bãi xương cốt cùng trong lịch sử sông chập chờn, xác thực chưa bao giờ có.
+Lý Hòe buồn bã nói: “Trần Bình An có về hay không, Bùi Tiền vẫn cứ thế này. Trần Bình An chẳng nên nhận ngươi làm đại đệ tử khai sơn. Người hắn nhìn lầm nhất đời là Bùi Tiền, chẳng phải Tiết Nguyên Thịnh.”
 
-Lý Hòe thương tâm nói: "Trần Bình An có về nhà hay không, dù sao Bùi Tiền đều là như thế. Trần Bình An không nên nhận ngươi làm đại đệ tử mở cửa, hắn đời này nhìn lầm nhất, là Bùi Tiền, không phải Tiết Nguyên Thịnh."
+Bùi Tiền đột nhiên quay đầu mắng: “Con mẹ ngươi, thả rắm thối!”
 
-Bùi Tiền đột nhiên quay đầu mắng: "Nói rắm thối con mẹ ngươi!"
+Lý Hòe mồ hôi đầy đầu, đưa tay vòng ra sau mông, gật đầu: “Vậy ta nhịn một lát. Ngươi ngửi xem thơm không? Trần Bình An mấy lần đều bảo thơm lắm.”
 
-Lý Hòe đầu đầy mồ hôi, đưa tay vòng đến phía sau mông, gật đầu nói: "Vậy ta nhịn một lát nha, ngươi ngửi xem, thơm hay không, Trần Bình An nhiều lần đều nói rất thơm."
+Chẳng hiểu sao Bùi Tiền lại nhớ một chuyện năm xưa, khi đi xa qua con đường nhỏ trong sơn cốc.
 
-Bùi Tiền không biết sao nhớ tới một chuyện, năm đó trên đường đi xa, giữa con đường nhỏ của sơn cốc.
+Nàng nắm hờ bàn tay, hỏi Chu Liễm và Thạch Nhu có muốn biết nàng giấu gì trong tay không. Chu Liễm bảo nàng cút, Thạch Nhu liếc mắt khinh bỉ. Sau đó sư phụ thưởng nàng một cái cốc đầu.
 
-Cô siết hờ nắm tay, hỏi Chu Liễm và Thạch Nhu có muốn biết trong tay cô giấu cái gì hay không, Chu Liễm bảo cô xéo đi, Thạch Nhu liếc mắt khinh bỉ, sau đó cô, sư phụ cho cô một hạt dẻ.
+Trước đó, nàng hỏi, sư phụ đáp.
 
-Trước đó, nàng hỏi vấn đề, sư phụ trả lời vấn đề.
+“Sư phụ, thế này có gọi là quân tử không đoạt món người khác yêu thích không?”
 
-"Sư phụ, thế này gọi là không gọi quân tử không đoạt người tốt?"
+“Ta à, còn cách quân tử thật sự xa lắm.”
 
-"Ta à, còn kém xa quân tử chân chính?"
+“Xa cỡ nào? Có xa bằng từ vườn Sư Tử tới chỗ chúng ta không?”
 
-"Có bao xa? Có xa từ vườn Sư Tử đến chỗ chúng ta không?"
+“Chắc còn xa hơn tới vườn Sư Tử ở Ngẫu Hoa phúc địa.”
 
-"Đại khái so với đến vườn sư tử Ngẫu Hoa phúc địa còn xa hơn."
+“Xa vậy sao?”
 
-"Xa như vậy?!"
+“Cũng chẳng hẳn.”
 
-"Cũng không phải."
+“Sư phụ, nhưng dù xa đến đâu, cứ đi mãi vẫn tới được, phải không?”
 
-"Sư phụ, thế nhưng là xa hơn nữa, đều là đi lấy được đúng không?"
+“Phải. Miễn là đừng đi nhầm đường.”
 
-"Đúng rồi. Điều kiện tiên quyết là đừng đi nhầm đường."
-
-Lúc này, Bùi Tiền đột nhiên không chút dấu hiệu thả lỏng tư thế quyền, thu lại quyền ý, yên lặng cõng rương sách, đi đến bên cạnh Lý Hòe, từ trong tay hắn tiếp nhận cây Hành Sơn Trượng sư phụ tự tay đưa tặng kia.
+Đột nhiên Bùi Tiền buông quyền giá, thu hết quyền ý. Nàng lặng lẽ đeo hòm sách lên lưng, đi đến bên Lý Hòe, nhận lại cây Hành Sơn trượng sư phụ tự tay tặng mình.
 
 Tiết Nguyên Thịnh như trút được gánh nặng.
 
-Trên thực tế, trên Phi Ma tông Mộc Y sơn cũng có mấy người như trút được gánh nặng.
+Trên núi Mộc Y của Phi Ma tông, cũng có mấy người thở phào.
 
-Bùi Tiền ốm yếu nói một tiếng xin lỗi với Tiết Hà Thần kia, sau đó đi về phía cửa ra.
+Bùi Tiền ỉu xìu nói một tiếng xin lỗi với Tiết Hà Thần, rồi đi về phía lối ra.
 
-Lý Hòe có chút hiểu biết tâm tình đại khái của Bùi Tiền, tâm tình nặng nề, đi theo bên cạnh Bùi Tiền, đừng nói an ủi Bùi Tiền, lúc này hắn tự mình đã rất khó chịu.
+Lý Hòe đoán được phần nào tâm tình của nàng. Hắn nặng lòng đi bên cạnh, đừng nói tới an ủi Bùi Tiền, ngay chính hắn bây giờ cũng khó chịu lắm.
 
-Hôm nay khác thường, có chút quan hệ với vị Tiết Hà Thần giả trang lão hán chèo thuyền này, nhưng thật ra quan hệ không lớn, thật sự khiến Bùi Tiền không thở nổi, hẳn là một số quá khứ nào đó của nó, cùng với sư phụ nó ra ngoài đi xa thật lâu chưa về, thậm chí dựa theo cách nói của Bùi Tiền, có khả năng từ nay về sau không về quê nữa? Vừa nghĩ đến đây, Lý Hòe so với Bùi Tiền càng thêm mệt mỏi vô tình ỉu xìu hơn.
+Chuyện hôm nay có liên quan tới vị Hà Thần giả làm lão thuyền phu kia, song liên quan chẳng nhiều. Thật sự khiến Bùi Tiền không thở nổi, hẳn là những chuyện trong quá khứ, cùng với việc sư phụ đi xa đã lâu chưa về. Thậm chí theo lời nàng, có khi từ nay người ấy chẳng bao giờ về quê nữa. Nghĩ đến đó, Lý Hòe còn ủ rũ hơn cả Bùi Tiền.
 
-Bùi Tiền nói: "Lý Hòe, ta không phải cố ý."
+Bùi Tiền nói: “Lý Hòe, ta không cố ý.”
 
-Lý Hòe miễn cưỡng cười vui, thốt ra: "Ha ha, ta người này lại không mang thù."
+Lý Hòe gượng cười, buột miệng: “Ha ha, ta ấy mà, chẳng để bụng đâu.”
 
-Bùi Tiền liếc xéo Lý Hòe.
+Bùi Tiền liếc xéo hắn.
 
-Lão hán chèo thuyền kia đuổi theo hai người, cười nói: "Đưa các ngươi qua sông, quy củ cũ, phải lấy tiền."
+Lão thuyền phu đuổi kịp hai người, cười nói: “Để ta đưa các ngươi qua sông. Quy củ cũ, phải trả tiền.”
 
-Bùi Tiền ừ một tiếng, "Ta biết, tám chỉ bạc."
+Bùi Tiền ừ một tiếng: “Ta biết, tám chỉ bạc.”
 
-Lý Hòe thẳng đến giờ phút này, mới thật sự có chút bội phục hà thần Tiết Nguyên Thịnh này, lòng rộng như sông lay động, không thù dai chút nào.
+Tới lúc này Lý Hòe mới thật sự có chút bội phục vị Hà Thần Tiết Nguyên Thịnh. Lòng lão rộng như sông Diêu Duệ, chẳng hề để bụng.
 
-Tiết Nguyên Thịnh bắt đầu chèo thuyền qua sông, Lý Hòe ngồi ở giữa độ thuyền, Bùi Tiền ngồi ở đuôi thuyền, đưa lưng về phía hai người bọn họ, Lý Hòe và hà thần lão gia cười nói: "Làm phiền Tiết Hà Thần nói với chúng ta quy củ sơn thủy thần linh, có thể nói thì nói, không thể nói, chúng ta nghe xong coi như chưa nghe thấy."
+Tiết Nguyên Thịnh bắt đầu chèo đò. Lý Hòe ngồi giữa, Bùi Tiền ngồi ở đuôi, quay lưng về phía hai người. Lý Hòe cười nói với Hà Thần: “Phiền Tiết Hà Thần giảng cho chúng ta nghe quy củ của sơn thủy thần linh. Chuyện nào nói được, ngài cứ nói. Chuyện nào không nói được, chúng ta nghe rồi cũng coi như chưa nghe.”
 
-Tiết Nguyên Thịnh gật gật đầu, đại khái nói về cuộc đời của thiếu niên lanh lợi và đám hán tử thanh niên khỏe mạnh kia, vì sao có cảnh ngộ hôm nay, đại khái sau này sẽ như thế nào, ngay cả phú ông gia bị trộm bạc, cùng với hai ông cháu thiếu chút nữa bị trộm kia, đều nhất nhất nói ra, trong đó xen lẫn một ít dây thừng xử sự của sơn thủy thần linh, cũng không tính là kiêng kị gì, huống chi Diêu Hà Thiên mặc kệ thần tiên cũng mặc kệ, Tiết Nguyên Thịnh hắn thật đúng là không ngại những khoa vàng ngọc luật chó má kia.
+Tiết Nguyên Thịnh gật đầu, kể qua lai lịch của thiếu niên lanh lẹ và đám hán tử trai tráng kia. Vì sao bọn họ rơi vào cảnh hôm nay, sau này đại khái sẽ ra sao, lão đều nói. Ngay cả phú ông bị trộm bạc và hai ông cháu suýt bị trộm, lão cũng kể đến.
 
-Bùi Tiền không quay đầu, nói: "Là ta trách lầm Tiết Hà Thần."
+Xen giữa chuyện là ít quy củ xử sự của sơn thủy thần linh. Chẳng có gì kiêng kỵ cho lắm. Huống chi sông Diêu Duệ vốn trời chẳng quản, thần tiên cũng chẳng quản, Tiết Nguyên Thịnh đâu bận tâm đến mấy thứ luật vàng phép ngọc chó má ấy.
 
-Tiết Nguyên Thịnh cầm gậy trúc chống thuyền, ngược lại lắc đầu nói: "Lạt quái sao? Ta thấy cũng chưa chắc, rất nhiều chuyện, ví dụ như những cực khổ lớn nhỏ của phố phường, trừ phi quá mức, ta sẽ quản, còn lại, quả thật là lười quản nhiều, thật đúng là không phải sợ nhân quả dây dưa, tiêu giảm công đức, tiểu cô nương thật ra ngươi không nói sai, chính là bởi vì nhìn nhiều, khiến cho thủy thần lay động sông này cảm thấy chán ngán gấp bội, còn nữa ở trên tay ta, tốt bụng làm chuyện xấu, cũng không phải một hai chuyện, quả thật nghĩ mà sợ."
+Bùi Tiền vẫn không quay đầu: “Ta trách lầm Tiết Hà Thần rồi.”
 
-Bùi Tiền rầu rĩ nói: "Sư phụ từng nói, không thể trách móc nặng nề người tốt nhất, cho nên vẫn là ta sai. Luyện quyền luyện quyền luyện cái rắm, luyện cái chùy con."
+Tiết Nguyên Thịnh cầm sào trúc chống đò, lắc đầu: “Trách lầm sao? Ta thấy chưa chắc. Chuyện khổ lớn nhỏ trong dân gian, nếu quá quắt lắm thì ta quản, còn lại quả thật lười xen vào. Ta đâu sợ nhân quả quấn thân hay hao tổn công đức. Tiểu cô nương nói cũng chẳng sai. Chỉ vì nhìn nhiều quá, thủy thần sông Diêu Duệ này đã thấy chán ngán lắm rồi. Vả lại, có lòng tốt mà làm hỏng việc, ta cũng đã gặp chẳng phải một hai lần. Nghĩ lại còn thấy sợ.”
 
-Lý Hòe gãi gãi đầu.
+Bùi Tiền rầu rĩ nói: “Sư phụ từng nói, càng là người tốt, càng không thể trách móc khắt khe. Cho nên vẫn là ta sai. Luyện quyền, luyện quyền cái rắm, luyện cái búa.”
 
-Bởi vì tám chỉ bạc, lại liên hệ "Lời nói điên cuồng" của tiểu cô nương kia, Tiết Nguyên Thịnh đột nhiên nhớ lại một người, "Tiểu cô nương, sư phụ cô, sẽ không phải mấy năm trước từng du lịch nơi đây, là đội nón treo bầu rượu một người trẻ tuổi?"
+Lý Hòe gãi đầu.
 
-Bùi Tiền lúc này mới quay đầu, hốc mắt đỏ hồng, nhưng giờ phút này lại là khuôn mặt tươi cười, gật mạnh đầu, "Đúng!"
+Nghe đến tám chỉ bạc, lại nhớ những lời ngông cuồng vừa rồi của tiểu cô nương, Tiết Nguyên Thịnh chợt nghĩ tới một người: “Tiểu cô nương, sư phụ ngươi có phải từng du lịch qua đây mấy năm trước? Một người trẻ tuổi đội nón, bên hông treo bầu rượu?”
 
-Tiết Nguyên Thịnh cười ha ha nói: "Vậy sư phụ ngươi, so với ngươi giảng đạo lý nhiều hơn, hòa hòa khí khí càng giống người đọc sách hơn."
+Bùi Tiền lúc này mới quay lại. Mắt nàng còn đỏ hoe, mặt đã tươi cười, gật mạnh đầu: “Đúng!”
 
-Người thật sự không xấu, chính là đầu óc cũng có chút không bình thường, một phần Thần Nữ Đồ Phúc Duyên to như vậy, cho không cũng không cần, kỵ lộc Thần Nữ năm đó ở trên thuyền của mình, bị tức giận đến không nhẹ.
+Tiết Nguyên Thịnh cười ha hả: “Vậy thì sư phụ ngươi biết nói đạo lý hơn ngươi nhiều. Người ấy hòa nhã, trông cũng giống người đọc sách hơn.”
 
-Không hổ là thầy trò.
+Người ấy thật sự không xấu, chỉ có đầu óc cũng khác thường đôi chút. Một phần phúc duyên lớn như thế từ Thần Nữ Đồ, cho không cũng chẳng lấy. Năm đó, vị thần nữ cưỡi hươu ở trên đò của lão tức chẳng nhẹ.
 
-Chỉ là loại ngôn ngữ dễ dàng chịu quyền này, lúc này Tiết Nguyên Thịnh thật đúng là không dám nói.
+Quả không hổ là thầy trò.
 
-Lý Hòe có chút kinh hồn táng đảm.
+Có điều câu ấy dễ chuốc lấy một quyền, Tiết Nguyên Thịnh thật sự không dám nói ra.
 
-Không ngờ Bùi Tiền nháy mắt mặt mày nhướng lên, một đôi mắt sáng rỡ, "Đó là đương nhiên, sư phụ ta là người đọc sách giảng đạo lý nhất! Vẫn là kiếm khách."
+Lý Hòe nghe mà thót tim.
 
-Xem đi, sư phụ không phải vẫn không nhìn lầm Hà Thần Tiết Nguyên Thịnh sao.
+Nào ngờ Bùi Tiền thoắt đã vui ra mặt, hai mắt sáng lên: “Đương nhiên rồi, sư phụ ta là người đọc sách biết nói đạo lý nhất! Còn là kiếm khách nữa.”
 
-Sai đều là mình nha.
+Thấy chưa, sư phụ đâu có nhìn lầm Hà Thần Tiết Nguyên Thịnh.
 
-Chờ Bùi Tiền xoay người, Lý Hòe liếc vật trên tay Bùi Tiền, có chút bất đắc dĩ. Lúc trước còn lo lắng nó đang rúc vào sừng trâu, thì ra sớm lấy ra một bộ đồ nghề, đang dùng cây trâm gọi bạc. Dùng cây kéo nhỏ cắt bạc vụn ra tám đồng, sợ cắt nhiều phí tổn oan uổng tiền. Hộp gỗ nhỏ bên đầu gối kia, chim sẻ tuy nhỏ ngũ tạng đều đủ, đủ loại đủ loại, trừ kéo nhỏ, cây gậy nhỏ cán trúc kia, quả cân nhỏ còn không chỉ một cái, lớn nhỏ không đồng nhất, một cái trong đó nó tự tay khắc "Chưa Từng bồi tiền", một khắc "Chỉ kiếm tiền"...
+Sai cả là mình.
 
-Tiết Nguyên Thịnh cũng cảm thấy thú vị, quang cảnh của tiểu cô nương so với lúc ra quyền lúc trước thật sự là cách biệt một trời một vực, buồn cười nói: "Thôi bỏ đi, các ngươi đều là người đọc sách, ta sẽ không lấy tiền."
+Bùi Tiền xoay người lại. Lý Hòe liếc thấy thứ trong tay nàng, có chút bất đắc dĩ. Hắn còn lo nàng đang nghĩ quẩn. Hóa ra nàng đã lấy đồ nghề ra, đang dùng cân nhỏ cân bạc. Nàng dùng kéo cắt bạc vụn, cân cho đủ tám chỉ, sợ cắt quá lại phí oan tiền.
 
-Bùi Tiền vừa cắt ra tám đồng bạc, đưa tay chỉ chỉ Lý Hòe, nói: "Ta không phải người đọc sách, hắn là. Vậy cho Tiết Hà Thần bốn đồng bạc là được."
+Chiếc hộp gỗ nhỏ bên đầu gối nàng bé bằng con chim sẻ mà thứ gì cũng có. Ngoài kéo nhỏ, cân cán trúc, quả cân cũng có mấy cái lớn nhỏ khác nhau. Nàng tự tay khắc lên một cái “Chưa Từng Lỗ Vốn”, cái khác “Chỉ Kiếm Tiền”...
 
-Sau đó Bùi Tiền nói với Lý Hòe: "Giúp ngươi trả tiền, phải cảm ơn. Chuyện hôm nay?"
+Tiết Nguyên Thịnh cũng thấy thú vị. Tiểu cô nương lúc này khác xa khi sắp ra quyền. Lão buồn cười nói: “Thôi vậy, hai ngươi đều là người đọc sách, ta không lấy tiền.”
 
-Lý Hòe vốn muốn nói ta không có tiền thần tiên, tám chỉ bạc này vẫn trả nổi, nào ngờ Bùi Tiền nhìn chằm chằm Lý Hòe, trực tiếp lấy tay đem tám chỉ bạc trực tiếp bẻ thành hai nửa, Lý Hòe lập tức gật đầu nói: "Hôm nay trời trong nắng ấm, lay động sông không gợn sóng."
+Bùi Tiền vừa cắt đủ tám chỉ bạc, đưa tay chỉ Lý Hòe: “Ta đâu phải người đọc sách, hắn mới phải. Vậy gửi Tiết Hà Thần bốn chỉ là được.”
 
-Sau đó Lý Hòe đột nhiên cảm thấy không đúng, ta là người đọc sách, ta mới là người không cần tiêu tiền qua sông.
+Rồi nàng quay sang nói với Lý Hòe: “Ta trả tiền giúp ngươi, phải biết cảm ơn. Còn chuyện hôm nay?”
 
-Chỉ là lại không dám so đo với Bùi Tiền cái gì. Lý Hòe sợ Bùi Tiền, nhiều hơn là nhiều hơn lúc còn nhỏ sợ Lý Bảo Bình kia, dù sao Lý Bảo Bình chưa bao giờ thù dai, càng không ghi sổ, mỗi lần đánh hắn là được.
+Lý Hòe vốn định nói mình tuy chẳng có tiền thần tiên, tám chỉ bạc vẫn trả nổi. Nào ngờ Bùi Tiền cứ nhìn hắn chằm chằm, tay bẻ đôi miếng bạc tám chỉ. Hắn lập tức gật đầu: “Hôm nay trời trong nắng ấm, sông Diêu Duệ chẳng gợn một con sóng.”
 
-Tiết Nguyên Thịnh cười lắc đầu, người đọc sách này đầu óc ngược lại là bình thường, chỉ là không quá linh quang.
+Rồi Lý Hòe chợt thấy có gì sai. Ta mới là người đọc sách, ta mới là người được miễn tiền đò chứ!
 
-Qua sông trả tiền.
+Chỉ là hắn nào dám so đo với Bùi Tiền. Hắn sợ nàng còn hơn sợ Lý Bảo Bình hồi nhỏ. Dù sao Lý Bảo Bình chưa bao giờ để bụng, càng chẳng ghi sổ. Lần nào cũng đánh hắn một trận là xong.
 
-Lý Hòe cùng lão hán chèo thuyền nói lời cảm tạ.
+Tiết Nguyên Thịnh cười lắc đầu. Vị người đọc sách này đầu óc thì bình thường, chỉ có điều chẳng được lanh lợi cho lắm.
 
-Bùi Tiền không nói gì, chỉ chắp tay tạm biệt.
+Qua sông, hai người trả tiền đò. Lý Hòe cất lời cảm tạ lão thuyền phu. Bùi Tiền chẳng nói gì, chỉ chắp tay từ biệt.
 
-Tiết Nguyên Thịnh phất phất tay, chống thuyền trở về bờ bên kia, trăm mối cảm xúc ngổn ngang, hôm nay lần này ra ngoài đi dạo, cũng không biết nên nói là lật hoàng lịch hay là chưa lật.
+Tiết Nguyên Thịnh phất tay, chống đò về bờ bên kia, trong lòng bao nỗi ngổn ngang. Chuyến ra ngoài đi dạo hôm nay, lão cũng chẳng biết nên tính là đã xem ngày hay chưa xem ngày.
 
-Lý Hòe chỉ cảm thấy vô sự cả người nhẹ nhàng.
+Lý Hòe chỉ thấy hết chuyện, cả người nhẹ nhõm.
 
-Bùi Tiền đột nhiên hỏi: "Lúc trước ngươi nói cái gì thơm hay không?"
+Bùi Tiền đột nhiên hỏi: “Lúc trước ngươi nói cái gì thơm với chẳng thơm?”
 
-Lý Hòe đầu gối mềm nhũn, chỉ cảm thấy trời đất bao la, ai cũng không cứu được mình.
+Lý Hòe nhũn cả đầu gối. Trời đất bao la, giờ chẳng ai cứu nổi hắn.
 
-Bùi Tiền đột nhiên quay đầu nhìn lại.
+Bùi Tiền bỗng quay đầu.
 
-Lý Hòe theo tầm mắt Bùi Tiền chớp chớp mắt, vẻ mặt không dám tin, hỏi: "Tỷ?!"
+Lý Hòe nhìn theo, chớp chớp mắt, vẻ mặt chẳng dám tin: “Tỷ?!”
 
-Lý Liễu cười nheo mắt lại, nhẹ nhàng gật đầu.
+Lý Liễu cười nheo mắt, khẽ gật đầu.
 
-Lý Hòe lon ton chạy qua, hai tay nắm hai má Lý Liễu, nhẹ nhàng kéo, "Tỷ, tỷ sẽ không phải là giả chứ? Từ nơi nào nhảy ra?"
+Lý Hòe lon ton chạy qua, hai tay nắm lấy má Lý Liễu, kéo nhẹ: “Tỷ, tỷ là thật đấy chứ? Từ đâu nhảy ra vậy?”
 
-Lý Liễu cười nhẹ nhàng.
+Lý Liễu mỉm cười.
 
-Một bên tên là Vi Thái Chân hồ mị, thiên đánh ngũ lôi oanh, chỉ cảm thấy gặp một cái thiên kiếp.
+Con hồ mị tên Vi Thái Chân đứng bên cạnh, chỉ thấy như bị sét giáng, gặp phải một trận thiên kiếp.
 
-Đây chính là đệ đệ chủ nhân thỉnh thoảng nhắc tới kia? Bộ dáng tốt, tính tình tốt, đọc sách tốt, thiên tư tốt, tâm địa tốt... Dù sao Lý Hòe cái gì cũng tốt?
+Đây là đệ đệ mà chủ nhân thỉnh thoảng nhắc đến sao? Dung mạo tốt, tính tình tốt, đọc sách giỏi, thiên tư cao, tâm địa tốt... Tóm lại, Lý Hòe cái gì cũng tốt?
 
-Bùi Tiền tới bên cạnh Lý Hòe, vui vẻ cười nói: "Lý Liễu tỷ tỷ."
+Bùi Tiền đến cạnh Lý Hòe, vui vẻ gọi: “Lý Liễu tỷ tỷ.”
 
-Lý Hòe vội vàng thu tay lại.
+Lý Hòe vội rụt tay về.
 
-Lý Liễu gật đầu cười nói với Bùi Tiền: "Có con ở bên cạnh nó, ta tương đối yên tâm."
+Lý Liễu gật đầu, cười nói với Bùi Tiền: “Có ngươi đi bên cạnh nó, ta cũng yên tâm hơn.”
 
-Lý Hòe vội vàng kéo tỷ tỷ đến một bên, đè thấp tiếng nói, bất đắc dĩ nói: "Tỷ, tỷ sao lại tới đây? Hai cô nương nhà nhà, liền dám đi xa, rời khỏi Sư Tử phong đến bãi Hài Cốt này xa như vậy? Thực không phải ta nói tỷ à, tỷ không dễ nhìn, nhưng bằng hữu của tỷ đẹp, ta có thể nói cho tỷ biết, du côn vô lại mênh mông nhiều, không sao cả, ta vừa mới kết bạn với thuỷ thần lão gia lay động giang hồ, thật sự có việc, thì báo lên ta... Thôi, Tiết Hà Thần còn chưa biết tên của ta, tỷ vẫn là báo danh hiệu Bùi Tiền tương đối hữu dụng, lúc trước Bùi Tiền thiếu chút nữa ra quyền, cừ khôi, không hổ là thủy thần sông nổi tiếng lừng lẫy, vững vàng như Thái Sơn, mặt mang mỉm cười, không sợ chút nào, đổi thành ta đi đối mặt Bùi Tiền, sớm nằm úp sấp dưới đất!"
+Lý Hòe vội kéo tỷ tỷ sang một bên, hạ giọng: “Tỷ, sao tỷ lại tới đây? Hai cô nương mà dám đi xa thế, từ Sư Tử phong tới tận bãi Hài Cốt? Chẳng phải ta muốn nói tỷ đâu. Tỷ trông chẳng đẹp lắm, nhưng bằng hữu của tỷ đẹp. Ta nói cho tỷ biết, du côn vô lại nhiều vô kể.”
 
-Lý Liễu ôn nhu nói: "Ta sẽ không du lịch với ngươi, còn có chút việc phải xử lý."
+“Cũng chẳng sao, ta vừa kết giao với thủy thần lão gia sông Diêu Duệ. Có chuyện gì, cứ báo tên ta... Thôi, Tiết Hà Thần còn chưa biết tên ta. Tỷ cứ báo tên Bùi Tiền thì có ích hơn. Khi nãy Bùi Tiền suýt ra quyền. Vị ấy cừ thật, không hổ là thủy thần tiếng tăm lừng lẫy. Đứng vững như Thái Sơn, mặt còn mỉm cười, chẳng hề sợ. Đổi lại là ta đối diện với Bùi Tiền, đã nằm sấp dưới đất từ lâu!”
 
-Lý Hòe tức giận cười nói: "Ta cũng không thích ngươi theo ta cùng nhau dạo chơi nha, bên cạnh có một tỷ tỷ đi theo coi là chuyện gì xảy ra, dọc đường tìm tỷ phu khắp nơi à?"
+Lý Liễu dịu giọng nói: “Ta còn chút việc phải lo, sẽ không đi cùng ngươi.”
 
-Lý Liễu đột nhiên hỏi: "Có phải ngươi có một sợi dây đỏ ở bên trong rương sách không?"
+Lý Hòe tức cười: “Ta cũng chẳng muốn tỷ đi cùng đâu. Bên cạnh lúc nào cũng có tỷ tỷ đi theo thì ra thể thống gì? Chẳng lẽ dọc đường cứ tìm tỷ phu khắp nơi?”
 
-Lý Hòe ngẩn người, "Làm gì? Tỷ có người trong lòng rồi, thiếu đồ cưới như vậy? Tỷ phu tương lai đầu óc có bệnh à, nghĩ không có cách nào mưu sắc, liền chạy tới đây mưu tài? Nương còn không tức giận đến mức dùng ngón tay tóm cánh tay ngươi xuống nha, tỷ, chuyện này thực không thể đùa, tỷ phu kia, nghèo không giàu không giàu, cũng không phải là chuyện gì, nhưng nhân phẩm có vấn đề, ta dù sao cũng không đáp ứng, cho dù mẫu thân đáp ứng, ta cũng không đáp ứng..."
+Lý Liễu đột nhiên hỏi: “Có phải trong hòm sách của ngươi có một sợi dây đỏ không?”
 
-Lý Liễu bất đắc dĩ.
+Lý Hòe ngẩn ra: “Để làm gì? Tỷ có người trong lòng rồi, thiếu đồ cưới đến thế à? Tỷ phu tương lai đầu óc có bệnh sao, nghĩ mưu sắc không thành thì tới đây mưu tài [?]? Mẹ mà biết, có khi tức đến mức véo rụng cả tay tỷ. Tỷ à, chuyện này chẳng đùa được.”
 
-Lý Hòe cười to nói: "Tỷ, nghĩ cái gì vậy, trêu tỷ chơi nha."
+“Vị tỷ phu ấy nghèo thì nghèo, không giàu cũng chẳng có gì. Nhưng nhân phẩm có vấn đề là ta nhất định không chịu. Mẹ có chịu thì ta cũng không...”
 
-Lý Liễu cuối cùng đi cùng đệ đệ Lý Hòe vài dặm đường, liền theo đường cũ quay về, nhưng chưa nhận lấy tiên nhân kia ngồi nghiên mực rửa bút, chỉ là lấy đi sợi tơ màu đỏ kia, sau đó nàng tặng đệ đệ một món đồ, bị Lý Hòe tiện tay ném vào trong hòm trúc bên cạnh.
+Lý Liễu đành chịu.
 
-Lý Liễu hỏi: "Dương lão nhân tặng ngươi những quần áo giày kia, sao không mặc ở trên người."
+Lý Hòe cười to: “Tỷ nghĩ gì vậy? Ta trêu tỷ thôi.”
 
-Lý Hòe trợn mắt, "Lão nhân vất vả tích góp tiền mua được vật, ta đây núi sông xa xôi đi lung tung, đi vài ngày chẳng phải không ra hình thù gì? Xin lỗi bản con dâu của lão nhân. Nói không chừng lúc ra ngoài mua đồ, lão nhân lúc bỏ bạc, đau lòng hai tay run run, ha ha, nghĩ đến hình ảnh này, đã muốn cười, cho nên thôi đi, trên đường trở về, chờ đến nhà rồi mặc vào."
+Cuối cùng Lý Liễu đi cùng đệ đệ thêm vài dặm rồi quay lại theo đường cũ. Nàng không nhận chiếc bát rửa bút hình tiên nhân, chỉ lấy sợi tơ đỏ. Nàng cũng tặng đệ đệ một món đồ, Lý Hòe tiện tay ném vào hòm trúc.
 
-Lý Liễu cười nói: "Vẫn là mặc lên người đi."
+Lý Liễu hỏi: “Quần áo và giày Dương lão nhân tặng, sao ngươi không mặc?”
 
-Lý Hòe không kiên nhẫn nói: "Nói sau."
+Lý Hòe trợn mắt: “Lão nhân vất vả dành dụm mới mua được. Ta đi lung tung qua bao nhiêu núi sông, mặc chừng mấy ngày chẳng phải sẽ tả tơi sao? Phụ cả vốn cưới vợ của lão nhân. Biết đâu lúc đi mua, đến khi móc bạc ra, lão xót của đến run cả hai tay. Ha ha, nghĩ thôi đã muốn cười. Cho nên cứ để đó, đợi về tới nhà rồi mặc.”
 
-Lý Liễu cũng không khuyên đệ đệ nữa.
+Lý Liễu cười: “Ngươi cứ mặc đi.”
 
-Cuối cùng Lý Liễu để lại con hồ mị Vi Thái Chân Kim Đan cảnh kia, quê nhà của nàng thật ra cách đây không xa, ngay tại Bảo Kính Sơn trong Quỷ Lam Cốc.
+Lý Hòe mất kiên nhẫn: “Để sau.”
 
-Vì thế Lý Hòe đáng thương hầu như sắp sụp đổ, Vi cô nương kia nghe nói là đệ tử đích truyền tổ sư đường Sư Tử phong, chớp mắt, dùng sức nhìn mình. Xem sao xem, ta biết bộ dạng mình không đẹp trai còn không được sao? Gia phả tiên sư trên núi rất giỏi, tốt xấu là thần tiên bằng hữu của tỷ tỷ ta, nể chút mặt mũi được không?
+Lý Liễu cũng thôi không khuyên nữa.
 
-Bùi Tiền trái lại không sao cả, mặc kệ nền móng đối phương như thế nào, đã là một vị thần tiên trên núi hẳn hoi, có chiếu cố lẫn nhau, bằng không võ phu lục cảnh này của mình quá không đủ đẹp mắt. Nếu thật có gì bất ngờ, Vi Thái Chân có thể mang theo Lý Hòe chạy trốn.
+Trước khi rời đi, nàng để con hồ mị Kim Đan cảnh Vi Thái Chân ở lại. Quê Vi Thái Chân thật ra chẳng xa, ngay ở núi Bảo Kính trong Quỷ Vực cốc.
 
-Sau đó ba người trầm mặc đi về phía trước.
+Chỉ tội Lý Hòe sắp chịu hết nổi. Vị Vi cô nương nghe nói là đệ tử đích truyền của tổ sư đường Sư Tử phong cứ chớp mắt, nhìn hắn mãi. Nhìn gì mà nhìn? Ta biết mình chẳng tuấn tú, được chưa? Tiên sư có tên trong gia phả trên núi thì giỏi thật. Dù sao ngươi cũng là bằng hữu thần tiên của tỷ ta, nể mặt chút được không?
 
-Lý Hòe là không muốn nói chuyện.
+Bùi Tiền thì chẳng bận tâm. Bất kể căn cơ đối phương ra sao, Vi Thái Chân cũng là một vị thần tiên trên núi, có thể trông nom lẫn nhau. Chỉ dựa vào một võ phu lục cảnh như nàng thì chẳng thấm vào đâu. Có chuyện bất trắc, Vi Thái Chân vẫn có thể đưa Lý Hòe chạy thoát.
 
-Vi Thái Chân không dám nói lời nào.
+Ba người im lặng đi tiếp.
 
-Bùi Tiền lười nói chuyện, chỉ là cầm Hành Sơn trượng trong tay, đột nhiên hỏi: "Lý Hòe, sư phụ ta nhất định sẽ trở lại, đúng không?"
+Lý Hòe không muốn nói.
 
-Lý Hòe ừm một tiếng, "Vậy phải a, Trần Bình An đối với ngươi tốt bao nhiêu, chúng ta người bên ngoài đều thấy hết."
+Vi Thái Chân không dám nói.
 
-Bùi Tiền tinh thần phấn chấn, nói: "Tỷ của ngươi cũng đối xử với ngươi rất tốt."
+Bùi Tiền lười nói. Nàng chỉ cầm Hành Sơn trượng trong tay, chợt hỏi: “Lý Hòe, sư phụ ta nhất định sẽ trở về, phải không?”
 
-Lý Hòe gật gật đầu.
+Lý Hòe ừ một tiếng: “Đương nhiên rồi. Trần Bình An đối với ngươi tốt thế nào, người ngoài như chúng ta đều thấy rõ.”
 
-Bùi Tiền nhẹ nhàng vung gậy leo núi trong tay, ngâm nga một khúc dân ca, đậu phụ thối thơm ngon. Đậu phụ thối ngon không mua nổi! Trên núi có yêu ma quỷ quái, hồ trạch giang hà có thủy quỷ, sợ tới mức quay đầu, thì ra rời nhà rất nhiều năm. Ăn đậu phụ thối! Tiểu cô nương nhà ai, trên người mang theo mùi hoa lan, vì sao khóc đến mặt, ngươi nói có đáng thương hay không? Không ăn đậu phụ thối thật đáng thương...
+Bùi Tiền phấn chấn hẳn lên: “Tỷ ngươi cũng đối với ngươi rất tốt.”
 
-Bùi Tiền đột nhiên tỉnh ngộ, đột nhiên giận dữ, nào ngờ Lý Hòe lúc trước đã rón ra rón rén rời xa Bùi Tiền, đợi Bùi Tiền lấy lại tinh thần, nó đã tè ra quần chạy xa, ở phía trước nhanh chân chạy như bay.
+Lý Hòe gật đầu.
 
-Bùi Tiền nhìn quanh, sau đó vài bước đã đuổi kịp Lý Hòe kia, một cước đá Lý Hòe ngã nhào xuống đất, Lý Hòe đứng dậy, đầu cũng không quay, tiếp tục chạy vội.
+Bùi Tiền khẽ vung cây gậy trong tay, ngâm nga một khúc dân ca: “Đậu phụ thối thơm ngon. Đậu phụ thối ngon, không mua nổi! Trên núi có yêu ma quỷ quái, sông hồ có thủy quỷ. Sợ quá quay đầu, hóa ra xa nhà đã nhiều năm. Ăn đậu phụ thối nào! Tiểu cô nương nhà ai mang hương hoa lan, sao khóc đến lem mặt thế kia, ngươi bảo có đáng thương không? Chẳng được ăn đậu phụ thối, thật đáng thương...”
 
-Vi Thái Chân xoa xoa mồ hôi trên trán.
+Bùi Tiền chợt sực nhớ, nổi giận đùng đùng. Nào ngờ Lý Hòe đã rón rén tránh xa từ nãy. Đến lúc nàng hoàn hồn, hắn đã cắm đầu chạy thục mạng, đôi chân thoăn thoắt phía trước.
 
-Người của quê nhà bên kia, đều thật đáng sợ.
+Bùi Tiền nhìn quanh, mấy bước đã đuổi kịp hắn, đá một cước ngã nhào. Lý Hòe bò dậy, chẳng buồn ngoái đầu, lại chạy tiếp.
+
+Vi Thái Chân lau mồ hôi trán.
+
+Người ở quê nhà, ai cũng đáng sợ thật.
