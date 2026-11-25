@@ -1,317 +1,327 @@
 # Chương 770: Mười bốn cảnh
 
-Bên vách núi nửa tòa Kiếm Khí Trường Thành, áo bào xám phiêu đãng theo gió.
+Bên mép vách đá của nửa tòa Kiếm Khí Trường Thành, một bộ áo bào xám bay phần phật trong gió.
 
-Lưu Bạch tới nơi này, muốn tạm biệt Long Quân tiền bối, nàng vừa mới chen thân Nguyên Anh cảnh, hơn nữa trước sau đạt được quà tặng của hai đạo kiếm ý thuần túy.
+Lưu Bạch tới từ biệt Long Quân tiền bối. Nàng vừa bước vào Nguyên Anh cảnh, lại lần lượt được hai đạo kiếm ý thuần túy chọn làm người tiếp nhận.
 
-Hơn chín mươi vị phôi thai kiếm tiên Thác Nguyệt sơn ở đây luyện kiếm, phần lớn đã sớm phá cảnh hoặc là đạt được một phần kiếm ý, có thể trước sau rời khỏi đầu tường, ngự kiếm đi hướng Hạo Nhiên Thiên Hạ, đi chiến trường ba châu.
+Hơn chín mươi mầm kiếm tiên của Thác Nguyệt sơn luyện kiếm ở đây. Phần lớn đã sớm phá cảnh hoặc thu được một phần kiếm ý, đủ sức lần lượt rời đầu thành, ngự kiếm tới chiến trường ba châu của Hạo Nhiên Thiên Hạ.
 
-Những kiếm ý tinh thuần du đãng trong thiên địa trăm năm, ngàn năm thậm chí vạn năm, không thiên vị, chỉ cần kiếm tâm trong suốt, người phù hợp với nó, chính là kiếm tu thiên hạ được chúng nó tán thành, liền có thể đạt được một cọc cơ duyên, một phần truyền thừa thuần túy không có bất kỳ cái gọi là hương khói, danh nghĩa thầy trò.
+Kiếm ý tinh thuần trôi dạt trong trời đất hàng trăm, hàng nghìn, thậm chí hàng vạn năm, chẳng thiên vị ai. Chỉ cần kiếm tâm trong suốt và đôi bên tương hợp, kiếm tu được chúng thừa nhận sẽ có một phen cơ duyên. Truyền thừa ấy thuần túy là truyền thừa, chẳng kèm chút tình hương hỏa hay danh phận thầy trò nào.
 
-Duy chỉ có một loại tồn tại, bất luận thiên phú cao bao nhiêu, tư chất tốt bao nhiêu, tuyệt đối không thể đạt được sự ưu ái của kiếm ý.
+Chỉ riêng một hạng người, thiên phú cao đến đâu, tư chất tốt đến mấy, cũng tuyệt đối không được kiếm ý đoái hoài.
 
-Ví dụ như Man Hoang thiên hạ bị liệt vào Xa Nguyệt một trong mười người trẻ tuổi, cùng với thiếu nữ tên Đậu Khấu kia.
+Chẳng hạn như Xa Nguyệt, một trong mười người trẻ tuổi của Man Hoang Thiên Hạ, và thiếu nữ tên Đậu Khấu kia.
 
-Lưu Bạch nhẹ giọng nói: "Long Quân tiền bối, ta sắp rời khỏi nơi đây, đi hướng Đồng Diệp châu đi theo tiên sinh cùng sư huynh, không biết tiền bối có lời gì cần vãn bối chuyển cho tiên sinh không?"
+Lưu Bạch nhẹ giọng nói: “Long Quân tiền bối, vãn bối sắp rời nơi này, sang Đồng Diệp châu theo tiên sinh và sư huynh. Tiền bối có lời nào cần vãn bối chuyển cho tiên sinh không?”
 
-Đầu tường gió mạnh từng trận, một bộ áo bào xám kia cũng không mở miệng nói.
+Trên đầu thành, gió mạnh thổi từng cơn. Bộ áo bào xám vẫn im lìm.
 
-Lưu Bạch cũng không dám thúc giục vị tiền bối tính cách cổ quái này, nàng không nóng nảy rời khỏi đầu tường, liền nhìn phía vách đá, không thấy tung tích bộ pháp bào đỏ tươi kia.
+Lưu Bạch chẳng dám thúc giục vị tiền bối tính khí cổ quái này. Nàng cũng không vội đi, bèn nhìn sang vách đá bên kia. Chẳng thấy bóng dáng bộ pháp bào đỏ tươi đâu.
 
-Giáp Tử Trướng hạ lệnh, nhằm vào nửa tòa Kiếm Khí Trường Thành đối diện, thiết trí một đạo sơn thủy cấm chế uy thế cực kỳ, triệt để ngăn cách thiên địa, Lưu Bạch có thể thấy rõ phong cảnh đối diện, đầu tường đối diện nhìn về phía này, lại chỉ biết sương trắng mênh mông.
+Giáp Tử Trướng đã hạ lệnh bày một đạo cấm chế sơn thủy cực mạnh giữa hai nửa Kiếm Khí Trường Thành, ngăn hẳn hai bên thành hai cõi. Từ chỗ Lưu Bạch có thể nhìn rõ cảnh vật phía đối diện. Từ đầu thành bên kia nhìn sang, chỉ thấy một dải sương trắng mênh mông.
 
-Vị Long Quân tiền bối bên cạnh nàng này, quả thật tính tình quá mức khó dò, là một trong ba vị lão kiếm tiên vạn năm trước hỏi kiếm Thác Nguyệt Sơn, từng là bạn thân của Trần Thanh Đô, từng cùng nhau khởi kiếm ở nhân gian đại địa, hỏi kiếm vu thiên, sau khi trở thành hình đồ, cuối cùng cùng Quan Chiếu lại lần nữa biến thành khôi lỗi Thác Nguyệt Sơn, nhưng mà khác biệt rất lớn với hồn phách, thần chí không rõ, Long Quân là tự mình bỏ túi da thân thể không cần, thậm chí tùy ý Vương Tọa Bạch Oánh chân đạp một cái đầu. Ở trên chiến trường, chém giết vị kiếm tiên cao khôi cuối cùng nhất mạch của mình.
+Tính tình của Long Quân quả thật khó dò. Lão là một trong ba vị lão kiếm tiên từng hỏi kiếm Thác Nguyệt sơn vạn năm trước, cũng từng là bằng hữu thân thiết của Trần Thanh Đô. Họ từng cùng khởi kiếm từ mặt đất nhân gian, hỏi kiếm trời cao. Sau khi mang thân hình đồ, Long Quân rốt cuộc lại cùng Quan Chiếu trở thành khôi lỗi của Thác Nguyệt sơn.
 
-Cao Khôi hỏi kiếm, Long Quân lĩnh kiếm, chỉ thế thôi.
+Quan Chiếu hồn phách thần trí mơ hồ, còn Long Quân tự mình vứt bỏ thân xác, thậm chí để mặc đại yêu vương tọa Bạch Oánh giẫm lên đầu mình. Lên chiến trường, chính lão chém chết kiếm tiên Cao Khôi, người cuối cùng trong một mạch kiếm đạo của lão.
 
-Cuối cùng bị lão nhân tự tay chặt đứt một nén hương hỏa cuối cùng của kiếm đạo.
+Cao Khôi hỏi kiếm, Long Quân nhận kiếm. Chỉ vậy mà thôi.
 
-Lưu Bạch quả thật không hiểu lắm suy nghĩ, hành động của Long Quân tiền bối.
+Chút hương hỏa cuối cùng của mạch kiếm đạo ấy đã bị chính tay lão chặt đứt.
 
-Trên thực tế ngay cả Ly Chân kia cũng không suy nghĩ thấu đáo. Ly Chân bây giờ còn ở trên đầu thành, giống như hạ quyết tâm muốn liều chết với Ẩn Quan trẻ tuổi kia.
+Lưu Bạch quả thật chẳng hiểu Long Quân tiền bối nghĩ gì, cũng chẳng hiểu nổi những gì lão làm.
 
-Theo từng vị phôi kiếm tiên của núi Tora đều có thu hoạch, từng phần đại đạo lưu chuyển kiếm vận, tự nhiên mà vậy, sẽ khiến cho nửa tòa Kiếm Khí Trường Thành đối diện càng ngày càng mỏng manh, khiến cho tình cảnh của tên kia càng ngày càng tràn ngập nguy cơ. Bởi vì trình độ vững chắc của nửa tòa Kiếm Khí Trường Thành kia, có liên quan với kiếm đạo khí vận thích thích, tin tưởng ẩn quan trẻ tuổi cùng nửa tòa Trường Thành hợp đạo kia, cảm giác đối với điều này, sẽ là rõ ràng nhất sâu sắc nhất trong thiên địa.
+Ngay cả Ly Chân cũng chưa nghĩ thông. Đến giờ hắn vẫn ở trên đầu thành, tựa như đã quyết tâm sống mái với vị Ẩn Quan trẻ tuổi kia.
 
-Phàm phu tục tử dưới núi tỉnh tỉnh mê mê, không biết mệnh lý dương thọ, cho nên không biết già sắp tới, không biết có thiên tài nào mới tính là đại nạn buông xuống.
+Mỗi khi một mầm kiếm tiên của Thác Nguyệt sơn thu được kiếm ý, kiếm vận cũng theo đó mà chuyển đi một phần. Nửa tòa Kiếm Khí Trường Thành phía đối diện vì thế ngày một yếu đi, tình cảnh của người kia cũng càng lúc càng nguy ngập. Thành còn đứng vững được đến đâu vốn gắn chặt với khí vận kiếm đạo. Trong trời đất này, e rằng chẳng ai cảm nhận chuyện ấy rõ bằng vị Ẩn Quan trẻ tuổi đã hợp đạo với nửa tòa thành.
 
-Nhưng mà Ẩn Quan trẻ tuổi kia, giống như mỗi ngày trừng to mắt nhìn một chiếc đèn mệnh Tổ Sư Đường, lại chỉ có thể trơ mắt nhìn ánh sáng của ngọn đèn kia, từ từ ảm đạm.
+Người phàm dưới núi sống tỉnh tỉnh mê mê, nào biết dương thọ của mình còn bao nhiêu. Họ chẳng hay lúc nào tuổi già sẽ tới, cũng chẳng biết ngày nào đến hạn lìa đời.
 
-Long Quân mở miệng nói: "Bảo tiên sinh của ngươi đi mời Lưu Xoa trở về nơi đây dốc sức xuất kiếm, chậm nhất một năm, phải khiến cho tiểu tử kia chen thân Ngọc Phác cảnh. Chậm thì có biến."
+Còn vị Ẩn Quan kia tựa như ngày nào cũng phải mở to mắt nhìn một ngọn đèn mệnh trong Tổ Sư Đường, trơ mắt nhìn ánh lửa tối dần.
 
-Lưu Bạch kinh ngạc không thôi, không biết vì sao Long Quân lại muốn để người nọ chen thân Ngọc Phác cảnh, chẳng lẽ? Không đúng! Mình tuyệt đối không thể bị ngôn ngữ của người nọ ảnh hưởng tâm cảnh, Long Quân tiền bối tuyệt đối không có khả năng đồng khí liên chi với hắn.
+Long Quân lên tiếng: “Bảo tiên sinh của ngươi mời Lưu Xoa trở về đây dốc sức xuất kiếm. Chậm nhất là một năm, phải ép tiểu tử kia bước vào Ngọc Phác cảnh. Để lâu e sinh biến.”
 
-Vì thế Lưu Bạch lòng có nghi hoặc liền hỏi, tuyệt không để cho mình nghi thần nghi quỷ, đi thẳng vào vấn đề hỏi: "Long Quân tiền bối, đây là vì sao? Xin mời giải thích nghi hoặc!"
+Lưu Bạch kinh ngạc. Vì sao Long Quân lại muốn người nọ bước vào Ngọc Phác cảnh? Chẳng lẽ… Không đúng. Nàng tuyệt đối không thể để mấy câu nói của người nọ làm rối tâm cảnh. Long Quân tiền bối sao có thể cùng một phe với hắn?
 
-Long Quân cười giải thích nói: "Đối với Trần Bình An mà nói, Toái Kim Đan Kết Kim Đan đều là chuyện nước chảy thành sông, trở thành kiếm tu Nguyên Anh, không dễ dàng, cũng không tính là quá khó, chẳng qua tạm thời còn cần chút thời gian công phu mài nước, đối với chuyện cảnh giới Luyện khí sĩ tăng lên, quả thật hắn không vội chút nào, càng nhiều tâm tư, đặt ở trên việc làm sao tăng trưởng quyền ý, đại khái đây mới là chuyện khẩn cấp trong mắt tiểu cẩu điên kia. Dù sao tu hành dựa vào bản thân, hắn vẫn như vào núi lên cao, duy chỉ có chuyện luyện quyền lại là kiên trì bất động, làm sao có thể không nóng nảy. Ở Hạo Nhiên Thiên Hạ, võ phu Sơn Điên cảnh, quả thật có chút khó lường, nhưng ở chỗ này, có đủ thấy không?"
+Có thắc mắc thì hỏi thẳng, khỏi để mình nghi thần nghi quỷ. Nàng nói ngay: “Vì sao phải làm thế, Long Quân tiền bối? Xin tiền bối giải hoặc.”
 
-Lưu Bạch chỉ cảm thấy đầu váng mắt hoa, run giọng nói: "Không phải lúc ấy hắn nói mình sẽ lập tức đạt tới Ngọc Phác cảnh sao?"
+Long Quân cười: “Với Trần Bình An, kết Kim Đan rồi phá đan đều là chuyện nước chảy thành sông. Thành kiếm tu Nguyên Anh dĩ nhiên chẳng dễ, song cũng chẳng quá khó, chỉ cần thêm chút công phu mài giũa. Hắn thật sự chẳng vội nâng cảnh giới luyện khí sĩ, tâm tư phần lớn đều dồn vào chuyện làm sao tăng quyền ý. Trong mắt con chó điên nhỏ ấy, e rằng đó mới là việc cấp bách. Đường tu hành của hắn vẫn đi lên từng bước, tựa như leo núi bằng sức mình. Riêng quyền pháp cứ giẫm chân tại chỗ, bảo sao hắn không sốt ruột. Võ phu Sơn Điên cảnh ở Hạo Nhiên Thiên Hạ quả thật cũng có chút bản lĩnh, nhưng đem tới đây thì đáng kể sao?”
 
-"Hắn nói cái gì các ngươi liền tin cái đó?"
+Lưu Bạch chỉ thấy đầu váng mắt hoa. Nàng run giọng hỏi: “Lúc ấy hắn bảo mình sắp vào Ngọc Phác cảnh cơ mà?”
 
-Long Quân cười nhạo nói: "Chân tướng đương nhiên là hắn thuận miệng hù dọa ngươi và Ly Chân, lúc ấy ta vốn định nói hắn sắp đạt tới Nguyên Anh, chỉ là thấy các ngươi tin là thật nên lười nói chuyện."
+“Hắn nói gì các ngươi cũng tin à?”
 
-Lưu Bạch thở dài một tiếng.
+Long Quân cười nhạo: “Hắn chỉ thuận miệng dọa ngươi và Ly Chân thôi. Khi ấy ta vốn định bảo hắn sắp vào Nguyên Anh. Thấy các ngươi tin thật, ta cũng lười mở miệng.”
 
-Long Quân nhìn về phía đối diện, "Tiểu tử này tính tình như thế nào, rất khó nhìn thấu sao? Tất cả những thứ có thể thấy được trong mắt hắn, bất kể khoảng cách xa gần, bất kể độ khó lớn nhỏ, chỉ cần tâm thần hướng tới có đường, vậy hắn đều sẽ không vội chút nào, yên lặng làm việc mà thôi, cuối cùng từng bước một trở nên dễ như trở bàn tay, nhưng cũng đừng quên, chuyện người này không am hiểu nhất, là không gì không có, dựa vào chính hắn đi tìm một thứ. Hắn không có lòng tin nhất đối với chuyện này."
+Lưu Bạch thở dài.
 
-Nói tới đây, Long Quân cười hỏi: "Có phải không tin chuyện này hay không?"
+Long Quân nhìn sang bên kia: “Tính tình tiểu tử này khó nhìn thấu lắm sao? Chuyện gì hắn đã trông thấy đường đi, bất kể xa gần, khó dễ, hắn đều chẳng vội. Cứ lặng lẽ làm, đi từng bước, đến cuối cùng chuyện khó mấy cũng thành dễ. Nhưng ngươi chớ quên, chuyện hắn kém nhất là tự mình tìm ra một thứ khi ban đầu chẳng có gì trong tay [?]. Chính chuyện ấy hắn ít có lòng tin nhất.”
 
-Lưu Bạch căn bản không biết đáp lại như thế nào.
+Nói đến đây, Long Quân cười hỏi: “Ngươi không tin ư?”
 
-Long Quân tiền bối nói như vậy khiến nàng nửa tin nửa ngờ.
+Lưu Bạch chẳng biết đáp thế nào. Nghe tiền bối nói vậy, nàng vẫn nửa tin nửa ngờ.
 
-Long Quân bất đắc dĩ nói: "Xem ra là thật sự bị hai thanh phi kiếm bản mạng của hắn dọa choáng váng rồi, ta hỏi ngươi, một vị võ phu cửu cảnh trẻ tuổi như thế, hay là thân phận người ngoài hương làm ẩn quan, hơn nữa có thể khiến mọi người thông minh, đi xa, lịch lãm, chém giết không ngừng, nhưng Trần Bình An hắn có từng ngộ ra một quyền thật sự thuộc về mình? Có không? Không có."
+Long Quân bất đắc dĩ nói: “Xem ra hai thanh phi kiếm bản mạng của hắn dọa ngươi choáng váng thật rồi. Ta hỏi ngươi, một võ phu cửu cảnh trẻ như vậy, lại là người ngoài quê mà làm được Ẩn Quan, còn khiến những kẻ thông minh kia chịu đi xa, lịch lãm, chém giết không ngừng [?]. Thế nhưng Trần Bình An đã từng ngộ ra một quyền thật sự của riêng mình chưa? Có không? Chưa hề.”
 
-Lưu Bạch bừng tỉnh, nhẹ nhàng gật đầu.
+Lưu Bạch chợt hiểu, khẽ gật đầu.
 
-Long Quân nói: "Tất cả đều trong quy củ, các ngươi đều quên một thân phận khác của hắn, người đọc sách. Tự xét lại, khắc kỷ, thận độc, đã là tu tâm, thật ra lại đều là tầng tầng ước thúc trong người."
+Long Quân nói: “Việc gì cũng ở trong quy củ. Các ngươi quên hắn còn là người đọc sách. Tự xét mình, kiềm chế bản thân, cẩn trọng cả lúc ở một mình. Đó là tu tâm, mà cũng là từng lớp ràng buộc hắn tự đặt lên người.”
 
-Cho nên càng như thế, càng không thể để cho người trẻ tuổi này, một ngày kia chân chính ngộ ra một quyền, vậy ý nghĩa Ẩn Quan trẻ tuổi trọng tu tâm, có hi vọng có thể bằng vào lực lượng của mình, vạch ra từng khuôn sáo cho thiên địa. Hơn nữa không thể để cho người này chân chính ngộ ra một kiếm, phàm vật bất bình tắc minh, người trẻ tuổi này, trong lòng tích tụ đã đủ nhiều, nộ khí, sát khí, lệ khí, bi phẫn...
+Chính vì vậy càng không thể để người trẻ tuổi ấy một ngày nào đó thật sự ngộ ra một quyền. Khi ấy vị Ẩn Quan xem trọng việc tu tâm sẽ có hy vọng tự dùng sức mình rạch mở từng khuôn phép của trời đất. Càng không thể để hắn tự ngộ ra một kiếm. Vật gặp bất bình ắt cất tiếng. Trong lòng người trẻ tuổi này đã dồn nén đủ nhiều, từ giận dữ, sát khí, lệ khí đến bi phẫn.
 
-Đến lúc đó bị hắn gom lại, cuối cùng đưa ra một kiếm, nói không chừng trời đất sẽ biến sắc.
+Đến lúc hắn gom hết những thứ ấy vào một kiếm, nói không chừng trời đất cũng phải đổi sắc.
 
-Nói tới đây, Long Quân lấy vô số luồng kiếm khí tinh mịn ngưng tụ ra một bộ thân hình mơ hồ, cùng với quang cảnh Trần Bình An kia lúc sớm nhất lộ diện ở Kiếm Khí Trường Thành là không khác lắm.
+Vô số luồng kiếm khí mảnh tụ lại quanh áo bào xám, thành một thân hình mơ hồ. Dáng vẻ ấy gần giống Trần Bình An khi hắn mới lộ diện ở Kiếm Khí Trường Thành.
 
-Long Quân đưa tay đẩy ra cấm chế sơn thủy kia, tiếp tục nói: "Hắn muốn tu tâm, tiến hành theo chất lượng, vậy sẽ bức hắn đi đường tắt, bức hắn không phân rõ phải trái. Cho dù trở thành kiếm tu Nguyên Anh, tên này tễ thân Ngọc Phác cảnh, vẫn như cũ không dễ, trong lúc vội vàng, quá nửa phải dùng tới một loại bí pháp đường tắt tổn hại độ cao đại đạo làm giá, muốn hắn không thể không uống rượu độc giải khát, một khi chen thân Ngọc Phác cảnh, hắn sẽ hoàn toàn tồn vong cùng với nửa tòa Kiếm Khí Trường Thành còn lại, thật sự trở thành Trần Thanh Đô thứ hai."
+Long Quân đưa tay đẩy cấm chế sơn thủy sang một bên: “Hắn muốn tu tâm từ từ từng bước, vậy cứ ép hắn đi đường tắt, ép hắn chẳng còn lo được phải trái. Dẫu đã thành kiếm tu Nguyên Anh, với hắn bước vào Ngọc Phác cảnh vẫn khó. Gấp gáp quá, phần nhiều hắn sẽ phải dùng bí pháp, lấy tiền đồ đại đạo đổi lấy một bước tiến. Phải ép hắn uống rượu độc giải khát. Một khi vào Ngọc Phác cảnh, sống chết của hắn sẽ gắn chặt với nửa tòa Kiếm Khí Trường Thành còn lại. Khi ấy hắn mới thật sự thành Trần Thanh Đô thứ hai.”
 
-Lưu Bạch liếc vách núi đối diện, cũng không có bóng dáng người nọ, thử hỏi: "Khó rời khỏi Kiếm Khí Trường Thành hơn nữa?"
+Lưu Bạch liếc sang vách đá đối diện, vẫn chưa thấy người nọ. Nàng thăm dò: “Hắn sẽ càng khó rời Kiếm Khí Trường Thành?”
 
-"Cho nên các ngươi lo lắng hắn chen thân Ngọc Phác cảnh, thật ra chính hắn càng sợ hơn."
+“Cho nên các ngươi lo hắn vào Ngọc Phác cảnh, còn chính hắn sợ hơn các ngươi.”
 
-Long Quân gật đầu nói: "Nếu hắn không thể chen thân ngọc thô, chỉ có thể lấy cảnh giới thối nát của Chân Nguyên Anh, ngụy ngọc thô, tiếp tục tử thủ đầu tường, càng tốt, Lưu Xoa một kiếm xuống, chém đầu tường đối diện làm hai, hắn sẽ bị thương tổn đến căn bản đại đạo, nửa chết nửa sống, Lưu Xoa có thêm mấy kiếm, người vẫn sẽ không chết, nhưng con đường tu đạo của hắn, cho dù hoàn toàn bị hủy. Kiếm đạo trước tiên là võ đạo đi đến ngõ cụt, hắn cùng với Hợp Đạo Kiếm Khí Trường Thành trở nên hữu danh vô thực, đó là để cho hắn tễ thân võ phu thập cảnh thì có thể thế nào? Để mặc người chém giết, ngồi yên chờ chết mà thôi. Sớm muộn có một ngày, bất luận là ta, hay là ngươi cố tình đi du lịch, hoặc là thụ thần, nổi bật, ai xuất kiếm, thật ra đều giống nhau. Kiếm thương tổn căn bản đại đạo của hắn."
+Long Quân gật đầu: “Nếu hắn không vào được Ngọc Phác, chỉ có thể ôm cái cảnh giới nát bét, Nguyên Anh thật mà Ngọc Phác giả, tiếp tục tử thủ đầu thành. Thế lại càng tốt. Lưu Xoa chém một kiếm, xẻ đôi đầu thành bên kia, hắn sẽ tổn thương căn cơ đại đạo, dở sống dở chết. Thêm mấy kiếm nữa, mạng hắn vẫn còn, nhưng đường tu hành coi như hỏng hẳn. Kiếm đạo lẫn võ đạo đều vào ngõ cụt [?], việc hợp đạo với Kiếm Khí Trường Thành cũng chỉ còn cái danh. Lúc ấy, dẫu có vào thập cảnh võ phu thì làm được gì? Chỉ có thể mặc người chém giết, ngồi đó chờ chết. Sớm muộn cũng có ngày, dù là ta, hay ngươi cố ý ghé qua, hoặc Thụ Thần, Phỉ Nhiên [?], bất cứ ai xuất kiếm cũng vậy, đều có thể chém vào căn cơ đại đạo của hắn.”
 
-Người khác lên thành thì lên mộ, trong mộ có người sống, kì thực không khác gì người chết.
+Người khác lên thành chẳng khác gì lên một ngôi mộ. Trong mộ có người sống, song người ấy nào khác gì người chết.
 
-Lúc trắng như sơn cùng thủy tận, rộng mở trong sáng thấy non xanh nước biếc.
+Lưu Bạch tựa như vừa đi đến chỗ núi cùng nước tận, chợt thấy trước mắt mở ra một vùng non xanh nước biếc.
 
-Duy nhất chướng mắt, chính là Long Quân tiền bối cố ý mở ra cấm chế, một bộ pháp bào đỏ tươi kia, giống như đúng hẹn mà tới, chỉ thấy hắn cầm trong tay hiệp đao, một đường nhẹ gõ đầu vai, chậm rãi đi tới, cuối cùng đứng ở đối diện vách núi.
+Chỉ có một cảnh chướng mắt. Long Quân tiền bối cố ý mở cấm chế, thế là bộ pháp bào đỏ tươi xuất hiện như thể đã hẹn trước. Người nọ cầm đao trong tay, vừa thong thả bước vừa gõ nhẹ sống đao lên vai, cuối cùng dừng ở mép vách đá bên kia.
 
-Vai khiêng hiệp đao, đứng đối diện nhau.
+Hắn vác đao trên vai, đứng đối diện với nàng.
 
-Lưu Bạch lúc trước tuy chen thân Nguyên Anh cảnh, chẳng những không có quá nhiều vui sướng, ngược lại lo lắng, quả thực so với ngã cảnh còn không bằng.
+Khi mới bước vào Nguyên Anh cảnh, Lưu Bạch chẳng vui được bao nhiêu, trái lại còn lo lắng hơn cả những lúc rơi cảnh giới.
 
-Là tồn tại đứng đầu trong danh sách Bách Kiếm Tiên của Thác Nguyệt sơn năm đó, bởi vì vây giết một trận, ngoài ý muốn chen thân kiếm tiên ngũ cảnh, bỗng nhiên trở nên lớn hơn trời, một ngày chưa từng chân chính tễ thân Ngọc Phác cảnh, lưu bạch một ngày khó có thể tiêu tan. Nhất là vừa nghĩ đến tương lai nếu mình muốn đánh vỡ Nguyên Anh bình cảnh, sẽ cần phải đối mặt với tâm ma kia, quả thực khiến Lưu Bạch tễ thân Nguyên Anh cảnh, giống như là đến gần người nọ một bước lớn, tâm ma đáng sợ, ngay ở chỗ đạo huyền diệu khó giải thích cao một thước ma cao một trượng, tư chất, đạo pháp, cảnh giới, thậm chí tâm tính, đều giống như mây trôi nơi chân trời, làm sao thấp hơn được tâm ma kiên trì vững như bàn thạch kia?
+Năm ấy nàng đứng trong số đầu của danh sách Bách Kiếm Tiên ở Thác Nguyệt sơn. Sau trận vây giết kia, chuyện trở thành kiếm tiên thượng ngũ cảnh bỗng hóa thành việc lớn hơn trời đối với nàng [?]. Chừng nào chưa thật sự vào Ngọc Phác cảnh, lòng nàng còn chưa thể nhẹ đi. Cứ nghĩ đến lúc phá bình cảnh Nguyên Anh phải đương đầu với tâm ma kia, nàng lại cảm thấy bước vào Nguyên Anh giống như tiến một bước dài về phía người nọ.
 
-Mà rất nhiều tu sĩ đắc đạo chen thân thượng ngũ cảnh, sở dĩ có thể hàng phục tâm ma, trên trình độ rất lớn là trước kia căn bản không biết tâm ma cụ thể vì sao, đã đến thì an chi, ngược lại dễ dàng phá vỡ bình cảnh.
+Chỗ đáng sợ của tâm ma nằm ở câu “đạo cao một thước, ma cao một trượng”. Tư chất, đạo pháp, cảnh giới, thậm chí tâm tính, so với chấp niệm vững như bàn thạch của tâm ma cũng nhẹ tựa mây trôi.
 
-Một khi sớm biết được tâm ma là vật gì, tất cả phương pháp phá giải đã sớm chuẩn bị tốt, đối với tâm ma mà nói, kỳ thật ngược lại đều là phương pháp tẩm bổ lớn mạnh của nó.
+Nhiều tu sĩ vào được thượng ngũ cảnh vốn chẳng biết trước tâm ma mình sẽ có hình dạng gì. Đợi khi nó tới thì đón lấy. Nhờ vậy, họ ngược lại dễ vượt qua bình cảnh.
 
-Nhưng nếu như lúc Lưu Bạch đối mặt với tâm ma, ẩn quan trẻ tuổi kia đã thân tử đạo tiêu, như vậy Lưu Bạch tễ thân ngũ cảnh, ngược lại hận không thể để tâm ma là Trần Bình An kia.
+Một khi đã biết tâm ma là gì, mọi cách ứng phó chuẩn bị từ sớm có khi lại thành chất bổ nuôi cho nó lớn mạnh.
 
-Bởi vì đến lúc đó Lưu Bạch ở sâu trong nội tâm, có thể duy trì một chút linh quang, biết rõ tâm ma kia là vật đã chết.
+Thế nhưng nếu đến lúc phải đối diện tâm ma mà vị Ẩn Quan trẻ tuổi đã thân tử đạo tiêu, Lưu Bạch lại chỉ mong tâm ma của mình đúng là Trần Bình An. Khi ấy, tận đáy lòng nàng vẫn giữ được một điểm linh quang, đủ biết thứ trước mặt mình chỉ là bóng của một kẻ đã chết.
 
-Hôm nay nghe Long Quân tiền bối nói một phen, Lưu Bạch đạo tâm đại định, nhìn về phía người nọ, mỉm cười nói: "Nói lời tạm biệt với Ẩn Quan đại nhân, hy vọng còn có thời điểm gặp lại."
+Nghe Long Quân nói xong, đạo tâm Lưu Bạch vững hẳn. Nàng nhìn sang bên kia, mỉm cười: “Ta đến từ biệt Ẩn Quan đại nhân. Mong rằng còn có ngày gặp lại.”
 
-Lập tức có đạo tâm này, Lưu Bạch chỉ cảm thấy kiếm tâm càng thêm trong suốt vài phần, đối với tràng vấn kiếm vốn thắng bại cách xa, ngược lại trở nên nóng lòng muốn thử.
+Tâm vừa định, nàng chỉ thấy kiếm tâm mình trong hơn vài phần. Cuộc hỏi kiếm mà trước kia thắng bại chênh nhau một trời một vực, bây giờ lại khiến nàng muốn thử sức.
 
-Người nọ mặt mang ý cười, phá lệ trầm mặc không nói, không lấy ngôn ngữ làm loạn đạo tâm của nàng.
+Người nọ mang ý cười, hiếm hoi thay chẳng nói một lời làm loạn đạo tâm nàng.
 
-Lưu Bạch nhìn ra được, mấy năm nay đối phương cũng không dễ chịu gì, thật vất vả mới tễ thân Sơn Điên cảnh, khiến cho dung mạo vững chắc, ngược lại càng ngày càng tiều tụy hơn.
+Lưu Bạch nhìn ra được mấy năm nay hắn cũng chẳng dễ chịu gì. Vất vả lắm mới vào Sơn Điên cảnh, giữ cho dung mạo không đổi, vậy mà trông hắn mỗi ngày một tiều tụy.
 
-Một người tu đạo ở lâu trong núi, không biết nóng lạnh, ngủ say mấy năm, thậm chí mấy chục năm, như đầm sâu tử long nằm, như một pho tượng thần ngồi không trong từ miếu, thật ra cũng không kỳ quái.
+Tu sĩ ở lâu trong núi, chẳng hay nóng lạnh, ngủ mấy năm, thậm chí mấy chục năm, như rồng nằm im trong đầm sâu hay tượng thần ngồi yên trong miếu, vốn cũng chẳng lạ.
 
-Ví dụ như Hỏa Long Chân Nhân nằm sấp ở Bắc Câu Lô Châu càng là lấy am hiểu lớn đi ngủ ở thế giới, khoác tuyết làm áo.
+Hỏa Long chân nhân ở Bắc Câu Lô Châu chẳng hạn. Sở trường của lão là một giấc ngủ dài giữa trời đất, lấy tuyết phủ làm áo.
 
-Mà đánh giá mới ra một trong mười người trẻ tuổi, vị du khách mộng kia của Lưu Hà châu, hẳn cũng là người trong đồng đạo của Hỏa Long chân nhân.
+Vị tu sĩ Lưu Hà châu thích du ngoạn trong mộng [?], mới được xếp vào hàng mười người trẻ tuổi, hẳn cũng cùng đường lối với Hỏa Long chân nhân.
 
-Hoặc là tọa vong hình hài, cần tu đạo pháp mấy năm, trong lúc đó chỉ là nghỉ ngơi một lát, dùng để ôn dưỡng hồn phách, cũng không kỳ quái. Loại nghỉ ngơi nhỏ này, rất có chú ý, phù hợp "nhân thân đại tử" vừa nói, là phương pháp ngủ say tu đạo trên núi cực kỳ tôn sùng, thật sự không có một ý niệm, dựa theo phật pháp thuyết pháp, đó là có thể làm cho người ta rời xa toàn bộ điên đảo mộng tưởng, cho nên so với phàm tục phu tử ngủ say trong đêm tầm thường nhất, càng có thể thực sự ích lợi tam hồn thất phách, thần hồn đại hưu nghỉ ngơi, cho nên sẽ mang đến cho Luyện khí sĩ cảm giác hương vị ngọt ngào.
+Cũng có người ngồi quên cả hình hài, chuyên cần tu đạo pháp mấy năm trời. Trong quãng ấy họ chỉ chợp mắt một lát để ôn dưỡng hồn phách. Giấc nghỉ ngắn đó có phép tắc riêng, hợp với thuyết “nhân thân đại tử” [?], là cách ngủ được giới tu hành trên núi coi trọng. Trong lúc ấy thật sự không khởi một niệm. Theo Phật pháp, người ta có thể lìa xa mọi điên đảo mộng tưởng. So với giấc ngủ thường đêm của người phàm, cách này có lợi hơn cho ba hồn bảy phách, để thần hồn được nghỉ ngơi thật sự. Bởi vậy luyện khí sĩ mới thấy giấc ngủ ấy ngọt ngào.
 
-Từ mắt rủ xuống, ý ngồi thiền dã, người tu đạo, tĩnh tọa dưỡng thần, không mơ mà ngủ, chính là một dấu hiệu Luyện khí sĩ tễ thân trong ngũ cảnh.
+Mắt khép hờ mà ý vẫn ở chỗ ngồi thiền [?]. Tu sĩ tĩnh tọa dưỡng thần, ngủ mà chẳng mộng, ấy là một dấu hiệu đã bước vào trung ngũ cảnh.
 
-Nhưng mà một vị Luyện khí sĩ, không ngủ không nghỉ suốt bảy năm, hơn nữa mỗi thời mỗi khắc đều ở trong hoàn cảnh suy nghĩ quá độ, cũng rất hiếm thấy, tự nhiên sẽ đau lòng tinh thần.
+Song một luyện khí sĩ suốt bảy năm không ngủ không nghỉ, lúc nào cũng vắt kiệt tâm tư, thì thật hiếm thấy. Cứ thế, tinh thần sao tránh khỏi hao tổn.
 
-Cho nên cảnh giới trống rỗng, tâm thần ngày càng tiều tụy.
+Cảnh giới để đó, tâm thần ngày một tiều tụy.
 
-Trần Bình An cười hỏi: "Long Quân tiền bối, ta nghĩ mãi mà không rõ, ta từng đạp ngươi trong ngõ hẻm, hay là ngăn cản ngươi cướp xương của Ly Chân? Hai người các ngươi cứ muốn đuổi theo cắn ta mãi?"
+Trần Bình An cười hỏi: “Long Quân tiền bối, ta nghĩ mãi chẳng thông. Ta từng đạp ngươi trong ngõ hẻm, hay từng ngăn ngươi giành xương của Ly Chân? Sao hai người các ngươi cứ đuổi theo cắn ta mãi thế?”
 
-Long Quân cười nói: "Tuy nói chỉ còn lại có nửa tòa Kiếm Khí Trường Thành, lão già Trần Thanh Đô này, quả thật làm cho người ta có chút khó gặm. Chịu đựng nhiều năm như vậy cho ngươi, quả thật đáng giá tự ngạo."
+Long Quân cười: “Kiếm Khí Trường Thành chỉ còn một nửa mà lão Trần Thanh Đô vẫn khó gặm thật. Cầm cự được ngần ấy năm, ngươi cũng có cái để tự hào đấy.”
 
-Trần Bình An dời đi tầm mắt, nói với Lưu Bạch kia: "Còn không đi? Ta thương hương tiếc ngọc nữa, cũng có mức độ."
+Trần Bình An nhìn sang Lưu Bạch: “Còn chưa đi? Ta có thương hương tiếc ngọc đến đâu cũng phải có chừng mực.”
 
-Lưu Bạch ánh mắt kiên nghị nói: "Hôm nay ngươi ta từ biệt, vô cùng có khả năng chính là một hồi sinh tử biệt ly, ngươi chỉ cần nói nhiều một chút, tương lai ta cùng với tâm ma vấn kiếm, dù sao không phải Trần Bình An chân chính."
+Lưu Bạch kiên quyết nhìn hắn: “Hôm nay ngươi ta từ biệt, rất có thể là vĩnh biệt. Ngươi cứ nói thêm vài câu. Mai sau dù có hỏi kiếm tâm ma, ta cũng chẳng còn được gặp Trần Bình An thật sự.”
 
-Trần Bình An xua xua tay, "Khuyên ngươi tốt thì thu, thừa dịp hôm nay tâm tình ta không tệ, nhanh cút đi."
+Trần Bình An xua tay: “Biết điểm dừng đi. Nhân lúc tâm tình ta còn tốt, mau cút.”
 
-Trắng không dời bước, thân hình không chút sứt mẻ.
+Lưu Bạch vẫn đứng nguyên tại chỗ.
 
-Long Quân cười khẩy nói: "Nhưng mà ngộ ra một điểm Bạch Cốt quan thô thiển, dùng cái này tẩy rửa lệ khí trong tâm hồ, tâm tình tốt lên vài phần? Không thể để ý tới thiền vị, nước đọng không thể giấu rồng, thiền định không phải tại thời điểm định, ngươi còn kém xa vạn dặm, không ngại nói lời nói thật, Bạch Cốt quan với ngươi mà nói, đó là bàng môn tả đạo chân thật, dần ngộ vạn năm cũng không ngộ ra được. Đó là nhìn ra bản thân hóa thành xương trắng nõn vô cùng, ý niệm ngã xuống, từ phá tới đầu, bạch cốt sinh nhục, cuối cùng lưu quang tràn đầy, lại tâm thần phóng ra ngoài, vô số vô biên tạp cốt, đáng tiếc cuối cùng đều là đại đạo không hợp, đều là hư vọng. Chỉ nói trên quyển sách kia, tất cả chúng sinh uổng mạng ở hồ trúc kia, thật sự là một bộ Bạch Cốt mà thôi?"
+Long Quân cười khẩy: “Mới ngộ được chút phép quán xương trắng thô thiển, lấy đó rửa bớt lệ khí trong tâm hồ, cho nên tâm tình khá hơn vài phần à? Chớ tham chút thiền vị. Nước tù làm sao giấu được rồng. Công phu thiền định đâu chỉ tính lúc đang nhập định [?]. Ngươi còn kém xa lắm. Nói thẳng với ngươi, Bạch Cốt Quán đối với ngươi đúng là bàng môn tả đạo. Dẫu lần mò vạn năm, ngươi cũng chẳng ngộ ra được.”
 
-Nói tới đây, Long Quân tiền bối liếc mắt nhìn Trần Bình An, nhẹ nhàng lắc đầu, không cho là đúng, nói: "Muốn lừa mình dối người, mang trăm ngàn suy nghĩ phân tán chồng chất trên xương trắng, để dựa vào đó miễn cưỡng nghỉ ngơi một lát, vậy ngươi nên ngoan ngoãn trốn đi, đừng đến bên này của ta tự chuốc nhục nhã."
+“Ngươi quán thân mình hóa thành bộ xương trắng tinh, để ý niệm lắng xuống, rồi từ chỗ mục nát đến chỗ xương trắng mọc lại da thịt, cuối cùng tỏa ánh sáng [?]. Lại thả tâm thần ra ngoài, thấy vô số bộ xương. Rốt cuộc tất cả đều là hư vọng, chẳng hợp với đại đạo của ngươi. Chỉ nói đến quyển sách kia thôi, bao sinh linh chết oan ở hồ Trúc [?], thật sự chỉ là một bộ xương trắng hay sao?”
 
-Trên thực tế, Trần Bình An khẳng định sẽ không đi quá xa ở Bạch Cốt Quan, giống như Long Quân nói, chỉ là một môn mưu lợi ý đồ tạm thời lấy ra "ngủ trong chốc lát". Cho nên cho dù Trần Bình An hôm nay không đến, Long Quân cũng sẽ một lời nói toạc ra, tuyệt đối không cho hắn một chút cơ hội ôn dưỡng hồn phách.
+Long Quân liếc nhìn Trần Bình An, khẽ lắc đầu: “Muốn tự dối mình dối người, gom trăm nghìn ý nghĩ tản mát đặt cả lên một bộ xương để gắng chợp mắt một lát, thì ngoan ngoãn trốn đi. Đừng mò sang chỗ ta mà tự chuốc nhục.”
 
-Trần Bình An khẽ nhíu mày, sau đó cười tiêu sái, cầm Trảm khám, xa xa chỉ hướng lão giả mơ hồ trong một bộ áo bào xám kia, "Long Quân tiền bối, đạo pháp thật cao, vì vãn bối chỉ điểm sai lầm, tránh cho lầm đường lạc lối, cảm ơn ngươi như thế nào? Nhiều năm vất vả hộ đạo như vậy, giúp ta mài giũa đạo tâm, nếu không phải ngươi bộ tôn dung này, ta cũng sẽ nghĩ lầm tiền bối là Tả hộ pháp kia của ngõ Kỵ Long quê nhà ta."
+Trần Bình An quả nhiên chưa định đi xa trên đường Bạch Cốt Quán. Giống như Long Quân nói, đó chỉ là một cách đi tắt để tạm thời chợp mắt. Cho nên hôm nay dù Trần Bình An không tới, Long Quân cũng sẽ nói toạc ra, quyết chẳng cho hắn một cơ hội ôn dưỡng hồn phách.
 
-Long Quân cười nói: "Người sắp chết lời nói cũng thiện, ngươi ngược lại có đạo hạnh ngược lại."
+Trần Bình An khẽ nhíu mày rồi cười, cầm đao Trảm Khám chỉ về phía dáng lão nhân mơ hồ trong bộ áo xám: “Long Quân tiền bối đạo pháp cao thâm, chỉ cho vãn bối lối sai để khỏi lầm đường. Ta phải tạ ơn ngươi thế nào đây? Bao năm vất vả hộ đạo cho ta, lại mài giũa đạo tâm giúp ta. Nếu chẳng trông thấy tôn dung ấy, ta đã tưởng tiền bối là vị Tả hộ pháp ở ngõ Kỵ Long quê ta rồi.”
 
-Trần Bình An lại quay đầu, tò mò hỏi: "Thực không đi? Thực cho rằng đứng bất động, nhìn ta thêm vài lần, chính là mài giũa đạo tâm kiếm ý?"
+Long Quân cười: “Người sắp chết nói lời tử tế. Đạo hạnh của ngươi thì ngược hẳn.”
 
-Lưu Bạch nhìn người trẻ tuổi kia, không khỏi cảm khái nói: "Ngươi thật đáng thương."
+Trần Bình An quay đầu, tò mò hỏi: “Thật sự chưa chịu đi à? Ngươi tưởng đứng im nhìn ta thêm mấy lần là mài giũa được đạo tâm, kiếm ý sao?”
 
-Trần Bình An nheo mắt mà cười.
+Lưu Bạch nhìn người trẻ tuổi đối diện, không khỏi thốt lên: “Ngươi thật đáng thương.”
 
-Long Quân đột nhiên lấy một phần kiếm khí tràn trề nháy mắt ngăn cách thiên địa, không cho lời nói của Trần Bình An có khả năng truyền vào trong tai Lưu Bạch, thậm chí không cho nàng ta nhìn đối phương thêm một cái.
+Trần Bình An nheo mắt cười.
 
-Không có kiếm khí áp chế của Long Quân, sơn thủy cấm chế che đậy nửa tòa Kiếm Khí Trường Thành một lần nữa đóng cửa.
+Long Quân đột nhiên phóng kiếm khí cuồn cuộn, thoáng chốc ngăn cách trời đất. Lời Trần Bình An có nói ra cũng chẳng thể lọt vào tai Lưu Bạch. Đến nhìn hắn thêm một lần nàng cũng không thể.
 
-Lưu Bạch phát hiện tầm mắt của mình mơ hồ, không cách nào thấy được chút nào phía đối diện, nàng ngẩn người, "Long Quân tiền bối, đây là vì sao?"
+Kiếm khí của Long Quân vừa thôi đè giữ, cấm chế sơn thủy giữa hai nửa Kiếm Khí Trường Thành lại khép vào.
 
-Long Quân nói: "Ngươi chỉ cần biết một điểm, lúc trước hắn cho ngươi thấy tốt thì thu lại là đúng, hơn nữa hắn nói những lời này vốn là làm nền cho câu nói sau cùng, nếu không hắn nói ra miệng, ngươi nghe thấy được, sẽ có thể khiến cho tâm ma của ngươi tăng vọt."
+Tầm mắt Lưu Bạch mờ đi. Nàng ngẩn người, chẳng còn nhìn thấy chút gì bên kia: “Long Quân tiền bối, vì sao vậy?”
 
-Lưu Bạch lắc đầu nói: "Ta không tin!"
+Long Quân nói: “Ngươi chỉ cần biết hắn khuyên ngươi dừng lại là có lý. Mấy lời hắn vừa nói chẳng qua để dọn đường cho câu cuối. Một khi hắn nói ra, ngươi nghe được, tâm ma sẽ lớn mạnh ngay.”
 
-Thân hình lão nhân do kiếm khí ngang dọc ngưng tụ mà thành dần dần tiêu tán, lần nữa biến thành một bộ áo bào xám trống rỗng, Long Quân lời nói thấm thía: "Đi thôi, không cần phải chấp nhặt cùng một con chó điên. Về sau luyện kiếm cho tốt, nếu ngươi thật sự có thể chém tâm ma người này hiển hóa, rất có ích lợi đối với ngươi, nhân họa đắc phúc, thành tựu đại đạo, có khả năng cao hơn so với lúc trước."
+Lưu Bạch lắc đầu: “Ta không tin!”
 
-Lưu Bạch tuy không rõ nội tình, nhưng cũng rất hiếu kỳ đối với câu nói kia của Trần Bình An, nhưng cũng sẽ không làm trái lời Long Quân dạy bảo, càng không dám coi kiếm đạo của bản thân là trò đùa, cùng Trần Bình An kia tranh đấu khí phách vô vị, nàng lập tức ngự kiếm rời khỏi đầu tường.
+Thân hình lão nhân do kiếm khí ngưng tụ tan dần, lại chỉ còn một bộ áo bào xám trống rỗng. Long Quân ôn tồn nói: “Đi đi. Chấp nhặt với một con chó điên làm gì. Sau này cứ luyện kiếm cho tốt. Nếu ngươi thật sự chém được tâm ma mang hình dáng hắn, chuyện ấy rất có ích cho ngươi. Biết đâu nhân họa đắc phúc, cơ hội thành tựu đại đạo còn lớn hơn trước.”
 
-Sau khi Lưu Bạch rời khỏi đầu tường, vẫn đứng cách đó không xa Ly Chân đi tới bên cạnh Long Quân.
+Lưu Bạch chẳng rõ đầu đuôi, trong lòng vẫn tò mò về câu Trần Bình An chưa nói. Dẫu vậy nàng không muốn trái lời Long Quân, càng chẳng dám đem kiếm đạo của mình ra đùa chỉ để hơn thua vô ích với Trần Bình An. Nàng lập tức ngự kiếm rời đầu thành.
 
-Ly Chân ủy khuất nói: "Ngươi đối với tiểu nương tử Lưu Bạch kia, so với đối với ta tốt hơn nhiều. "
+Nàng vừa đi, Ly Chân đang đứng cách đó không xa liền tới bên Long Quân.
 
-Long Quân chỉ quay đầu nhìn về phía di chỉ thành trì phương bắc.
+Ly Chân ấm ức: “Ngươi đối xử với tiểu nương tử Lưu Bạch tốt hơn với ta nhiều.”
 
-Vạn năm trước, tù đồ lấy thân mang tội di chuyển đến đây, vạn sự vạn vật, tất cả từ không tới có.
+Long Quân chỉ quay đầu nhìn về di chỉ thành trì ở phía bắc.
 
-Ly Chân hỏi: "Vì sao ngươi lại nhằm vào Trần Bình An như thế?"
+Vạn năm trước, đám hình đồ mang tội dời đến đây. Hết thảy đều từ chỗ không có gì mà gây dựng nên.
 
-Long Quân lạnh nhạt nói: "Một người trẻ tuổi có thể có thù oán gì với ta chứ? Chỉ là bất kỳ một kiếm tu nào muốn trở thành Trần Thanh Đô đệ nhị đều đáng chết."
+Ly Chân hỏi: “Sao ngươi cứ nhằm vào Trần Bình An thế?”
 
-Ly Chân lại hỏi: "Ta mặc dù không phải quan chiếu, nhưng cũng biết quan chiếu chỉ là thất vọng, vì sao ngươi lại như thế?"
+Long Quân lạnh nhạt đáp: “Một người trẻ tuổi thì có thù oán gì với ta? Chỉ là kiếm tu nào muốn trở thành Trần Thanh Đô thứ hai cũng đáng chết.”
 
-Quan chiếu tâm thái, không khác gì lão mù trong Thập Vạn Đại Sơn kia, kiếm tiên Trương Lộc đại khái cũng như vậy. Đối với hai tòa Hạo Nhiên Thiên Hạ mới cũ, là cùng một loại tâm tính.
+Ly Chân lại hỏi: “Ta chẳng phải Quan Chiếu, song vẫn biết Quan Chiếu chỉ thấy thất vọng. Sao ngươi lại làm đến nước này?”
 
-Long Quân thu hồi tầm mắt, im lặng không lên tiếng.
+Tâm thế của Quan Chiếu chẳng khác gì lão mù ở Thập Vạn Đại Sơn. Kiếm tiên Trương Lộc đại khái cũng vậy. Đối với Hạo Nhiên Thiên Hạ cũ hay mới, họ đều mang cùng một tâm tình [?].
 
-Ly Chân hỏi: "Ẩn Quan đại nhân của chúng ta thật sự chưa Nguyên Anh, vẫn chỉ là Kim Đan rách nát?"
+Long Quân thu mắt về, im lặng.
 
-Long Quân chẳng buồn nói.
+Ly Chân hỏi: “Ẩn Quan đại nhân của chúng ta thật sự chưa vào Nguyên Anh, vẫn chỉ ôm cái Kim Đan nát ấy thôi sao?”
 
-Ly Chân lẩm bẩm: "Bất quá Lưu Bạch thật lòng thương hại đối phương, cũng không tính kỳ quái."
+Long Quân chẳng buồn đáp.
 
-Thiên địa tịch liêu, cô đơn một người, nhật nguyệt chiếu không làm sao được?
+Ly Chân lẩm bẩm: “Có điều Lưu Bạch thật lòng thương hại hắn, nghĩ ra cũng chẳng lạ.”
 
-Chợt có chim bay tới đầu tường, sau khi đi qua trận pháp sơn thủy, liền bỗng nhiên xẹt qua đầu tường. Nếu không thấy nhật nguyệt, thì không có phân chia ngày đêm, càng không có bốn mùa lưu chuyển.
+Trời đất quạnh hiu, chỉ có một người lẻ loi. Đến mặt trời, mặt trăng cũng chẳng soi tới được [?].
 
-Thoát thai hoán cốt, tâm thần ngưng tụ, ngoài thân có thân, là dương thần, là nơi dừng chân tuyệt hảo của Kim Đan, là dương thần, là nơi nghỉ chân tuyệt hảo.
+Chợt có chim bay tới đầu thành. Vừa qua trận pháp sơn thủy, nó đã vút qua mặt tường. Chẳng thấy mặt trời mặt trăng thì lấy gì phân ngày đêm, càng chẳng hay bốn mùa đổi thay.
 
-Một viên linh quang, xuất u nhập minh, vô câu vô thúc, là âm thần, thích dạ du, là nơi Nguyên Anh chợp mắt tu hành.
+Thoát thai hoán cốt, tâm thần ngưng tụ, ngoài thân lại có thân, đó là dương thần. Với Kim Đan, ấy là một chỗ nghỉ chân tốt nhất.
 
-Trần Bình An cùng hợp đạo Kiếm Khí Trường Thành, trả giá không nhỏ.
+Một điểm linh quang lui tới giữa u minh, chẳng vướng ràng buộc, ưa đi đêm, đó là âm thần. Với Nguyên Anh, ấy là chỗ có thể chợp mắt trong lúc tu hành.
 
-Ba người sớm đúc một lò, bằng không không gánh chịu được áp thắng nặng nề của phần đại yêu tên thật kia, cũng không thể thật sự hợp đạo với Kiếm Khí Trường Thành, chỉ là Ẩn Quan trẻ tuổi từ nay về sau nhất định không còn cái gì âm thần xuất khiếu viễn du nữa, về phần bản mạng chữ của thánh hiền nho gia, càng tuyệt đối không có khả năng.
+Để hợp đạo với Kiếm Khí Trường Thành, Trần Bình An đã trả giá không nhỏ.
 
-Ly Chân nở nụ cười, "Lưu Bạch ngốc thì có chút ngốc, ngốc một chút tốt, nàng tương lai tâm ma, ngược lại không đến mức quá mức bế tắc khó giải."
+Ba thân đã sớm đúc làm một [?]. Bằng không hắn chẳng gánh nổi sức áp thắng nặng nề từ chân danh của đại yêu, càng không thể thật sự hợp đạo với Kiếm Khí Trường Thành. Chỉ có điều từ đây vị Ẩn Quan trẻ tuổi sẽ chẳng còn âm thần xuất khiếu đi xa. Còn chữ bản mạng của thánh hiền Nho gia thì càng tuyệt đối không thể có.
 
-Long Quân quyết đoán ngăn chặn thiên địa, chẳng khác gì cứu được nửa cái mạng của Lưu Bạch.
+Ly Chân cười: “Lưu Bạch ngốc thì có hơi ngốc. Ngốc một chút cũng tốt. Tâm ma của nàng về sau ngược lại chẳng đến nỗi rơi vào chỗ bế tắc khó gỡ.”
 
-Nếu không vị Ẩn Quan Đại Nhân kia chỉ cần nói một câu, liền có thể khiến Lưu Bạch mất nửa cái mạng.
+Long Quân quyết đoán ngăn cách trời đất, chẳng khác nào cứu nửa cái mạng của Lưu Bạch.
 
-Rất đơn giản, một câu "Ngươi thích ta làm chi", có thể để cho Lưu Bạch đạo tâm sụp đổ hơn phân nửa.
+Bằng không, vị Ẩn Quan đại nhân kia chỉ cần nói một câu là đủ lấy nửa cái mạng nàng.
 
-Về phần Lưu Bạch không phải thật lòng thích, không quan trọng chút nào, đây mới là điểm mấu chốt khó giải quyết nhất.
+Câu ấy rất đơn giản. “Ngươi thích ta làm gì?” Chỉ vậy đã đủ đánh sập hơn nửa đạo tâm Lưu Bạch.
 
-Dù sao thế gian không thích, đơn giản là không sao cả, thế gian thích có trăm ngàn loại, nguyên do còn có trăm ngàn.
+Lưu Bạch có thật lòng thích hắn hay không, chuyện ấy chẳng quan trọng chút nào. Chính thế mới là chỗ khó gỡ nhất.
 
-Long Quân đột nhiên dùng kiếm khí ngăn cách một tiểu thiên địa không dễ phát hiện ra, hỏi: "Rốt cuộc ngươi đã nhìn thấy gì?"
+Ở đời, chẳng thích thì là chẳng thích. Còn thích có trăm nghìn kiểu, nguyên do lại có trăm nghìn đường.
 
-Ly Chân hỏi ngược lại: "Rốt cuộc ngươi đang nói gì?"
+Long Quân đột nhiên lấy kiếm khí ngăn ra một tiểu thiên địa khó ai nhận thấy. Lão hỏi: “Rốt cuộc ngươi đã thấy gì?”
 
-Long Quân trầm giọng nói: "Thanh phi kiếm bản mạng kia của ngươi tên là "Quang âm""
+Ly Chân hỏi lại: “Rốt cuộc ngươi đang nói gì?”
 
-Ly Chân cười nói: "Phải thì sao? Chẳng lẽ ngươi không rõ ràng hơn bất cứ ai, ta coi như kiếm tu vô sự nhất trên đời này, ít nhất cũng phải là một trong? Với chút cảnh giới này của ta, có thể nhìn thấy cái gì, có thể làm gì?"
+Long Quân trầm giọng: “Thanh phi kiếm bản mạng của ngươi tên là Quang Âm.”
 
-Ly Chân tự mình lắc đầu, tự giễu nói: "Ta không nhìn thấy gì cả, cũng không làm gì cả."
+Ly Chân cười: “Phải thì sao? Chẳng lẽ ngươi còn lạ gì ta? Ta có khi là kiếm tu nhàn rỗi nhất trên đời, ít ra cũng đáng xếp vào một trong số ấy. Với chút cảnh giới của ta, ta thấy được gì, làm được gì?”
 
-Ly Chân sở dĩ chết sống không muốn trở thành quan chiếu, nguyên nhân của nó chính là thanh phi kiếm bản mạng giống như một lồng giam thiên địa kia.
+Hắn tự lắc đầu, giễu mình: “Ta chẳng thấy gì cả, cũng chẳng làm gì cả.”
 
-Năm đó Giáp Thân Trướng có nhiều vị kiếm tu trẻ tuổi vây giết một m*nh tr*n Bình An, sau đó Trúc Li Chân phát giác được tâm cảnh uể oải, giáp mặt khuyên bảo Ly Chân, nếu như lấy tâm cảnh của hắn, tương lai trăm năm, có lẽ thành tựu còn không bằng lưu bạch. Trúc liễn còn hỏi một lòng muốn "Xa xa quan chiếu chân ngã", đời này rốt cuộc có thể không hỏi quan chiếu, ly chân, chỉ vì thân phận kiếm tu, chân chính đưa ra một kiếm. Mà lúc ấy Ly Chân trả lời vô cùng cổ quái, trái lại hỏi thăm Trúc liễn có ai đi qua dòng sông thời gian không, hơn nữa Ly Chân cuối cùng đưa ra hai cách nói "Hà giường" cùng "Vận mệnh".
+Ly Chân sống chết không chịu trở thành Quan Chiếu, nguyên do chính là thanh phi kiếm bản mạng giống như một cái lồng giam trời đất ấy.
 
-Lão đại kiếm tiên Trần Thanh Đô, sau khi nhìn thấy một vị "bạn cũ", cũng từng có một phen cảm khái, nếu hắn ở trong dòng sông thời gian, ngược dòng mà lên một vạn năm, trở về chiến trường, đủ để hỏi kiếm bất cứ một vị "tiền bối" nào.
+Năm xưa, nhiều kiếm tu trẻ tuổi của Giáp Thân Trướng từng vây giết một mình Trần Bình An. Sau trận ấy, Trúc Liễn nhận ra Ly Chân xuống tinh thần, bèn khuyên thẳng mặt rằng với tâm cảnh ấy, một trăm năm nữa thành tựu của hắn e còn chẳng bằng Lưu Bạch.
 
-Ly Chân nhìn phía đối diện, lẩm bẩm: "Rất hâm mộ ngươi."
+Trúc Liễn còn hỏi kẻ một lòng muốn “từ xa soi thấy chân ngã” [?] rằng đời này, hắn có thể gác cả Quan Chiếu lẫn Ly Chân sang một bên, chỉ với thân phận một kiếm tu mà thật sự xuất một kiếm hay không.
 
-Mà Ẩn Quan trẻ tuổi được Ly Chân hâm mộ kia, bên hông đeo bội khám, đang ở trên đầu thành chậm rãi ra quyền.
+Câu trả lời của Ly Chân khi ấy hết sức cổ quái. Hắn hỏi ngược lại Trúc Liễn xem đã từng có ai đi qua dòng sông thời gian chưa. Cuối cùng hắn nhắc đến hai chuyện, “lòng sông” và “vận mệnh”.
 
-Giống như năm đó, một mình ra quyền mà đi, khi đó, trên đầu tường Kiếm Khí Trường Thành vẫn còn hai căn nhà tranh lớn nhỏ, lão kiếm tiên vẫn còn, Tào Từ ngay cả thắng mình ba trận cũng ở đây.
+Lão đại kiếm tiên Trần Thanh Đô sau khi gặp một vị cố nhân cũng từng cảm khái. Nếu có thể ngược dòng sông thời gian vạn năm, trở lại chiến trường, lão đủ sức hỏi kiếm bất kỳ vị “tiền bối” nào.
 
-Đối với Trần Bình An đang suy nghĩ lung tung bất định mà nói, thời gian trường hà trôi qua thật sự quá chậm quá chậm, ra quyền như thế càng chậm, mỗi lần ra quyền, coi như đi tới đi lui dưới chân núi đỉnh núi một chuyến, đào một vốc đất, cuối cùng dời núi.
+Ly Chân nhìn về phía đối diện, lẩm bẩm: “Thật hâm mộ ngươi.”
 
-Ở trên nửa tòa Kiếm Khí Trường Thành đối diện, Man Hoang thiên hạ mỗi lần chém giết một vị đại tu sĩ Nhân tộc, sẽ khắc dấu một chữ to trên đầu tường, hơn nữa Giáp Tử Trướng tựa như sửa lại chủ ý, không cần chém giết một vị Phi Thăng cảnh, cho dù là Tiên Nhân cảnh, hoặc là một vị đại tông chi chủ nào đó, liền có thể khắc chữ, vừa khắc tên giả đại yêu, cũng khắc người chém giết bọn họ.
+Vị Ẩn Quan trẻ tuổi được Ly Chân hâm mộ lúc này đeo đao bên hông, chậm rãi ra quyền trên đầu thành.
 
-Bởi vì đại yêu khắc chữ động tĩnh quá lớn, nhất là liên lụy đến thiên địa khí vận lưu chuyển, cho dù Trần Bình An cách một tòa sơn thủy đại trận, ngồi giữ nửa tòa Kiếm Khí Trường Thành, vẫn có thể mơ hồ nhận thấy được bên kia khác thường, ngẫu nhiên ra quyền hoặc là xuất đao phá vỡ đại trận, lại càng không phải hành động nhàm chán gì của Trần Bình An.
+Giống như năm đó, hắn vừa đi vừa một mình ra quyền. Bấy giờ trên đầu Kiếm Khí Trường Thành còn có hai căn nhà tranh một lớn một nhỏ. Lão kiếm tiên vẫn còn đó, Tào Từ từng thắng hắn ba trận liền cũng có mặt.
 
-Khổ Hạ kiếm tiên sư bá, Chu Thần Chi một trong mười người Trung Thổ Thần Châu.
+Trong lòng Trần Bình An lúc này ý nghĩ cứ đến rồi đi, còn dòng sông thời gian trôi thật chậm, thật chậm. Quyền của hắn càng chậm hơn. Mỗi quyền chẳng khác nào đi một chuyến từ chân núi lên đỉnh rồi quay xuống, đào một vốc đất, cứ thế cho đến ngày dời được cả ngọn núi.
 
-Một vị Phi Thăng cảnh của Phù Diêu châu. Ngoài ra còn có lão thiên quân Thái Bình sơn Đồng Diệp châu, sơn chủ Thái Bình sơn. Phù Kê tông tông chủ Phù Kê Kê Kê Hải. Ba vị thánh nhân thư viện, trong đó còn có tiên sinh của quân tử Chung Khôi, sơn chủ thư viện Đại Phục...
+Trên nửa tòa Kiếm Khí Trường Thành bên kia, mỗi lần chém chết một đại tu sĩ Nhân tộc, Man Hoang Thiên Hạ lại khắc một chữ lớn lên đầu thành. Giáp Tử Trướng dường như đã đổi ý. Giờ chẳng cần giết được Phi Thăng cảnh mới đủ tư cách khắc chữ. Tu sĩ Tiên Nhân cảnh, hay tông chủ một tông môn lớn, cũng đủ. Chúng khắc tên giả của đại yêu và cả tên người bị chúng chém giết.
 
-Đều đã chết trận.
+Đại yêu khắc chữ gây động tĩnh quá lớn, nhất là còn kéo theo khí vận trời đất chuyển dời. Bởi vậy Trần Bình An trấn giữ ở bên này, dẫu cách một tòa đại trận sơn thủy, vẫn có thể lờ mờ cảm thấy bên kia khác thường. Đôi lúc hắn ra quyền, hoặc rút đao phá mở đại trận, đều có nguyên do của hắn.
 
-May mà không có hai bên Nam Bà Sa châu Trần Thuần An, sư huynh.
+Chu Thần Chi, sư bá của kiếm tiên Khổ Hạ, một trong mười người của Trung Thổ Thần Châu.
 
-Đồng Diệp châu Ngọc Khuê Tông Tuần Uyên, Khương Thượng Chân cũng đều vô sự.
+Một vị Phi Thăng cảnh ở Phù Diêu châu. Lão thiên quân và sơn chủ Thái Bình sơn ở Đồng Diệp châu. Kê Hải [?], tông chủ Phù Kê tông. Ba vị thánh nhân thư viện, trong đó có tiên sinh của quân tử Chung Khôi, sơn chủ thư viện Đại Phục…
 
-Thông qua những thứ này, Trần Bình An có thể đại khái phán đoán ra tốc độ đẩy mạnh của Yêu tộc ở Hạo Nhiên Thiên Hạ.
+Tất cả đều đã chết trận.
 
-Vốn dĩ không có chút ý nghĩa nào, chỉ tăng thêm phiền não.
+May mà trong số ấy không có Trần Thuần An và sư huynh Tả Hữu ở Nam Bà Sa châu [?].
 
-Nhưng mà sau khi có quyển Sơn Thủy Du Ký kia, khi Trần Bình An luyện hóa toàn bộ văn tự, chiếm được phong mật thư đến từ quốc sư Đại Ly kia, liền trở nên cực kỳ quan trọng.
+Tuân Uyên và Khương Thượng Chân của Ngọc Khuê tông ở Đồng Diệp châu cũng đều bình an.
 
-Sau đó đáy lòng Trần Bình An liền sinh ra một cái cảm giác, Thôi Sàm này, phàm là đầu óc không có bệnh, thì không nghĩ ra biện pháp như vậy để đưa tin.
+Dựa vào những chuyện đó, Trần Bình An có thể đoán được đại khái quân Yêu tộc đang tiến nhanh tới đâu ở Hạo Nhiên Thiên Hạ.
 
-Chỗ lợi hại thật sự của Thôi Sàm, thậm chí không phải ở cược Trần Bình An hắn có thể ghép ra phong mật tín này, mà là chắc chắn lão hồ thông thiên kia, chu đáo của lão thư trùng tự hào, sẽ ở sau mình, được biết phong mật tín này! Đặc biệt đáng sợ là ở trong mắt Thôi Sàm kia, tựa như Chu Mật có biết việc này hay không, cũng sẽ không thay đổi đại cục đã định trong lòng Thôi Sàm. Nếu Chu Mật không hề phát hiện, đương nhiên tốt nhất, nhưng cho dù Chu Mật thật sự học cứu thiên nhân, được biết việc này, cũng không ngại đại cục.
+Trước kia, biết được cũng chẳng có ích gì, chỉ tổ thêm phiền não.
 
-Nhưng nơi này bên cạnh còn cất giấu mấy ý tứ to nhỏ, khiến Trần Bình An hối hận đầu óc mình cũng có bệnh giống như Thôi Sàm kia, thế mà đánh bậy đánh bạ hóa giải phong mật tín này.
+Nhưng sau khi có quyển Sơn Thủy Du Ký, luyện hóa toàn bộ chữ trong sách và nhận được mật thư của quốc sư Đại Ly, những chuyện ấy bỗng trở nên hết sức quan trọng.
 
-Biết còn không bằng không biết.
+Đọc xong, ý nghĩ đầu tiên bật ra trong lòng Trần Bình An là Thôi Sàm mà đầu óc không có bệnh thì chẳng thể nghĩ ra cách đưa tin như thế.
 
-Địa chỉ cũ của thư viện Đại Phục Đồng Diệp Châu, một vị vương tọa đại yêu bộ dáng nho sĩ thanh sam, tâm tư khẽ động, liền lập tức bảo người ta đi lấy ra một bộ sơn thủy du ký, luyện hóa toàn bộ văn tự bản sơn thủy du ký, hơi cân nhắc, hắn trước sau trung luyện Thôi, Nguyễn Cung, Thập, một ở bên trong, lại phân biệt thử toàn bộ tổ hợp, cuối cùng ở trong tâm hồ, Chu Mật cũng chiếm được phong mật tín chỉ có tám chữ kia, "Thời cơ thích hợp, sơn thủy điên đảo."
+Chỗ lợi hại thật sự của Thôi Sàm còn vượt xa chuyện dám cược Trần Bình An ghép được mật thư. Lão dám chắc Chu Mật, con mọt sách tự phụ học vấn thông thiên kia, sẽ đọc được mật thư sau hắn. Đáng sợ hơn nữa, dường như trong mắt Thôi Sàm, Chu Mật biết hay không cũng chẳng đổi được đại cục lão đã định. Chu Mật không phát hiện thì đương nhiên tốt. Nhưng dẫu hắn thật sự học cứu thiên nhân và đọc ra mật thư, đại cục vẫn chẳng hề gì.
 
-Chu Mật bật cười, lấy tiếng lòng xưng hô Thôi Sàm, sau đó vươn một tay, "Cho mời Thôi quốc sư, nói chuyện phiếm vài câu."
+Mấy chữ ấy còn giấu thêm vài tầng ý tứ. Trần Bình An hối hận vì đầu óc mình cũng có bệnh giống Thôi Sàm, đánh bậy đánh bạ mà giải được mật thư.
 
-Đối phương vốn là dương mưu, cược Bảo Bình châu cuối cùng có thể quyết định hướng đi của thiên hạ đại thế hay không.
+Biết chẳng bằng không biết.
 
-Bảo Bình châu thủ được, cái gọi là núi sông điên đảo mới có ý nghĩa, dù sao lưu lại ở Man Hoang thiên hạ nửa tòa Kiếm Khí Trường Thành còn sót lại kia, vẫn thuộc về bản đồ Hạo Nhiên Thiên Hạ. Nếu thủ không được, Thôi Sàm căng thẳng muốn chết chỉ là lấy mạng đổi mạng, nhiều nhất cứu một người trẻ tuổi, hơn nữa còn phải xem đối phương có nguyện ý rời khỏi Kiếm Khí Trường Thành hay không, đổi vị trí với Thôi Sàm hắn hay không. Chỗ thú vị nhất, là Chu Mật dám khẳng định, Trần Bình An một khi thật sự cầu trợ Thôi Sàm Bảo Bình châu thất thủ, rất có khả năng sẽ thất vọng, bị Thôi Sàm nhìn mà không nghe thấy mà không nghe thấy, vậy thật sự là một hồi vấn tâm cục cực kỳ thú vị.
+Tại di chỉ thư viện Đại Phục ở Đồng Diệp châu, một vị đại yêu vương tọa có dáng vẻ nho sĩ thanh sam chợt động tâm, liền sai người lấy một quyển Sơn Thủy Du Ký đến. Hắn luyện hóa hết chữ trong sách, suy nghĩ chốc lát rồi luyện riêng những chữ “Thôi”, “Nguyễn Cung”, “thập”, “nhất” ở bên trong [?]. Thử từng cách ghép, rốt cuộc Chu Mật cũng đọc được bức mật thư tám chữ trong tâm hồ.
 
-Thân hình Thôi Sàm chậm rãi ngưng tụ ở trước mắt Chu Mật.
+“Thời cơ thích hợp, sơn thủy điên đảo.”
 
-Chu Mật hỏi: "Cái gọi là "Thời cơ thích hợp", là Bảo Bình châu thành công cản trở đại quân Man Hoang thiên hạ bắc thượng, cuối cùng hai tòa thiên hạ giằng co không phân thắng bại?"
+Chu Mật bật cười. Hắn gọi tên Thôi Sàm bằng tiếng lòng, đưa một tay ra: “Mời Thôi quốc sư tới nói dăm câu.”
 
-Chỉ là lão nho sĩ pháp tướng buông xuống thư viện Đại Phục Đồng Diệp châu mỉm cười gật đầu.
+Đối phương vốn dùng dương mưu, cược xem cuối cùng Bảo Bình châu có quyết định được đại thế thiên hạ hay không.
 
-Chính là Đại Ly quốc sư Thôi Sàm.
+Giữ được Bảo Bình châu thì chuyện núi sông điên đảo mới có ý nghĩa. Dẫu sao nửa tòa Kiếm Khí Trường Thành ở lại Man Hoang Thiên Hạ vẫn thuộc cương vực Hạo Nhiên Thiên Hạ. Nếu Bảo Bình châu thất thủ, Thôi Sàm có dốc hết sức cũng chỉ lấy mạng đổi mạng, nhiều lắm cứu được một người trẻ tuổi. Mà còn phải xem người nọ có chịu rời Kiếm Khí Trường Thành, đổi chỗ với lão hay không.
 
-Nếu Chu Mật không phải thân ở thư viện di chỉ, Thôi Sàm tự nhiên sẽ không hiện thân.
+Thú vị nhất là Chu Mật dám chắc, nếu Bảo Bình châu thất thủ mà Trần Bình An thật sự cầu Thôi Sàm giúp đỡ, hắn rất có thể sẽ thất vọng. Thôi Sàm sẽ nhìn mà làm như chẳng thấy, nghe mà làm như chẳng nghe. Đó mới thật là một ván vấn tâm thú vị.
 
-Chu Mật lại hỏi: "Thôi quốc sư đã chắc chắn Trần Bình An đã dẫn đầu nhận được mật thư, lại chắc chắn Bảo Bình châu nhất định giữ được, còn phải chắc chắn Trần Bình An chống đỡ được đến ngày đó? Đặc biệt là cần chắc chắn Trần Bình An chịu được nỗi lo về tính mạng, không đến mức sớm thay đổi vị trí với ngươi, sẽ không làm hại ngươi công lao trước đó bị phế hết?"
+Thân hình Thôi Sàm chậm rãi ngưng tụ trước mặt Chu Mật.
 
-Thôi Sàm nói: "Đệ tử quan môn của Văn Thánh nhất mạch, chút đầu óc cùng đảm đương ấy vẫn phải có."
+Chu Mật hỏi: “Cái gọi là ‘thời cơ thích hợp’ là khi Bảo Bình châu chặn được đại quân Man Hoang Thiên Hạ tiến lên phía bắc, rốt cuộc hai tòa thiên hạ giằng co, chưa phân thắng bại?”
 
-Chu Mật cười hỏi: "Thôi quốc sư, ta chỉ có một vấn đề cuối cùng, ngươi làm sao xác định nửa tòa Kiếm Khí Trường Thành kia, chống đỡ được thời cơ thích hợp theo như lời ngươi nói? Sẽ không lo lắng ta rảnh tay, tự mình nhằm vào hắn?"
+Lão nho sĩ vừa giáng pháp tướng xuống thư viện Đại Phục ở Đồng Diệp châu mỉm cười gật đầu.
 
-Thôi Sàm lạnh nhạt nói: "Giữa ngươi và ta, tranh không chỉ có đại thế hai tòa thiên hạ. Nếu ngươi không có chút khí phách đó, không có tư cách nói cái gì chỉnh đốn đạo thống nho gia, thu nạp văn mạch, lập giáo xưng tổ."
+Chính là quốc sư Đại Ly Thôi Sàm.
 
-Chu Mật trầm mặc một lát, lắc đầu thở dài nói: "Thôi Sàm, thì ra ngươi là muốn dùng tính mạng một Trần Bình An, cộng thêm nửa tòa Kiếm Khí Trường Thành làm mồi nhử, đổi lấy Lễ Thánh... Không đúng, là Á Thánh đổi mạng với ta?"
+Nếu Chu Mật không có mặt ở di chỉ thư viện, Thôi Sàm đương nhiên cũng chẳng hiện thân.
 
-Thôi Sàm mỉm cười nói: "Cũng có thể là Chí Thánh tiên sư tự mình ra tay."
+Chu Mật hỏi tiếp: “Thôi quốc sư chắc rằng Trần Bình An đã nhận được mật thư trước ta. Ngươi cũng chắc Bảo Bình châu giữ được. Nhưng ngươi còn phải chắc Trần Bình An chống đỡ được đến ngày ấy kia mà? Nhất là phải chắc hắn đứng trước nguy cơ mất mạng vẫn chịu đựng được, chẳng vội đổi chỗ với ngươi, khiến mọi công sức trước đó của ngươi đổ sông đổ biển.”
 
-Chu Mật cười nói: "Cầu còn không được."
+Thôi Sàm nói: “Đệ tử quan môn của mạch Văn Thánh phải có chút đầu óc và đảm đương ấy.”
 
-Thôi Sàm nói: "Mau để cho đại tổ Thác Nguyệt sơn kia đánh vỡ lỗ thủng màn trời, ta trái lại muốn xem xem thần linh viễn cổ bị Lễ Thánh cản trở, có thể ở Bảo Bình châu ta lăn qua lộn lại ra cái gì."
+Chu Mật cười hỏi: “Thôi quốc sư, ta chỉ còn một câu cuối. Ngươi lấy gì bảo đảm nửa tòa Kiếm Khí Trường Thành kia cầm cự được đến lúc ngươi gọi là thời cơ thích hợp? Ngươi không lo ta rảnh tay, đích thân tìm đến hắn sao?”
 
-Chu Mật gật đầu nói: "Như ngươi mong muốn."
+Thôi Sàm lạnh nhạt nói: “Ngươi và ta tranh nhau đâu chỉ có đại thế của hai tòa thiên hạ. Đến chút khí phách ấy ngươi cũng không có, còn tư cách gì nói chuyện chỉnh đốn đạo thống Nho gia, thu nạp văn mạch, lập giáo xưng tổ?”
 
-Sau đó hai người hầu như đồng thời nhìn về phía Phù Diêu Châu, Chu Mật cười nói: "Chọc hắn làm gì."
+Chu Mật im lặng một lát, lắc đầu thở dài: “Thôi Sàm, hóa ra ngươi định dùng mạng Trần Bình An cùng nửa tòa Kiếm Khí Trường Thành làm mồi nhử, để Lễ Thánh… Không đúng, để Á Thánh đổi mạng với ta?”
 
-Lão già mù bên trong Man Hoang Thiên Thập Vạn Đại Sơn đã sớm biểu lộ sẽ khoanh tay đứng nhìn.
+Thôi Sàm mỉm cười: “Cũng có thể Chí Thánh tiên sư sẽ đích thân ra tay.”
 
-Đông Hải Quan đạo quan, cái tên lỗ mũi trâu thối kia, phần lớn là lựa chọn không đếm xỉa đến, thậm chí trước khi cùng đạo quan phi thăng, coi như là giúp đỡ một chút.
+Chu Mật cười: “Cầu còn chẳng được.”
 
-Lão hòa thượng kia tạm thời còn chưa xác định đang ở phương nào, khả năng lớn nhất là đã đến Bảo Bình châu, nhưng điều này vẫn nằm trong dự liệu của Thác Nguyệt sơn.
+Thôi Sàm nói: “Mau bảo đại tổ Thác Nguyệt sơn đánh thủng màn trời. Ta cũng muốn xem đám thần linh viễn cổ bị Lễ Thánh chặn ngoài kia có thể làm ra trò gì ở Bảo Bình châu của ta.”
 
-Duy chỉ có vị trung thổ thần châu được coi là người đọc sách đắc ý nhất nhân gian, dựa theo suy tính ban đầu, đi tòa thiên hạ thứ năm, sẽ ở lại bên kia, hơn nữa sẽ mang thanh kiếm trả lại Huyền Đô quan của Thanh Minh thiên hạ.
+Chu Mật gật đầu: “Như ngươi mong muốn.”
 
-Không nên cầm kiếm quay về Hạo Nhiên Thiên Hạ.
+Hai người gần như cùng lúc nhìn về Phù Diêu châu. Chu Mật cười nói: “Chọc hắn làm gì?”
 
-Nào ngờ người này vẫn xuất kiếm.
+Lão mù ở Thập Vạn Đại Sơn của Man Hoang Thiên Hạ đã sớm tỏ ý sẽ khoanh tay đứng nhìn.
 
-Tu sĩ cảnh giới thứ mười bốn, người đọc sách Bạch Dã, cầm tiên kiếm trong tay, hiện thân ở Tây Nam Phù Diêu châu đã tính là bản đồ Man Hoang thiên hạ, tổng cộng đưa ra ba kiếm, một kiếm đánh đối thủ rời khỏi Phù Diêu châu, một kiếm vượt biển, một kiếm hạ xuống gần địa chỉ cũ của Đảo Huyền sơn, kiếm chém giết vương tọa đại yêu.
+Tên đạo sĩ mũi trâu ở Đông Hải quan phần nhiều sẽ chẳng đếm xỉa. Trước khi phi thăng cùng cả đạo quán, hắn thậm chí còn xem như đã giúp một tay [?].
+
+Tạm thời chưa ai biết lão hòa thượng kia ở đâu. Khả năng lớn nhất là lão đã tới Bảo Bình châu, nhưng chuyện ấy vẫn nằm trong dự liệu của Thác Nguyệt sơn.
+
+Chỉ riêng vị ở Trung Thổ Thần Châu, được coi là người đọc sách đắc ý nhất nhân gian, theo tính toán ban đầu hẳn sẽ sang tòa thiên hạ thứ năm rồi ở lại bên đó. Hắn còn phải trả thanh kiếm về Huyền Đô quan ở Thanh Minh Thiên Hạ.
+
+Lẽ ra hắn không nên cầm kiếm trở về Hạo Nhiên Thiên Hạ.
+
+Nào ngờ hắn vẫn xuất kiếm.
+
+Người đọc sách Bạch Dã, tu sĩ cảnh giới thứ mười bốn, cầm tiên kiếm hiện thân ở phía tây nam Phù Diêu châu, nơi đã tính là đất Man Hoang Thiên Hạ. Hắn đánh ra ba kiếm. Một kiếm đánh đối thủ văng khỏi Phù Diêu châu. Một kiếm vượt biển. Kiếm cuối cùng hạ xuống gần di chỉ Đảo Huyền sơn, chém chết vị đại yêu vương tọa.

@@ -1,303 +1,327 @@
 # Chương 765: Mấy tòa thiên hạ thứ mười một
 
-Nữ tử kia hiện thân trong gió tuyết mênh mông, dáng người gầy gò, thiên địa tuyết trắng, phụ trợ cho da thịt hơi đen của nàng càng thêm đen.
+Nữ tử hiện ra giữa gió tuyết mênh mông, vóc người gầy gò. Tuyết trắng khắp trời đất càng làm nổi bật làn da hơi sẫm của nàng.
 
-Búi tóc của nàng thành một viên thuốc khả ái, lộ ra cái trán cao cao, không có bất cứ trang sức trâm cài tóc nào.
+Tóc nàng búi gọn thành một búi tròn xinh xắn, để lộ vầng trán cao. Trên đầu chẳng cài một món trang sức nào.
 
-Nhìn nữ tử trẻ tuổi tuổi tuổi không lớn tuổi đứng vững, cách đám người săn bắn kinh nghi bất định kia ước chừng hơn mười trượng, nàng lấy ra một tấm bản đồ phong thủy Ngai Ngai châu phương Bắc đến từ Sư Tử phong cất trong kho, đánh giá vài lần, tiên gia trên núi cách băng nguyên gần nhất, là một đỉnh núi tên là tràng đạo tràng của địa giới phía bắc Ngai Ngai châu, không phải tiên gia chữ Tông, tương đối không tranh với đời, thành trì dưới núi là Đầu Lạp thành của Vũ Công quốc Lâm Than phủ, nàng đem bản đồ một lần nữa thu vào trong tay áo, trước hướng mọi người ôm quyền trí lễ, sau đó dùng đại nhã ngôn Ngai Ngai châu thuần khiết mở miệng hỏi: "Xin hỏi nơi này cách Đầu Lai thành bao nhiêu?"
+Nữ tử nom còn rất trẻ. Nàng dừng chân cách đám người đi săn đang kinh nghi bất định chừng hơn mười trượng, lấy ra một tấm bản đồ phong thủy miền bắc Ngai Ngai châu, vốn cất trong kho Sư Tử phong. Nàng xem qua vài lượt. Tiên gia gần băng nguyên nhất là một đạo tràng trên núi [?], ở tận miền bắc Ngai Ngai châu. Nơi ấy chưa được xếp vào hàng tông môn, xưa nay ít tranh với đời. Dưới núi có thành Đầu Lư, thuộc phủ Lâm Than nước Vũ Công.
 
-Một vị lão tu sĩ run run đứng lên, sau đó hỏi dò: "Tiền bối là Liễu đại tông sư?"
+Nàng cất bản đồ vào tay áo, ôm quyền chào mọi người, rồi cất tiếng hỏi bằng đại nhã ngôn Ngai Ngai châu rất chuẩn:
 
-Đây là tình huống tốt nhất, tình huống xấu nhất, là đối phương thật ra là do đại yêu biến ảo thành hình người, cố ý trêu chọc bọn họ món ăn đã đóng thuyền.
+“Xin hỏi từ đây đến thành Đầu Lư còn bao xa?”
 
-Trên băng nguyên rộng lớn, có bốn con đại yêu, mỗi bên một phương, một con đại yêu tận cùng phía nam, tự xưng Tế Liễu, ngẫu nhiên cưỡi một con sư tử trắng như tuyết, tuần thú lãnh thổ, nghe đồn thích lấy dung mạo tuấn mỹ nam tử hiện thế, hơn mười năm trước cùng có việc gì hay không tới đây "Kiếm chút tiền son phấn, tích chút sách giáo khoa" Liễu đại tông sư từng có một trận chém giết liều mạng, lúc ấy xa ở Vũ Công quốc Đầu Ly thành, đều có thể cảm nhận được trận chiến trường dị tượng kinh thiên động địa kia., Sau lần đó, tuy rằng Liễu đại tông sư thụ thương thảm trọng, nhưng mà nhân họa đắc phúc, dùng viễn du cảnh mạnh nhất đánh vỡ bình cảnh, thành công tễ thân cửu cảnh, đại yêu liễu nhỏ tựa như cũng bị thương không nhẹ, bắt đầu bế quan không ra, cho nên mấy năm nay tu sĩ Ngai Ngai châu tới đây săn bắt yêu vật, thừa dịp yêu vật Nam cảnh tạm thời mất đi chỗ dựa, kết thành quần đội, liên miên không dứt, trắng trợn săn bắt yêu vật lớn nhỏ Nam cảnh, vơ vét thiên tài địa bảo.
+Một lão tu sĩ run rẩy đứng dậy, dè dặt hỏi: “Tiền bối là Liễu đại tông sư?”
 
-Nhưng dưới trướng Đại Yêu Tế Liễu có hai vị tướng tài đắc lực, hỗ trợ trấn thủ địa giới nhà mình, một vị là tu sĩ ma đạo chạy trốn phương Bắc, tự xưng Thu Thủy đạo nhân, còn có một con đại yêu, khuôn mặt bà lão, đeo một cái bao tải to, thấy tu sĩ liền cười, câu treo mồm là câu "Tế Liễu thiếu gia nhà chúng ta khai vị lại có tin tức rồi, cảm ơn các vị".
+Nếu đúng là Liễu đại tông sư thì còn gì bằng. Chỉ sợ người trước mặt là đại yêu hóa thành hình người, cố ý trêu đùa một đám con mồi đã nằm gọn trong tay.
 
-Chỉ là hai bên đều không thường thấy, nếu không cẩn thận gặp phải, vậy chỉ có thể gửi hy vọng vào kiếp sau đầu thai tốt.
+Trên băng nguyên rộng lớn có bốn đại yêu, mỗi kẻ chiếm một phương. Vị ở tận phía nam tự xưng Tế Liễu, thỉnh thoảng cưỡi một con sư tử trắng như tuyết đi tuần khắp địa bàn. Nghe nói hắn thích xuất hiện dưới dung mạo một nam tử tuấn mỹ.
 
-Thật ra thì Băng Nguyên Nam Cảnh, trước kia còn có một con đại yêu ngang ngược vô cùng, chỉ là bị vị Liễu đại tông sư trong miệng lão tu sĩ lột da.
+Hơn mười năm trước, Tế Liễu từng đánh một trận sống mái với Liễu đại tông sư. Vị tông sư ấy dăm bữa nửa tháng lại đến băng nguyên, nói là để “kiếm chút tiền son phấn, để dành chút tiền mua sách” [?]. Trận đánh làm trời đất biến sắc, đến tận thành Đầu Lư của nước Vũ Công cũng cảm nhận được dị tượng.
 
-Bùi Tiền lắc đầu nói: "Không phải."
+Sau trận ấy, Liễu đại tông sư tuy bị thương rất nặng, lại nhân họa đắc phúc. Nàng lấy tu vi Viễn Du cảnh mạnh nhất phá vỡ bình cảnh, bước vào cửu cảnh. Tế Liễu dường như cũng bị thương không nhẹ, từ đó bế quan chẳng ra. Mấy năm nay, các tu sĩ Ngai Ngai châu nhân lúc yêu vật Nam cảnh mất chỗ dựa, hết tốp này đến tốp khác kéo tới săn bắt yêu vật lớn nhỏ, vơ vét thiên tài địa bảo.
 
-Xưng hô tiền bối của đối phương khiến nàng có chút không được tự nhiên. Nhưng thân ở tha hương, bèo nước gặp nhau, lòng người khó lường, Bùi Tiền vốn không tự báo danh hiệu.
+Tế Liễu vẫn còn hai thuộc hạ đắc lực thay mình trấn giữ địa bàn. Một kẻ là tu sĩ ma đạo trốn lên phương bắc, tự xưng Thu Thủy đạo nhân. Kẻ kia là một con đại yêu mang dung mạo bà lão, lúc nào cũng đeo một cái bao tải lớn. Hễ gặp tu sĩ là bà lão cười, miệng nói câu quen thuộc: “Thiếu gia Tế Liễu nhà ta lại có món khai vị rồi. Đa tạ các vị.”
 
-Bùi Tiền trái lại biết cái đối phương gọi là Liễu đại tông sư, là thần thánh phương nào, võ phu cửu cảnh, nữ tử, tên là Liễu Tuế Dư, cung phụng ký danh thần tài Ngai Ngai châu Lưu thị, là cường giả Sơn Điên cảnh có hi vọng trở thành võ phu đệ nhị thập cảnh. Lúc trước ở Sư Tử phong luyện quyền, Lý Nhị tiền bối ở lúc nhàn hạ, đại khái từng nói tình thế võ đạo và tên họ tông sư Ngai Ngai châu, võ phu đệ nhất nhân Ngai Ngai châu, Bái A Hương, dòng họ cổ quái, tên càng cổ quái, tên hiệu "Lôi Công", quyền pháp cương mãnh, chỗ cư trú, là một tòa Lôi Công miếu tầm thường không có danh tiếng gì.
+Cả hai hiếm khi lộ diện. Ai chẳng may đụng phải, có muốn trông mong gì thì chỉ còn biết mong kiếp sau đầu thai vào chỗ tốt.
 
-Mà Liễu Tuế Dư chính là một trong ba vị đệ tử đích truyền của hắn. Vị lão võ phu luyện quyền và thu đồ đệ đều là nhất đẳng này, trên đường võ học đăng đỉnh, chỉ riêng cái tên "A Hương" này, đã đánh qua không biết bao nhiêu trận, trong đó đã cùng vị võ phu thập cảnh lớn tuổi nhất Bắc Câu Lô Châu kia đến dự, hai bên từng ước chiến trên biển, nguyên do chính là người sau thích xưng hô hắn là A Hương muội tử, gặp ai cũng nói A Hương muội tử Ngai Ngai châu quyền cước rất đàn ông.
+Thật ra, Nam cảnh băng nguyên từng có một đại yêu khác, ngang ngược vô cùng. Con ấy đã bị chính vị Liễu đại tông sư trong lời lão tu sĩ lột da.
 
-Nghe đồn Vương phó Kỳ từ trên biển quay về Bắc Câu Lô Châu, tuy vết thương chồng chất, nhưng mà hăng hái, có bạn tốt trên núi hỏi kết quả, Vương phó Kỳ Kỳ cười nhạo không thôi, chỉ ném ra một câu, một đàn bà Ngai Ngai châu búng mấm tay, có thể nặng được mấy cân? Trận quyền võ phu tranh giành mười cảnh thắng bại, rõ ràng dễ thấy. Trên thực tế sau đó, Phái A Hương quả thật đã đóng cửa từ chối tiếp khách của Lôi Công miếu, đến nay đã có mấy chục năm ẩn cư không ra.
+Bùi Tiền lắc đầu: “Không phải.”
 
-Về sau Cố Hữu Vấn Quyền Viên Đê sơn kiếm tiên Khuyết Nhạc, song song bỏ mình, Bắc Câu Lô Châu mất đi một vị võ phu thập cảnh, công báo Ngai Ngai châu sơn thủy, so với Bắc Câu Lô Châu còn nhiều hơn, vui sướng khi người gặp họa chiếm đa số.
+Tiếng “tiền bối” làm nàng nghe không quen. Nhưng ở nơi đất khách, mọi người chỉ bèo nước gặp nhau, ai biết được lòng dạ của ai. Nàng vốn chẳng định báo tên.
 
-Đám tu sĩ kia lo sợ bất an, trong lúc nhất thời cũng không dám tới gần nữ tử trẻ tuổi không biết địch bạn kia.
+Bùi Tiền biết Liễu đại tông sư mà lão tu sĩ nhắc đến là ai. Nữ tử ấy tên Liễu Tuế Dư, là võ phu cửu cảnh, cung phụng ký danh của Lưu thị ở Ngai Ngai châu. Trong số các võ phu Sơn Điên cảnh, nàng có hy vọng trở thành võ phu thập cảnh thứ hai của Ngai Ngai châu.
 
-Đại yêu Băng Nguyên, hầu như ai cũng tính tình cổ quái, chỉ nói nữ tử trước mắt, quả nhiên là trùng hợp đi ngang qua, sau đó cứu bọn họ? Thật sự không phải thủ đoạn ác độc như mèo bắt chuột?
+Hồi Bùi Tiền luyện quyền ở Sư Tử phong, khi rảnh rỗi Lý Nhị tiền bối từng kể qua về võ đạo Ngai Ngai châu và tên tuổi vài vị tông sư. Võ phu đứng đầu một châu là Bái A Hương. Họ đã lạ, tên còn lạ hơn. Lão có biệt hiệu “Lôi Công”, quyền pháp cương mãnh, lại ở trong một ngôi miếu Lôi Công tầm thường, chẳng có mấy tiếng tăm.
 
-Săn bắn yêu vật ở băng nguyên Ngai Ngai châu, vốn là nghề nghiệp kiếm tiền trên đai lưng buộc quần, còn là loại đai lưng quần không chắc chắn. Cho nên chỉ có thể chú ý một người nhiều thế mạnh, mỗi một vị đi băng nguyên săn bắn, trước khi xuất phát đều ký kết một phần giấy sinh tử Bắc Nhạc Sơn Minh, còn phải rõ ràng tiền trợ cấp. Đương nhiên nếu là không công mà lui, hoặc là toàn quân bị diệt, mọi sự đều xong.
+Liễu Tuế Dư là một trong ba đệ tử đích truyền của lão. Vị lão võ phu ấy luyện quyền hay, thu đồ đệ cũng giỏi. Trên đường lên tới đỉnh võ học, chỉ vì hai chữ “A Hương”, lão đã đánh qua chẳng biết bao nhiêu trận. Có lần lão hẹn vị võ phu thập cảnh lâu năm nhất Bắc Câu Lô Châu ra biển giao đấu. Chuyện bắt đầu từ việc vị kia cứ thích gọi lão là “A Hương muội tử”, gặp ai cũng bảo quyền cước của A Hương muội tử Ngai Ngai châu rất ra dáng nam nhi.
 
-Bình thường ít nhất ba người kết bạn, một mình trận sư phụ trách bố trí cạm bẫy, người này mấu chốt nhất. Thuần túy vũ phu hoặc là một mình binh gia tu sĩ, tốt nhất đồng thời mang một món trọng khí phòng ngự cùng một món trọng bảo công phạt, phụ trách dụ yêu vật tiến vào nơi trận pháp cấm chế, bởi vì so với người tu đạo còn lại, thể phách cứng cỏi nhất, vừa có thể tự bảo vệ mình, còn có thể ngăn chặn yêu vật da thô thịt dày, không đến mức cùng yêu vật gặp nhau ngõ hẹp, chạm là tan, ngoài ra còn phải có một vị Luyện khí sĩ tinh thông thủy pháp, có thể chiếm cứ thiên thời địa lợi, lấy thuật pháp phối hợp kẻ trước đánh chết yêu vật.
+Nghe nói khi Vương Phó Kỳ [?] từ ngoài biển trở về Bắc Câu Lô Châu, trên người đầy thương tích mà tinh thần vẫn phấn chấn. Có bằng hữu trên núi hỏi kết quả, lão chỉ cười nhạo, buông một câu: “Một bà nương Ngai Ngai châu vung nắm tay thì nặng được mấy cân?”
 
-Nếu người dẫn đầu có thể tụ lại một đội ngũ năm người, thường thường sẽ tăng thêm một vị Luyện khí sĩ cực kỳ có uy thế công phạt, dựa vào cái gọi là "Một chiêu tiên", ở trong bao vây tiễu trừ cho yêu vật một đòn trí mạng, sau đó có thể sẽ lại thêm một vị tu sĩ Dược gia, có thể giúp đỡ đồng hành tác chiến lâu dài, kể từ đó, đội ngũ vây săn, tiến có thể công lui có thể thủ, cho dù hành trình Băng Nguyên không có thu hoạch, ít nhất cũng có thể bảo toàn tính mạng, bình yên rút về thành Đầu Ly hoặc là tòa đàn tràng cờ quạt, theo kế lâu dài bàn.
+Nghe thế, ai cũng tưởng thắng bại trong trận tranh quyền giữa hai vị võ phu thập cảnh đã rõ. Mà từ sau trận ấy, Bái A Hương quả thật đóng cửa miếu Lôi Công, từ chối tiếp khách. Đến nay, lão đã mấy chục năm không ra ngoài.
 
-Nhưng cho dù kết bạn mà đi, vẫn là ngoài ý muốn rất nhiều.
+Về sau, Cố Hữu vấn quyền với kiếm tiên Khuyết Nhạc ở Viên Đề sơn. Hai người cùng bỏ mạng. Bắc Câu Lô Châu mất một võ phu thập cảnh, vậy mà đệ báo sơn thủy Ngai Ngai châu đưa tin còn nhiều hơn đệ báo Bắc Câu Lô Châu. Phần lớn đều hả hê trước tai họa của người khác.
 
-Hôm nay bọn họ ra ngoài không lật hoàng lịch, đụng phải một con Kim Đan đại yêu.
+Đám tu sĩ vẫn thấp thỏm, chẳng ai dám đến gần nữ tử trẻ tuổi chưa rõ có ý giúp họ hay hại họ.
 
-Bùi Tiền biết chỗ lo lắng của những người này, cũng không muốn giải thích quá nhiều, mình chỉ cần trực tiếp nam hạ, đi đến thành Đầu Ly nghỉ ngơi hồi phục, nghi ngờ trong lòng bọn họ tự nhiên tan thành mây khói.
+Đại yêu trên băng nguyên phần nhiều tính tình cổ quái. Nữ tử trước mắt quả thật chỉ tình cờ đi ngang qua rồi cứu họ sao? Biết đâu lại chẳng phải trò mèo vờn chuột.
 
-Vô luận là cùng Lý Hòe du lịch bắc Câu Lô châu, hay là hôm nay một mình xông pha Ngai Ngai châu, Bùi Tiền một lòng chỉ luyện quyền, cũng không hy vọng xa vời mình có thể giống như sư phụ, một đường kết giao hào kiệt tri kỷ, chỉ cần gặp nhau hợp ý, có thể không hỏi tên họ mà uống rượu.
+Săn yêu vật trên băng nguyên Ngai Ngai châu vốn là nghề lấy mạng đổi tiền. Cái mạng buộc ở thắt lưng, mà sợi dây thắt lưng có khi còn chẳng chắc. Bởi vậy, bọn họ phải dựa vào đông người. Trước khi lên đường, mỗi người đều ký một tờ sinh tử với Bắc Nhạc Sơn Minh [?], ghi rõ khoản tiền trợ cấp. Nếu cả đội tay trắng trở về hoặc chẳng còn ai sống sót, mọi chuyện coi như xong.
 
-Bùi Tiền tự biết không học được, không làm được.
+Đội đi săn thường có ít nhất ba người. Quan trọng nhất là trận sư, phụ trách đặt bẫy. Một võ phu thuần túy hoặc một tu sĩ Binh gia sẽ đi nhử yêu vật vào trận pháp. Người này tốt nhất nên mang theo một món trọng khí hộ thân và một món trọng bảo công phạt. Thể phách của họ cứng cỏi hơn những người còn lại, gặp yêu vật da dày thịt chắc còn có thể tự bảo vệ mình, cầm chân nó một lúc, không đến nỗi vừa chạm mặt đã thua ngay. Người thứ ba là luyện khí sĩ tinh thông thủy pháp, biết mượn thiên thời địa lợi, dùng thuật pháp phối hợp giết yêu.
 
-Tựa như Thôi Đông Sơn lén lút cho rằng như vậy, chỉ cần tiên sinh của hắn, sư phụ của nàng, Trần Bình An không ở bên cạnh Bùi Tiền, như vậy Hạo Nhiên Thiên Hạ năm đó ở ngoài Ngẫu Hoa phúc địa, vẫn là phố lớn ngõ nhỏ kinh thành Nam Uyển quốc, mọi người, vẫn là những người ở kinh thành Nam Uyển quốc, đối với Bùi Tiền mà nói, trừ sư phụ cùng Lạc Phách sơn, giang hồ dưới chân nó, vẫn không có gì khác nhau, trước kia tương lai trước kia, đều rất khó thay đổi một điểm này.
+Nếu người dẫn đầu gom được năm người, trong đội thường có thêm một luyện khí sĩ giỏi công phạt. Chỉ cần dựa vào một chiêu sở trường, người ấy có thể chờ lúc yêu vật bị vây mà giáng đòn trí mạng. Suất còn lại có thể dành cho một tu sĩ Dược gia, giúp cả đội cầm cự lâu hơn. Có đủ người như vậy thì tiến đánh hay lui giữ đều được. Dẫu chuyến này chẳng thu hoạch gì, ít ra họ còn có thể giữ mạng, bình yên rút về thành Đầu Lư hoặc đạo tràng trên núi, sau đó tính tiếp.
 
-Bùi Tiền đột nhiên dừng bước, cầm Hành Sơn trượng trong tay chọc thật mạnh vào đất tuyết, nói với bọn họ: "Các ngươi đi trước, mau đi về phía Đầu Ly thành, trên đường cẩn thận một chút, nguy hiểm vẫn còn."
+Dù kết bạn đồng hành, bất trắc vẫn không thiếu.
 
-Sau đó Bùi Tiền nhíu mày, liếc mắt nhìn phía sau đám luyện khí sĩ kia.
+Hôm nay bọn họ ra cửa chẳng xem hoàng lịch, đụng ngay một con đại yêu Kim Đan.
 
-Có hơi muộn.
+Bùi Tiền hiểu họ lo gì, cũng không muốn giải thích nhiều. Nàng chỉ cần đi thẳng về phía nam, đến thành Đầu Lư nghỉ chân, mối nghi ngờ trong lòng họ tự khắc sẽ tan.
 
-Trừ phía sau cô một bà lão nhìn như bước chân tập tễnh nhưng thật ra lại dài như bay, lưng đeo một cái bao tải to, đầu vai lắc lư, nhẹ nhàng đi tới, bà lão đi qua, Phong Tuyết tự hành động nhường đường cho bà lão, sau đó dừng bước ở ngoài hơn trăm bước Bùi Tiền, bà lão ho khan không thôi, nheo mắt một đường, cười khàn khàn nói: "Cô gái nhỏ quyền cước sắc bén, một đường nam hạ, thế mà nỡ không lấy toàn bộ yêu đan, để chúng ta dễ tìm. Loại võ phu thuần túy chỉ luyện quyền không cầu tiền tài như ngươi, thật sự là càng đáng hận hơn so với bà nương họ Liễu kia."
+Dù đi cùng Lý Hòe qua Bắc Câu Lô Châu hay một mình đặt chân tới Ngai Ngai châu, Bùi Tiền chỉ một lòng luyện quyền. Nàng chẳng mong được như sư phụ, đi đến đâu cũng kết giao hào kiệt, gặp người hợp ý thì chưa cần hỏi tên đã có thể ngồi xuống uống rượu.
 
-Vị lão ẩu này, ở trên đường đám người bắc du săn bắn nam hạ kia, có đạo sĩ chân trần thân khoác hạc xuyên tuyết mà đi, lớn tiếng ngâm tụng điển tịch đạo môn《 Nam Hoa Thu Thủy thiên 》, trong tay đạo nhân cầm một ít cành cây hoa mai nở rộ, giữa khe đọc sách, thường thường vê xuống mấy đóa hoa mai để vào trong miệng nhai to, lại đưa tay lấy tuyết, hoa mai cùng tuyết cùng nhau nuốt xuống, mỗi lần nhấm nuốt tuyết mai, trên người liền có hào quang tràn đầy từ kinh mạch lộ ra xương cốt, một phen kim chi ngọc cốt, khí tượng tiên gia tu đạo có thành tựu.
+Bùi Tiền biết mình chẳng học được, cũng chẳng làm được.
 
-Một nam một bắc, chặn đường đi.
+Thôi Đông Sơn từng thầm nghĩ, chỉ cần tiên sinh của hắn, cũng là sư phụ của nàng, Trần Bình An, không ở bên cạnh, thì đối với Bùi Tiền, Hạo Nhiên Thiên Hạ bên ngoài Ngẫu Hoa phúc địa vẫn chẳng khác nào phố lớn ngõ nhỏ ở kinh thành Nam Uyển quốc năm ấy. Người trong thiên hạ vẫn là những người nàng từng gặp ở kinh thành Nam Uyển quốc. Ngoài sư phụ và núi Lạc Phách, giang hồ dưới chân nàng xưa nay vẫn vậy. Sau này e cũng khó đổi.
 
-Bùi Tiền thấy lão ẩu kia cùng đạo nhân chân trần kia tạm thời không có ý động thủ, liền bước ra một bước, nháy mắt đi tới bên cạnh lão tu sĩ kia, tháo hòm trúc xuống, nó nhắc nhở với đám tu sĩ không ngừng tụ lại tới kia: "Các ngươi chỉ cần để ý kết trận tự bảo vệ mình, nếu có thể, ở dưới điều kiện tiên quyết tính mạng không lo, giúp ta chiếu cố hòm sách một chút. Nếu tình huống khẩn cấp, đều tự chạy trốn là được. Ta tận lực che chở các ngươi."
+Bùi Tiền đột nhiên dừng bước, chống mạnh gậy leo núi xuống đất tuyết.
 
-Bùi Tiền dừng lại một lát, bổ sung một câu, "Ta sẽ cố hết sức."
+“Các ngươi đi trước đi. Mau đến thành Đầu Lư, dọc đường cẩn thận, nguy hiểm vẫn còn.”
 
-Nếu lão ẩu và đạo nhân chân trần là hướng về phía mình, như vậy Bùi Tiền phải ra thêm mấy quyền, làm người ta vì mình đều nên như thế. Hành tẩu giang hồ, đạo nghĩa đương đầu.
+Dứt lời, nàng nhíu mày nhìn qua sau lưng đám luyện khí sĩ.
 
-Lúc trước nàng tiện tay đánh giết con yêu vật kia, cứu đám người tu đạo kia, cũng chỉ là tiện tay làm, nếu lòng có dư lực mà lại đủ, nên xuất quyền, không niệm hồi báo.
+Hơi muộn rồi.
 
-Về phần ác ý thiện ý của lòng người phương thiên địa này, có liên quan gì với Bùi Tiền ta luyện quyền ra quyền? Không có.
+Phía sau nàng có một bà lão đeo bao tải lớn, vai đung đưa theo từng bước. Nom bà lão đi lảo đảo, vậy mà thoắt cái đã đến gần. Bà đi tới đâu, gió tuyết tự rẽ ra tới đó. Cách Bùi Tiền hơn trăm bước, bà dừng lại, ho mãi chẳng dứt, nheo mắt thành một đường rồi khàn giọng cười:
 
-Bùi Tiền quan tâm, chỉ là sư phụ dạy bảo, Thôi gia gia truyền thụ quyền pháp, hai chuyện mà thôi.
+“Tiểu cô nương quyền cước sắc bén thật. Suốt dọc đường xuôi nam, ngươi lại nỡ bỏ hết yêu đan, khiến chúng ta tìm vất vả. Võ phu thuần túy chỉ lo luyện quyền, chẳng ham tiền của như ngươi còn đáng ghét hơn cả bà nương họ Liễu.”
 
-Bà lão liếc mắt nhìn cây trượng trúc xanh lục bị nữ tử trẻ tuổi giữ lại, lúc trước ngưng thần chăm chú nhìn, thế mà không cách nào hoàn toàn nhìn thấu thủ thuật che mắt, chỉ có thể lờ mờ cảm giác được cây trúc trượng kia từng tia từng sợi khí lạnh, đây cũng là nguyên nhân trọng yếu khiến bà lão không sốt ruột ra tay.
+Trên đường xuôi nam của đám tu sĩ, một đạo nhân chân trần mặc pháp bào lông hạc [?] đang rẽ tuyết đi tới. Hắn lớn tiếng ngâm thiên Thu Thủy trong sách Nam Hoa của Đạo môn. Tay hắn cầm mấy cành mai đang nở. Giữa hai câu ngâm, hắn lại ngắt mấy đóa cho vào miệng nhai, bốc thêm một nắm tuyết, nuốt cả tuyết lẫn hoa. Mỗi lần nhai mai nuốt tuyết, kinh mạch và xương cốt dưới da hắn đều ánh lên hào quang. Kim chi ngọc cốt, quả có khí tượng của người tu đạo đã thành.
 
-Lão ẩu loại đại yêu đắc đạo ở Băng Nguyên này, sợ nhất là trêu chọc đệ tử Ngai Ngai châu Lưu thị, tiếp đó chính là kiêng kỵ đích truyền của dòng dõi Phái A Hương trong Lôi Công miếu, cùng với đệ tử đích truyền. Ngoài ra, vấn đề cũng không lớn. Là nhai sống, hay là đốt đỏ những tu sĩ vận đạo không tốt cũng không sao. Trừ hai loại người này, thường thường cũng sẽ có một ít môn phái đầu tông tự đến đây lịch lãm rèn luyện, chẳng qua có nhiều Nguyên Anh Địa tiên giúp đỡ hộ đạo, vậy cứ để bọn họ chém giết chút yêu vật là được, lão ẩu chút nhãn lực ấy vẫn phải có, thường thường đối phương cũng tương đối có chừng mực, nhóm phổ điệp tiên sư trẻ tuổi da non thịt mềm kia, ra tay sẽ không quá mức hung ác, huống chi cũng không ngoan độc đến đâu.
+Một nam một bắc, đường đi lối về đều bị chặn.
 
-Bùi Tiền xoay người, nói với bà lão vẻ mặt âm tình bất định kia: "Ta chỉ đi đường, chưa từng trêu chọc các ngươi, nhưng nếu tài nghệ không bằng người, thành vật trong bụng yêu vật, ta nhận. Quyền pháp tạm được, yêu vật muốn ăn người bị giết, cũng đừng oán ta quyền trọng."
+Thấy hai kẻ kia chưa định ra tay, Bùi Tiền bước một bước đã tới bên lão tu sĩ, tháo hòm trúc xuống. Đám tu sĩ đang lần lượt tụ lại, nàng dặn họ:
 
-Lão ẩu cười hỏi: "Nhìn dấu vết ra quyền cùng lộ tuyến ngươi hành tẩu, hình như là ở phương bắc đăng bờ, sau đó vẫn hướng nam? Tiểu nha đầu không lẽ là người châu khác? Bắc Câu Lô châu, hay là Lưu Hà châu? Trưởng bối trong nhà thế mà yên tâm ngươi một mình một người, từ bắc nam xuyên qua cả tòa băng nguyên?"
+“Các ngươi cứ kết trận tự bảo vệ mình. Nếu chưa nguy đến tính mạng, nhờ các ngươi trông giúp ta hòm sách. Tình thế cấp bách thì ai nấy cứ chạy. Ta sẽ cố che chở cho các ngươi.”
 
-Trong lòng bà lão nghi hoặc lớn nhất, là tử địch của vị thiếu gia Tế Liễu kia của mình ở phương bắc, thế mà dung nạp được tiểu cô nương nghênh ngang ở dưới mí mắt nghênh ngang vượt biên nam du. Nếu không phải lo lắng đối phương họa thủy dẫn dắt, lão ẩu đã sớm ra tay. Ven đường mấy trận chém giết kia, đều là tu vi lục cảnh ra quyền, cho dù có giữ lại, cố ý che giấu thực lực, chẳng qua là một tiểu nha đầu nhiều nhất võ phu Kim Thân cảnh, hẳn phải chết không thể nghi ngờ.
+Dừng một lát, nàng lại nói: “Ta sẽ cố hết sức.”
 
-Bùi Tiền nói: "Ngươi không cần dùng lời nói thử chi tiết của ta. Hỏi quyền ta tiếp, hỏi kiếm ta cũng tiếp."
+Nếu bà lão và đạo nhân chân trần nhằm vào nàng mà đến, nàng đáng phải ra thêm mấy quyền để họ khỏi liên lụy đến người khác. Đi lại trên giang hồ, đạo nghĩa đặt lên đầu.
 
-Một vị lão tu sĩ vô cùng sốt ruột, dùng tiếng lòng nói: "Tiền bối, mặc kệ thân phận chân thật, không ngại đều lấy đệ tử Lưu thị hù dọa đối phương, bằng không trận vây quét này, tiền bối dù sao song quyền nan địch tứ thủ, huống chi khẳng định còn có rất nhiều yêu vật bị lão bà nương này sai khiến. Ở Ngai Ngai châu chúng ta, đệ tử Lưu thị chính là bùa hộ mệnh lớn nhất, hai thầy trò, sư đồ Bái thị đều là cung phụng Lưu thị, tiền bối tập võ luyện quyền, đại khái có thể ngụy trang thành đệ tử đời thứ ba của Lôi Công miếu nhất..."
+Vừa rồi nàng ra tay cứu đám tu sĩ khỏi con yêu vật kia chẳng qua vì tiện tay. Lòng đã muốn cứu, sức mình lại đủ, thì cứ xuất quyền, chẳng cần trông mong báo đáp.
 
-Bùi Tiền tụ âm thành tuyến đáp: "Tự có sư thừa, không dám nói bậy."
+Người trong trời đất này có thiện ý hay ác ý, can hệ gì đến chuyện Bùi Tiền luyện quyền, xuất quyền? Chẳng can hệ gì cả.
 
-Lão tu sĩ ai thán không thôi, không dám khuyên nữa. Sinh tử một đường, nào có chú ý cổ hủ cứng ngắc như vậy a.
+Nàng chỉ để tâm hai chuyện. Một là lời sư phụ dạy. Hai là quyền pháp Thôi gia gia dạy nàng.
 
-Chuyện cho tới bây giờ, ngược lại là người người không hề hoài nghi thân phận của vị tiền bối này.
+Bà lão liếc cây gậy trúc xanh mà nữ tử trẻ tuổi cắm lại trong tuyết. Khi nãy bà đã chăm chú nhìn, vậy mà vẫn chẳng nhìn thấu phép che mắt, chỉ cảm thấy trên thân trúc thấp thoáng từng sợi khí lạnh. Đó cũng là một lý do bà chưa vội động thủ.
 
-Quả thật không cần thiết.
+Đại yêu đắc đạo ở băng nguyên như bà sợ nhất đụng vào con cháu Lưu thị Ngai Ngai châu, sau đó mới đến đích truyền của Bái A Hương ở miếu Lôi Công, kể cả đệ tử của đám đích truyền ấy. Ngoài hai hạng đó, tu sĩ nào xui xẻo rơi vào tay bà thì ăn sống hay nướng chín đều được. Thỉnh thoảng cũng có đệ tử các tông môn lớn tới đây rèn luyện. Đi theo họ phần nhiều có địa tiên Nguyên Anh hộ đạo. Gặp những người ấy, cứ để họ giết dăm con yêu vật cho xong, bà vẫn có chút nhãn lực đó. Đối phương thường cũng biết chừng mực. Đám tiên sư có tên trong phổ điệp, da non thịt mềm ấy, vừa chẳng ra tay quá nặng, vừa chưa đủ lòng dạ độc ác.
 
-Chỉ nói Thu Thủy đạo nhân kia, cũng đủ nghiền chết tất cả tu sĩ săn bắn ngoại trừ nàng.
+Bùi Tiền xoay người, nhìn bà lão đang đổi sắc mặt, nói: “Ta chỉ đi ngang qua, chưa từng trêu chọc các ngươi. Nếu tài nghệ kém, phải vào bụng yêu vật, ta nhận. Còn yêu vật muốn ăn người mà chết dưới tay ta thì cũng đừng trách quyền ta nặng.”
 
-Người tu đạo Ngai Ngai châu, vô luận là gia điệp tiên sư, hay là sơn trạch dã tu, đối với những thần tiên thượng ngũ cảnh cao cao tại thượng kia, cho dù chưa tận mắt thấy mấy vị, thông qua sơn thủy đệ báo lung tung này, phần lớn rõ ràng, số lượng thật ra cũng không ít hơn so với bắc Câu Lô châu, so với tây bắc Lưu Hà châu tự nhiên nhiều hơn.
+Bà lão cười hỏi: “Xem dấu quyền với đường ngươi đi, hình như ngươi lên bờ từ phía bắc rồi đi thẳng xuống nam? Tiểu nha đầu, chẳng lẽ ngươi từ châu khác tới? Bắc Câu Lô Châu hay Lưu Hà châu? Trưởng bối trong nhà yên tâm để một mình ngươi đi xuyên cả băng nguyên từ bắc xuống nam ư?”
 
-Nhưng muốn nói tông sư võ phu bát cảnh, cửu cảnh, chính là danh xứng với thực có thể đếm được trên đầu ngón tay, xa xa không nói đến Bắc Câu Lô Châu, thậm chí ngay cả Lưu Hà Châu cũng không bằng.
+Điều bà lão nghĩ mãi không thông là tử địch của thiếu gia Tế Liễu ở phương bắc sao lại để tiểu cô nương này nghênh ngang vượt qua địa bàn ngay dưới mí mắt. Nếu chẳng sợ đối phương cố tình dẫn họa sang phía nam, bà đã ra tay từ lâu. Mấy trận dọc đường, nha đầu ấy đều xuất quyền với tu vi lục cảnh. Dù còn giấu nghề, cùng lắm cũng chỉ là một võ phu Kim Thân cảnh, gặp bà ắt chết.
 
-Võ vận Ngai Ngai châu, ở Hạo Nhiên Thiên Hạ có tiếng ít đến đáng thương, võ phu thập cảnh trong truyền thuyết chỉ có một người, là Lôi Công miếu Phái Hương võ vận cường thịnh nhất một châu, mấy năm trước còn bại bởi Vương Khải Lai Mân bị kiếm tiên lừa, Bắc Câu Lô châu kiếm tu đã từng vượt biển hỏi kiếm một châu, cho dù Cố Hựu Hi chết đi, kết quả vẫn là so với Ngai Ngai châu có thêm một vị võ phu chỉ cảnh, điều này làm cho tu sĩ Ngai Ngai châu sơn thượng thật sự có chút ngẩng đầu lên không nổi, cộng thêm vị Lưu thị thần tài đệ nhất nhân của Ngai Ngai châu, mấy lần công khai nói ra chút đạo pháp đó của mình, nhiều nhất có thể tính là nửa cái đỉnh Địa Phong Hỏa Long chân nhân, điều này làm cho tu sĩ Ngai Ngai châu giống như trừ tiền ra, thì Vạn Lý Lô châu kia không bằng bị cướp đi chữ "Bắc".
+Bùi Tiền nói: “Ngươi chẳng cần dò xét ta bằng lời. Hỏi quyền ta tiếp, hỏi kiếm ta cũng tiếp.”
 
-Bùi Tiền quay đầu nhìn đạo nhân chân trần thân khoác hạc giấy kia, nó từng ở trên quyển sách thần tiên Đảo Huyền sơn《 thần tiên 》đoạp mà tiểu sư huynh mua kia từng thấy ghi lại, trên lịch sử quả thật có một vị sơn đạo nhân, thích ngâm tụng Nam Hoa Thu Thủy thiên, đi chân trần hành tẩu thiên hạ, lời đồn đầu đội một chiếc mũ sắt đạo môn, chí ở lấy hoa mai tuyết đọng rửa sạch bụng, khắc xương trắng mục nát thành đạo quan, nguyện sau khi mang một thân đạo pháp hiển hóa, trả lại thiên địa. Hàng năm không có chỗ ở cố định, đánh gậy đi xa, thiết trượng trong tay chỉ cần ném ra, liền có thể rơi xuống đất hóa thành một con rồng xanh.
+Lão tu sĩ sốt ruột, dùng tiếng lòng nói: “Tiền bối, bất kể thân phận thật của người là gì, cứ xưng là đệ tử Lưu thị để dọa chúng trước. Bằng không, lần này bị vây, hai nắm tay sao địch nổi bốn tay? Chắc mụ ta còn sai khiến được nhiều yêu vật nữa. Ở Ngai Ngai châu, đệ tử Lưu thị chẳng khác nào mang bùa hộ mạng. Hai thầy trò dòng Bái thị đều là cung phụng Lưu thị. Tiền bối luyện quyền, dễ giả làm đệ tử đời thứ ba của miếu Lôi Công nhất...”
 
-Vị sơn đạo nhân thần long thấy đầu không thấy đuôi kia, là chân chính đắc đạo Cao Chân, đương nhiên sẽ không là kẻ chướng ngại vật học đòi văn vẻ trước mắt này.
+Bùi Tiền tụ âm thành tuyến đáp: “Ta đã có sư thừa, không dám nói bừa.”
 
-Bùi Tiền cho dù chưa kéo ra quyền giá, đã nháy mắt lòng không tạp niệm, khi nó nín thở ngưng thần, bắt đầu trút xuống quyền ý, một đôi mắt liền thấy dị tượng.
+Lão tu sĩ than thầm, chẳng dám khuyên thêm. Sống chết chỉ cách nhau một đường, sao còn phải câu nệ đến vậy?
 
-Trong khoảnh khắc đó, vạn vật tĩnh lặng. Tựa như trong thiên địa chỉ có một Bùi Tiền, mới là vật sống không bị câu thúc, chỉ có nó có thể đi lại không trở ngại.
+Đến nước này, mọi người lại thôi nghi ngờ thân phận của nàng.
 
-Nhưng Bùi Tiền trong lòng biết rõ, tầm nhìn của mình có thể đạt được, cũng không phải dòng sông thời gian thật sự dừng lại, mà là tốc độ chảy, giống như trở nên cực kỳ thong thả.
+Quả thật chẳng cần nghi ngờ nữa. Chỉ một mình Thu Thủy đạo nhân cũng đủ giết sạch đám tu sĩ đi săn, trừ nàng ra.
 
-Càng gần người, dòng chảy thời gian bốn phương tám hướng càng trở nên yên lặng.
+Tu sĩ Ngai Ngai châu, dù là tiên sư có tên trong phổ điệp hay dã tu chốn núi đầm, tuy ít gặp tận mắt thần tiên thượng ngũ cảnh, đọc đủ thứ đệ báo sơn thủy thì vẫn biết ít nhiều. Số tu sĩ thượng ngũ cảnh ở đây thật ra chẳng ít hơn Bắc Câu Lô Châu, đương nhiên lại nhiều hơn Lưu Hà châu ở phía tây bắc.
 
-Bùi Tiền sau khi một mình luyện quyền, xét đến cùng, nó thật ra chỉ có một việc có thể làm, muốn thử để cho dòng sông thời gian tựa như hoàn toàn tĩnh bất động, chỉ có thể xác và tinh thần ta tự do, ra quyền trong thiên địa, thiên hạ võ phu, mặc kệ ai hỏi quyền với ta, ở trước người ta, ngươi phải chậm ta ra quyền vô số!
+Nhưng võ phu bát cảnh, cửu cảnh có thể xưng tông sư thì quả thật đếm được trên đầu ngón tay. Đừng nói Bắc Câu Lô Châu, đến Lưu Hà châu cũng chẳng sánh bằng.
 
-Đương nhiên sư phụ ngoại lệ. Bùi Tiền luyện quyền, chỉ là vì đuổi theo sư phụ, chưa bao giờ hy vọng xa vời sóng vai cùng sư phụ quyền pháp.
+Ngai Ngai châu ở Hạo Nhiên Thiên Hạ nổi tiếng có võ vận ít đến đáng thương. Võ phu thập cảnh trong truyền thuyết chỉ có một mình Bái A Hương ở miếu Lôi Công, người mang võ vận thịnh nhất một châu, vậy mà mấy năm trước vẫn chịu thua Vương Phó Kỳ [?]. Bắc Câu Lô Châu từng có kiếm tu vượt biển hỏi kiếm cả một châu [?]. Nay dù đã mất Cố Hữu, bọn họ vẫn nhiều hơn Ngai Ngai châu một vị võ phu Chỉ Cảnh. Các tu sĩ trên núi Ngai Ngai châu vì thế mà khó ngẩng đầu. Ngay cả vị Lưu thần tài đứng đầu một châu cũng mấy lần công khai bảo chút đạo pháp của mình nhiều lắm chỉ bằng nửa Hỏa Long chân nhân ở Địa Phong [?]. Cứ vậy, dường như ngoài tiền ra, Ngai Ngai châu chẳng có gì hơn nổi cả Lô Châu sau khi bị lấy mất chữ “Bắc” [?].
 
-Năm đó du lịch Kiếm Khí Trường Thành, sư phụ từng nói với Bùi Tiền một câu rất cổ quái, nói hắn muốn học môn thần thông này từ đại đệ tử khai sơn.
+Bùi Tiền quay sang nhìn đạo nhân chân trần khoác áo lông hạc. Nàng từng đọc trong cuốn thần tiên phổ [?] tiểu sư huynh mua ở Đảo Huyền sơn rằng xưa kia quả có một vị đạo nhân trên núi thích ngâm thiên Thu Thủy trong sách Nam Hoa, đi chân trần khắp thiên hạ. Nghe nói vị ấy đội một chiếc mũ sắt của Đạo môn, chỉ muốn lấy hoa mai và tuyết đọng rửa sạch bụng dạ, dùng cả xương trắng mục nát tạc thành đạo quan [?], mong có ngày đem một thân đạo pháp hiển hóa rồi trả lại cho trời đất. Đạo nhân quanh năm không ở đâu lâu, chống gậy đi khắp nơi. Chỉ cần ném cây gậy sắt trong tay xuống đất, nó sẽ hóa thành một con rồng xanh.
 
-Sư phụ nói đến chuyện cười, cũng rất thú vị a.
+Vị đạo nhân thần long thấy đầu chẳng thấy đuôi ấy là cao nhân thật sự đắc đạo. Dĩ nhiên chẳng thể là kẻ học đòi đang đứng chắn đường trước mắt.
 
-Sư phụ học đệ tử làm gì?
+Bùi Tiền chưa dựng quyền giá mà trong lòng đã dứt sạch tạp niệm. Nàng nín thở, ngưng thần. Quyền ý vừa tuôn ra, trước mắt nàng đã hiện dị tượng.
 
-Nhưng chuyện cười từng khiến Bùi Tiền thường xuyên trộm vui, vừa nghĩ tới đã không nhịn được nhếch miệng này càng ngày càng không buồn cười. Sư phụ ngày qua ngày, năm qua năm về tháng không về quê, Bùi Tiền liền cảm thấy chuyện cười từng rất ấm áp lòng người này càng lúc càng giống một nhà giam khiến nó đau lòng không thôi, khiến nó hầu như muốn thở không nổi, hận không thể một quyền đập nát nó. Lúc trước vượt châu đi xa, từ bỏ ngự phong, lựa chọn đạp sóng bôn tẩu ở trên mặt biển, mỗi lần Bùi Tiền ra quyền thần ý viên mãn, chính là dòng sông thời gian vô hình kia.
+Trong khoảnh khắc ấy, vạn vật lặng ngắt. Tựa hồ trong trời đất chỉ còn một mình Bùi Tiền không bị ràng buộc, có thể cất bước tự do.
 
-Trong nháy mắt, trong tầm mắt vị lão ẩu kia liền mất đi bóng người nữ tử võ phu trẻ tuổi kia.
+Nhưng nàng biết rõ dòng sông thời gian chưa thật sự ngừng trôi. Chẳng qua trong mắt nàng, dòng nước ấy chảy chậm đến lạ.
 
-Quả nhiên là Kim Thân cảnh trong dự liệu?! Người tu đạo cũng tốt, võ phu thuần túy cũng được, cảnh giới tu vi có thể che giấu, duy chỉ có chuyện tuổi tác, chỉ cần cảnh giới không quá chênh lệch, quan sát căn cốt, vẫn có thể đại khái nhìn ra tuổi tác, cô gái kia rõ ràng sẽ không vượt qua ba mươi tuổi, chẳng lẽ thật sự là một vị đệ tử đời thứ ba nào đó của Lôi Công miếu Phái A Hương nhất mạch mới thu nhận? Bằng không trong thiên tài võ phu trẻ tuổi nhất của Ngai Ngai châu, cũng không có nhân vật như vậy! Ở Ngai Ngai châu, chỉ cần là võ phu Kim Thân cảnh từ bốn mươi tuổi trở xuống, mỗi người đều có thanh danh lớn hơn trời, Lưu thần tài có một câu lưu truyền rộng rãi, đáng tiếc ta không thể dùng tiền thần tiên để đập ra võ vận.
+Càng gần thân nàng, dòng thời gian từ bốn phương tám hướng càng trở nên tĩnh lặng.
 
-Dưới tình thế cấp bách, bà lão xoay người một cái, cái bao tải to sau lưng bỗng nhiên căng ra, bảo vệ thân hình bà lão.
+Từ khi một mình luyện quyền, nghĩ kỹ lại, nàng chỉ có một việc muốn làm. Nàng muốn thử khiến dòng sông thời gian lặng như ngừng chảy, để thân tâm mình được tự do xuất quyền giữa trời đất. Võ phu trong thiên hạ, bất kể ai đến hỏi quyền, đứng trước mặt ta, ngươi cũng phải chậm hơn ta vô số lần!
 
-Nổ vang một tiếng, sau lưng như bị búa tạ đập trúng, một quyền nọ trúng sau lưng lão ẩu bị bao tải bảo vệ, gió tuyết trong phạm vi mấy chục trượng theo đó chấn vỡ.
+Dĩ nhiên, sư phụ là ngoại lệ. Bùi Tiền luyện quyền chỉ để đuổi theo sư phụ. Nàng chưa từng dám mong quyền pháp của mình có ngày sánh vai với người.
 
-Đưa lưng về phía bà lão xuất quyền kia, không hề có lực hoàn thủ, chỉ có thể hai chân rời mặt đất, ầm ầm lao ra, thẳng tắp một đường, căn bản không cho bà lão cơ hội tránh né thay đổi quỹ tích, đủ để thấy phân lượng của một quyền kia nặng như thế nào.
+Năm ấy du lịch Kiếm Khí Trường Thành, sư phụ từng nói một câu rất lạ. Người bảo muốn học môn thần thông này từ đại đệ tử khai sơn.
 
-Cùng lúc đó, lão ẩu mơ hồ phát hiện bên người một trận cương phong thổi qua, thân hình mơ hồ phóng qua mình, đi hướng phía trước, sau đó ở ngoài mười mấy trượng, đối phương bước lướt một cái, đột nhiên xoay người, giáp mặt một quyền tới, lão ẩu kinh sợ không thôi, bất chấp cái gì, lấy một viên Kim Đan làm trung khu tiểu thiên địa thân người, quay tròn ở giữa bổn mạng khí phủ bắt đầu xoay tròn, kích động lên vô số tia sáng màu vàng, liên lụy lẫn nhau với ba hồn bảy vía kia, cố gắng ổn định hồn phách chấn động không thôi, lại âm thần xuất khiếu đi xa, một cái lui về phía sau phiêu đãng, rời khỏi thân thể, mang theo hai vật bản mạng công phạt, muốn thi triển thuật pháp thần thông, khiến tiểu cô nương ra quyền tàn nhẫn không đến mức quá mức càn rỡ.
+Sư phụ kể chuyện cười cũng thú vị thật.
 
-Vật bản mạng còn lại lưu ở trong thân thể, bị viên kim đan kia khống chế, nhất thời toả sáng hào quang, ở xung quanh lão ẩu bỗng dưng xuất hiện một đạo trận pháp sơn thủy huyền ảo vô cùng, thế mà lại là một tòa đình đài các các do vô số sợi bạc trắng dựng thành, óng ánh long lanh, tựa như một tiên cảnh lưu ly, mà lầu các tiên phủ nhỏ bé này, một chỗ nóc nhà đỉnh, lại có một vị lão ẩu Nguyên Anh cao ngón cái tọa trấn ở trên đó, hai tay bấm quyết, không ngừng hấp thu thủy vận tuyết rơi lớn trong thiên địa, củng cố trận pháp.
+Có đời nào sư phụ lại học đệ tử?
 
-Kết quả lão ẩu trận địa sẵn sàng đón quân địch, lại không đợi được quyền thứ hai khí thế kinh người kia.
+Trước kia, Bùi Tiền thường lén vui vì câu nói ấy, vừa nghĩ đến đã không nhịn được nhếch miệng cười. Nhưng về sau, nàng càng lúc càng chẳng cười nổi. Sư phụ ngày qua ngày, năm qua năm vẫn chẳng về quê, câu nói từng làm lòng nàng ấm lên dần hóa thành một cái lồng nhốt nàng đến đau lòng, gần như chẳng thở nổi. Nàng chỉ hận không thể đập nát cái lồng ấy bằng một quyền.
 
-Một người tập võ, vậy mà vê phù, súc địa sơn hà, trong nháy mắt không thấy tung tích.
+Trước đó, trên đường vượt biển sang châu khác, nàng bỏ ngự gió, chọn đạp sóng chạy trên mặt biển. Mỗi lần xuất quyền với thần ý viên mãn, thứ nàng đánh vào chính là dòng sông thời gian vô hình kia.
 
-Đạo nhân chân trần khoác hạc khăn vấn cầm cành mai kia, vốn dĩ thừa dịp bên kia đánh sống đánh chết, muốn lấy một vị Luyện khí sĩ khai đao, giải buồn, hai ngón tay kẹp một đóa hoa mai, vừa muốn nhẹ nhàng ném về phía một người.
+Chớp mắt một cái, bóng nữ tử võ phu trẻ tuổi đã biến mất trước mặt bà lão.
 
-Về phần nữ tử trẻ tuổi thân phận không rõ kia, hắn đại khái nhìn ra sâu cạn, là Kim Thân cảnh rèn luyện thể phách tương đối không tầm thường. Hiếm thấy, nhưng so với Liễu Tuế Dư Viễn Du cảnh năm đó, vẫn kém hơn không ít.
+Quả nhiên là Kim Thân cảnh như bà dự liệu ư? Dù là tu sĩ hay võ phu thuần túy, có thể che cảnh giới, chứ tuổi tác thì khó giấu. Chỉ cần cảnh giới đôi bên không quá cách biệt, nhìn căn cốt vẫn đoán được đại khái. Nữ tử kia rõ ràng chưa quá ba mươi. Chẳng lẽ thật là đệ tử đời thứ ba mà dòng Bái A Hương mới thu ở miếu Lôi Công? Đám võ phu trẻ tuổi có thiên tư cao nhất Ngai Ngai châu làm gì có người thế này!
 
-Nào ngờ đạo nhân chân trần vừa mới hoàn toàn yên tâm, cảm thấy không ổn, một người căng thẳng, pháp bào Hạc Hống trên người tỏa ra bạch quang, vừa muốn thi triển độn pháp rời đi.
+Ở Ngai Ngai châu, võ phu dưới bốn mươi tuổi đã đạt Kim Thân cảnh thì ai nấy đều danh tiếng ngất trời. Lưu thần tài có một câu lưu truyền khắp nơi: “Đáng tiếc, tiền thần tiên của ta chẳng ném ra được võ vận.”
 
-Không biết vì sao một con hạc cương đã bắt đầu tỏa hào quang ra bốn phía lại bị mạnh mẽ thu về nguyên hình, tựa như bông tuyết bị người ta bóp thành quả cầu tuyết, vị tu sĩ ma đạo tự xưng Thu Thủy đạo nhân này, vì thế khó hiểu một lần nữa hiện thân, giống như con ngỗng ngốc đứng nguyên tại chỗ, cứng rắn chịu một quyền của nữ tử kia.
+Bà lão vội xoay người. Cái bao tải lớn sau lưng bỗng căng phồng lên, che lấy thân bà.
 
-Bùi Tiền cũng là một quyền sau đó thu quyền.
+Một tiếng nổ vang. Quyền đập vào cái bao sau lưng bà, nặng như búa tạ. Gió tuyết trong mấy chục trượng theo đó vỡ tan.
 
-Thu Thủy đạo nhân thân hãm trong hố tuyết lớn, ngồi dưới đất, há mồm hút một cái, nuốt tất cả hoa mai vào trong miệng, thất khiếu chảy máu thê thảm, thoáng qua biến mất.
+Bà lão bị đánh từ phía sau, chẳng có sức đánh trả. Hai chân rời đất, cả người bắn thẳng về phía trước. Bà còn chẳng có cách xoay mình chệch khỏi đường ấy, đủ biết một quyền kia nặng đến chừng nào.
 
-Đứng lên, chấn động rớt xuống vụn tuyết, hắn chân trần đi ra hố to, hướng nơi xa chắp tay, miệng hô chủ nhân.
+Ngay lúc ấy, một luồng cương phong sượt qua bên người bà. Bà chỉ kịp thấy một bóng mờ vượt lên, lướt đến ngoài mười mấy trượng, bỗng xoay người tung một quyền thẳng mặt bà.
 
-Bùi Tiền đưa tay chộp một cái, điều khiển cây Hành Sơn trượng nơi xa kia vào tay.
+Bà lão kinh hãi, chẳng còn kịp nghĩ gì khác. Viên Kim Đan, vốn là đầu mối trong tiểu thiên địa của thân thể, xoay tít trong khí phủ bản mạng. Vô số tia sáng vàng quấn lấy ba hồn bảy vía, cố giữ cho hồn phách khỏi chấn động. Âm thần của bà thoát xác, lùi về phía sau, mang theo hai món bản mạng dùng để công phạt. Bà định thi triển thuật pháp thần thông, ít ra cũng khiến tiểu cô nương ra quyền tàn nhẫn kia phải kiêng dè.
 
-Đối mặt lão ẩu cùng đạo nhân chân trần, Bùi Tiền đều chưa sử dụng Thần Nhân Lôi Cổ Thức.
+Món bản mạng còn lại trong thân thể được Kim Đan thúc động, bỗng tỏa sáng. Một trận pháp sơn thủy huyền ảo hiện ra quanh bà. Vô số sợi bạc đan thành đình đài, lầu các trong suốt, tựa một tiên cảnh lưu ly. Trên một nóc lầu trong tiên phủ bé xíu ấy, Nguyên Anh của bà lão chỉ cao bằng ngón cái ngồi trấn giữ, hai tay bấm quyết, không ngừng dẫn thủy vận của tuyết rơi trong trời đất về củng cố trận pháp.
 
-Bởi vì địch nhân chân chính, không phải hai vị này.
+Bà lão dàn trận chờ địch, vậy mà quyền thứ hai với khí thế kinh người ấy mãi chẳng tới.
 
-Một khi dốc sức xuất quyền, đánh giết một người trong đó, chỉ là chuyện vô bổ, ngược lại sẽ khiến bản thân chân chính đặt mình vào hiểm cảnh.
+Một kẻ tập võ lại kẹp phù giữa hai ngón tay, thi triển phép súc địa, chớp mắt chẳng thấy bóng dáng đâu.
 
-Thậm chí nàng còn phát hiện bóng dáng kia sớm hơn so với bà lão và Thu Thủy đạo nhân.
+Đạo nhân chân trần khoác áo lông hạc, tay cầm cành mai, vốn định nhân lúc bên kia đánh sống đánh chết mà giết một luyện khí sĩ cho đỡ buồn. Hai ngón tay hắn kẹp một đóa mai, vừa định ném về phía một người trong đám tu sĩ.
 
-Ở phía xa, có một vị công tử ca trẻ tuổi đứng trên sư tử trắng như tuyết, trên mặt luôn mang ý cười, bàng quan quan chiến trường.
+Về phần nữ tử trẻ tuổi lai lịch bất minh kia, hắn đã nhìn ra ít nhiều. Nàng là võ phu Kim Thân cảnh, thể phách rèn rất vững. Giỏi thì hiếm thấy thật, nhưng vẫn kém xa Liễu Tuế Dư lúc còn ở Viễn Du cảnh.
 
-Ngai Ngai châu Băng Nguyên Nam cảnh chi chủ Ngai Ngai châu. Ngọc Phác cảnh Yêu tộc, tế liễu.
+Nào ngờ hắn vừa yên tâm đã thấy không ổn. Toàn thân căng lên, pháp bào Hạc Hống [?] tỏa ánh sáng trắng. Hắn đang định dùng độn pháp thoát đi.
 
-Bùi Tiền không cảm thấy một vị Ngọc Phác cảnh, chính là đại yêu gì.
+Chẳng biết vì sao, con hạc bằng cương khí vừa tỏa sáng đã bị ép thu về nguyên dạng, tựa một nắm tuyết bị bóp thành viên tròn. Vị tu sĩ ma đạo tự xưng Thu Thủy đạo nhân cứ thế hiện nguyên hình, ngây ra tại chỗ như một con ngỗng, đành cứng người chịu một quyền của nữ tử.
 
-Bởi vì nàng từng đi Kiếm Khí Trường Thành.
+Bùi Tiền đánh đúng một quyền rồi thu tay.
 
-Sư tử trắng như tuyết chợt hiện thân, xuất hiện bên cạnh bà lão kia, tế liễu kia không che giấu vẻ mặt hiếu kỳ của mình chút nào, đánh giá vị nữ tử trẻ tuổi rất có khả năng là Viễn Du cảnh kia, mỉm cười nói: "Thứ nhất, những yêu vật Băng Nguyên chúng ta không thể lộ ra ngoài ánh sáng này, hầu như không chủ động xuôi nam tàn sát bừa bãi gây họa. Thứ hai ngươi là người qua đường khó tuân thủ quy củ, ta sẽ không làm khó ngươi. Cho nên hai bên chúng ta không cần thiết phải huyên náo quá cứng ngắc, chỉ cần ngươi nguyện ý rời khỏi, đem đám người này giao cho Thu Thủy đạo hữu xử trí, coi như thanh toán xong."
+Thu Thủy đạo nhân ngồi dưới đáy hố tuyết lớn, há miệng hút hết chỗ hoa mai vào bụng. Vừa rồi hắn còn thê thảm đến nỗi thất khiếu chảy máu, chớp mắt đã chẳng thấy dấu máu nữa.
 
-Tế Liễu lại cười nói: "Đương nhiên, còn có một lựa chọn, chính là đám thần tiên lão gia này đều có thể rời khỏi, để một mình ngươi ở lại, như vậy bọn họ có thể sống, chỉ là cô nương ngươi sẽ trở thành thượng khách của Tế Liễu ta. Cô nương cũng tốt, sáu người này cũng thế, dù sao cũng phải có một bên muốn lưu lại thưởng tuyết với ta."
+Hắn đứng dậy, giũ bớt tuyết vụn, đi chân trần ra khỏi hố. Sau đó, hắn chắp tay về phía xa, gọi một tiếng “chủ nhân”.
 
-Tế Liễu ném cho Thu Thủy đạo nhân một ánh mắt, Thu Thủy đạo nhân lập tức nhường đường.
+Bùi Tiền đưa tay chộp, cây gậy leo núi phía xa lập tức bay vào tay nàng.
 
-Bà lão cười nói: "Chủ nhân nhà ta luôn nói lời giữ lời, các ngươi tự mình cân nhắc một chút."
+Đối phó với bà lão và đạo nhân chân trần, nàng vẫn chưa dùng Thần Nhân Lôi Cổ Thức.
 
-Nam cảnh tế liễu, con đại yêu này xác thực nói là làm.
+Kẻ địch thật sự chưa phải hai người ấy.
 
-Cho nên đám Luyện khí sĩ kia đều lấy tiếng lòng trao đổi, sau đó hầu như đồng thời quyết đoán rút lui về phía nam.
+Nếu dốc sức xuất quyền, có đánh chết một kẻ cũng chẳng ích gì, còn khiến mình thật sự rơi vào hiểm cảnh.
 
-Cuối cùng để lại cô gái võ phu trẻ tuổi kia.
+Nàng thậm chí đã phát hiện ra bóng dáng kia trước cả bà lão và Thu Thủy đạo nhân.
 
-Tế Liễu cười nói: "Thay những thứ mặt hàng bẩn thỉu không nói nghĩa khí này ra quyền, cứng rắn đánh ra con đường sống, làm hại mình thân hãm tuyệt cảnh, cô nương có phải không đáng giá hay không?"
+Phía xa có một công tử trẻ tuổi đứng trên lưng sư tử trắng như tuyết, trên mặt luôn mang ý cười, khoanh tay nhìn trận đánh.
 
-Bùi Tiền đi đến bên cạnh hòm trúc, lắc đầu nói: "Quyền ra là của mình."
+Đó là chủ nhân Nam cảnh băng nguyên Ngai Ngai châu, yêu tộc Ngọc Phác cảnh, Tế Liễu.
 
-Đặt gậy leo núi lên trên hòm trúc, chậm rãi cuốn hai tay áo lên. Xem ra trận này có đánh.
+Bùi Tiền chẳng thấy Ngọc Phác cảnh đã đủ gọi là đại yêu.
+
+Nàng từng tới Kiếm Khí Trường Thành.
+
+Sư tử trắng đột nhiên hiện thân bên cạnh bà lão. Tế Liễu chẳng buồn giấu vẻ hiếu kỳ, quan sát nữ tử trẻ tuổi rất có thể đã là võ phu Viễn Du cảnh, mỉm cười nói:
+
+“Thứ nhất, yêu vật băng nguyên chúng ta tuy chẳng thể lộ mặt ngoài ánh sáng, nhưng hầu như chưa bao giờ chủ động xuôi nam giết chóc gây họa. Thứ hai, ngươi chỉ là người qua đường, khó lòng biết hết quy củ nơi đây [?], ta cũng chẳng muốn làm khó ngươi. Đôi bên việc gì phải làm căng. Chỉ cần ngươi chịu rời đi, giao mấy người này cho Thu Thủy đạo hữu xử trí, chuyện hôm nay coi như xong.”
+
+Tế Liễu cười nói tiếp: “Dĩ nhiên còn một cách. Các vị thần tiên lão gia này đều có thể đi, chỉ để mình ngươi ở lại. Họ giữ được mạng, còn cô nương sẽ thành thượng khách của Tế Liễu ta. Cô nương hay sáu người bọn họ, thế nào cũng phải có một bên ở lại ngắm tuyết với ta.”
+
+Tế Liễu liếc Thu Thủy đạo nhân. Hắn lập tức tránh sang một bên, nhường đường.
+
+Bà lão cười nói: “Chủ nhân nhà ta xưa nay nói lời giữ lời. Các ngươi tự cân nhắc đi.”
+
+Vị đại yêu Tế Liễu ở Nam cảnh quả thật đã nói thì làm.
+
+Đám luyện khí sĩ dùng tiếng lòng trao đổi. Gần như cùng một lúc, tất cả quyết đoán rút về phía nam.
+
+Cuối cùng, chỉ còn nữ tử võ phu trẻ tuổi ở lại.
+
+Tế Liễu cười hỏi: “Ra quyền vì đám người bẩn thỉu chẳng biết nghĩa khí, đánh cho họ một con đường sống rồi để mình rơi vào tuyệt cảnh. Cô nương thấy có đáng không?”
+
+Bùi Tiền đi đến bên hòm trúc, lắc đầu: “Quyền do ta xuất.”
+
+Nàng đặt gậy lên hòm trúc, chậm rãi xắn cả hai tay áo. Xem ra còn một trận phải đánh.
 
 Tốt lắm.
 
-Nàng cầu còn không được.
+Nàng cầu còn chẳng được.
 
-Thế nhưng mà Tế Liễu kia lại tiếp tục cười hỏi: "Không nói đến mấy trận chém giết trên đường nam hạ lúc trước, những thứ đó đều là đạo lý rõ ràng, nhưng hôm nay ngươi vì những Luyện khí sĩ này ra quyền giết yêu, liền đúng không?"
+Tế Liễu vẫn cười, hỏi tiếp: “Mấy trận trên đường xuôi nam thì thôi, mỗi trận đều có lý lẽ rõ ràng. Nhưng hôm nay ngươi vì những luyện khí sĩ này mà ra quyền giết yêu, làm vậy cũng đúng sao?”
 
-Bùi Tiền vẫn lắc đầu, nói: "Ta không giết nó. Tin hay không đều do Tế Liễu tiền bối."
+Bùi Tiền lại lắc đầu: “Ta chẳng giết nó. Tin hay không tùy Tế Liễu tiền bối.”
 
-Nếu đối phương đã bằng lòng phân rõ phải trái, cho dù chỉ là tạm thời, như vậy Bùi Tiền nguyện ý nói thêm vài câu.
+Đối phương đã chịu phân phải trái, dù chỉ nhất thời, nàng cũng bằng lòng nói thêm vài câu.
 
-Tế Liễu sửng sốt một chút, quay đầu nhìn về phía bà lão, vẻ mặt bà lão thoáng xấu hổ, "Hồi bẩm chủ nhân, tiểu cô nương này chỉ một quyền đánh chạy."
+Tế Liễu hơi sững người, quay sang nhìn bà lão. Bà lão thoáng ngượng ngùng: “Bẩm chủ nhân, tiểu cô nương chỉ đánh nó chạy bằng một quyền.”
 
-Con Kim Đan Yêu tộc đuổi giết Luyện Khí sĩ lúc trước, tên là Hoa.
+Con yêu tộc Kim Đan đuổi giết đám luyện khí sĩ lúc trước tên là Hoa.
 
-Nó chỉ là bị nữ tử vũ phu một quyền làm bị thương, lại quả thực bị dọa vỡ mật, lầm tưởng là cửu cảnh võ phu Liễu Tuế Dư sư muội hoặc là đích truyền đệ tử, lập tức đã chạy xa mấy trăm dặm.
+Nó trúng một quyền bị thương, lại sợ đến vỡ mật, tưởng nữ tử là sư muội hoặc đệ tử đích truyền của võ phu cửu cảnh Liễu Tuế Dư, liền chạy một mạch xa mấy trăm dặm.
 
-Mà cành liễu nhỏ của đại yêu là bị quyền ý của Bùi Tiền hấp dẫn mà đến, cho nên mới lầm tưởng hoa đã bị đánh giết ở nơi nào đó.
+Tế Liễu bị quyền ý của Bùi Tiền thu hút mà đến, còn tưởng đâu nàng đã giết Hoa ở chỗ nào đó.
 
-Liễu nhỏ càng thêm tò mò, "Tiểu cô nương sư xuất môn gì? Ngươi đây cũng không phải là tác phong võ phu nhất mạch của A Hương miếu Lôi Công."
+Hắn càng thêm tò mò: “Tiểu cô nương, ngươi xuất thân từ môn phái nào? Cách ngươi hành sự chẳng giống võ phu dòng A Hương ở miếu Lôi Công.”
 
-Về phần kính xưng "Tế Liễu tiền bối" của đối phương, càng làm cho vị đại yêu Ngọc Phác cảnh đứng ở trên lưng sư tử trắng như tuyết này cảm thấy buồn cười gấp bội, càng là ngoài ý muốn.
+Riêng tiếng “Tế Liễu tiền bối” cũng đã khiến vị đại yêu Ngọc Phác cảnh đứng trên lưng sư tử trắng ấy thấy vừa buồn cười vừa ngoài ý muốn.
 
-Bùi Tiền do dự một phen, vẫn lắc đầu.
+Bùi Tiền ngần ngừ một lúc, vẫn lắc đầu.
 
-Tế Liễu có chút do dự, sau đó đưa tay đỡ lấy mi tâm, đau đầu không thôi.
+Tế Liễu cũng do dự. Hắn đưa tay day giữa hai đầu mày, đau đầu không thôi.
 
-Hôm nay rốt cuộc là chuyện gì xảy ra, đầu tiên là một tiểu cô nương rất giảng đạo lý, hết lần này tới lần khác cảnh giới võ học rất không giảng đạo lý, chỉ cần hai người thiếu một, vậy tế liễu căn bản không cần do dự.
+Hôm nay rốt cuộc là ngày gì? Trước hết gặp một tiểu cô nương rất chịu nói lý, cảnh giới võ học thì lại cao đến chẳng nói lý chút nào. Thiếu một trong hai chuyện ấy, Tế Liễu đâu cần do dự.
 
-Sau đó lại tới một vị nữ tử khiến sống lưng tế liễu hơi lạnh, để tế liễu kiêng kị như thế, đương nhiên là Kiếm Tiên không thể nghi ngờ.
+Sau đó lại có một nữ tử đến, làm hắn lạnh sống lưng. Người khiến hắn kiêng dè đến thế, dĩ nhiên là kiếm tiên.
 
-Bắc Câu Lô Châu kiếm tiên, so với cái gì cũng hiếm lạ hơn.
+Kiếm tiên từ Bắc Câu Lô Châu chạy sang đây còn hiếm hơn bất cứ thứ gì. Đối phương lại là nữ tử. Tế Liễu vì thế đoán được ít nhiều. Hẳn là Tạ Tùng Hoa, vị kiếm tiên quê ở Ngai Ngai châu.
 
-Hơn nữa đối phương lại là nữ tử, liễu nhỏ đại khái xác định thân phận của nàng, một kiếm tiên Ngai Ngai châu nơi quê nhà, Tạ Tùng Hoa.
+Nghe nói Tạ Tùng Hoa xuất kiếm có sát lực cực lớn. Đối địch với người khác, xưa nay nàng chỉ cần một kiếm là phân sống chết.
 
-Nghe nói Tạ Tùng Hoa xuất kiếm, sát lực cực lớn, đối địch với người khác, từ trước tới nay chỉ một chiêu kiếm đã phân định sinh tử.
+Tế Liễu kiêng kỵ, song chưa đến nỗi hoảng sợ. Ở Nam cảnh băng nguyên, địa lợi đều nằm trong tay hắn. Đánh thì chắc chắn chẳng đánh lại, vậy cứ tận mắt nhìn phong thái kiếm tiên của bà nương kia rồi hẵng đi.
 
-Tế Liễu sinh lòng kiêng kỵ, nhưng không đến mức quá sợ hãi, thân ở Nam cảnh Băng Nguyên, Tế Liễu chiếm hết địa lợi, đánh thì khẳng định đánh không lại, vậy thì tận mắt nhìn thấy phong thái Kiếm Tiên của bà nương kia rồi lại đi.
+Nữ kiếm tiên đeo hộp trúc sau lưng, ngự kiếm bay tới. Kiếm khí kéo dài phía sau nàng, rạch ra một lối trống không gió cũng không tuyết. Hai bên lối ấy, gió tuyết vẫn phủ kín bầu trời.
 
-Vị nữ tử kiếm tiên lưng đeo hộp trúc kia ngự kiếm mà đến, kiếm khí phía sau nàng gây nên, như là mở ra một con đường trống không gió không tuyết, hai bên gió tuyết mênh mông, vẫn che khuất bầu trời.
+Nàng dừng giữa không trung, lạnh lùng nhìn Tế Liễu, kẻ xưa nay thích lẩn đông trốn tây.
 
-Nàng lơ lửng trên không trung, thần sắc lạnh lùng, quan sát cây liễu nhỏ thích trốn đông trốn tây kia.
+Tạ Tùng Hoa đưa hai đệ tử đích truyền tới đây ôn dưỡng kiếm ý. Nàng để cả hai ở lại thành Đầu Lư phía sau. Hai người lần lượt tên là Triêu Mộ và Cử Hình.
 
-Tạ Tùng Hoa để hai đệ tử đích truyền của Kiếm Ý tới đây ở lại tòa thành Đầu Ly phía sau. Hai vị đích truyền lần lượt tên là triêu mộ, cử hình.
+Vừa rồi, nàng cũng phát hiện động tĩnh khác thường nên ngự kiếm rời thành, định tới xem náo nhiệt.
 
-Lúc trước Tạ Tùng Hoa cũng phát hiện ra điểm lạ ở đây nên mới ngự kiếm rời khỏi thành, định chạy tới góp vui.
+Ngoài Tạ Tùng Hoa thu đệ tử ở đất khách, Ly Thải ở Phù Bình Kiếm Hồ, Bắc Câu Lô Châu, cũng từng đưa hai mầm mống kiếm tiên rời khỏi Kiếm Khí Trường Thành. Một người tên Trần Lý, người kia tên Cao Ấu Thanh.
 
-Trừ vị Tạ Tùng Hoa thu đệ tử ở tha hương này, thật ra Phù Bình Kiếm Hồ Bắc Câu Lô Châu, Trử Thải kia cũng mang theo hai kiếm tiên phôi tử rời khỏi Kiếm Khí Trường Thành, Trần Lý, Cao Ấu Thanh.
+Nữ kiếm tiên Tống Sính cũng thu hai đứa trẻ làm đệ tử đích truyền. Cả hai đều là tiểu cô nương, tên Tôn Tảo và Kim Loan.
 
-Về phần Tống Sính cũng là nữ Kiếm Tiên Kiếm Tiên, cũng thu hai đứa nhỏ làm đệ tử đích truyền, nhưng đều là tiểu nữ hài, Tôn Tảo. Kim Loan.
+Còn Bồ Hòa ở Lưu Hà châu, vốn đã rớt xuống Nguyên Anh cảnh tại Kiếm Khí Trường Thành, khi rời đi cũng mang theo một đôi thiếu niên, thiếu nữ. Thiếu niên tên Dã Độ, thiếu nữ tên Tuyết Chu.
 
-Về phần Bồ Hòa ở Kiếm Khí Trường Thành ngã cảnh đến Nguyên Anh ở Lưu Hà Châu, thì từ Kiếm Khí Trường Thành mang đi một đôi thiếu niên thiếu nữ, thiếu niên đi ngang qua, thiếu nữ tuyết thuyền.
+Sau khi trở lại Hạo Nhiên Thiên Hạ, Tạ Tùng Hoa lần lượt dùng phi kiếm truyền thư vượt châu với Ly Thải, Tống Sính và Bồ Hòa. Bốn người hẹn một giáp sau gặp lại.
 
-Sau khi Tạ Tùng Hoa quay về Hạo Nhiên Thiên Hạ, trước sau cùng Triều Thải, Tống Sính, Bồ Hòa, đều có phi kiếm vượt châu truyền tin, từng có ước định hẹn một giáp gặp mặt lẫn nhau.
+Dĩ nhiên chẳng phải hẹn so kiếm thuật cao thấp. So như vậy chẳng có gì thú vị. Nhất là Ly Thải và Bồ Hòa bị thương quá nặng, đã tổn hại đến căn bản kiếm đạo. Huống hồ sau những trận chém giết liên tiếp ở Kiếm Khí Trường Thành, ngay cả Tạ Tùng Hoa, người lập công lớn nhất trong bốn người, cũng chẳng thấy chút kiếm thuật ấy và cảnh giới lưng chừng của mình có gì đáng khoe. Nàng sánh được với đại kiếm tiên Tả Hữu sao? Lùi một bước mà nói, những kiếm tu sống sót trở về quê nhà như họ có sánh được với Tạ Trĩ, Nguyên Thanh Thục đã chết trận sao? Đều chẳng thể sánh được.
 
-Đương nhiên không phải so kiếm thuật cao thấp của mỗi người, không có gì thú vị, nhất là Ly Thải cùng Bồ Hòa, thụ thương rất nặng, đã thương tổn đến kiếm đạo căn bản, huống chi trải qua chém giết liên tiếp ở Kiếm Khí Trường Thành, ngay cả Tạ Tùng Hoa lập công lớn nhất, cũng căn bản không cảm thấy chút kiếm thuật này của mình, điểm cao không được mà thấp không xong cảnh giới nát bét, có bất cứ địa phương nào đáng giá khoe khoang, có thể so sánh với đại kiếm tiên Tả Hữu sao? Lại lui một bước, bọn họ những kiếm tu còn sống trở về quê nhà, có thể so với những kiếm tu Tạ Trĩ, Nguyên Thanh Thục chết trận này sao? Đều không thể so sánh.
+Bởi vậy, bốn vị kiếm tiên chỉ hẹn so bản lĩnh truyền kiếm thuật cho đệ tử đích truyền. Chừng sáu mươi năm sau, ba người Tạ Tùng Hoa sẽ dẫn đệ tử của mình đến gặp Ly Thải ở Bắc Câu Lô Châu.
 
-Đã như vậy, so bốn vị Kiếm Tiên chính là bản lĩnh truyền thụ kiếm thuật cho đệ tử đích truyền, ước chừng sáu mươi năm sau, đến lúc đó ba người Tạ Tùng Hoa sẽ mang theo đệ tử của mình đi Bắc Câu Lô Châu chỗ Trử Thải.
+Tạ Tùng Hoa nhìn thấy bên chân nữ tử trẻ tuổi có một hòm trúc và một cây gậy leo núi.
 
-Tạ Tùng Hoa nhìn thấy bên chân cô gái trẻ tuổi đặt một rương trúc, cây gậy leo núi.
+Nàng định lên tiếng, rồi lại thôi.
 
-Tạ Tùng Hoa muốn nói lại thôi.
+Năm ấy ở Kiếm Khí Trường Thành, nàng từng nghe nói đệ tử của vị Ẩn Quan trẻ tuổi đều có dáng vẻ ấy. Chẳng qua người trước mặt chắc chắn chẳng phải Quách Trúc Tửu của Kiếm Khí Trường Thành. Nàng còn nhớ có một tiểu cô nương họ Bùi từ nơi khác đến, người bé tẹo. Dù đã qua mấy năm, cũng khó mà giống nữ tử trẻ tuổi đang đứng giữa tuyết kia.
 
-Năm đó ở Kiếm Khí Trường Thành, ngược lại nghe nói đệ tử của Ẩn Quan trẻ tuổi, hình như đều là bộ dáng này. Chẳng qua nữ tử trước mắt, khẳng định không phải Quách Trúc Tửu của Kiếm Khí Trường Thành, nhớ rõ còn có tiểu cô nương họ Bùi bên ngoài, người thì nho nhỏ, cho dù mấy năm qua đi, cũng không giống với cô gái trẻ tuổi khi tuyết rơi kia.
+Trên băng nguyên Ngai Ngai châu đến chim cũng chẳng buồn ỉa, làm gì có chuyện trùng hợp đến nỗi gặp được người có liên quan tới vị Ẩn Quan trẻ tuổi?
 
-Quả thật nào có trùng hợp như vậy, tại băng nguyên Ngai Ngai châu chim không thèm ỉa này, còn có thể đụng phải người có liên quan tới ẩn quan trẻ tuổi kia.
+Ngay sau đó, nữ tử trẻ tuổi ngẩng đầu, tụ âm thành tuyến, hỏi bằng lời của Kiếm Khí Trường Thành: “Là Tạ kiếm tiên ư?”
 
-Sau đó chỉ thấy cô gái trẻ tuổi ngẩng đầu, tụ âm thành tuyến, lấy lời của Kiếm Khí Trường Thành hỏi: "Là Tạ Kiếm Tiên?"
+Tạ Tùng Hoa lập tức ngự kiếm hạ xuống. Trường kiếm tự trở về vỏ trúc. Nàng cười nói: “Đúng là ngươi rồi. Tên Bùi... gì ấy nhỉ?”
 
-Tạ Tùng Hoa lập tức điều khiển kiếm hạ xuống, trường kiếm tự chui vào vỏ trúc, cười nói: "Đúng là ngươi, tên là Bùi... cái gì ấy?"
+Bùi Tiền ôm quyền, cười rạng rỡ: “Vãn bối Bùi Tiền!”
 
-Bùi Tiền ôm quyền, cười rạng rỡ, "Vãn bối Bùi Tiền!"
+Vẻ mặt Tạ Tùng Hoa lập tức dịu đi mấy phần. Nàng nhìn kỹ Bùi Tiền, nhẹ giọng nói: “Tốt lắm. Không hổ là đại đệ tử khai sơn của Ẩn Quan đại nhân nhà chúng ta. Tốt lắm.”
 
-Vẻ mặt Tạ Tùng Hoa lập tức ôn hòa thêm vài phần, quan sát tỉ mỉ Bùi Tiền, nhẹ giọng nói: "Tốt lắm, không hổ là đại đệ tử khai sơn của Ẩn Quan đại nhân chúng ta, không tệ không tệ."
+Tạ Tùng Hoa hất cằm về phía Tế Liễu: “Sao thế, bị bắt nạt à? Dễ thôi. Chờ ta xuất kiếm rồi chúng ta cùng về thành Đầu Lư.”
 
-Tạ Tùng Hoa hất cằm, chỉ vào cây liễu nhỏ: "Sao nào, bị bắt nạt à? Dễ thôi, chờ sau khi ta xuất kiếm, cùng đi tới Đầu Lư Thành."
+Bùi Tiền vò đầu: “Vãn bối vừa học theo sư phụ, đang nói phải trái với Tế Liễu tiền bối.”
 
-Bùi Tiền vò đầu nói: "Mới vừa học sư phụ ta, đang phân rõ phải trái với Tế Liễu tiền bối."
+Tế Liễu đành gật đầu: “Đúng là như vậy.”
 
-Tế Liễu có chút bất đắc dĩ, gật đầu nói: "Đúng là như thế."
+Tạ Tùng Hoa nói: “Nếu đã thế, sau này ta sẽ vòng qua Nam cảnh, khỏi tới gây chuyện với ngươi.”
 
-Tạ Tùng Hoa nói: "Nếu đã vậy, sau này ta sẽ vòng qua Nam cảnh, không gây chuyện với ngươi nữa."
+Nàng gạt Tế Liễu sang một bên rồi cầm giúp gậy leo núi và hòm trúc. Bùi Tiền đón lấy gậy, đeo hòm sách lại sau lưng.
 
-Sau đó Tạ Tùng Hoa gạt cành liễu nhỏ qua một bên, giúp đỡ cầm lấy Hành Sơn trượng và hòm trúc, Bùi Tiền tiếp nhận gậy trúc, một lần nữa mang hòm sách vác ở sau người.
+Tạ Tùng Hoa dùng tiếng lòng hỏi: “Ngươi đã nghe tin lớn vừa truyền ra chưa? Có liên quan tới sư phụ ngươi.”
 
-Tạ Tùng Hoa dùng tiếng lòng nói: "Nghe nói chưa từng nghe một tin tức lớn? Có liên quan tới sư phụ ngươi, vừa rồi không truyền ra bao lâu."
+Bùi Tiền mở to mắt: “Tin gì vậy?”
 
-Bùi Tiền trợn to mắt, "Tin tức gì?!"
+Tế Liễu nhìn hai bóng người một lớn một nhỏ đi thẳng về phía xa, lắc đầu. Thế này là chuyện gì chứ?
 
-Tế Liễu nhìn thân ảnh một lớn một nhỏ trực tiếp đi xa kia, lắc đầu, đây là chuyện gì.
+Tạ Tùng Hoa nói: “Chẳng biết ai là người lên tiếng đầu tiên, chọn ra mười người trẻ tuổi trong mấy tòa thiên hạ.”
 
-Tạ Tùng Hoa nói: "Không biết ai đưa ra một lời giải thích đầu tiên, bình chọn ra mười người trẻ tuổi trong thiên hạ."
+Mắt Bùi Tiền sáng lên: “Sư phụ ta đứng thứ mấy?”
 
-Bùi Tiền thần thái sáng láng, "Sư phụ ta xếp thứ mấy?"
+Tạ Tùng Hoa lắc đầu, nhịn cười: “Người ta nói rõ mười người ấy không chia trước sau. Có kiếm tu Ninh Diêu của Phi Thăng thành, võ phu Tào Từ của vương triều Đại Đoan ở Trung Thổ Thần Châu, đạo sĩ Sơn Thanh của Bạch Ngọc Kinh, Phỉ Nhiên đứng đầu Bách Kiếm Tiên của Thác Nguyệt Sơn. Trong mười người ấy không có sư phụ ngươi.”
 
-Tạ Tùng Hoa lắc đầu, nhịn cười: "Nói rõ ràng, mười người không có thứ hạng trước sau, có kiếm tu Phi Thăng thành, Trữ Diêu. Vương triều Đại Đoan của Trung Thổ Thần Châu, võ phu Tào Từ. Bạch Ngọc Kinh, đạo sĩ Sơn Thanh. Đệ nhất Bách Kiếm Tiên của Thác Nguyệt Sơn, Phỉ Nhiên. Sư phụ ngươi không nằm trong số mười người."
+Bùi Tiền chẳng hiểu gì cả. Vậy thì can hệ gì đến sư phụ?
 
-Bùi Tiền không hiểu ra sao. Sao lại có liên quan tới sư phụ?
+Tạ Tùng Hoa xoa đầu nàng, nói: “Rõ ràng bảo là mười người trẻ tuổi, lại nói chẳng có thứ hạng, vậy mà cuối cùng có đến mười một người. Riêng ‘Ẩn Quan’ bị đặt ở vị trí thứ mười một. Sư phụ ngươi cũng là người duy nhất chẳng được nêu tên họ, chỉ được nhắc là võ phu Sơn Điên cảnh, đồng thời là kiếm tu. Cho nên bây giờ tu sĩ trên núi khắp Hạo Nhiên Thiên Hạ đều đang đoán Ẩn Quan ấy rốt cuộc là ai. Những người biết thân phận sư phụ ngươi như ta cũng chẳng muốn nói với họ, cứ mặc họ đoán.”
 
-Tạ Tùng Hoa xoa xoa đầu Bùi Tiền, nói: "Rõ ràng nói là mười người trẻ tuổi, cũng vô danh lần, vô cùng cổ quái, lại xếp hạng mười một người, chỉ xếp "Ẩn quan" vào vị trí thứ mười một, sư phụ của ngươi cũng là người duy nhất không bị chỉ tên nói họ, chỉ nói là võ phu Sơn Điên cảnh, hơn nữa còn là kiếm tu. Cho nên hiện nay tu sĩ trên núi Hạo Nhiên Thiên Hạ đều đang suy đoán ẩn quan này rốt cuộc là ai. Những người biết được thân phận sư phụ ngươi như ta đều không thích nói với người ta như vậy, mặc cho bọn họ đoán là được."
+Bùi Tiền xốc lại hòm trúc, nắm chặt gậy leo núi. Nàng nhìn quanh, bốn phía đều là gió tuyết, vẫn cất cao giọng:
 
-Bùi Tiền xóc hòm trúc, nắm chặt Hành Sơn Trượng trong tay, nhìn quanh bốn phía đều là gió tuyết, nó vẫn lớn tiếng nói: "Là sư phụ ta!"
+“Là sư phụ ta!”

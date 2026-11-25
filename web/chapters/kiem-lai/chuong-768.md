@@ -1,525 +1,659 @@
-# Chương 768: Bùi tiễn lại phá cảnh
+# Chương 768: Bùi Tiền lại phá cảnh
 
-Bên ngoài Lôi Công miếu Mã Hồ phủ, Phái A Hương tán thưởng từ đáy lòng: "Quyền pháp tốt."
+Ngoài miếu Lôi Công ở phủ Mã Hồ, Bái A Hương thật lòng tán thưởng:
 
-Tựa như hai chữ quyền tốt, còn chưa đủ để nói hết diệu dụng của quyền này, Phái A Hương đưa tay nhẹ nhàng v**t v* đầu gối, ánh mắt rạng rỡ, liên tiếp gật đầu, bổ sung: "Chỉ nói quyền pháp kéo dài, quyền ý thêm nặng, ta không quyền khai sơn tổ sư như thế. Thật sự là hảo quyền, hay cho một thác nước treo lên trời, quyền pháp khá cao, nắm tay rơi xuống đất liền rất nặng."
+“Quyền pháp hay lắm.”
 
-Võ phu thế gian mười cảnh, không có một ngọn đèn cạn dầu.
+Hai chữ ấy dường như vẫn chưa nói hết chỗ hay của một quyền này. Hắn đưa tay vuốt nhẹ đầu gối, mắt sáng lên, gật đầu mấy lần rồi nói tiếp:
 
-Có thể khiến một vị võ phu tâm cao khí ngạo, cao diệu từ đáy lòng tôn sùng quyền pháp nhà khác như thế, thật ra tương đối không dễ.
+“Chỉ bàn về cách nối liền quyền thế, chồng thêm quyền ý, ngay cả quyền khai sơn của ta cũng chưa làm được đến thế [?]. Hay cho một ngọn thác treo tận trời! Quyền pháp lên càng cao, đến lúc nắm đấm rơi xuống đất lại càng nặng.”
 
-Thì ra tiểu cô nương tự xưng Bùi Tiền kia cùng một loại quyền ý, thế mà có thể liên tiếp đánh ra mười bảy quyền, đệ tử đắc ý nhất Liễu Tuế Dư trong quyền quyền quyền đánh của Phái A Hương.
+Trong số võ phu thập cảnh trên đời, có ai là hạng dễ đối phó? Muốn một người có cả bản lĩnh lẫn lòng kiêu ngạo như Bái A Hương thật bụng khen quyền pháp nhà khác cũng chẳng dễ.
 
-Thế cho nên Liễu Tuế Dư không thể không đánh gãy phần quyền ý kia, không dám tùy ý Bùi Tiền thêm quyền ý nữa.
+Thì ra cô nương tự xưng Bùi Tiền kia đã nối liền một luồng quyền ý, đánh ra mười bảy quyền liên tiếp. Quyền nào cũng do Liễu Tuế Dư, đệ tử đắc ý nhất của Bái A Hương, đón lấy. Đến cuối cùng, Liễu Tuế Dư buộc phải cắt ngang quyền ý ấy, chẳng dám để Bùi Tiền đánh thêm.
 
-Lưu U Châu tránh ở phía sau Phái A Hương duỗi cổ, nhẹ giọng nói thầm: "Liên tiếp hơn mười quyền, đánh cho Liễu di chỉ có công phu chống đỡ, không hề có lực hoàn thủ, thật sự là quá khoa trương. Cái này nếu truyền đi, cũng không có ai tin."
+Lưu U Châu núp sau lưng Bái A Hương, nghển cổ lẩm bẩm:
 
-Phái A Hương cười mắng: "Ngươi thì biết cái gì, mười bảy quyền này của tiểu cô nương, chỉ tính là một quyền."
+“Hơn mười quyền liền, đánh cho Liễu di chỉ còn sức chống đỡ, chẳng tài nào đánh trả. Chuyện này mà truyền ra ngoài, ai tin cho nổi?”
 
-Trên quảng trường ngoài Lôi Công miếu, quyền cương kích động, một thân quyền ý của Phái A Hương chậm rãi chảy xuôi, lặng yên bảo vệ Lưu U Châu phía sau.
+Bái A Hương cười mắng:
 
-Về phần Liễu ma ma kia thì không có phần đãi ngộ này, cho dù bà lão là cảnh giới Địa Tiên, cho dù đứng xa quan sát quyền, vẫn cảm thấy không khỏe.
+“Ngươi thì biết gì. Mười bảy quyền của tiểu cô nương chỉ tính là một quyền.”
 
-Trên quảng trường bị quyền ý kia liên lụy, ánh sáng khắp nơi vặn vẹo, tối tăm đan xen, đây cũng là một phần dấu hiệu võ phu thuần túy lấy hai nắm đấm lay động thiên địa.
+Trên khoảng sân rộng trước miếu, quyền cương cuồn cuộn. Quyền ý của Bái A Hương chậm rãi tỏa ra, lặng lẽ che chở cho Lưu U Châu ở sau lưng. Liễu ma ma chẳng được chiếu cố như vậy. Dù đã là Địa Tiên, lại đứng tận đằng xa xem quyền, bà vẫn thấy khó chịu.
 
-Liễu ma ma trái lại không lo lắng tuổi dư sẽ thua, Ngai Ngai châu võ phu ngàn ngàn vạn, đương nhiên là Lôi Công miếu Phái A Hương cảnh giới cao nhất, nhưng võ vận một châu, chỉ cần tuổi dư có thể lấy mạnh nhất tễ thân Sơn Điên cảnh, tuổi lại nhiều nhất, Liễu Tuế dư được ba lần mạnh nhất, nói đến cổ quái, dựa theo dấu hiệu võ vận thiên hạ đi lưu lại, Liễu Tuế dư vài lần mất đi giao tình cùng hai chữ mạnh nhất, hình như có liên quan nhiều tới Bảo Bình châu nho nhỏ kia.
+Ánh sáng trên sân bị quyền ý làm cho vặn vẹo, chỗ sáng chỗ tối đan xen. Đó cũng là một dấu hiệu cho thấy hai nắm đấm của võ phu thuần túy có thể lay động trời đất.
 
-Cái này ý nghĩa ngoài Đại Ly Tống Trường Kính, ít nhất còn có hai vị đại tông sư cửu cảnh ẩn nấp trong đó.
+Liễu ma ma lại chẳng lo Liễu Tuế Dư sẽ thua. Ngai Ngai châu có biết bao võ phu, cảnh giới cao nhất đương nhiên là Bái A Hương của miếu Lôi Công. Còn về võ vận một châu, một khi Tuế Dư bước vào Sơn Điên cảnh với danh hiệu mạnh nhất, nàng lại có cái lợi là còn trẻ [?]. Liễu Tuế Dư từng ba lần giành được hai chữ “mạnh nhất”. Kỳ lạ là nếu lần theo dấu vết võ vận trong thiên hạ, mấy lần nàng lỡ mất hai chữ đó dường như đều có liên quan đến Bảo Bình châu nhỏ bé kia.
 
-Lưu U Châu cảm khái ngàn vạn, chậm rãi nói: "Ta từng nghe nói về Lạc Phách Sơn Bảo Bình châu, có quan hệ tâm đầu ý hợp cùng Bắc Nhạc Sơn Quân của Phi Vân Sơn, bến đò Ngưu Giác Sơn làm ăn rất tốt, hôm nay cùng Câu Lô châu Phi Ma tông, Xuân Lộ Phố làm mua bán không nhỏ. Chỉ là chưa từng nghe nói có một cô nương trẻ tuổi quyền pháp thông thiên như vậy, Bảo Bình châu thật sự là một địa bàn cổ quái, địa bàn nhỏ như hạt gạo, luôn làm người ta bất ngờ. Võ phu Tống Trường Kính, kiếm tiên Ngụy Tấn, tu sĩ Mã Khổ Huyền, thật không tệ."
+Nói cách khác, ngoài Tống Trường Kính của Đại Ly, ở đó còn có ít nhất hai vị đại tông sư cửu cảnh chưa lộ diện.
 
-Phái A Hương trêu ghẹo nói: "Hàn cánh tay của tiểu tử ngươi hướng chỗ nào? Coi mình là khuê nữ gả ra ngoài hả?"
+Lưu U Châu chậm rãi cảm thán:
 
-Lưu U Châu kinh ngạc nói: "Liễu di cuối cùng cũng ra quyền rồi!"
+“Ta từng nghe nói núi Lạc Phách ở Bảo Bình châu giao hảo với Bắc Nhạc sơn quân trên núi Phi Vân. Bến đò núi Ngưu Giác làm ăn rất khá, bây giờ còn có mối buôn bán lớn với Phi Ma tông và phố Xuân Lộ ở Bắc Câu Lô châu. Chỉ có vị cô nương trẻ tuổi quyền pháp lợi hại đến vậy là ta chưa từng nghe ai nhắc tới. Bảo Bình châu thật lạ, đất bé bằng hạt gạo mà cứ khiến người ta bất ngờ. Võ phu Tống Trường Kính, kiếm tiên Ngụy Tấn, tu sĩ Mã Khổ Huyền, có ai kém đâu.”
 
-Nghe giọng điệu của ông ta, dường như Liễu Tuế Dư từ đầu tới đuôi không đánh trả nắm đấm mới là bình thường.
+Bái A Hương trêu hắn:
 
-Phái A Hương đành phải kiên nhẫn giải thích cho người hầu cận bên ngoài này: "Tiểu cô nương này vừa là vấn quyền, vừa là khách nhân, mà tuổi tác và cảnh giới còn lại, đều tính là tiền bối đối phương, dựa theo quy củ giang hồ, đương nhiên phải tiếp một quyền trước, cho nên có chút thiệt thòi. Đương nhiên, tiểu cô nương đem một quyền này, mài tới lô hỏa thuần thanh, là căn bản, đối phương quyền tốt, chúng ta nhận. Về phần một quyền này của Tuế Dư, là đại giang Hoành Thức năm đó ta thấy giao long độ giang mà ngộ ra, đương nhiên sẽ không quá kém."
+“Cánh tay ngươi cứ quặt ra ngoài thế hả? Tưởng mình là khuê nữ đã gả sang nhà người ta rồi sao?”
 
-Thực ra đệ tử Liễu Tuế Dư đánh gãy quyền ý của đối phương, một quyền này của Hoành Giang cũng tuyệt không thể tả, được chân truyền của Bái A Hương.
+Lưu U Châu bỗng kêu lên:
 
-Đương nhiên Liễu Tuế Dư thân là Sơn Điên cảnh quyền ý đại viên mãn, cao hơn Bùi Tiền đối phương một cảnh giới, cũng rất quan trọng.
+“Liễu di rốt cuộc cũng ra quyền rồi!”
 
-Bằng không nếu đều là Viễn Du cảnh, nhắm chừng trận quyền này, chỉ bằng một quyền này của Bùi Tiền, hai bên muốn phân ra thắng bại, cũng chỉ có thể dựa vào phân ra sinh tử.
+Nghe giọng hắn, dường như Liễu Tuế Dư cứ chịu đòn từ đầu chí cuối mới là lẽ thường.
 
-Liễu Tuế Dư chẳng những một quyền đánh gãy quyền ý của đối phương, quyền thứ hai càng đập trúng huyệt Thái Dương Bùi Tiền, đánh cho người sau bay ngang ra ngoài hơn mười trượng.
+Bái A Hương đành kiên nhẫn giải thích cho kẻ đứng ngoài xem náo nhiệt:
 
-Bùi Tiền lắc đầu, thân hình lộn ngược ở không trung, một chưởng chống xuống đất, bỗng nhiên nắm chặt đất, nháy mắt dừng lại di chuyển ngang thân hình, lật người về phía sau, trong khoảnh khắc, Liễu Tuế Dư đã xuất hiện ở một bên Bùi Tiền, đánh ra nửa quyền, bởi vì Bùi Tiền chưa xuất hiện ở vị trí dự đoán trước, nếu là Bùi Tiền trúng một quyền này, nhắm chừng quyền hỏi thăm sẽ kết thúc. Một quyền của cửu cảnh đỉnh phong đánh xuống, vãn bối này cần ở Lôi Công miếu nghỉ ngơi một tháng, an tâm dưỡng thương, mới có thể tiếp tục du lịch.
+“Tiểu cô nương đến hỏi quyền, cũng là khách. Tuế Dư hơn nàng cả tuổi tác lẫn cảnh giới, đã là tiền bối thì theo quy củ giang hồ phải đón một quyền trước. Chịu thiệt đôi chút là phải. Đương nhiên, cái chính vẫn là tiểu cô nương đã mài giũa một quyền ấy đến chỗ thuần thục. Quyền của người ta hay thì chúng ta nhận. Còn một quyền Tuế Dư vừa đánh là thức Đại Giang Hoành. Năm xưa ta nhìn giao long vượt sông mà ngộ ra, đương nhiên cũng chẳng kém.”
 
-Liễu Tuế Dư thu hồi nửa đấm kia, nhưng không đuổi theo thân hình Bùi Tiền, mà là ngừng chân tại chỗ, vị nữ tử võ phu Sơn Điên cảnh này trong lòng có chút kinh ngạc, thể phách tiểu cô nương cứng cỏi có chút không ra gì.
+Một quyền Đại Giang Hoành cắt đứt quyền ý đối phương của Liễu Tuế Dư quả có chỗ tuyệt diệu, xứng với chân truyền của Bái A Hương. Song Liễu Tuế Dư đã luyện quyền ý Sơn Điên cảnh đến đại viên mãn, cao hơn Bùi Tiền hẳn một cảnh, chuyện ấy cũng rất quan trọng.
 
-Phái A Hương cười nói: "Nếu như ngươi có thể khiến tiểu cô nương trở thành cung phụng Lưu thị, cha ngươi ít nhất có thể kiếm về một tòa Viên Nhựu Phủ của Đảo Huyền sơn."
+Nếu cả hai đều là Viễn Du cảnh, chỉ riêng một quyền vừa rồi của Bùi Tiền, e rằng muốn phân thắng bại thì phải phân sinh tử trước.
 
-Lưu U Châu lắc đầu nói: "Cha ta từng dặn dò ta, ngàn vạn ngàn vạn lần ngàn vạn đừng dễ dàng buôn bán cùng bạn tốt thật sự, rất dễ dàng làm bạn không được, mua bán khó chết già, như thế nào cũng là thiệt thòi."
+Quyền đầu tiên của Liễu Tuế Dư đánh gãy quyền ý. Quyền thứ hai trúng ngay huyệt thái dương của Bùi Tiền, đánh nàng văng ngang hơn mười trượng.
 
-Lưu thị có tổ huấn, tiền tài trong thiên hạ chia làm hai loại, một loại là tiền thần tiên thật sự, một loại là lòng người.
+Giữa không trung, Bùi Tiền lắc đầu, lộn người, chống một tay xuống đất. Nàng bỗng bấu chặt mặt đất, ghìm lại đà trượt ngang rồi lật người về sau. Chỉ trong chớp mắt, Liễu Tuế Dư đã xuất hiện bên cạnh nàng. Nắm đấm mới đi được nửa đường thì dừng, bởi Bùi Tiền chẳng rơi vào chỗ nàng đoán trước.
 
-Phái A Hương châm chọc nói: "Tiểu cô nương sao lại là bằng hữu của ngươi? Ngươi đã hỏi qua nàng, nàng đáp ứng rồi?"
+Nếu trúng quyền ấy, trận hỏi quyền có lẽ đã kết thúc. Ăn trọn một quyền của võ phu cửu cảnh đỉnh phong, vị vãn bối này phải ở lại miếu Lôi Công yên tâm dưỡng thương một tháng mới đi tiếp được.
 
-Lưu U Châu im lặng không lên tiếng, nhìn nữ tử tuổi không lớn lắm kia, nàng so với Tuyết Hoa tiền hơi hơi đen hơn.
+Liễu Tuế Dư thu nửa quyền về, đứng nguyên tại chỗ, chẳng đuổi theo. Vị nữ võ phu Sơn Điên cảnh cũng phải kinh ngạc. Thể phách của tiểu cô nương này cứng cỏi đến mức khó tin.
 
-Trên không trung, Tạ Tùng Hoa kiếm khí tràn đầy như mây trôi, khiến hai vị đệ tử đích truyền có chỗ đứng. Nâng hộp trúc lên, Triêu Mộ cầm Hành Sơn trượng trong tay, nàng phát hiện cây Lục Trúc trượng này vào tay cực nặng, sư phụ liền giải thích, cây Hành Sơn trượng này thi triển Chướng Nhãn pháp, chất liệu chân thật là tương tự như chất lỏng trong ao, bị người luyện thành hình thức sơn trượng mà thôi. Kết quả Triêu Mộ nói trong Hành Sơn trượng như có từng tia từng luồng kiếm ý thuần túy, sau khi Tạ Tùng Hoa tiếp nhận, cẩn thận cảm thụ mấy phần kiếm ý kia, khẽ thở dài, nói đây là quà tặng của nữ tử Kiếm Tiên Kiếm Khí Trường Thành các ngươi Chu Trừng.
+Bái A Hương cười bảo:
 
-Cử hình hỏi: "Sư phụ, cảnh giới võ học hiện tại của Bùi tỷ tỷ, có thể so sánh với tu sĩ Nguyên Anh không?"
+“Nếu mời được tiểu cô nương về làm cung phụng Lưu thị, cha ngươi ít nhất cũng lời được một tòa Viên Nhựu phủ ở Đảo Huyền sơn.”
 
-Tạ Tùng Hoa nói: "Chỉ cần là kiếm tu, Bùi Tiền đối địch Nguyên Anh cũng có mấy phần thắng."
+Lưu U Châu lắc đầu:
 
-Nhưng vị nữ tử kiếm tiên này rất nhanh sửa lại, "Phần thắng cực lớn mới đúng."
+“Cha ta từng dặn đi dặn lại, chớ dễ dàng làm ăn với bằng hữu thật lòng. Rất dễ mất bằng hữu, mà chuyện làm ăn lại khó được trọn vẹn đến cuối. Tính đằng nào cũng thiệt.”
 
-Bởi vì Bùi Tiền một khi trải qua sinh tử chiến, vô cùng có khả năng phá cảnh lần nữa, đỉnh núi giết Nguyên Anh.
+Tổ huấn Lưu thị nói tiền tài trong thiên hạ có hai loại. Một loại là tiền thần tiên thật sự, loại kia là lòng người.
 
-Bùi Tiền thấy Liễu Tuế Dư thu quyền dừng bước, đành phải theo đó ổn định thân hình lảo đảo. Nó khẽ nhíu mày, tựa như đang kỳ quái vì sao vị Liễu tiền bối này không thừa thắng truy kích, điều này khiến một cú hậu thủ quyền của nó đánh vào khoảng không. Lúc trước một bên huyệt Thái Dương trúng một quyền cực nặng của Liễu Tuế Dư Trầm, đương nhiên không dễ chịu, chỉ là Bùi Tiền thật sự không cảm thấy cái này có tổn hại chiến lực, bằng không Trúc Lâu luyện quyền nhiều năm của nó, Sư Tử Phong của Lý nhị tiền bối cho ăn quyền, chính là trò cười lớn bằng trời, một mạch Lạc Phách Sơn chỗ nó, từ sư phụ, đến Thôi gia gia, cho dù cộng thêm lão đầu bếp kia, lại đến tư chất kém cỏi nhất, cảnh giới thấp nhất, bị thương gì đó, tác dụng duy nhất chính là có thể lấy ra tăng ý luyện quyền! Thuận tiện che mắt.
+Bái A Hương châm chọc:
 
-Đến lúc đó quyền tiếp theo, sẽ còn là Thần Nhân Lôi Cổ Thức, đồng thời sẽ nhanh hơn quyền thứ nhất, nặng hơn.
+“Sao tiểu cô nương lại thành bằng hữu của ngươi rồi? Ngươi hỏi nàng chưa, nàng có chịu không?”
 
-Lão đầu bếp từng nói, "Trừ phi ta chết, hỏi quyền không ngừng".
+Lưu U Châu chẳng đáp. Hắn nhìn nữ tử trẻ tuổi kia, thấy nàng chỉ đen hơn đồng tiền tuyết hoa một chút.
 
-Mà chuyện quan trọng nhất khi võ phu luyện quyền, đó là bản năng sợ chết sợ đau trước khi ra quyền đánh chết người trong tiểu thiên địa.
+Trên không, kiếm khí của Tạ Tùng Hoa trải ra như mây, đỡ hai đệ tử đích truyền đứng vững. Chiếc hộp trúc được nâng lên [?]. Triêu Mộ cầm cây Hành Sơn trượng trong tay, mới biết cây gậy trông như trúc xanh ấy nặng đến chừng nào.
 
-Lúc ấy Bùi Tiền vừa mới đi lầu hai trúc lâu luyện quyền không bao lâu, lão đầu bếp đa hệ tạp dề, lấy nồi xúc đồ ăn, hoặc là lấy muôi múc cơm thuận miệng nói, Bùi Tiền mỗi người lập tức đều lướt qua bên tai, mãi cho đến về sau du lịch bắc Câu Lô châu với Lý Hòe, nhàn rỗi không có việc gì, mỗi ngày đi bộ là luyện quyền, hồn nhiên thiên thành, mới một lần nữa nhặt lại những lời nói bị cố ý quên đi, như từng món đồ ăn muối trong hũ, bị Bùi Tiền xách ra nhai đi nhai lại, nhai đi nhai lại, lách tách giòn giã, liền cảm thấy lão đầu bếp nói chuyện, thì ra vẫn có chút trình độ.
+Sư phụ giải thích rằng gậy đã được thi triển phép che mắt. Chất liệu thật là thứ tựa như nước trong ao [?], được người ta luyện thành hình cây gậy leo núi. Triêu Mộ nói trong gậy có từng sợi kiếm ý thuần túy. Tạ Tùng Hoa nhận lấy, cẩn thận cảm nhận rồi khẽ thở dài, bảo đó là quà của Chu Trừng, vị nữ kiếm tiên ở Kiếm Khí Trường Thành quê các nàng.
 
-Liễu Tuế Dư cười hỏi: "Bùi Tiền, quyền pháp nhất mạch Mã Hồ phủ Lôi Công miếu ta, cũng không phải chỉ có phần bị đánh, một khi thật sự ra quyền, không nhẹ. Trận hỏi quyền này của chúng ta là điểm đến là dừng, hay là bao ăn no?"
+Cử Hình hỏi:
 
-Bùi Tiền không chút do dự nói: "Chọn cái sau. Liễu tiền bối kế tiếp không cần lo lắng ta có bị thương hay không. Hỏi quyền chấm dứt, hai người đều lập, thì không tính là vấn quyền."
+“Sư phụ, cảnh giới võ học của Bùi tỷ tỷ bây giờ có sánh được với tu sĩ Nguyên Anh không?”
 
-Liễu Tuế Dư cười gật đầu, Bùi Tiền này, rất hợp tính tình.
+Tạ Tùng Hoa đáp:
 
-Vừa rồi nàng đã có thể lấy đại giang hoành nhất thức, trước tiếp một quyền của Bùi Tiền, lại đoạn đi quyền ý của đối phương, nếu nói vấn quyền cùng cảnh giới, liền tính là hậu phát chế nhân, thắng quyền đầu tiên.
+“Ngay cả gặp kiếm tu Nguyên Anh, Bùi Tiền cũng có mấy phần thắng.”
 
-Nhưng Liễu Tuế Dư dù sao cao hơn Bùi Tiền một cảnh, hơn nữa chưa bảo đối thủ đánh ra một cú hoàn toàn, như vậy cú đấm thứ nhất này, miễn cưỡng có thể tính là ngang tay.
+Nữ kiếm tiên vừa nói xong đã sửa lời:
 
-Bùi Tiền đưa một chân nhẹ nhàng vân vê mặt đất, nhìn thẳng Liễu Tuế Dư, "Một quyền lúc trước của Liễu tiền bối đã thể hiện hết phong phạm của tiền bối, vãn bối tâm lĩnh! Nhưng nếu sau này vẫn cố ý để cho ta đấm một quyền, đó là quyền pháp nhất mạch Mã Hồ phủ Lôi Công miếu, xem thường quyền pháp mạch nào của Lạc Phách sơn ta."
+“Phần thắng rất lớn mới phải.”
 
-Liễu Tuế Dư cười ha ha nói: "Được, vậy kế tiếp ta xem trọng ngươi hơn võ phu Lạc Phách Sơn một chút!"
+Bởi hễ trải qua một trận sinh tử, Bùi Tiền rất có thể lại phá cảnh, lấy Sơn Điên cảnh giết Nguyên Anh.
 
-Bùi Tiền cuối cùng nói: "Nếu ta thua, là Bùi Tiền học quyền không tinh, không phải quyền pháp Lạc Phách sơn không cao."
+Thấy Liễu Tuế Dư đã thu quyền dừng bước, Bùi Tiền đành ghìm thân hình còn lảo đảo lại. Nàng khẽ nhíu mày, lấy làm lạ vì Liễu tiền bối chẳng thừa thắng đuổi theo, khiến một quyền nàng đã để dành thành ra vô dụng.
 
-Liễu Tuế Dư chậm rãi kéo ra một cái quyền giá, hai tay nữ tử có mấy đạo lôi quang đan xen, một đôi mắt của nàng ta càng là màu vàng kim nhạt, nói: "Mặc kệ ngươi có cao hay không, đều nằm nói chuyện cho ta!"
+Một bên thái dương vừa ăn quyền nặng như thế, đương nhiên chẳng dễ chịu. Nhưng Bùi Tiền thật sự chẳng thấy sức đánh của mình sút đi. Bằng không mấy năm luyện quyền ở lầu trúc, rồi bao nhiêu quyền của Lý Nhị tiền bối trên đỉnh Sư Tử, há chẳng thành trò cười hay sao?
 
-Phái A Hương vươn ngón tay, xoa xoa mi tâm: "Tiểu cô nương này hình như quen bị đánh rồi."
+Trong một mạch núi Lạc Phách, từ sư phụ đến Thôi gia gia, kể cả lão đầu bếp, rồi mới đến kẻ tư chất kém nhất, cảnh giới thấp nhất là nàng, bị thương thì có gì đáng nói? Thương thế chỉ dùng để bồi thêm quyền ý, tiện thể che mắt người khác.
 
-Lưu U Châu nói: "Đừng tổn thương hòa khí."
+Quyền kế tiếp vẫn là Thần Nhân Lôi Cổ Thức, còn nhanh và nặng hơn quyền đầu.
 
-Phái A Hương thẳng lưng, cầm cây sáo trúc xanh biếc đến từ Thanh Thần Sơn nói: "Vấn quyền hàm hồ, mới tổn thương hòa khí. Đường đường chính chính, quyền phân cao thấp, mới là võ đạo."
+Lão đầu bếp từng nói: “Trừ phi ta chết, bằng không hỏi quyền chưa dừng.”
 
-Lưu U Châu thấy hai bên ra quyền trên quảng trường, Liễu Di đã vững vàng chiếm thượng phong, Lưu U Châu cảnh giới không đủ, hôm nay cũng còn chưa phải Kim Đan Địa Tiên, chỉ là tu sĩ Long Môn cảnh, hắn thậm chí không thể rõ ràng thấy thân hình hai bên, chỉ có thể theo đó mà phán đoán tình thế thông qua quần áo màu sắc của hai cô gái, Liễu Di mỗi lần ra quyền đều có khí tượng lôi đình, lôi điện đan xen, kéo dài không tiêu tan, cho nên ra quyền càng nhiều, trên quảng trường tựa như một tòa lôi trì do quyền ý tạo ra.
+Điều quan trọng nhất khi võ phu luyện quyền là đánh chết cái bản năng sợ đau, sợ chết ngay trong tiểu thiên địa của mình, trước khi đánh ra một quyền giết người.
 
-Liễu di giống như một vị thần linh Lôi bộ bị biếm trích nhân gian, trên thực tế, một mạch Lôi Công miếu Ngai Ngai châu, luyện quyền đại thành, đều là như thế, tựa như trời sinh mặc giáp trụ Thừa Lộ giáp thần nhân, thủy hỏa bất xâm, thuật pháp tầm thường căn bản khó có thể phá vỡ phần quyền ý đó, khiến Luyện khí sĩ đối địch với bọn họ đau đầu nhất, chẳng qua trong số đó lại có thêm quyền pháp chân ý nhất của Phái A Hương đích truyền của Liễu Tuế Dư.
+Hồi Bùi Tiền mới lên tầng hai lầu trúc luyện quyền, lão đầu bếp vẫn đeo tạp dề, khi xúc thức ăn trong chảo, khi cầm muôi xới cơm, tiện miệng buông ra mấy lời như thế. Nàng vừa nghe tai này đã cho lọt qua tai kia.
 
-Liễu ma ma nhìn thấy nhà mình hơn tuổi ra quyền, bà lão tự nhiên vô cùng vui mừng.
+Mãi sau đi du lịch Bắc Câu Lô châu cùng Lý Hòe, rảnh rỗi chẳng có gì làm, mỗi ngày đi đường cũng thành luyện quyền, nàng mới nhặt lại từng lời mình cố tình quên. Tựa như vớt từng món dưa muối trong hũ ra, nhai đi nhai lại nghe giòn rụm, nàng mới thấy lão đầu bếp nói chuyện hóa ra cũng có chút bản lĩnh.
 
-Tạ Tùng Hoa truyền âm cho hai vị đệ tử nói: "Phía sau miếu Lôi Công có một sườn núi nhỏ, chính là Lôi Phiên sơn đại danh đỉnh đỉnh, chẳng qua ít người biết được nó nằm ở gần Lôi Công miếu nho nhỏ này, đỉnh núi kia là nơi đúc binh khí của thần linh viễn cổ Lôi bộ trong truyền thuyết, phi kiếm bản mạng "Lôi Trạch" của ngươi vừa vặn rèn luyện ở đây, làm ít công to, kiếm tu chúng ta một thanh phi kiếm, nếu có thể chen thân phẩm cấp bán tiên binh, thật ra có cách biệt một trời một vực với Luyện khí sĩ Đại Luyện một món bán tiên binh nào đó."
+Liễu Tuế Dư cười hỏi:
 
-Đương nhiên kiếm tu luyện kiếm cần tiền thần tiên, thiên tài địa bảo, là một cái động ăn tiền vô số, còn hơn xa các Luyện khí sĩ khác, càng là sự thật được công nhận trên núi.
+“Bùi Tiền, một mạch quyền pháp của miếu Lôi Công phủ Mã Hồ cũng biết đánh trả. Một khi thật sự ra quyền thì chẳng nhẹ đâu. Trận này ngươi muốn nếm qua rồi thôi, hay muốn ta đãi tới no?”
 
-Tỷ như muốn ở Lôi Phiên Sơn này luyện kiếm, Tạ Tùng Hoa đã chuẩn bị xong ba món pháp bảo công phạt cùng một số lớn Cốc Vũ tiền, bồi thường cho Lôi Công miếu Phái A Hương. Vấn đề là Bái A Hương còn chưa chắc gật đầu.
+Bùi Tiền đáp ngay:
 
-Chuyện này cần hộp trúc giấu kiếm sau lưng Tạ Tùng Hoa mặc cả.
+“Vế sau. Liễu tiền bối cứ việc ra quyền, chẳng cần lo vãn bối có bị thương hay không. Hỏi quyền đã xong mà cả hai vẫn đứng được thì sao gọi là hỏi quyền?”
 
-Triêu Mộ cao hứng nói: "Điểm đánh giá của hành cung nghỉ mát, liệt "Lôi Trì" vào danh sách Ất Trung, phẩm trật rất cao."
+Liễu Tuế Dư cười, gật đầu. Bùi Tiền này thật hợp tính nàng.
 
-Mỗi một thanh giáp phi kiếm của Kiếm Khí Trường Thành, ví dụ như Cam Lâm Bái thích hợp chém giết phạm vi lớn nhất trên chiến trường. Cho nên chỉ có thể đếm trên đầu ngón tay, phần lớn là một loại lựa chọn trên phương diện chiến lược của hành cung tránh nóng. Nếu thật sự đối địch với kiếm tu, ngược lại chưa chắc đã chiếm ưu thế.
+Vừa rồi Liễu Tuế Dư dùng một thức Đại Giang Hoành đón quyền trước, rồi mới cắt ngang quyền ý của Bùi Tiền. Nếu hai người cùng cảnh giới, vậy là ra tay sau mà chế được người, thắng quyền đầu.
 
-Cho nên sau khi rời khỏi chiến trường, phần lớn là chém giết từng đôi giữa các tu sĩ trên núi, ngược lại là do Ẩn Quan nhất mạch bình chọn ra những phi kiếm phẩm cấp Ất, sát lực xuất chúng nhất, nhất là những phi kiếm bản mạng trên Ất kia, đều không ngoại lệ, đều có được thần thông bản mạng trăm năm mới gặp một lần, tỷ như thanh "Bạch Lộc" kia của Trần Tam Thu, hay là bởi vì quan hệ văn vận, mới có thể tễ thân Ất Thượng.
+Có điều nàng hơn Bùi Tiền một cảnh, lại chẳng để đối phương đánh hết một quyền trọn vẹn. Cho nên lượt đầu chỉ có thể miễn cưỡng tính là ngang tay.
 
-Mà "Lôi Trạch" cử hình, nếu có thể được đánh giá là "Ất trung", đương nhiên là bởi vì phi kiếm bản mạng của vị Kiếm Tiên phôi tử này có thần thông, vừa có thể bắt cặp chém giết, sát lực to lớn, lại thích hợp chiến trường, muôn hình vạn trạng.
+Bùi Tiền khẽ miết mũi chân trên mặt đất, nhìn thẳng Liễu Tuế Dư:
 
-Trái lại, mặc dù tiểu cô nương sớm chiều, nàng có hai thanh phi kiếm bản mạng "Tốn", "Hồng Nghê", chỉ được đánh giá là Ất Hạ, Bính Thượng hai phẩm trật.
+“Một quyền vừa rồi của Liễu tiền bối đã cho vãn bối thấy phong phạm của người đi trước. Vãn bối xin ghi lòng. Nhưng nếu kế tiếp tiền bối còn cố ý nhường ta một quyền, thì chẳng khác gì một mạch quyền pháp của miếu Lôi Công phủ Mã Hồ xem nhẹ quyền pháp núi Lạc Phách.”
 
-Nhưng cái gọi là "chỉ" chỉ là so sánh với cử hình. Bên ngoài chữ Giáp, Ất Bính Lưỡng Phẩm, trên dưới tổng cộng là lục giai, thật ra phi kiếm bản mạng đều được tính là tốt.
+Liễu Tuế Dư cười lớn:
 
-Hành hình bên cạnh Tạ Tùng Hoa, sớm chiều, cùng với Trần Lý, Cao Ấu Thanh với tư cách là đích truyền của Trử Thải Thục, những phôi thai kiếm tiên được Hạo Nhiên Kiếm Tiên mang khỏi Kiếm Khí Trường Thành, phi kiếm bản mệnh đều là Ất, Bính Phẩm.
+“Được, thế thì lát nữa ta sẽ coi trọng võ phu núi Lạc Phách thêm mấy phần!”
 
-Chỉ có điều phi kiếm phẩm cấp là một chuyện, đến cùng vẫn là công phu mặt giấy, chân chính lâm trận chém giết lại là một chuyện khác, thiên hạ không có chuyện gì tuyệt đối, luôn có một chuyện ngoài ý muốn.
+Bùi Tiền nói nốt:
 
-Đương nhiên cũng giống như quan trường dưới núi, xuất thân hàn lâm, làm quan lớn, được xinh đẹp, chung quy so với sĩ quan bình thường thì dễ dàng hơn một chút.
+“Nếu ta thua, ấy là Bùi Tiền học quyền chưa tinh. Quyền pháp núi Lạc Phách vẫn cao như thế.”
 
-Cử hình thần sắc quật cường nói: "Sư phụ, con không thích mượn nhờ người khác để ôn dưỡng phi kiếm."
+Liễu Tuế Dư chậm rãi mở quyền giá, lôi quang đan xen trên hai tay, đôi mắt ngả sang màu vàng nhạt.
 
-Nhưng hắn bồi thêm một câu, "Nhưng nếu sư phụ nhất định muốn ta làm như vậy, ta cũng sẽ không luyện kiếm lười biếng."
+“Cao thấp gì mặc ngươi. Cứ nằm xuống rồi nói chuyện với ta!”
 
-Cử hình nói cái này có chút nhụt chí.
+Bái A Hương đưa ngón tay day giữa hai đầu mày:
 
-Triêu Mộ có chút lo lắng sư phụ sẽ tức giận.
+“Tiểu cô nương này xem ra đã quen chịu đòn.”
 
-Tạ Tùng Hoa đưa tay đè đầu đứa nhỏ, dịu dàng nói: "Ẩn quan từng nói, sau khi các ngươi đến Hạo Nhiên Thiên Hạ, không cần hành động theo cảm tính, phải học cách nhập gia tùy tục, tựa như khi hắn đến Kiếm Khí Trường Thành cũng phải học cách tôn trọng tất cả phong tục, cử hình của Kiếm Khí Trường Thành các ngươi trước, hy vọng của Ẩn Quan đối với các ngươi, ngươi làm được không?"
+Lưu U Châu nói:
 
-Cử hình ừ một tiếng, thần thái sáng ngời, dùng sức gật đầu nói: "Ẩn quan đại nhân thông qua lá thư Đặng Lương chuyển giao cho sư phụ, ta thường xuyên lật xem. Trên thư nói, muốn chúng ta chậm rãi học tập các loại phong tục tập quán của Hạo Nhiên Thiên Hạ, không cần vội, nhưng đều phải dụng tâm nhớ kỹ. Tốt xấu đều phải nhìn nhiều hơn một chút, xem xong còn phải nghĩ thêm một cái vì sao. Cuối lá thư, còn dặn dò chúng ta nhất định phải luyện kiếm cho tốt, đợi cảnh giới cao, ít nhất có thể tự bảo vệ mình, lại đến phân rõ phải trái với người khác."
+“Chớ tổn thương hòa khí.”
 
-Sau đó hắn liếc xéo tiểu cô nương cầm Hành Sơn trượng bên cạnh, cười nói với sư phụ: "Ẩn Quan đại nhân dạy dỗ con trong thư, có rất nhiều, sớm chiều thì không được, miếng đậu phụ nho nhỏ, xem ra Ẩn Quan đại nhân cũng biết nàng không có tiền đồ gì, sư phụ yên tâm, có con là đủ rồi."
+Bái A Hương ngồi thẳng lưng, cầm cây sáo trúc xanh biếc lấy từ núi Thanh Thần:
 
-Tiểu cô nương tủi thân và uất ức nhăn mặt, lã chã chực khóc, khóc lại không dám khóc, đáng thương vô cùng.
+“Hỏi quyền qua loa mới tổn thương hòa khí. Đường đường chính chính, lấy nắm đấm phân cao thấp, ấy mới là võ đạo.”
 
-Cử hình nhìn bộ dáng triêu mộ, khó có được có chút hối hận, Bùi tỷ tỷ ở Đầu Lư Thành kia, thật ra bí mật từng nói với hắn, về sau không nên luôn nghiêm mặt đối với triêu mộ như vậy, bởi vì triêu mộ là một tiểu cô nương, ngươi là nam hài tử, khi dễ nàng không tính là bản lãnh, các ngươi đã là đồng hương, lại là đồng môn, duyên phận khó được bao nhiêu, cho nên ngươi nên che chở nàng nhiều hơn, ít nhất cũng không thể để nàng bị người khác khi dễ.
+Hai người vừa ra quyền trên sân, Liễu Tuế Dư đã vững vàng chiếm thượng phong. Lưu U Châu mới ở Long Môn cảnh, còn chưa thành Kim Đan Địa Tiên, đến bóng dáng hai người cũng nhìn chẳng rõ. Hắn chỉ có thể trông vào màu áo mỗi người để đoán tình thế.
 
-Cử động cảm thấy Bùi tỷ tỷ nói rất có đạo lý, liền vỗ ngực đáp ứng. Chỉ là hắn có chút thời điểm, chính là nhịn không được muốn nói hai câu vào buổi chiều a.
+Mỗi lần Liễu Tuế Dư ra quyền, sấm sét lại quấn lấy nhau, hồi lâu chẳng tan. Càng đánh nhiều, khoảng sân càng giống một tòa lôi trì do quyền ý tạo thành.
 
-Hơn nữa, mình cũng không phải người khác. Ài, đáng tiếc vẫn không có người ngoài khi dễ nha đầu ngốc Triêu Mộ này, sư phụ quá tốt, ở Ngai Ngai châu quá vô địch, cũng làm cho đệ tử sầu não.
+Liễu di tựa như một vị thần Lôi bộ bị giáng xuống nhân gian. Kỳ thực, người của miếu Lôi Công ở Ngai Ngai châu luyện quyền đến đại thành đều có dáng vẻ ấy. Tựa như thần nhân sinh ra đã mặc Thừa Lộ giáp, thủy hỏa chẳng xâm, thuật pháp tầm thường khó phá nổi một thân quyền ý. Đó mới là chỗ khiến luyện khí sĩ đối địch với họ đau đầu nhất, huống chi Liễu Tuế Dư còn là đích truyền nắm được chân ý quyền pháp của Bái A Hương.
 
-Trên quảng trường, Bùi Tiền bị khuỷu tay Liễu Tuế Dư đâm vào trên mặt, ngã ầm xuống đất, lập tức đưa hai tay đón đỡ, ngăn cản mũi chân đâm về phía trái tim của Liễu Tuế Dư.
+Thấy Liễu Tuế Dư nhà mình ra quyền như vậy, Liễu ma ma đương nhiên vui mừng.
 
-Nếu như bị một cước đâm trúng, vấn quyền hơn phân nửa coi như kết thúc.
+Tạ Tùng Hoa truyền âm cho hai đệ tử:
 
-Cả người Bùi Tiền trượt ra ngoài hơn mười trượng trên mặt đất.
+“Sau miếu Lôi Công có ngọn núi nhỏ, chính là Lôi Phiên sơn lừng danh. Chẳng mấy ai biết núi ấy nằm sát ngôi miếu bé thế này. Tương truyền thần linh Lôi bộ thuở viễn cổ đúc binh khí trên đỉnh núi. Vừa hay có thể rèn luyện phi kiếm bản mệnh Lôi Trạch của con ở đó, bỏ ít công mà thu nhiều lợi. Phi kiếm của kiếm tu chúng ta một khi đạt phẩm cấp bán tiên binh, khác một trời một vực với một món bán tiên binh do luyện khí sĩ đại luyện.”
 
-Vừa mới lấy chưởng đập đất, phiêu nhiên đứng dậy, đã bị Liễu Tuế Dư như bóng với hình dùng gối nện vào ngực.
+Đương nhiên, rèn một thanh phi kiếm cũng là một cái hố nuốt tiền. Số tiền thần tiên và thiên tài địa bảo mà kiếm tu tiêu vào đó còn vượt xa các luyện khí sĩ khác. Trên núi ai cũng biết chuyện ấy.
 
-Nữ tử trẻ tuổi dáng người mảnh khảnh ầm ầm bay rớt ra ngoài, ngã xuống đất.
+Chẳng hạn lần này muốn mượn Lôi Phiên sơn luyện kiếm, Tạ Tùng Hoa đã chuẩn bị ba món pháp bảo công phạt cùng một khoản lớn tiền cốc vũ để hậu tạ miếu Lôi Công. Bái A Hương có chịu gật đầu hay không lại là chuyện khác.
 
-Khi hai chân Liễu Tuế Dư rơi xuống đất, nhẹ nhàng phun ra một ngụm trọc khí.
+Đến lúc ấy còn phải nhờ chiếc hộp trúc giấu kiếm sau lưng Tạ Tùng Hoa giúp nàng mặc cả.
 
-Liên tiếp chín cảnh ra quyền, tuy không phải quyền quyền đều là đỉnh phong dốc sức ra tay, nhưng một ngụm chân khí võ phu thuần túy, dừng ở đây.
+Triêu Mộ vui vẻ nói:
 
-Lưu U Châu cảm thấy trận hỏi quyền hôm nay, đại khái có thể tính là hai bên tận hứng. Hắn nhìn cô gái trẻ tuổi đứng lên kia, phun ra một ngụm máu bầm trên đất, thế mà lại bày ra một quyền giá, nhìn bộ dáng của nàng, đối với thương thế hoàn toàn không phát giác, không biết sao nhớ tới di chỉ chiến trường cổ năm đó ở Kim Giáp châu, Úc Thỉ phu hỏi quyền Tào Từ, đại khái cũng là quang cảnh xấp xỉ nhau, chỉ là lại có chút không giống, nhưng cụ thể khác chỗ nào, Lưu U Châu không phải võ phu, không nói ra được, ước chừng là Úc Tầm Phu biết rõ không địch lại?
+“Hành cung tránh nóng xếp Lôi Trạch vào bậc Ất trung, phẩm trật cao lắm.”
 
-Mà nữ tử kỳ quái cực kỳ trong mắt này, chưa chắc đã cảm thấy mình không bằng Liễu di? Nhưng ngươi càng như thế, chỉ biết ra quyền nặng hơn tính tình Liễu di của Võ si.
+Phi kiếm phẩm Giáp ở Kiếm Khí Trường Thành, như thanh Cam Lâm Bái, phần lớn thích hợp chém giết trên một vùng rộng lớn của chiến trường. Những thanh kiếm ấy hiếm đến mức đếm được trên đầu ngón tay, được hành cung tránh nóng chọn phần nhiều vì lợi thế trong đại chiến. Đem chúng ra đọ sức với một kiếm tu, chưa chắc đã chiếm phần hơn.
 
-Lưu U Châu có chút không đành lòng nhìn tiếp, chuyển mắt liếc sáo trúc trong tay Phái A Hương, hỏi: "A Hương, những cây trúc tổ tông Thanh Thần sơn, rất ít khi rời khỏi Trúc Hải động thiên, phần lớn là vị phu nhân kia tự tay đưa tặng, Văn Miếu Công Đức Lâm ở bên trong, toàn bộ Hạo Nhiên Thiên Hạ giống như mới tổng cộng bốn năm chỗ. Chưa nói đến trúc bình thường Trúc Hải động thiên, mỗi một cây trúc lấy trúc tổ tông làm chất liệu, đều sẽ được Sơn Thần Phủ ghi lại chính xác trong danh sách, cây sáo trúc này của ngươi hình như không có ghi lại, có nói gì không? Trước đó ta hỏi Liễu di, Liễu di vẫn không chịu nói."
+Rời khỏi chiến trường, các tu sĩ trên núi thường đấu từng đôi. Khi ấy, những thanh phi kiếm phẩm Ất do một mạch Ẩn Quan xếp hạng lại có sát lực nổi trội hơn cả. Nhất là phi kiếm bản mệnh bậc Ất thượng, thanh nào cũng có thần thông hiếm gặp trăm năm. Như thanh Bạch Lộc của Trần Tam Thu, phải nhờ cả văn vận mới lọt được vào bậc ấy.
 
-Bái A Hương nghe hỏi như thế, sắc mặt có chút cổ quái, lắc đầu, nhẹ nhàng xoay chuyển cây sáo trúc trong tay, viên hoàng châu rơi xuống nhẹ nhàng gõ sáo trúc, thanh thúy dễ nghe, Bái A Hương cười nói: "Chuyện cũ nghĩ lại mà kinh hãi."
+Lôi Trạch của Cử Hình được xếp Ất trung bởi thần thông của nó vừa cho sát lực lớn khi giao đấu riêng, vừa biến hóa vô cùng trên chiến trường.
 
-Lưu U Châu không sợ nhất cái này, lập tức đè thấp tiếng nói nói: "Mười năm gần đây cung phụng tiền, lật nhẹ một phen."
+Triêu Mộ có hai thanh phi kiếm bản mệnh là Tốn và Hồng Nghê, “chỉ” lần lượt xếp bậc Ất hạ và Bính thượng. Chữ “chỉ” ấy cũng là đem so với Cử Hình mà nói. Ngoài phẩm Giáp, hai phẩm Ất và Bính chia trên dưới thành sáu bậc, phi kiếm bản mệnh đạt bất kỳ bậc nào trong đó cũng đã tốt lắm rồi.
 
-Phái A Hương dựng thẳng hai ngón tay lên.
+Cử Hình, Triêu Mộ ở bên Tạ Tùng Hoa, rồi Trần Lý, Cao Ấu Thanh là đích truyền của Ly Thải, đều là phôi thai kiếm tiên được các kiếm tiên Hạo Nhiên đưa ra khỏi Kiếm Khí Trường Thành. Phi kiếm bản mệnh của bốn đứa đều thuộc phẩm Ất hoặc Bính.
 
-Lưu U Châu một tay vỗ ngón tay A Hương kia, cười nói: "A Hương thật sự là người sảng khoái, thành giao!"
+Nhưng phẩm cấp suy cho cùng nằm trên mặt giấy, đến khi thật sự lâm trận chém giết lại là chuyện khác. Thiên hạ chẳng có chuyện gì tuyệt đối, lúc nào cũng có thể xảy ra chuyện ngoài dự liệu.
 
-Phái A Hương lúc này mới nói: "Nghe qua chưa từng nghe qua một tên vương bát đản tên là A Lương?"
+Cũng như quan trường dưới núi, người xuất thân Hàn Lâm muốn làm quan lớn, muốn có một đường quan lộ vẻ vang, dù sao cũng dễ hơn quan lại bình thường đôi chút.
 
-Lưu U Châu gật đầu nói: "A Hương ngươi nói lời thừa gì, đại danh vị tiền bối kia, đương nhiên là như sấm bên tai a. Hơn nữa, cô cô của ta đối với nam nhân kia, vẫn nhớ mãi không quên, toàn bộ Ngai Ngai châu ai mà không biết việc này? Một quyền đánh gãy nước lớn Trung Thổ, tổ sơn từng nâng một tòa tông tự đầu di chuyển mấy chục dặm, chẳng qua những thứ này cũng không phải là thứ ta bội phục nhất,
+Cử Hình bướng bỉnh nói:
 
-Nghe nói trước khi đánh nhau, hắn thích - ngâm một bài thơ, ta ngưỡng mộ nhất là việc này, hắn tự phong "Anh em trai trẻ trong trăm bụi hoa, mười dặm tám thôn", theo ý ta, tuyệt không phải hư danh. Tiên tử nhớ hắn, thật sự là mênh mông nhiều."
+“Sư phụ, con chẳng thích nhờ người khác ôn dưỡng phi kiếm của mình.”
 
-Liễu ma ma nghe mà lo lắng không thôi.
+Hắn lại thêm một câu:
 
-Thiếu gia nhà mình, chớ nên học theo hán tử kia mới được.
+“Nhưng sư phụ nhất định muốn con làm vậy thì con vẫn sẽ chăm chỉ luyện kiếm.”
 
-Phái A Hương nhấc sáo trúc lên: "Bị người kia đánh một trận, sau đó được đền bù phần bồi thường này."
+Nói đến đó, hắn đã có chút nhụt chí. Triêu Mộ lo sư phụ sẽ nổi giận.
 
-Lưu U Châu hết chuyện này đến chuyện khác, "Mấy người các ngươi một mình đấu với hắn?"
+Tạ Tùng Hoa đặt tay lên đầu đứa nhỏ, dịu giọng:
 
-Phái A Hương bất đắc dĩ nói: "Năm sáu người đi."
+“Ẩn Quan từng dặn, đến Hạo Nhiên thiên hạ rồi thì chớ hành động theo tính khí, phải học cách nhập gia tùy tục. Hồi đến Kiếm Khí Trường Thành, hắn cũng học cách tôn trọng phong tục ở đó. Cử Hình của Kiếm Khí Trường Thành, con có làm được như Ẩn Quan mong mỏi hay không?”
 
-Lưu U Châu nhẹ nhàng vỗ vỗ bả vai hắn, "A Hương ngươi được nha, truyền ra ngoài mặt mũi rồi."
+Cử Hình ừ một tiếng, mắt sáng lên, gật đầu thật mạnh:
 
-Phái A Hương cười nói: "Cũng đúng."
+“Lá thư Ẩn Quan đại nhân nhờ Đặng Lương đưa cho sư phụ, con thường lấy ra đọc. Trong thư bảo chúng con thong thả tìm hiểu phong tục ở Hạo Nhiên thiên hạ, chẳng cần gấp, nhưng phải để tâm ghi nhớ. Chuyện hay chuyện dở đều nên nhìn thêm một chút, nhìn rồi lại nghĩ vì sao. Cuối thư còn dặn chúng con nhất định phải luyện kiếm cho tốt. Đợi cảnh giới cao, ít nhất đủ sức tự bảo vệ mình rồi hãy đi phân phải trái với người khác.”
 
-Quả thật không mất mặt. Dù sao từng có mười người trên núi vây giết một người, kết quả chỉ có một người chạy thoát.
+Hắn liếc sang tiểu cô nương đang ôm cây Hành Sơn trượng, cười nói với sư phụ:
 
-Thật ra lúc ở Hạo Nhiên Thiên Hạ, kiếm thuật của nam nhân kia cũng không thể hiện rõ ràng, là đại yêu sau này du lịch trăm năm ở Kiếm Khí Trường Thành, kiếm trảm phi thăng cảnh đỉnh phong, toàn bộ Hạo Nhiên Thiên Hạ, nhất là Trung Thổ Thần Châu bị hắn gây họa quen tai họa mới bừng tỉnh đại ngộ, thì ra tên chó chết kia, như thế, trước kia vẫn ra tay hàm súc, giấu dốt. Về phần sau người này phi thăng rời khỏi Hạo Nhiên Thiên Hạ, đi hướng Thiên Ngoại Thiên, cuối cùng cùng Đạo lão nhị "chân vô địch" với Bạch Ngọc Kinh trao đổi một quyền, đều tự đánh đối phương về thiên hạ quê nhà, càng làm người ta líu lưỡi.
+“Ẩn Quan đại nhân dạy con bao nhiêu điều trong thư. Còn Triêu Mộ ấy mà, được có một mẩu bé bằng miếng đậu phụ. Xem ra đại nhân cũng biết nàng chẳng có tiền đồ gì. Sư phụ yên tâm, có con là đủ.”
 
-Cùng một số người là bạn cùng lứa tuổi, cùng một thời đại, giống như đáng giá bi ai, lại sẽ cùng có vinh yên.
+Tiểu cô nương tủi thân nhăn mặt, nước mắt đã chực rơi mà chẳng dám khóc, trông hết sức đáng thương.
 
-Tựa như đám người Phái A Hương này gặp được A Lương kia.
+Cử Hình nhìn Triêu Mộ, hiếm hoi thấy hơi hối hận. Ở thành Đầu Lư, Bùi tỷ tỷ từng nói riêng với hắn rằng sau này chớ cứ cau có với Triêu Mộ mãi. Nàng là một tiểu cô nương, hắn là nam hài tử, bắt nạt nàng thì có gì là bản lĩnh? Vừa là đồng hương vừa là đồng môn, duyên phận khó kiếm biết bao. Hắn nên che chở cho nàng nhiều hơn, ít nhất cũng chẳng thể để người ngoài bắt nạt nàng.
 
-Người sớm hơn thì gặp được vị nhân gian đắc ý nhất một kiếm dẫn tới thiên thủy kia.
+Cử Hình thấy Bùi tỷ tỷ nói có lý, lập tức vỗ ngực nhận lời. Chỉ là có những lúc hắn chẳng nhịn được, cứ muốn nói Triêu Mộ đôi câu.
 
-Hiện giờ toàn bộ võ phu trẻ tuổi thiên hạ, thì gặp gỡ Tào Từ, cùng với vị "Ẩn quan" thứ mười một kia.
+Vả lại, hắn đâu phải người ngoài. Chà, tiếc là xưa nay chẳng có người ngoài nào bắt nạt nha đầu ngốc ấy. Sư phụ tốt quá, ở Ngai Ngai châu lại chẳng ai địch nổi, kể ra cũng khiến đệ tử phải rầu.
 
-Phái A Hương nghĩ tới đây, liếc mắt nhìn hai người còn đang luận bàn quyền pháp trên quảng trường.
+Trên sân, Liễu Tuế Dư thúc khuỷu tay vào mặt Bùi Tiền, đánh nàng ngã ầm xuống đất. Bùi Tiền lập tức đưa hai tay lên đỡ mũi chân đang đâm về phía tim mình.
 
-Bùi Tiền lại một lần nữa bị Liễu Tuế Dư đánh cho thân hình lắc lư, sau khi kiệt lực ổn định thân hình, bị Liễu Tuế Dư liên tiếp đánh ra sáu quyền, trán, má, cổ đều trúng hai nắm đấm.
+Nếu trúng một cước ấy, trận hỏi quyền hơn phân nửa đã kết thúc.
 
-Cùng chỗ này ra hai quyền, đó là một trong những tinh túy quyền pháp của Lôi Công miếu Mã Hồ phủ, tên là "Điệp lôi", là một chiêu mà Bái A Hương sau khi chen thân thập cảnh mới ngộ ra, phản phác quy chân, quyền chiêu nhìn như cũng, quyền ý lại vừa vặn chính phản, có thể làm bị thương nặng quyền ý hoặc là Luyện khí sĩ phủ của võ phu.
+Bùi Tiền trượt trên mặt đất hơn mười trượng. Nàng vừa vỗ một chưởng xuống đất để bật dậy, Liễu Tuế Dư đã bám theo như bóng, thúc đầu gối vào ngực nàng.
 
-Ngực Bùi Tiền cuối cùng bị hai quyền liên tiếp đập trúng, hai chân cách mặt đất, suy sụp ngã xuống đất.
+Thân hình mảnh khảnh của nữ tử trẻ tuổi văng ngược ra sau, ngã ầm xuống.
 
-Nữ tử gầy yếu hai mươi tuổi vậy mà lại lấy khuỷu tay chạm đất, thân hình vặn chuyển, còn có thể lập tức phiêu nhiên đứng dậy, bị thương không nhẹ, song phương rõ ràng thắng bại, tiểu cô nương kia, một thân quyền ý không giảm mà còn tăng lên.
+Hai chân Liễu Tuế Dư vừa chạm đất, nàng nhẹ nhàng thở ra một ngụm trọc khí. Liên tiếp đánh ra từng ấy quyền cửu cảnh, dẫu chẳng phải quyền nào cũng dốc hết sức ở đỉnh phong, một hơi chân khí của võ phu thuần túy tới đây cũng vừa hết.
 
-Bảy khiếu đổ máu, đối với võ phu Viễn Du cảnh mà nói, việc nhỏ.
+Lưu U Châu tưởng trận hỏi quyền hôm nay như vậy là cả đôi bên đã tận hứng. Nào ngờ nữ tử trẻ tuổi kia lại đứng lên, nhổ một ngụm máu bầm xuống đất, tiếp tục bày quyền giá. Nhìn bộ dạng nàng, tựa hồ chẳng hề hay biết mình đã bị thương.
 
-Phái A Hương gật đầu.
+Chẳng hiểu sao hắn nhớ đến trận Úc Thỉ Phu hỏi quyền Tào Từ năm xưa ở di chỉ chiến trường cổ tại Kim Giáp châu. Quang cảnh khi ấy đại khái giống bây giờ, mà dường như vẫn khác đôi chút. Lưu U Châu chẳng phải võ phu, nói chẳng rõ khác ở đâu. Có lẽ vì Úc Thỉ Phu biết mình chẳng địch nổi Tào Từ?
 
-Vẻ mặt Liễu Tuế Dư trở nên nghiêm túc, đồng thời còn có chút tức giận.
+Nữ tử kỳ quái ấy có lẽ vẫn chẳng thấy mình kém Liễu di. Nhưng nàng càng như thế, với tính tình của một kẻ si quyền như Liễu di, quyền sau chỉ càng nặng hơn.
 
-Mình đã đổi hai luồng chân khí thuần túy, đối phương lại không hề thay đổi.
+Lưu U Châu có phần chẳng đành lòng nhìn tiếp. Hắn quay sang ngó cây sáo trúc trong tay Bái A Hương:
 
-Đương nhiên không phải là Liễu Tuế Dư đã yếu đi quyền ý của đối phương, mà là càng nhiều tâm tồn giáo quyền, cho quyền tâm, cho nên mới hai lần chủ động thay đổi chân khí, nhưng tiểu cô nương này, có phải cũng quá cứng đầu chút hay không, thật sự làm Mã Hồ phủ Lôi Công miếu nhất mạch, quyền pháp sẽ không bằng Lạc Phách sơn ngươi? Chẳng lẽ là ngay từ đầu đã hạ quyết tâm, muốn cân nhắc nắm đấm võ phu đỉnh phong Dư Cửu cảnh Liễu Tuế nàng, rốt cuộc nặng bao nhiêu?
+“A Hương, trúc tổ trên núi Thanh Thần hiếm khi rời Trúc Hải động thiên, phần lớn lại do vị phu nhân kia đích thân tặng. Tính cả Công Đức Lâm của Văn Miếu thì Hạo Nhiên thiên hạ cũng chỉ có chừng bốn, năm nơi giữ được. Trúc thường thì thôi, chứ những món làm bằng trúc tổ đều được phủ Sơn Thần ghi rõ. Cây sáo của ngươi hình như chẳng có trong sổ. Bên trong có chuyện gì vậy? Ta hỏi Liễu di trước đây rồi, nàng nhất định chẳng chịu kể.”
 
-Cử hình và nhìn khẩn trương không thôi.
+Bái A Hương nghe thế, sắc mặt có chút kỳ quái. Hắn lắc đầu, khẽ xoay cây sáo trong tay. Viên châu vàng buông xuống, gõ vào sáo một tiếng trong trẻo.
 
-Mới phát hiện thì ra Bùi tỷ tỷ cùng người khác lúc vấn quyền, cùng Bùi tỷ tỷ ngày thường lúc chép sách rất nghiêm túc, lúc đi xa trầm mặc, lúc nói chuyện phiếm cười xấu hổ, giống như hai người khác nhau.
+“Chuyện cũ nghĩ lại vẫn kinh hãi.”
 
-Tạ Tùng Hoa thì thổn thức không thôi, ánh mắt Ẩn Quan nhận đồ đệ cũng được.
+Lưu U Châu chẳng sợ nhất là mấy chuyện như vậy. Hắn lập tức hạ giọng:
 
-Cơ hội Trần Bình An thật sự truyền thụ quyền pháp cho Bùi Tiền khẳng định không nhiều, dù sao hôm nay Bùi Tiền mới có chút tuổi như vậy, mà Trần Bình An đã sớm đi Kiếm Khí Trường Thành.
+“Tiền cung phụng mười năm tới, tăng thêm một phen [?].”
 
-Cho nên tòa Lạc Phách Sơn vẫn mây che sương lượn, thanh danh không ra một châu kia, khẳng định có cao nhân khác tọa trấn đỉnh núi.
+Bái A Hương giơ hai ngón tay.
 
-Về phần Lưu U Châu sớm biết được Lạc Phách Sơn, đó là vì vị thần tài tương lai Ngai Ngai châu này quá rảnh rỗi.
+Lưu U Châu đập tay vào hai ngón tay ấy, cười nói:
 
-Theo Tạ Tùng Hoa thấy, Trần Bình An cùng Bùi Tiền hai thầy trò này, tinh thần khí trong xương cốt quá giống, quả thực chính là khắc ra từ trong một khuôn.
+“A Hương quả là sảng khoái. Thành giao!”
 
-Lại nhìn quyền chiêu quyền pháp lựa chọn đối địch kia, hai bên trái lại không quá giống. Bùi Tiền trước mắt, ra quyền thẳng tiến không lùi, đều theo quán nhất.
+Bái A Hương bấy giờ mới hỏi:
 
-Trần Bình An làm sư phụ Bùi Tiền thì phải suy nghĩ rất nhiều, rất ít theo đuổi loại cảm giác nhẹ nhàng vui vẻ, quyền chiêu rất nhiều, quyền pháp biến ảo bất định, coi trọng bởi vì nhân cơ sở mà khác nhau, gần như xoi mói, mỗi một quyền đều lót dạ cùng tính toán, cuối cùng đạt tới tối đa hóa ích lợi. Nhưng Bùi Tiền thì hoàn toàn khác, lúc ra quyền, rất có khí khái hào kiệt trước người không có người, quả thực giống như là tuổi còn nhỏ, đã hiểu một "thiên địa vô hai người", hỏi quyền duy vấn kỷ".
+“Ngươi từng nghe nói đến một tên khốn gọi là A Lương chưa?”
 
-Tạ Tùng Hoa dù sao cũng là kiếm tiên thích đi xa, có tiếp xúc với võ phu mười cảnh Lưu Hà châu, Kim Giáp châu, có một số là bạn tốt, trong đó hai vị lão nhân chỉ cảnh tính tình khác hẳn, điểm chung duy nhất là đều tôn sùng cảnh giới huyền diệu sâu xa "thiên địa thiên cổ, một người song quyền" kia. Chỉ là đạo lý này quá mức lớn, nói thì đơn giản, người ngoài nghe lại càng không khó lý giải, duy chỉ có đi tới nơi này là quá mức hư vô mờ mịt, rất khó để võ đạo bản thân hiển hóa ra đại đạo này, thật sự là quá khó quá khó.
+Lưu U Châu gật đầu:
 
-Chỉ là Tạ Tùng Hoa lại có nghi vấn, nếu ở quê hương là quang cảnh tụ thiếu ít mà xa cách nhiều, Bùi Tiền sao lại kính trọng sư phụ kia như vậy?
+“A Hương hỏi thừa rồi. Đại danh vị tiền bối ấy, nghe như sấm bên tai. Cô cô của ta tới giờ vẫn chẳng quên được hắn, khắp Ngai Ngai châu còn ai chẳng biết? Hắn từng một quyền cắt đứt sông lớn ở Trung Thổ, từng nhấc cả tổ sơn của một tông môn dời đi mấy chục dặm. Nhưng những chuyện ấy vẫn chưa phải điều ta bội phục nhất.”
 
-Hai vị đích truyền, cử hình của mình cùng hai đứa nhỏ triêu mộ đương nhiên cũng hiểu chuyện, niệm ân, chẳng những coi nàng là người tâm phúc, còn như là trưởng bối thân nhân, cho nên Tạ Tùng Hoa rất hài lòng, không bắt bẻ được một chút tật xấu nào của các đệ tử, nhưng so với Trần Bình An với Bùi Tiền, hình như vẫn có chút khác biệt.
+“Nghe nói trước khi đánh nhau, hắn thích ngâm một bài thơ. Ta ngưỡng mộ nhất chính là chuyện đó. Hắn tự xưng là ‘tiểu lang quân giữa trăm bụi hoa, khắp mười dặm tám thôn’ [?]. Theo ta thì danh chẳng hư truyền. Tiên tử nhớ hắn nhiều vô kể.”
 
-Tuy nói người trong giang hồ, có cách nói đầu sư như đầu thai, thầy trò như cha con kia bảo thủ. Nhưng ẩn quan trẻ tuổi kia, ở trong cảm nhận của đệ tử Bùi Tiền, thiên địa quân thân sư, giống như căn bản đã hợp lại làm một.
+Liễu ma ma nghe mà lo ngay ngáy. Thiếu gia nhà mình chớ học theo hán tử ấy mới phải.
 
-Quả nhiên Ẩn Quan trẻ tuổi vẫn am hiểu việc chăm sóc con cái.
+Bái A Hương nhấc cây sáo lên:
 
-Tạ Tùng Hoa chỉ có thể giải thích như vậy.
+“Ta bị người ấy đánh một trận, rồi mới được bồi thường bằng thứ này.”
 
-A Hương vẫn luôn chú ý đến vấn quyền trong sân, tấm tắc nói: "Có thể hỏi quyền như vậy, ích lợi sẽ không nhỏ. Nói không chừng hơn một năm đều có thu hoạch ngoài ý muốn."
+Lưu U Châu nghe hết chuyện lạ này tới chuyện lạ khác:
 
-Lưu U Châu nói thầm: "Lai lịch sáo trúc, A Hương ngươi còn chưa nói đâu. Bút cung phụng tiền kia, vãn bối không biết xấu hổ mà cho, tiền bối không biết xấu hổ mà nhận sao?"
+“Mấy người các ngươi đấu một chọi một với hắn?”
 
-Phái A Hương cười nói: "Không có gì không thể nói, nhưng mà ngươi nghe qua thì thôi, đừng tuyên dương khắp nơi."
+Bái A Hương bất đắc dĩ:
 
-Lưu U Châu gật gật đầu.
+“Chừng năm, sáu người.”
 
-Thì ra năm xưa ở Trúc Hải động thiên phong cảnh tuyệt mỹ, Bái A Hương là võ phu cửu cảnh trẻ tuổi nhất trong lịch sử Ngai Ngai châu, thời điểm hăng hái nhất, lúc ấy làm một hồi thanh thần sơn thủy yến khách nhân, Bái A Hương từng cùng mấy vị hảo hữu say rượu du lịch sơn thủy, nổi lên tranh chấp với một hán tử lôi thôi lúc ấy lén lút móc roi trúc, măng. Chưa từng thấy người không biết xấu hổ như vậy, ngay từ đầu đã nói mình là Thanh Thần sơn thổ địa công, muốn đào măng lấy đi khoản đãi khách quý, về sau bị người ta vạch trần, Cứ luôn miệng nói mình là thượng khách của yến hội tư nhân phu nhân Thanh Thần Sơn, đào chút măng thì tính là gì, kết quả có một vị kiếm tiên trẻ tuổi lập tức phi kiếm truyền tin cho Thanh Sơn Thần, người nọ thật can đảm, nghiêng dựa vào một cây gậy trúc, hai tay ôm ngực, nói các ngươi chọc tới ta, coi như các ngươi xui xẻo, chờ bị phu nhân hạ lệnh trục khách đi, về sau các ngươi còn có thể tiến vào Trúc Hải động thiên nửa bước, lão tử sẽ theo họ các ngươi.
+Lưu U Châu vỗ nhẹ vai hắn:
 
-Sau đó bên phủ Sơn Thần hồi âm, nói phu nhân không nhận ra người này, vì thế đám người Bái A Hương như đuổi chó, đuổi theo tên trộm cướp kia đánh, ngay từ đầu ai cũng không coi là thật, phần nhiều chỉ là làm trò cười, chỉ là sau khi một vị kiếm tu xuất kiếm không cẩn thận quá nặng, đã bị người nọ la hét "Một quyền một tiểu huynh đệ", đánh ngã hết, không chỉ như thế, hán tử kia còn chôn vùi tất cả mọi người ở dưới đất, nói là sáng mai sẽ sinh ra rất nhiều Ngọc Phác Kiếm Tiên, võ phu Sơn Điên cảnh, coi như là hắn đáp lễ Thanh Thần sơn.
+“A Hương, ngươi khá đấy. Chuyện ấy truyền ra ngoài cũng có mặt mũi rồi.”
 
-Người nọ lúc chôn vùi A Hương, hỏi Bái A Hương quyền pháp của mình như thế nào.
+Bái A Hương bật cười:
 
-Những người còn lại muốn phá đất chui lên đều bị một quyền trực tiếp đánh ngất. Chỗ cổ đám người chôn đất, giống như khắp nơi mọc măng mọc lên nhọn hoắt.
+“Cũng đúng.”
 
-Phái A Hương không dám động, miễn cho tự rước lấy nhục.
+Quả thật chẳng mất mặt. Từng có mười người trên núi vây giết một người, kết quả chỉ một người chạy thoát.
 
-Người bạn tốt kiếm tiên trẻ tuổi lúc trước, bị lấp đất nhiều nhất, bởi vì hán tử kia vừa đắp đất chôn người, vừa lẩm bẩm thầm oán, chỉ có kiếm tiên các ngươi nhiều nhất phong lưu nhất, thật đáng ghét, hôm nay rơi vào trong tay ta rồi đi...
+Khi còn ở Hạo Nhiên thiên hạ, kiếm thuật của A Lương chẳng mấy khi lộ rõ. Mãi sau hắn ở Kiếm Khí Trường Thành trăm năm, chém chết một đại yêu Phi Thăng cảnh đỉnh phong, cả Hạo Nhiên thiên hạ, nhất là Trung Thổ Thần Châu đã quen chịu hắn gây họa, mới bừng tỉnh. Hóa ra tên chó chết đó trước nay vẫn ra tay có chừng mực, cố tình giấu bản lĩnh.
 
-Về sau vẫn là một vị Thần Phủ truyền lệnh của Trúc Hải Động Thiên Sơn hiện thân, mới giải vây cho tất cả mọi người.
+Sau nữa, người ấy phi thăng rời Hạo Nhiên thiên hạ, tới Thiên Ngoại Thiên đổi một quyền với Đạo lão nhị “chân vô địch” của Bạch Ngọc Kinh. Cả hai đánh đối phương trở về thiên hạ quê nhà, càng khiến người nghe phải líu lưỡi.
 
-Hán tử đang ngồi xổm trên đất chổng mông gom bùn đất về chỗ A Hương, thấy vị nữ quan kia, lấy khí thế sét đánh không kịp bưng tai đứng lên, lưng tựa cây trúc, một cước đá mũi chân, nhổ nước miếng ở lòng bàn tay, dùng sức vuốt tóc, lộ ra cái trán to, hai tay ôm quyền hô cô nương, tự xưng A Lương ca, hành văn liền mạch lưu loát, nước chảy mây trôi.
+Cùng lứa, cùng thời với một vài người, nghĩ cũng đáng buồn, mà lại có thể lấy làm vinh dự.
 
-Tự nhiên như thế, chỉ quen tay mà thôi.
+Như đám Bái A Hương gặp phải A Lương.
 
-Nữ tử kia không thèm nhìn nam nhân, trực tiếp hỏi: "Đã là nho sinh, lại là kiếm tu, lại muốn ra quyền đối địch? Là muốn cố ý nhục nhã những người này?"
+Người sinh sớm hơn thì gặp vị Nhân Gian Đắc Ý Nhất, một kiếm dẫn nước trời đổ xuống.
 
-Nữ tử liếc nhìn hán tử đeo kiếm trên người, lại hỏi: "Dám cả gan trộm măng, roi trúc ở đây, vậy thì không có chút quan hệ nào với người đọc sách, là muốn hỏi kiếm Thanh Thần sơn chúng ta?"
+Còn lớp võ phu trẻ tuổi hôm nay thì gặp Tào Từ, cùng vị “Ẩn Quan” cảnh thứ mười một kia [?].
 
-Hán tử kia lắc đầu, nhẹ nhàng nhấc dây lưng quần, hơi chếch đi tầm mắt, không dám đối diện với nữ tử kia, ngại ngùng cười.
+Nghĩ tới đây, Bái A Hương liếc nhìn hai người vẫn đang so quyền trên sân.
 
-Nam nhi đại trượng phu, chưa bao giờ dễ dàng xuất kiếm.
+Bùi Tiền lại bị đánh đến lảo đảo. Nàng vừa dốc sức đứng vững, Liễu Tuế Dư đã đánh liền sáu quyền, trán, má, cổ, mỗi chỗ đều ăn hai đấm.
 
-Tất cả đều không cần phải nói.
+Đánh hai quyền vào cùng một chỗ là một trong những tinh túy của quyền pháp miếu Lôi Công phủ Mã Hồ, gọi là Điệp Lôi. Bái A Hương phải bước vào thập cảnh mới ngộ ra chiêu ấy. Quyền chiêu nhìn thì đơn giản, hai quyền tưởng như giống hệt, nhưng quyền ý vừa vặn trái ngược nhau, có thể đả thương nặng quyền ý của võ phu hoặc khiếu phủ của luyện khí sĩ [?].
 
-Ở sau đó, chính là một hồi đuổi giết gà bay chó sủa, gã tên A Lương kia chạy trốn khắp nơi ở Trúc Hải động thiên, vừa vặn ứng với câu nói cố ý hàm hồ kia của hắn, "Có tin ta bị vô số tiên tử đuổi theo hay không?"
+Cuối cùng Bùi Tiền lại trúng hai quyền liền vào ngực. Hai chân nàng rời đất, cả người ngã vật xuống.
 
-Có lẽ là đuổi giết cũng coi như truy đuổi.
+Nữ tử gầy yếu mới ngoài hai mươi ấy lại dùng khuỷu tay chống đất, vặn mình rồi lập tức nhẹ nhàng đứng dậy. Thương thế của nàng chẳng nhẹ, cục diện cũng đã rõ ai chiếm phần hơn, vậy mà một thân quyền ý chẳng giảm, ngược lại càng tăng.
 
-Cho đến khi hắn gặp vị phu nhân Thanh Thần sơn "mỹ dung, vui chân trần, tóc mai phát xanh" trong truyền thuyết kia.
+Bảy khiếu chảy máu, với một võ phu Viễn Du cảnh, cũng chỉ là chuyện nhỏ.
 
-Lại có một câu chuyện mới không thể kể cho người ngoài. Sau đó có nhiều ý kiến khác nhau, vẫn không có kết luận.
+Bái A Hương gật đầu.
 
-Mà A Lương kia đối với Bái A Hương tương đối thuận mắt, không đánh không quen biết, giúp Bái A Hương chặt một đoạn trúc xanh của Thanh Thần sơn, để hắn mang ra khỏi Trúc Hải động thiên.
+Liễu Tuế Dư thì nghiêm mặt, trong lòng đã hơi nổi giận. Nàng đã hai lần đổi hơi chân khí thuần túy, còn đối phương vẫn dùng hơi đầu tiên.
 
-Lưu U Châu sau khi nghe xong câu chuyện đặc sắc này, nhịn không được hỏi: "A Hương ngươi không phải về sau lại trở về Thanh Thần sơn, tham gia dạ du yến sao? Không lẽ A Lương đã theo họ các ngươi?"
+Thật ra quyền ý của Liễu Tuế Dư nào có yếu hơn. Chẳng qua nàng còn muốn dạy quyền, cho quyền, nên đã chủ động đổi hơi hai lần. Nhưng tiểu cô nương này cũng cứng đầu quá rồi. Chẳng lẽ nàng thật sự cho rằng quyền pháp của miếu Lôi Công phủ Mã Hồ kém núi Lạc Phách? Hay ngay từ đầu đã quyết cân cho rõ nắm đấm của Liễu Tuế Dư ở cửu cảnh đỉnh phong nặng đến đâu?
 
-Phái A Hương bất đắc dĩ nói: "Ý của hắn là không ngại thay đổi dòng họ, làm tổ tông của tất cả chúng ta."
+Cử Hình và Triêu Mộ xem đến căng thẳng. Bây giờ hai đứa mới phát hiện Bùi tỷ tỷ lúc hỏi quyền và Bùi tỷ tỷ vẫn nghiêm túc chép sách, lặng lẽ đi đường, khi nói chuyện phiếm chỉ cười ngượng ngùng, tựa như hai người khác hẳn nhau.
 
-Lưu U Châu mở rộng tầm mắt, vậy cũng được sao? Có chút đạo lý nha.
+Tạ Tùng Hoa cũng phải cảm khái. Ánh mắt chọn đồ đệ của Ẩn Quan quả là được.
 
-Phái A Hương cầm sáo trúc đứng lên, định để hai bên dừng tay.
+Cơ hội Trần Bình An đích thân dạy quyền cho Bùi Tiền hẳn chẳng nhiều. Nàng mới ngần ấy tuổi, còn Trần Bình An đã đến Kiếm Khí Trường Thành từ lâu. Cho nên núi Lạc Phách còn giấu mình trong mây mù, danh tiếng chưa ra khỏi một châu, nhất định còn có cao nhân khác tọa trấn.
 
-Nếu cứ tiếp tục đánh như vậy, Lôi Công miếu nho nhỏ sẽ thật sự có thêm một cái giường bệnh.
+Lưu U Châu biết đến núi Lạc Phách sớm, chẳng qua vì vị thần tài tương lai của Ngai Ngai châu quá rảnh rỗi.
 
-Tiểu cô nương vốn cứng nhắc kia đã ngã xuống đất bảy lần.
+Theo Tạ Tùng Hoa, tinh khí thần thấm trong xương cốt của hai thầy trò Trần Bình An và Bùi Tiền giống nhau đến mức tưởng chừng đúc từ cùng một khuôn. Còn quyền pháp và cách chọn chiêu đối địch thì khác nhau.
 
-Mà Liễu Tuế Dư cũng đánh ra chân hỏa, nhiều lần ra quyền, càng ngày càng gần với thần ý cửu cảnh viên mãn, chỉ là một chiêu sét kia, Viễn Du cảnh bình thường trúng một nửa, lúc này nên ngã xuống đất không dậy nổi, nôn ra máu không ngừng, hơn nữa không phải thương cân động cốt đơn giản như vậy, đã rơi xuống bệnh căn.
+Bùi Tiền trước mắt đã ra quyền thì chỉ có tiến, chẳng có lùi, từ đầu đến cuối đều như vậy.
 
-Cơ sở có vững chắc hơn nữa thể phách Viễn Du cảnh, cũng không chịu được một võ phu Sơn Điên cảnh bẻ gãy như vậy.
+Trần Bình An là sư phụ nàng, lúc đánh lại cân nhắc rất nhiều, hiếm khi chỉ cầu được đánh cho thỏa. Hắn có nhiều quyền chiêu, quyền pháp biến hóa khó lường, tùy căn cơ từng đối thủ mà dùng. Hắn cân nhắc kỹ gần như kén chọn, quyền nào cũng có tính toán, có chỗ dọn đường, đến cuối cùng phải gặt được nhiều nhất.
 
-Hai bên chỉ là quyền thuật thôi.
+Còn Bùi Tiền vừa ra quyền, đã có khí khái hào kiệt trước mặt chẳng còn ai. Tựa như mới ngần ấy tuổi, nàng đã hiểu được “trời đất chẳng có người thứ hai, hỏi quyền chỉ hỏi mình”.
 
-Cho dù Liễu Tuế Dư có thể dựa vào đó tăng trưởng quyền ý, có hi vọng để cho nàng tiến thêm một bước, nhưng mà Phái A Hương không cảm thấy làm như thế, phù hợp quy củ giang hồ.
+Tạ Tùng Hoa đi xa nhiều nơi, từng gặp võ phu thập cảnh của Lưu Hà châu và Kim Giáp châu, có người còn là bằng hữu thân thiết. Trong đó có hai vị lão nhân Chỉ cảnh tính nết trái ngược, song đều tôn sùng cảnh giới sâu xa gọi là “trời đất ngàn đời, một người hai nắm đấm”.
 
-Người trong giang hồ, võ phu thuần túy, chuyện bao che khuyết điểm, phải có mức độ.
+Đạo lý ấy lớn quá. Nói ra thì đơn giản, người ngoài nghe cũng chẳng khó hiểu. Chỉ là muốn chính mình đi đến chỗ ấy, lấy võ đạo của mình hiện ra đạo lý đó, lại xa vời biết bao.
 
-Một tiểu cô nương bị thương nặng một cảnh giới thấp, lấy cái này để cho Mã Hồ phủ Lôi Công miếu nhất mạch võ vận thêm một phần.
+Tạ Tùng Hoa vẫn còn một điều thắc mắc. Nếu hai thầy trò ở quê nhà gặp nhau ít, xa nhau nhiều, vì sao Bùi Tiền lại kính trọng sư phụ đến thế?
 
-Rất mất mặt.
+Cử Hình và Triêu Mộ đều hiểu chuyện, biết nhớ ân. Hai đứa chẳng những lấy nàng làm chỗ dựa, còn coi nàng là người thân, là bậc trưởng bối trong nhà. Tạ Tùng Hoa đã rất hài lòng, chẳng tìm được điểm nào đáng trách ở đệ tử. Thế nhưng đem so với Trần Bình An và Bùi Tiền, dường như vẫn có gì đó khác.
 
-Phái A Hương không thể nào chịu được cái mặt này.
+Người trong giang hồ vốn có câu cũ, đầu sư như đầu thai, thầy trò như cha con. Còn trong lòng đệ tử Bùi Tiền, vị Ẩn Quan trẻ tuổi kia dường như đã gom cả trời, đất, vua, cha và thầy vào một người.
 
-Cho nên Phái A Hương lên tiếng nói: "Không sai biệt lắm thì được rồi."
+Quả nhiên Ẩn Quan trẻ tuổi vẫn giỏi chăm trẻ con. Tạ Tùng Hoa đành nghĩ như vậy.
 
-Tạ Tùng Hoa khẽ gật đầu, Bái A Hương này coi như phúc hậu, nếu không hắn không lên tiếng, cô sẽ xuất kiếm.
+Bái A Hương vẫn chăm chú xem trận hỏi quyền, tấm tắc nói:
 
-Trực tiếp hỏi Kiếm Lôi Công miếu, hỏi người lớn tuổi nhất, bối phận cao nhất.
+“Hỏi quyền được như thế, thu hoạch ắt chẳng nhỏ. Biết đâu hơn một năm sau vẫn còn có chỗ được lợi ngoài dự liệu.”
 
-Liễu Tuế Dư tuy chưa thỏa mãn, vẫn gấp gáp thu quyền, mà Bùi Tiền kia tựa như hoàn toàn vong ngã, vẫn đánh ra một quyền, chỉ là bỗng nhiên bừng tỉnh, cưỡng chế một ngụm chân khí thuần túy nghịch hành, liều mạng khí huyết cuồn cuộn, cũng muốn thu quyền lui về phía sau mấy bước.
+Lưu U Châu lẩm bẩm:
 
-Nữ tử trẻ tuổi mảnh khảnh gầy yếu, thân hình lung lay sắp đổ, khuôn mặt đen đúa kia, da tróc thịt bong, một chỗ hốc mắt sưng đỏ, lộ ra hết sức chật vật, nàng hơi nghiêng đầu, liền có máu tươi từ trong tai chảy ra.
+“A Hương, ngươi còn chưa kể lai lịch cây sáo trúc. Vãn bối đã mặt dày đưa khoản tiền cung phụng ấy, tiền bối cũng mặt dày nhận mà chẳng kể sao?”
 
-Cùng là nữ tử, nắm đấm cửu cảnh của đối phương quả thật không nhẹ.
+Bái A Hương cười:
 
-Tình trạng thê thảm của Bùi Tiền, Lưu U Châu nhìn mà da đầu phát tê, quá dọa người.
+“Chẳng có gì phải giấu. Có điều ngươi nghe xong thì thôi, đừng đi rêu rao khắp nơi.”
 
-Bùi Tiền nâng tay, lấy mu bàn tay lau vết máu đỏ tươi từ thái dương trượt tới gò má.
+Lưu U Châu gật đầu lia lịa.
 
-Liễu Tuế Dư bắt đầu thu liễm một thân quyền ý, nhìn Bùi Tiền, ánh mắt tán thưởng không che giấu được, gật đầu cười nói: "Lần này ta không thắng, ngươi không thua, chúng ta coi như ngang tay. Về sau chờ ngươi phá cảnh, lại đến hỏi quyền một hồi. Ngươi tới Mã Hồ phủ tìm ta, hoặc là ta đi Lạc Phách sơn tìm ngươi, đều được."
+Năm ấy ở Trúc Hải động thiên phong cảnh đẹp tuyệt, Bái A Hương là võ phu cửu cảnh trẻ nhất từng có ở Ngai Ngai châu, đang lúc đắc ý nhất. Hắn từng làm khách dự tiệc sơn thủy của núi Thanh Thần. Một hôm uống say cùng mấy người bằng hữu, cả đám đi dạo, bắt gặp một hán tử lôi thôi đang lén đào rễ trúc và măng.
 
-Bùi Tiền ôm quyền hành lễ, chỉ là im lặng không lên tiếng, tựa như có chuyện muốn nói.
+Chưa từng thấy kẻ nào mặt dày đến thế. Hắn tự xưng là thổ địa công núi Thanh Thần, đào ít măng về đãi khách quý. Bị vạch trần, hắn lại một mực nói mình là thượng khách ở yến tiệc riêng của phu nhân núi Thanh Thần. Đã vậy, đào mấy ngọn măng thì có đáng gì?
 
-Cử hình phát hiện lòng bàn tay mình tràn đầy mồ hôi, quay đầu nhìn ánh mắt sớm mai ôm gậy leo núi, đầu nàng càng đầy mồ hôi.
+Một kiếm tiên trẻ tuổi lập tức dùng phi kiếm truyền tin cho phủ Sơn Thần. Kẻ kia vẫn gan to, tựa lưng vào một cây trúc, hai tay khoanh trước ngực, bảo bọn họ đụng tới mình thì coi như xui xẻo, cứ chờ phu nhân hạ lệnh đuổi khách đi. Từ nay mà bọn họ còn đặt được nửa bước vào Trúc Hải động thiên, lão tử sẽ theo họ bọn họ.
 
-Triêu Mộ nhận thấy được ánh mắt đánh giá của hắn, quay đầu nhìn về phía hắn nặn ra khuôn mặt tươi cười.
+Phủ Sơn Thần hồi âm rằng phu nhân chẳng quen người ấy. Thế là đám Bái A Hương đuổi đánh tên trộm măng như đuổi chó. Thoạt đầu chẳng ai coi là thật, phần nhiều chỉ muốn đùa cho vui. Có điều một vị kiếm tu lỡ xuất kiếm hơi nặng tay. Hán tử kia bèn la lên “mỗi quyền một tiểu huynh đệ”, đánh ngã cả bọn.
 
-Cử hình lập tức tức giận, nói: "Bùi tỷ tỷ cũng bị thương rồi, tỷ còn cười, tỷ sao không dứt khoát nhếch khóe miệng lên đến tai..."
+Chưa hết, hắn còn đem tất cả chôn xuống đất, bảo sáng mai sẽ mọc lên thật nhiều kiếm tiên Ngọc Phác cảnh và võ phu Sơn Điên cảnh, xem như quà đáp lễ núi Thanh Thần.
 
-Không đợi Lý Ngọc nói xong đã bị Tạ Tùng Hoa gõ một cái, giáo huấn: "Triêu Mộ là một cô gái nhỏ, khóc nhè ngươi cũng nói đi, cười ngươi cũng nói, chẳng lẽ muốn hắn học theo ngươi làm hũ nút à?"
+Đến lượt chôn Bái A Hương, hắn còn hỏi quyền pháp của mình thế nào.
 
-Cử hình ai thán một tiếng, "Nàng ngốc như vậy, học ta như thế nào."
+Mấy người còn lại hễ định phá đất chui ra lại bị hắn đánh cho ngất bằng một quyền. Bọn họ bị lấp đến tận cổ, trông như một đám măng nhọn lổm ngổm nhú lên khắp nơi.
 
-Tạ Tùng Hoa nhớ tới một chuyện, nghiêm mặt nói: "Giống lỗi với sớm tối. Trong thư Ẩn Quan nói cho ngươi biết, sai thì nghiêm túc hào kiệt, biết sai có thể sửa đại trượng phu?"
+Bái A Hương giữ nguyên, chẳng dại gì tự chuốc nhục.
 
-Cử hình sửng sốt một phen, tốt thôi, sư phụ cũng biết lấy Ẩn Quan Đại Nhân trấn áp mình, cho dù không cam tình không nguyện, vẫn là bướng bỉnh tính tình, thở phì phì nói: "Xin lỗi thì xin lỗi."
+Vị bằng hữu kiếm tiên trẻ tuổi bị lấp nhiều đất nhất. Hán tử vừa vun đất vừa lẩm bẩm, chỉ có đám kiếm tiên các ngươi là đông, lại còn thích phong lưu, thật đáng ghét. Hôm nay rơi vào tay ta rồi chứ gì...
 
-Tạ Tùng Hoa giơ tay lên, giả bộ muốn đánh: "Ngươi thành tâm thật lòng với ta!"
+Mãi sau một nữ quan truyền lệnh của phủ Sơn Thần Trúc Hải động thiên hiện thân, cả đám mới được giải vây.
 
-Cử hình thấy Triêu Mộ kia đang ngu ngốc dùng sức lắc đầu, hắn liền mềm lòng, kiên trì nói khẽ: "Xin lỗi."
+Lúc ấy hán tử vẫn đang chổng mông ngồi xổm, gom đất đắp thêm cho Bái A Hương. Vừa thấy vị nữ quan, hắn đứng bật dậy nhanh như sét, tựa lưng vào cây trúc, nhấc mũi chân [?], nhổ nước miếng vào lòng bàn tay rồi vuốt mạnh tóc ra sau, để lộ vầng trán rộng. Xong xuôi hắn mới ôm quyền chào cô nương, tự xưng A Lương ca. Từng động tác nối nhau như mây trôi nước chảy.
 
-Con mẹ nó, không được tự nhiên chết hắn.
+Thuần thục đến vậy, chẳng qua là quen tay.
+
+Nữ tử chẳng buồn nhìn hắn, hỏi thẳng:
+
+“Đã là nho sinh, lại là kiếm tu, sao cứ muốn dùng quyền đối địch? Ngươi định làm nhục những người này à?”
+
+Nàng liếc qua thanh kiếm hán tử đeo bên người, lại hỏi:
+
+“Dám đến đây trộm rễ trúc, trộm măng, chuyện ấy chẳng liên quan gì tới người đọc sách. Vậy là ngươi muốn hỏi kiếm núi Thanh Thần chúng ta?”
+
+Hán tử lắc đầu, nhẹ nhàng xốc thắt lưng, hơi dời mắt sang một bên. Hắn chẳng dám nhìn thẳng nữ tử, chỉ ngượng ngùng cười.
+
+Nam nhi đại trượng phu nào có dễ dàng xuất kiếm.
+
+Chẳng nói cũng đủ hiểu.
+
+Kế đó là một hồi đuổi giết gà bay chó sủa. Tên A Lương chạy khắp Trúc Hải động thiên, vừa khéo ứng với câu hắn cố tình nói mập mờ: “Có tin ta được vô số tiên tử đuổi theo không?”
+
+Bị đuổi giết thì cũng là được đuổi theo.
+
+Mãi tới khi hắn gặp vị phu nhân núi Thanh Thần trong lời đồn, có dung mạo đẹp, thích đi chân trần, tóc mai ánh xanh.
+
+Lại sinh ra một câu chuyện khác chẳng thể kể cho người ngoài. Về sau lời đồn có đủ kiểu, đến nay vẫn chẳng ai biết thực hư.
+
+Còn A Lương thấy Bái A Hương khá thuận mắt. Chẳng đánh chẳng quen, hắn giúp Bái A Hương chặt một đoạn trúc xanh của núi Thanh Thần để mang ra khỏi động thiên.
+
+Nghe xong câu chuyện đặc sắc ấy, Lưu U Châu nhịn chẳng được, hỏi:
+
+“Về sau A Hương chẳng phải còn trở lại núi Thanh Thần dự tiệc đêm sao? Chẳng lẽ A Lương đã theo họ các ngươi thật?”
+
+Bái A Hương bất đắc dĩ đáp:
+
+“Ý hắn là hắn chẳng ngại đổi họ để làm tổ tông của tất cả bọn ta.”
+
+Lưu U Châu được mở rộng tầm mắt. Thế mà cũng được ư? Nghĩ kỹ lại, cũng có chút đạo lý.
+
+Bái A Hương cầm sáo đứng dậy, định bảo hai bên dừng tay.
+
+Đánh tiếp thế này, ngôi miếu Lôi Công bé nhỏ thật sự phải kê thêm một cái giường bệnh. Tiểu cô nương cứng đầu kia đã ngã xuống đất bảy lần.
+
+Liễu Tuế Dư cũng đã đánh đến nổi nóng, mấy quyền sau càng lúc càng gần thần ý cửu cảnh viên mãn. Riêng chiêu Điệp Lôi ấy, võ phu Viễn Du cảnh bình thường trúng một nửa thôi thì lúc này đã nằm chẳng dậy nổi, nôn máu mãi. Đâu chỉ là thương gân động cốt, e đã để lại bệnh căn.
+
+Căn cơ có vững, thể phách Viễn Du cảnh cũng chẳng chịu nổi một võ phu Sơn Điên cảnh giày vò như vậy. Hai người chỉ luận bàn quyền pháp mà thôi.
+
+Liễu Tuế Dư có thể nhờ đó tăng thêm quyền ý, có hy vọng tiến thêm một bước. Nhưng Bái A Hương chẳng thấy làm thế là hợp quy củ giang hồ. Người trong giang hồ, nhất là võ phu thuần túy, có bênh người nhà cũng phải có chừng mực.
+
+Để một tiểu cô nương thấp hơn mình một cảnh chịu trọng thương, lấy đó bồi thêm một phần võ vận cho miếu Lôi Công phủ Mã Hồ, thật mất mặt.
+
+Bái A Hương chịu chẳng nổi cái mất mặt ấy, bèn lên tiếng:
+
+“Đến đó là được rồi.”
+
+Tạ Tùng Hoa khẽ gật đầu. Bái A Hương này kể cũng phúc hậu. Hắn mà chẳng lên tiếng, nàng đã xuất kiếm, trực tiếp hỏi kiếm miếu Lôi Công, tìm ngay người tuổi cao nhất, bối phận lớn nhất để hỏi.
+
+Liễu Tuế Dư còn chưa thỏa, nghe lời vẫn vội thu quyền. Bùi Tiền tựa như đã quên cả bản thân, đánh tiếp một quyền rồi mới đột nhiên bừng tỉnh. Nàng ép một hơi chân khí thuần túy chạy ngược lại, mặc cho khí huyết cuồn cuộn, nhất quyết thu quyền, lui về sau mấy bước.
+
+Nữ tử trẻ tuổi gầy gò lảo đảo như sắp ngã. Khuôn mặt sạm đen đã rách da, một bên hốc mắt đỏ sưng, dáng vẻ chật vật vô cùng. Nàng hơi nghiêng đầu, máu tươi liền chảy từ trong tai ra.
+
+Cùng là nữ tử, nhưng quyền của vị cửu cảnh kia quả thật chẳng nhẹ. Lưu U Châu nhìn dáng vẻ thê thảm của Bùi Tiền mà tê cả da đầu.
+
+Bùi Tiền giơ tay, dùng mu bàn tay lau vệt máu đỏ vừa từ thái dương trượt xuống gò má.
+
+Liễu Tuế Dư thu liễm một thân quyền ý, nhìn Bùi Tiền bằng ánh mắt chẳng giấu nổi tán thưởng. Nàng gật đầu cười:
+
+“Lần này ta chẳng thắng, ngươi chẳng thua, cứ tính là ngang tay. Chờ ngươi phá cảnh rồi lại hỏi quyền một trận. Ngươi đến phủ Mã Hồ tìm ta, hay ta đi núi Lạc Phách tìm ngươi, đều được.”
+
+Bùi Tiền ôm quyền hành lễ. Nàng im lặng, tựa như có chuyện còn muốn nói.
+
+Cử Hình mới hay lòng bàn tay mình đã đầy mồ hôi. Hắn ngoảnh sang Triêu Mộ đang ôm cây gậy leo núi, thấy trán nàng còn đẫm mồ hôi hơn.
+
+Triêu Mộ nhận ra ánh mắt hắn, bèn quay sang, cố nặn ra một nụ cười.
+
+Cử Hình lập tức cáu:
+
+“Bùi tỷ tỷ bị thương rồi mà ngươi còn cười! Sao chẳng ngoác miệng tới tận mang tai đi...”
+
+Chưa nói hết, hắn đã bị Tạ Tùng Hoa gõ đầu. Nàng dạy:
+
+“Triêu Mộ chỉ là một tiểu cô nương. Người ta khóc ngươi cũng nói, cười ngươi cũng nói. Chẳng lẽ ngươi muốn nó học theo ngươi, làm cái hũ nút à?”
+
+Cử Hình thở dài:
+
+“Nàng ngốc như thế, sao học được con.”
+
+Tạ Tùng Hoa nhớ ra một chuyện, nghiêm mặt:
+
+“Xin lỗi Triêu Mộ đi. Chẳng phải trong thư Ẩn Quan đã nói, dám nhận sai mới là hào kiệt, biết sai chịu sửa mới là đại trượng phu hay sao?”
+
+Cử Hình sững người. Được lắm, đến sư phụ cũng biết lấy Ẩn Quan đại nhân ra trị mình. Hắn bướng bỉnh, bụng chẳng tình nguyện chút nào, giận dỗi đáp:
+
+“Xin lỗi thì xin lỗi.”
+
+Tạ Tùng Hoa giơ tay dọa đánh:
+
+“Thành tâm thật lòng cho ta!”
+
+Cử Hình thấy Triêu Mộ còn ngốc nghếch ra sức lắc đầu, lòng hắn chợt mềm đi. Hắn đánh bạo nói khẽ:
+
+“Xin lỗi.”
+
+Mẹ nó, ngượng chết đi được.
 
 Triêu Mộ nhoẻn miệng cười.
 
-Tạ Tùng Hoa không khỏi nhớ tới một câu khác trong thư, lúc trước cảm thấy ẩn quan trẻ tuổi quá mức lề mề, lề mề, nhất là vì hai đứa trẻ lớn lối mà nói năng lớn lối như vậy, nói hơi quá sớm, chỉ là không biết vì sao lúc này lại cảm thấy không nên ngại sớm, ngược lại ngại người trẻ tuổi kia viết ít trong thư. Đạo lý tương tự như "nhập gia tùy tục còn chưa đủ, thay đổi phong tục đại kiếm tiên" quả thật không chê nhiều.
+Tạ Tùng Hoa lại nhớ đến một câu khác trong thư. Trước kia nàng thấy vị Ẩn Quan trẻ tuổi viết thư quá lề mề, dài dòng. Nhất là nói những lời lớn lao như thế với hai đứa nhỏ, nàng thấy còn quá sớm. Chẳng hiểu vì sao bây giờ lại cảm thấy sớm cũng chẳng sao, chỉ tiếc người trẻ tuổi kia viết còn ít quá.
 
-Tin tưởng hai đứa nhỏ hành động và hành hương, trên đường tương lai, mới có thể chân chính ý thức được những lời nói "Đại kiếm tiên dịch phong dịch tục", rốt cuộc mang theo kỳ vọng bao lớn của ẩn quan trẻ tuổi.
+Đạo lý như “chỉ nhập gia tùy tục thì chưa đủ, đại kiếm tiên còn phải đổi được thói tục”, quả thật nghe bao nhiêu cũng chẳng thừa.
 
-Đứng ở trên bậc thang ngoài cửa Lôi Công miếu xa xa, Bái A Hương đối với Bùi Tiền kia càng ngày càng nhìn với cặp mắt khác xưa, chú ý nhất là một con đường võ đạo cày cấy một phần thu hoạch, càng là thiên tài trẻ tuổi, càng dễ dàng ở trên chuyện thể phách chịu đựng, rơi xuống một tai hoạ ngầm lớn tương lai võ đạo đăng đỉnh.
+Hẳn sau này, trên đường đi xa, Cử Hình và Triêu Mộ mới hiểu được trong mấy chữ “đại kiếm tiên dời phong đổi tục” kia, vị Ẩn Quan trẻ tuổi đã gửi gắm bao nhiêu kỳ vọng.
 
-Võ học tông sư, hỏi quyền lẫn nhau, thể phách bằng thép, thường thường lợi và hại đều có, chỗ tốt là có thể tăng quyền ý, hoàn thiện quyền pháp, nhưng chỉ sợ từng trận thương thế, không thể gân cốt toàn bộ khỏi hẳn, hạ xuống rất nhiều bệnh căn nhỏ không thể tra xét, cảnh giới cao, vấn đề càng lớn. Ví dụ như chỉ cảnh tầng thứ nhất, gọi là khí thịnh, nhân thân tiểu thiên địa, một khi thân thể gân cốt, kinh mạch có nhiều núi sông tan vỡ, còn khí thịnh như thế nào?
+Trên bậc thềm ngoài miếu, Bái A Hương càng nhìn Bùi Tiền càng thấy nàng khác trước. Con đường võ đạo chú trọng làm bao nhiêu, thu bấy nhiêu. Thiên tài càng trẻ càng dễ vì rèn thể phách mà để lại mối họa lớn, tới ngày muốn bước lên đỉnh võ đạo mới thấy.
 
-Bản thân Bái A Hương đã chịu thiệt lớn, tuy có cái tên son phấn rất nặng, nhưng quyền pháp của Bái A Hương, có tiếng cương mãnh, trước kia tính tình càng thêm kiệt ngạo, sở dĩ trở thành người thứ ba Lưu thị cung phụng, đương nhiên không phải Bái A Hương ham chút tiền thần tiên kia, làm một võ phu thuần túy, chú ý nhất là thân không ngoại vật, chủ yếu vẫn là lo lắng đệ tử lui đường, hương khói truyền thừa, đừng thấy Bái A Hương là dung mạo trẻ tuổi tuấn tú công tử ca, thực ra tuổi tác đã cao, cùng lão thất phu Vương Bắc Câu Lô Châu kia đến Phù Huề, là tuổi tác không sai biệt lắm, Bái A Hương lúc trẻ gây thù hằn quá nhiều, Vương Thành Phù chỉ là một trong số đó mà thôi.
+Tông sư võ học hỏi quyền lẫn nhau, có thể phách cứng như thép là chuyện vừa lợi vừa hại. Lợi ở chỗ tăng quyền ý, hoàn thiện quyền pháp. Chỉ sợ sau mỗi trận, gân cốt chưa thực sự lành hẳn, để lại những mầm bệnh nhỏ khó thấy. Cảnh giới càng cao, hậu họa càng lớn.
 
-Phái A Hương thuộc loại có nỗi khổ tự biết, bởi vì hắn quả thật tễ thân mười cảnh võ phu tầng thứ hai Quy Chân, đáng tiếc lúc trước nội tình khí thịnh, đánh thật sự không ổn, hôm nay Bái A Hương là cố gắng đề cao một chút tâm khí, không để cho mình tuyệt vọng đối với "Thần đến" kia.
+Như tầng đầu của Chỉ cảnh gọi là Khí Thịnh. Trong tiểu thiên địa của thân người, một khi gân cốt, kinh mạch có quá nhiều chỗ tựa núi sông tan vỡ, khí còn thịnh thế nào được?
 
-Cho nên những năm này thỉnh thoảng chỉ điểm cho Liễu Tuế Dư ba vị đệ tử đích truyền, Phái A Hương muốn bọn họ nhớ kỹ một điểm, quyền pháp cầu cao cũng cầu lớn, phải theo đuổi một sơn hà khí tráng, tỷ như học một chút kiếm tiên viễn du Bắc Câu Lô Châu kia. Nhưng mà trừ Liễu Tuế Dư ra, hai vị đích truyền còn lại, còn lại truyền cho bảy người đệ tử, hiển nhiên không có ai thật sự hiểu ý của Phái A Hương, không một ai đi hướng kiếm khí trường thành khuyến khích khí lực, quyền ý.
+Bản thân Bái A Hương đã chịu thiệt lớn vì chuyện này. Tên hắn nghe nặng mùi son phấn, quyền pháp lại nổi tiếng cương mãnh, tính tình năm xưa còn kiêu ngạo hơn bây giờ. Hắn chịu làm vị cung phụng thứ ba của Lưu thị, đâu phải vì ham chút tiền thần tiên. Võ phu thuần túy coi trọng nhất là thân chẳng nhờ ngoại vật. Hắn chỉ lo chừa một con đường lui cho đệ tử, để hương khói còn có người nối.
 
-Có chút là ra vẻ không biết, không quá thích đi Kiếm Khí Trường Thành chịu chết, đạo lý rất đơn giản, ngay cả kiếm tiên cũng sẽ chết, võ phu ở bên kia sẽ chỉ chết nhanh hơn, thường thường là vừa ra khỏi thành, đã chú định là có kết cục đi không về. Có chút thì tự nhận đi tới cuối võ đạo, bắt đầu hưởng phúc, dốc sức truyền quyền cho đệ tử đời thứ ba Mã Hồ phủ Lôi Công miếu nhất mạch, nói hay ho là giúp đỡ sư tổ Bái A Hương khai chi tán diệp, quyền trấn một châu. Đương nhiên cũng có chút là ở vương triều thế tục đảm nhiệm võ tướng, cần giúp đỡ trấn áp cho quân chủ đế vương, thu nạp võ vận một quốc gia, quả thật không thoát thân được, vị đại đệ tử kia của Bái A Hương chính là tình cảnh như vậy.
+Đừng thấy Bái A Hương có vẻ ngoài của một công tử trẻ tuổi tuấn tú. Tuổi thật của hắn đã cao, xấp xỉ lão thất phu Vương Phó Kỳ ở Bắc Câu Lô châu [?]. Hồi trẻ Bái A Hương kết thù quá nhiều, lão họ Vương chỉ là một trong số đó.
 
-Nhiều khi, ngàn chọn vạn tuyển, thật vất vả thu vài vị đệ tử đắc ý, mấy năm mấy chục năm dốc lòng bồi dưỡng, truyền thụ quyền pháp chân ý, nhưng theo thời gian trôi qua, các đệ tử đã có cuộc đời của mình, lâu ngày, thật sự chỉ còn lại chút danh phận thầy trò, cho dù là quyền pháp nhất mạch, giữa thầy trò, cũng sẽ dần dần đi xa. Cho dù ở sâu trong lòng những đệ tử kia vẫn kính trọng sư phụ như cũ, nhưng phần nhiều là thân bất do kỷ, quyền bất do người, Bái A Hương đối với điều này có chút tiếc nuối, chưa nói tới quá nhiều thương cảm thất vọng.
+Nỗi khổ của Bái A Hương, chỉ mình hắn biết. Hắn đã bước vào Quy Chân, tầng thứ hai của thập cảnh, tiếc rằng nền móng Khí Thịnh năm xưa đặt chưa vững. Bây giờ hắn cố giữ cho tâm khí cao thêm một chút, để bản thân khỏi tuyệt vọng với tầng Thần Đáo.
 
-Mã Hồ phủ Lôi Công miếu nhà mình, ngoại trừ Liễu Tuế Dư đã một mình đảm đương một phía, còn có đệ tử quan môn tuổi tác thiếu niên kia, đủ để kế thừa hương khói y bát.
+Vì vậy những năm qua, mỗi lần chỉ điểm cho Liễu Tuế Dư và hai đệ tử đích truyền kia, Bái A Hương đều muốn bọn họ ghi nhớ một điều. Quyền pháp đã cầu cao còn phải cầu lớn, phải có khí phách sơn hà, có thể học theo những kiếm tiên Bắc Câu Lô châu chịu đi xa.
 
-Trên thực tế, lần đó ở Trúc Hải động thiên đụng vào A Lương, thật ra đối phương đã sớm nói với A Lương, tâm lớn chút, dù sao võ phu mười cảnh ván đã đóng thuyền, cũng đừng luôn mở to mắt nhìn cảnh giới này, lại chạy không thoát, nhìn nhiều phong cảnh cao xa rộng lớn hơn nữa đi, đỉnh Tuệ Sơn, đi bò một chút, Kiếm Khí Trường Thành đi ngó ngó, bắc Câu Lô Châu đi dạo một lần, trời góc động thiên móc cửa...
+Ngoại trừ Liễu Tuế Dư, hai vị đích truyền còn lại cùng bảy đệ tử khác [?], rõ ràng chẳng ai thật sự hiểu ý hắn. Chẳng một ai tới Kiếm Khí Trường Thành mài giũa khí lực và quyền ý.
 
-Đáng tiếc lúc ấy Bái A Hương không nghĩ nhiều, đương nhiên cũng trách A Lương chó má kia, rất nhanh đã chuyển đề tài, hai mắt tỏa sáng, say khướt lau miệng, tán gẫu tư thái một số tiên tử nào đó.
+Có kẻ giả vờ chẳng hiểu, vì chẳng muốn đến Kiếm Khí Trường Thành chịu chết. Đạo lý rất đơn giản, ngay cả kiếm tiên cũng có thể chết, võ phu qua đó chỉ chết nhanh hơn. Thường vừa ra khỏi thành đã định sẵn đi chẳng có ngày về.
 
-Phái A Hương thở dài trong lòng, cuộc đời luôn là thình lình, một quyền như vậy, không nhẹ không nặng, chỉ là khiến người ta không có sức chống đỡ, đại khái đây chính là cái gọi là cảm giác vô lực.
+Có kẻ tự thấy mình đã đi đến cuối đường võ đạo, bắt đầu hưởng phúc, dốc sức truyền quyền cho đệ tử đời thứ ba của miếu Lôi Công. Nói cho hay thì là giúp sư tổ Bái A Hương khai chi tán diệp, dùng quyền trấn một châu.
 
-Võ phu thập cảnh, cũng không thể ngoại lệ.
+Cũng có người làm võ tướng trong vương triều thế tục, phải giúp quân chủ trấn giữ triều đình, thu nạp võ vận một nước, thật sự chẳng thoát thân được. Đại đệ tử của Bái A Hương chính là một người như thế.
 
-Phái A Hương thu liễm phần tâm tư này, cười nói: "Bùi Tiền, không ngại nếu nói nhỏ nơi, đoạn thời gian này an tâm ở đây dưỡng thương."
+Nhiều khi lựa hết người này đến người khác, vất vả lắm mới thu được vài đệ tử đắc ý, dốc lòng dạy dỗ mấy năm, mấy chục năm, truyền hết chân ý quyền pháp cho họ. Nhưng ngày tháng trôi qua, đệ tử đều có cuộc đời riêng. Lâu dần chỉ còn danh phận thầy trò, cùng một mạch quyền pháp mà thầy trò vẫn mỗi người một ngả.
 
-Tiểu cô nương tự xưng Lạc Phách Sơn "Khai Sơn đệ tử" này, không hổ là "chỉ được năm lần viễn du cảnh mạnh nhất, trụ cột chịu đựng tốt đến mức không thể tưởng tượng.
+Sâu trong lòng, các đệ tử ấy vẫn kính sư phụ như xưa. Chẳng qua nhiều chuyện thân khó tự chủ, nắm đấm cũng chẳng do mình làm chủ. Bái A Hương có tiếc nuối, song chưa tới mức đau lòng hay thất vọng.
 
-Dưỡng thương ở đây, không cần quá lâu.
+Miếu Lôi Công phủ Mã Hồ nhà mình còn Liễu Tuế Dư đã đủ sức một mình gánh vác, và một đệ tử quan môn hãy còn là thiếu niên. Hai người cũng đủ nối hương khói, giữ y bát.
 
-Bái A Hương càng thêm tò mò Lạc Phách sơn Bảo Bình châu kia, sư phụ truyền thụ quyền pháp cho Bùi Tiền, hỗ trợ rèn luyện thể phách rốt cuộc là thần thánh phương nào, không lẽ là một vị võ phu cửu cảnh nào đó ngoài Bảo Bình châu Tống Trường Kính? Chỉ cảnh võ phu, khả năng rất nhỏ, bằng không Bái A Hương không có khả năng chưa từng nghe qua danh hiệu đối phương. Tông sư thập cảnh của Hạo Nhiên Thiên Hạ, so với tu sĩ thượng ngũ cảnh, thật sự quá ít quá ít, ví dụ như hàng xóm Bắc Câu Lô châu, nhưng Vương phó Kỳ, Cố Hữu, võ phu họ Lý ba người, một vị võ phu cửu cảnh, đã liên quan đến lưu chuyển võ vận một châu, rất khó giấu diếm quá sâu.
+Lần gặp ở Trúc Hải động thiên, A Lương thật ra đã khuyên Bái A Hương để lòng rộng thêm. Võ phu thập cảnh đã là chuyện chắc như đóng đinh, hà tất ngày nào cũng trợn mắt nhìn một cảnh ấy? Nó có chạy đi đâu. Chi bằng đi xem phong cảnh cao xa hơn. Lên đỉnh núi Tuệ Sơn một chuyến, ngó qua Kiếm Khí Trường Thành, dạo một vòng Bắc Câu Lô châu, đến tận góc trời gõ cửa động thiên...
 
-Sau khi hỏi quyền, Bái A Hương đau đầu, chính là nữ kiếm tiên Tạ Tùng Hoa kia.
+Tiếc là hồi đó Bái A Hương chẳng nghĩ sâu. Kể cũng tại tên A Lương khốn kiếp, vừa dứt lời đã đổi đề tài. Hai mắt hắn sáng rực, say khướt quệt miệng rồi kéo sang kể dáng vẻ của một vị tiên tử nào đó.
 
-Nhìn thế nào cũng là tư thế lai giả bất thiện.
+Bái A Hương thở dài trong lòng. Đời người thường bất thình lình đánh tới một quyền như vậy. Chẳng nhẹ chẳng nặng, chỉ khiến người ta cảm thấy chẳng còn sức đỡ. Có lẽ đó là cái gọi là bất lực.
 
-Bùi Tiền vẫn luôn trầm mặc rốt cục mở miệng nói: "Vãn bối còn có một quyền cuối cùng, muốn thỉnh giáo Liễu tiền bối."
+Võ phu thập cảnh cũng chẳng tránh được.
 
-Liễu Tuế Dư duỗi ra hai ngón tay, lần lượt chống đỡ hai bên huyệt Thái Dương, nhẹ nhàng xoa bóp.
+Bái A Hương thu lại tâm tư, cười nói:
 
-Tạ Tùng Hoa do dự một chút, hỏi: "Bùi Tiền, thật sự nghĩ kỹ chưa?"
+“Bùi Tiền, nếu chẳng chê nơi này nhỏ, thời gian tới cứ yên tâm ở đây dưỡng thương.”
 
-Bùi Tiền gật gật đầu, xoay người nhìn phía Tạ Tùng Hoa, Bùi Tiền nhếch miệng cười, "Chỉ ra một quyền."
+Tiểu cô nương tự xưng là khai sơn đệ tử của núi Lạc Phách quả nhiên xứng với danh Viễn Du cảnh mạnh nhất đã có tới năm lần. Căn cơ chịu đòn tốt đến khó tưởng tượng. Có dưỡng thương ở đây cũng chẳng mất bao lâu.
 
-Liễu Tuế Dư thì quay đầu nhìn về sư phụ sau lưng.
+Bái A Hương càng tò mò về núi Lạc Phách ở Bảo Bình châu. Người truyền quyền, rèn thể phách cho Bùi Tiền rốt cuộc là ai? Chẳng lẽ Bảo Bình châu ngoài Tống Trường Kính còn có một vị võ phu cửu cảnh như vậy?
 
-Phái A Hương suy nghĩ một chút, "Vậy thì để tiểu cô nương ở chỗ này thêm mấy ngày."
+Khó mà là võ phu Chỉ cảnh, bằng không hắn chẳng thể chưa từng nghe danh. Tông sư thập cảnh ở Hạo Nhiên thiên hạ ít hơn tu sĩ thượng ngũ cảnh nhiều lắm. Như Bắc Câu Lô châu ngay bên cạnh, cũng chỉ có ba người là Vương Phó Kỳ [?], Cố Hữu và võ phu họ Lý. Đến võ phu cửu cảnh đã liên quan đến sự lưu chuyển võ vận của cả một châu, muốn giấu cũng khó giấu quá sâu.
 
-Ngụ ý của ông ta là để Liễu Tuế Dư không cần quá câu nệ bối phận cao thấp, cảnh giới chênh lệch.
+Trận hỏi quyền đã xong, điều khiến Bái A Hương đau đầu là nữ kiếm tiên Tạ Tùng Hoa. Nhìn thế nào, nàng cũng chẳng có vẻ đến đây vì chuyện lành.
 
-Nhưng Phái A Hương tụ âm thành tuyến, nhắc nhở đệ tử, "Nhớ kỹ, ra quyền có thể nặng chút, nhưng tuyệt đối không được làm tổn thương đến căn bản võ đạo của đối phương."
+Bùi Tiền im lặng từ nãy, rốt cuộc lên tiếng:
 
-Đã không muốn kết thù với Lạc Phách Sơn kia, càng là vượt qua bản tâm võ phu tiền bối.
+“Vãn bối còn một quyền cuối cùng, muốn thỉnh giáo Liễu tiền bối.”
 
-Liễu Tuế Dư cười đáp: "Sao nỡ. Hạt giống tốt như vậy, thiên hạ càng nhiều càng tốt."
+Liễu Tuế Dư duỗi hai ngón tay, lần lượt ấn hai bên thái dương, xoa nhẹ.
 
-Bùi Tiền hướng Liễu Tuế Dư ôm quyền nói: "Vãn bối biết, là ta vô lễ. Cùng Liễu tiền bối..."
+Tạ Tùng Hoa do dự một thoáng rồi hỏi:
 
-Lại nhìn phía Phái A Hương, "Cũng nói một tiếng xin lỗi với Tông Sư Bái."
+“Bùi Tiền, thật sự nghĩ kỹ rồi?”
 
-Liễu Tuế Dư gật đầu nói: "Vậy chúng ta đổi một quyền, ngươi tính là quà gặp mặt, ta giúp đỡ Mã Hồ phủ Lôi Công miếu đáp lễ."
+Bùi Tiền gật đầu, xoay sang nhìn Tạ Tùng Hoa, nhếch miệng cười:
 
-Tạ Tùng Hoa cố nhịn cười, nói với hai đứa bé: "Tất cả học theo một chút, Bùi tỷ tỷ của các ngươi mới là phong phạm đại gia."
+“Chỉ một quyền thôi.”
 
-Cử hình gật đầu nói: "Ta muốn học có thể học, người nào đó liền khó nói."
+Liễu Tuế Dư quay đầu nhìn sư phụ ở phía sau.
 
-Triêu Mộ kéo nhẹ tay áo Tạ Tùng Hoa, run giọng nói: "Sư phụ, con hơi sợ."
+Bái A Hương nghĩ một lúc:
 
-Sau đó Bùi Tiền dừng bước, làm một động tác kỳ quái, nó nâng bàn tay, nhẹ nhàng vỗ trán.
+“Vậy giữ tiểu cô nương ở lại thêm mấy ngày.”
 
-Ở đỉnh Sư Tử Bắc Câu Lô Châu, dưới quyền của Lý Nhị, Trần Bình An là lấy lục cảnh tễ thân thất cảnh Kim Thân cảnh.
+Ý hắn là Liễu Tuế Dư cứ đánh, chẳng cần câu nệ vai vế hay chênh lệch cảnh giới quá mức. Có điều Bái A Hương vẫn tụ âm thành tuyến, nhắc đệ tử:
 
-Mà Lý Nhị cho quyền, luôn luôn có bắn tên, cực có tính nhắm vào, cho nên rất nhiều quyền, không thích hợp đánh ở trên thân một võ phu lục cảnh, lại thích hợp rèn luyện thể phách Bùi Tiền.
+“Nhớ lấy, quyền có thể nặng hơn một chút, tuyệt đối chớ làm tổn thương căn bản võ đạo của đối phương.”
 
-Cũng may Lý Hòe nửa năm qua đều ở trấn nhỏ chân núi, giúp đỡ mẫu thân buôn bán kiếm tiền, một lần cũng chưa từng thấy con đường luyện quyền của Bùi Tiền, bằng không hoàn toàn khẳng định không có tâm tư luyện quyền.
+Hắn chẳng muốn kết thù với núi Lạc Phách. Làm tổn hại căn bản của một vãn bối cũng trái với bản tâm võ phu của hắn.
 
-Luyện quyền quá khổ, thật rõ ràng.
+Liễu Tuế Dư cười đáp:
 
-Mà chuyện sợ nhất chịu khổ nhất, Bùi Tiền năm đó, hôm nay Lý Hòe, thật ra không khác gì.
+“Sao con nỡ? Hạt giống tốt thế này, thiên hạ có càng nhiều càng hay.”
 
-Chẳng qua vận khí của Lý Hòe quả thật tốt hơn Bùi Tiền một chút, tạm thời còn không biết mình căn bản không cần chịu khổ.
+Bùi Tiền ôm quyền với Liễu Tuế Dư:
 
-Người bình thường muốn nói so đấu gan dạ với Lý Hòe so học vấn, đều có kịch, duy chỉ có so đấu ra cửa đạp cứt chó, thực không có cách nào so sánh.
+“Vãn bối hiểu. Là vãn bối thất lễ với Liễu tiền bối...”
 
-Phái A Hương đột nhiên hỏi: "Quyền đầu tiên lúc trước tên là gì?"
+Nàng lại nhìn sang Bái A Hương:
 
-Nếu quyền ý đã rõ, hỏi lại quyền chiêu của đối phương, chưa nói tới không hợp quy củ giang hồ.
+“Cũng xin tạ lỗi với Bái tông sư.”
 
-Bùi Tiền chậm rãi lui về phía sau, không ngừng kéo giãn khoảng cách với Liễu Tuế Dư, đáp: "Quyền ra Lạc Phách Sơn, lại không phải sư phụ truyền thụ cho ta, tên là Thần Nhân Lôi Cổ Thức."
+Liễu Tuế Dư gật đầu:
 
-Phái A Hương cười gật đầu, "Sư phụ ngươi bao nhiêu tuổi rồi?"
+“Vậy chúng ta đổi một quyền. Quyền của ngươi xem như quà gặp mặt, ta thay miếu Lôi Công phủ Mã Hồ đáp lễ.”
+
+Tạ Tùng Hoa nén cười, dặn hai đệ tử:
+
+“Học lấy một chút. Bùi tỷ tỷ của các con mới có phong phạm đại gia.”
+
+Cử Hình gật đầu:
+
+“Con muốn học thì học được, còn người nào đó thì khó nói.”
+
+Triêu Mộ khẽ kéo tay áo Tạ Tùng Hoa, run giọng:
+
+“Sư phụ, con hơi sợ.”
+
+Bùi Tiền chợt dừng bước, làm một động tác lạ. Nàng giơ bàn tay, vỗ nhẹ lên trán.
+
+Trên đỉnh Sư Tử ở Bắc Câu Lô châu, Trần Bình An đã từ lục cảnh bước vào thất cảnh Kim Thân dưới quyền của Lý Nhị.
+
+Mỗi quyền Lý Nhị cho ăn đều có chỗ nhằm tới. Vì thế có nhiều quyền chẳng hợp để đánh lên thân một võ phu lục cảnh, song lại vừa vặn dùng rèn thể phách của Bùi Tiền.
+
+May mà suốt nửa năm ấy Lý Hòe đều ở trấn nhỏ dưới chân núi, giúp mẫu thân làm ăn kiếm tiền. Hắn chưa một lần thấy Bùi Tiền luyện quyền thế nào, bằng không chắc chắn chẳng còn chút tâm tư luyện quyền.
+
+Luyện quyền khổ quá, nhìn một cái là biết ngay.
+
+Còn nói tới sợ chịu khổ, Bùi Tiền năm xưa với Lý Hòe bây giờ thật ra chẳng khác gì nhau. Chỉ có điều vận khí của Lý Hòe quả thật tốt hơn nàng một chút, đến giờ hắn vẫn chưa biết mình vốn chẳng cần chịu khổ.
+
+Người thường muốn so gan dạ, so học vấn với Lý Hòe thì còn có cửa. Riêng so xem ai vừa ra đường đã giẫm phải cứt chó, thật chẳng có cách nào thắng hắn.
+
+Bái A Hương bỗng hỏi:
+
+“Một quyền đầu tiên ban nãy tên là gì?”
+
+Quyền ý đã bày ra rõ ràng, hỏi tên quyền chiêu của đối phương cũng chẳng đến mức trái quy củ giang hồ.
+
+Bùi Tiền chậm rãi lui về sau, kéo giãn khoảng cách với Liễu Tuế Dư, rồi đáp:
+
+“Quyền xuất từ núi Lạc Phách, do người khác truyền cho vãn bối. Tên là Thần Nhân Lôi Cổ Thức.”
+
+Bái A Hương cười gật đầu:
+
+“Sư phụ ngươi bao nhiêu tuổi rồi?”
 
 Bùi Tiền lắc đầu.
 
-Có thể nói cái gì, không nên nói cái gì, Bùi Tiền rất rõ ràng.
+Chuyện gì có thể nói, chuyện gì chẳng nên nói, Bùi Tiền biết rất rõ. Việc chẳng nói được thì cứ ngậm miệng. Đó cũng là một cách chân thành với người ta.
 
-Không nói được thì ngậm miệng lại, cũng coi như đối đãi chân thành với người ta.
+Năm ấy ở Kiếm Khí Trường Thành, trong một trận võ phu hỏi quyền, Úc Thỉ Phu từng cắt ngang quyền ý Thần Nhân Lôi Cổ Thức của sư phụ.
 
-Năm đó ở kiếm khí Trường Thành, trận võ phu vấn quyền kia, Úc Sán Phu từng đoạn đi quyền ý Thần Nhân Lôi Cổ Thức của sư phụ.
+Hôm nay ở ngoài miếu Lôi Công phủ Mã Hồ, Thần Nhân Lôi Cổ Thức của Bùi Tiền cũng bị Liễu Tuế Dư đánh gãy, chỉ ra được mười bảy quyền.
 
-Hôm nay ở ngoài Mã Hồ phủ Lôi Công miếu, Bùi Tiền cũng bị Liễu Tuế Dư đánh gãy Thần Nhân Lôi Cổ Thức, chỉ đánh ra mười bảy quyền.
+Quả nhiên võ phu trong thiên hạ có lắm kỳ nhân.
 
-Quả nhiên thiên hạ võ phu nhiều kỳ nhân.
+Bùi Tiền tin chắc chỉ cần đánh được tới quyền thứ hai mươi bốn, đối phương nhất định ngã xuống chẳng dậy nổi. Dù là võ phu cửu cảnh cũng vậy.
 
-Bùi Tiền chắc chắn mình chỉ cần có thể đánh ra hai mươi bốn quyền, đối phương nhất định sẽ ngã xuống đất không dậy nổi. Là võ phu cửu cảnh cũng giống vậy.
+Có điều trước sau quyền thứ hai mươi hai, Liễu Tuế Dư vẫn có thể dùng chiêu kia cắt ngang quyền ý của nàng. Luận bàn để phân thắng bại hay chém giết để phân sinh tử, rốt cuộc đều là nàng thua.
 
-Nhưng đối phương cũng có thể dùng quyền thứ hai mươi hai trước sau, lại dùng quyền kia đánh gãy quyền ý của mình. Bất kể là luận bàn phân thắng bại, hay là chém giết phân sinh tử, đều là mình thua.
+Cũng đành chịu. Võ phu thuần túy hơn kém nhau một cảnh, sư phụ khi đối địch có thể chẳng coi vào đâu, Bùi Tiền nàng bây giờ còn chưa làm được.
 
-Không có cách nào, chênh lệch một cảnh giữa võ phu thuần túy, sư phụ đối địch với người, có thể không nhìn, Bùi Tiền nó vẫn không có cách nào.
+Việc nàng làm được lúc này là đánh ra một quyền.
 
-Việc có thể làm bây giờ chính là tung ra một quyền này mà thôi.
+Một quyền do chính Bùi Tiền ngộ ra.
 
-Là Bùi Tiền tự mình ngộ ra.
+Nàng chưa nghĩ được cái tên nào, cứ đợi sư phụ về nhà đặt hộ. Tài đặt tên của sư phụ là nhất.
 
-Không nghĩ ra tên, phải chờ sư phụ về nhà giúp lấy tên.
+Cảnh Thanh, Noãn Thụ, nghe hay biết bao?
 
-Sư phụ đặt tên, nhất tuyệt.
+Lại nhìn mình mà xem, Bùi Tiền, bồi tiền.
 
-Cảnh Thanh, cây ấm, tốt đẹp biết bao?
+Bùi Tiền đưa mắt nhìn quanh, nín thở ngưng thần. Tâm thần dần lắng xuống, đôi mắt nàng sáng rỡ.
 
-Lại nhìn nhìn mình, Bùi Tiền, bồi thường tiền?
+Hai đầu gối hơi chùng, một bàn tay dựng đứng đưa ra, tay kia nắm quyền giữ trước người.
 
-Bùi Tiền nhìn quanh, nín thở ngưng thần, tâm thần đắm chìm, đôi mắt rạng rỡ tỏa sáng.
+Quyền còn chưa đánh ra. Mới chỉ là quyền giá.
 
-Hai đầu gối hơi cong, một chưởng dựng đứng đưa ra, một quyền nắm chặt trước người.
+Tạ Tùng Hoa dẫn hai đệ tử ngự gió lùi xa vài chục trượng. Trên bậc thềm, Bái A Hương nheo mắt, khẽ nhích một bước chắn trước mặt Lưu U Châu.
 
-Quyền này chưa ra, mà là quyền giá mà thôi.
+Sau lưng nữ tử trẻ tuổi, tựa như một vầng mặt trời lớn vừa phá mặt biển mà lên, thoắt cái đã treo cao giữa không trung.
 
-Tạ Tùng Hoa dẫn hai đứa trẻ cưỡi gió đi xa vài chục trượng.
+Nắm đấm của ta vừa ra, tựa mặt trời giữa trưa.
 
-Phái A Hương nheo mắt trên bậc thang, sau đó nhẹ nhàng dịch một bước, chắn trước người Lưu U Châu.
-
-Sau lưng nữ tử trẻ tuổi, giống như một vầng mặt trời lớn phá vỡ mặt biển, mới lên hiện thế, sau đó chợt tấn mãnh treo trên không.
-
-Nắm đấm của ta vừa ra, như mặt trời ban trưa.
-
-Thiên hạ võ phu, chỉ có thể dập đầu.
+Võ phu thiên hạ chỉ có thể dập đầu.
