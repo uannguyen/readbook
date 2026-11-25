@@ -1,195 +1,255 @@
 # Chương 790: Chân nào vô địch
 
-Đạo lão nhị mặc pháp bào, đeo kiếm tiên, đầu đội ngư vĩ quan.
+Đạo Lão Nhị mặc pháp bào, đầu đội ngư vĩ quan, sau lưng đeo tiên kiếm.
 
-Sư đệ Lục Trầm đang nằm sấp ở bên cạnh lan can, trên đầu đội Liên Hoa Quan, trên vai có một con chim sẻ đang đậu.
+Sư đệ Lục Trầm nằm sấp bên lan can, đầu đội Liên Hoa quan, trên vai đậu một con chim sẻ.
 
-Năm đó đại chưởng giáo Bạch Ngọc Kinh, đồ đệ của Đạo Tổ, đầu đội Như Ý Quan, đeo một tấm bùa đào. Sở dĩ có thể thay sư phụ thu đồ đệ, đương nhiên là bởi vì Đạo Tổ đạo pháp gần đây.
+Năm xưa, đại chưởng giáo Bạch Ngọc Kinh là đệ tử của Đạo Tổ, đầu đội Như Ý quan, bên người đeo một tấm bùa đào. Hắn có thể thay sư phụ thu nhận đệ tử, đương nhiên là vì đạo pháp của hắn gần với Đạo Tổ nhất.
 
-Đạo lão nhị giờ phút này tiên kiếm sau lưng không ngừng rung lên, hào quang tràn ra khỏi vỏ, một đám vân triện đại đạo màu vàng hiển hóa, từng cái hiện thế, chỉ là văn tự màu vàng sau khi ra khỏi vỏ, liền lập tức bị một thân đạo pháp mênh mông gần như ngưng tụ thành thực chất câu thúc, những Đạo Tàng Bí Lục, nội dung Bảo Lục Thanh Từ kia, chỉ có thể ở trong gang tấc, một đời diệt không chừng, như mặc ngươi khe nước cá bơi vô số, sinh tử lại vĩnh viễn ở nước. Không thể rời khỏi hà giường thiên địa, ngẫu nhiên có cá nhảy vọt lên nước, chẳng qua là nhìn thấy một chút chân dung thiên địa trong nháy mắt, cuối cùng phải rơi trở về trong nước.
+Giờ phút này, tiên kiếm sau lưng Đạo Lão Nhị không ngừng rung động, ánh sáng tràn ra khỏi vỏ, từng chữ vân triện đại đạo màu vàng lần lượt hiện ra. Nhưng vừa rời vỏ kiếm, chúng đã bị đạo pháp mênh mông gần như ngưng tụ thành thực chất trên người hắn câu thúc. Nội dung của Đạo Tàng bí lục, bảo lục thanh từ kia chỉ có thể sinh diệt bất định trong khoảng gang tấc, tựa như vô số cá bơi trong khe nước, sống chết đều không rời khỏi nước, không thể thoát khỏi lòng sông trời đất. Thỉnh thoảng có con cá nhảy lên khỏi mặt nước, thoáng thấy diện mạo thật sự của trời đất, cuối cùng vẫn phải rơi trở lại.
 
-Lục Trầm trêu ghẹo nói: "Sư huynh sát khí nặng như vậy, cẩn thận rước lấy Đại Huyền Đô Quan mở ra kiếm trận, một lần tới hỏi Kiếm Bạch Ngọc Kinh, vị Tôn đạo trưởng kia của chúng ta nhẫn nại sư huynh đã lâu rồi. May mà ta thay sư huynh tìm một tiểu sư đệ, bằng không chuyện gom đủ năm trăm linh quan, ở tòa thiên hạ thứ năm bên kia, nhắm chừng phải kéo dài nhiều năm, lâu là ba trăm năm, ngắn thì trăm năm, chung quy không đẹp."
+Lục Trầm trêu chọc:
 
-Đạo Lão Nhị từ chối cho ý kiến, ân oán mấy ngàn năm của Bạch Ngọc Kinh và Đại Huyền Đô Quan, thường xuyên bàn luận, không có gì thú vị, về phần chuyện năm trăm Linh Quan quy vị tiên ban, sớm hay muộn mà thôi. Đến lúc đó hai trăm năm kế tiếp, hắn chỉ huy năm trăm Linh Quan, công phạt thiên ngoại, những Hóa Ngoại Thiên Ma kia sẽ chân chính bị tổn thương nguyên khí, năm trăm Linh Quan cũng sẽ càng thêm danh xứng với thực.
+- Sư huynh sát khí nặng như vậy, cẩn thận Đại Huyền Đô quan mở kiếm trận, tới vấn kiếm Bạch Ngọc Kinh một phen. Vị Tôn đạo trưởng kia nhẫn nhịn sư huynh đã lâu rồi. May mà ta tìm cho sư huynh một tiểu sư đệ, bằng không chuyện tập hợp đủ năm trăm linh quan ở thiên hạ thứ năm, e rằng còn phải kéo dài nhiều năm, lâu thì ba trăm năm, ngắn cũng một trăm năm, chung quy không hay.
 
-Đối đãi với những Hóa Ngoại Thiên Ma giống như vĩnh viễn không thể đuổi tận giết tuyệt, Bạch Ngọc Kinh tam mạch, thật ra sớm có khác nhau, một mạch này của Đạo Lão Nhị, rất đơn giản, chủ sát.
+Đạo Lão Nhị không tỏ ý kiến. Ân oán mấy ngàn năm giữa Bạch Ngọc Kinh và Đại Huyền Đô quan thường được nhắc tới, chẳng có gì thú vị. Còn chuyện năm trăm linh quan trở về tiên ban, chẳng qua là sớm hay muộn. Đến lúc đó, trong hai trăm năm tiếp theo, hắn sẽ thống lĩnh năm trăm linh quan chinh phạt thiên ngoại, khiến đám Hóa Ngoại Thiên Ma thật sự tổn thương nguyên khí, năm trăm linh quan cũng sẽ càng thêm danh xứng với thực.
 
-Trừ đi hướng thiên ngoại trấn sát thiên ma, khiến cho một số thiên ma cự phách, không đến mức tẩm bổ lớn mạnh, Đạo lão nhị tương lai còn phải tự mình cầm kiếm hoành hành thiên hạ, thống lĩnh năm trăm linh quan, hao phí năm trăm năm thời gian, chuyên môn chém giết tâm ma của luyện khí sĩ, phải khiến cho vô số kể hóa ngoại thiên ma, trở thành vô căn nguyên chi mộc, cuối cùng khiến cho hóa ngoại thiên ma không thể không hợp lại làm ba, đến lúc đó lại do hắn cùng với sư huynh đệ ba người, mỗi người thắng một vị, từ nay về sau thiên hạ thái bình.
+Đối với đám Hóa Ngoại Thiên Ma tựa như vĩnh viễn không thể đuổi tận giết tuyệt này, ba mạch Bạch Ngọc Kinh đã sớm có chủ trương khác nhau. Một mạch của Đạo Lão Nhị rất đơn giản: chủ sát.
 
-Hành động này, so với người nào đó chém tận Chân Long trong Hạo Nhiên Thiên Hạ, càng thêm vĩ đại.
+Ngoài việc tới thiên ngoại trấn sát thiên ma, không cho một số kẻ cầm đầu được bồi dưỡng lớn mạnh, tương lai Đạo Lão Nhị còn phải tự mình cầm kiếm đi khắp thiên hạ, thống lĩnh năm trăm linh quan, dùng năm trăm năm chuyên chém giết tâm ma của luyện khí sĩ. Hắn muốn khiến vô số Hóa Ngoại Thiên Ma trở thành cây không rễ, cuối cùng buộc chúng hợp lại làm ba. Khi đó ba sư huynh đệ hắn mỗi người đánh thắng một kẻ, từ nay thiên hạ sẽ thái bình.
 
-Về phần tiểu sư đệ đạo hiệu Sơn Thanh kia, ấn tượng của Đạo Lão Nhị bình thường, không tốt không xấu, tạm được.
+Việc này còn vĩ đại hơn chuyện có người chém tận Chân Long ở Hạo Nhiên Thiên Hạ.
 
-Chuyện duy nhất khiến Đạo Lão Nhị nhìn kỹ chính là Sơn Thanh ở thiên hạ mới tinh kia, dám chủ động làm việc, chịu làm chút chuyện đệ tử quan môn của Đạo Tổ cũng không làm nổi bùa hộ mệnh.
+Đối với tiểu sư đệ đạo hiệu Sơn Thanh, ấn tượng của Đạo Lão Nhị bình thường, không tốt không xấu, cũng tạm được.
 
-Bây giờ Sơn Thanh ở bên kia đã khiến cho một thế lực Bạch Ngọc Kinh độc đại, càng trở thành một đạo môn cô sơn thủy của tòa thiên hạ thứ năm, đại khái tạo thành cách cục lấy một địch nhiều với Bạch Ngọc Kinh, giằng co với tất cả tông môn còn lại, hoàn toàn như thế, Đạo lão nhị mới cảm thấy không tệ.
+Chuyện duy nhất khiến hắn nhìn Sơn Thanh bằng con mắt khác là tại thiên hạ mới kia, Sơn Thanh dám chủ động làm việc, chịu làm những chuyện mà thân phận quan môn đệ tử của Đạo Tổ cũng không thể dùng làm bùa hộ mệnh[?].
 
-Vị Bạch Ngọc Kinh nhị chưởng giáo được vinh danh là chân vô địch này, chỉ cười lạnh nói: "Ta muốn một kiếm chém đứt đầu của Vương Tọa Ngưu Đao, cũng không phải một ngày hai ngày."
+Bây giờ Sơn Thanh đã khiến một thế lực của Bạch Ngọc Kinh ở bên đó trở nên lớn mạnh, lại biến thành một ngọn núi đơn độc của đạo môn tại thiên hạ thứ năm[?], đại khái tạo nên cục diện một mình Bạch Ngọc Kinh đối địch với nhiều bên, giằng co cùng tất cả tông môn còn lại. Chính vì vậy Đạo Lão Nhị mới cảm thấy không tệ.
 
-Năm đó sư tôn cố ý lưu nó một mạng, lấy một kim giáp do đạo chủng Tử Kim Liên hiển hóa ra bắt nó, khiến cho nó bằng vào tu hành tích góp từng tí một linh quang, tự tháo giáp, đến lúc đó trời cao đất rộng, ở Man Hoang thiên hạ kia nói không chừng chính là một phương hùng chủ, từ đó diễn đạo vạn năm, gần như bất hủ, chưa từng nghĩ tới không biết quý trọng phúc duyên, thủ đoạn bỉ ổi như thế, muốn mượn trắng cũng xuất kiếm phá vỡ đạo giáp, phung phí của trời, hạng người đần độn như vậy, lấy đâu ra lá gan muốn làm khách Bạch Ngọc Kinh.
+Vị nhị chưởng giáo Bạch Ngọc Kinh được xưng là Chân Vô Địch chỉ cười lạnh:
 
-Mặc kệ tính tình Đạo lão nhị như thế nào, ở một loại ý nghĩa nào đó, so với hai vị sư huynh đệ xác thực càng thêm phù hợp tôn sư trọng đạo trên ý nghĩa thế tục.
+- Ta muốn một kiếm chém đầu Vương Tọa Ngưu Đao, đâu phải mới ngày một ngày hai.
 
-"Chuyện Hạo Nhiên Thiên Hạ, khuyên sư huynh vẫn là đừng xen vào."
+Năm đó sư tôn cố ý để nó sống, dùng một bộ kim giáp do đạo chủng Tử Kim Liên biến thành để bắt giữ nó, cho nó dựa vào linh quang tu hành tích góp từng chút một mà tự tháo giáp. Đến lúc ấy trời cao đất rộng, tại Man Hoang thiên hạ nó biết đâu có thể thành hùng chủ một phương, từ đó diễn đạo vạn năm, gần như bất hủ. Nào ngờ nó không biết quý trọng phúc duyên, dùng thủ đoạn bỉ ổi, muốn mượn kiếm của Bạch Dã phá vỡ đạo giáp. Phung phí của trời như vậy, kẻ ngu xuẩn ấy lấy đâu ra gan muốn đến làm khách Bạch Ngọc Kinh?
 
-Lục Trầm lười biếng nói: "Sơ tổ binh gia năm đó không thể địch nổi cỡ nào, còn không phải rơi vào một thi hài bị chia ra làm năm, không phải chết ở trong tay con kiến hôi trong mắt hắn?"
+Bất kể tính tình Đạo Lão Nhị thế nào, theo một nghĩa nào đó, hắn quả thật tôn sư trọng đạo theo cách nhìn của thế tục hơn hai vị sư huynh đệ.
 
-Trừ thi hài trở thành vật tranh đoạt, binh gia lão tổ binh sau khi giải, đem hồn phách dung nhập toàn bộ võ vận thiên hạ, trải ra một con đường đăng thiên cho võ phu thuần túy đời sau. Đây cũng là nguyên nhân vì sao mấy tòa thiên hạ, chưa từng cố ý dẫn dắt võ vận đi lưu lại. Vị binh gia sơ tổ kia có công đăng thiên, lại có tội phân liệt nhân tộc, công tội không bù đắp, công đức vẫn là đại công đức, phạm sai lầm vẫn phải chịu phạt vạn năm.
+- Chuyện Hạo Nhiên Thiên Hạ, ta khuyên sư huynh đừng xen vào.
 
-Về phần năm vị Luyện khí sĩ lúc trước phân đi thi hài, đặt ở chiến trường cổ năm đó, thật ra cảnh giới cũng không cao, có người dẫn đầu lấy đầu bọn họ, bốn vị còn lại đều có thu hoạch, là "cộng Trảm" gọi là lịch cũ một tờ nào đó.
+Lục Trầm lười biếng nói:
 
-Một vị tiểu đạo đồng ngự phong từ một trong năm thành của Bạch Ngọc Kinh bay lên không trung, lơ lửng ở phía xa trên biển mây, chắp tay hướng lên chỗ cao chắp tay một cái, tiểu đạo đồng không dám l* m*ng, tự tiện trèo lên cao.
+- Sơ tổ Binh gia năm đó không ai địch nổi, cuối cùng chẳng phải vẫn bị chia thi hài thành năm phần, chết trong tay đám kiến hôi trong mắt hắn hay sao?
 
-Thanh Thúy thành là một trong năm thành của Bạch Ngọc Kinh, nằm ở phía bắc, dựa theo cách nói của Tôn đạo trưởng Đại Huyền Đô, cái tên Thanh Thúy thành kia, là đến từ một cách nói "Ngọc Hoàng Lý Tử Chân thanh thúy", cùng loại với Đạo Tổ trồng một hồ lô đằng, hóa thành bảy cái hồ lô. Đương nhiên Thanh Thúy thành đạo nhân đương nhiên sẽ không thừa nhận việc này, coi là lời nói vô căn cứ.
+Ngoài thi hài trở thành vật để người tranh đoạt, sau khi binh giải, Binh gia sơ tổ còn dung nhập hồn phách vào võ vận khắp thiên hạ, mở ra một con đường lên trời cho võ phu thuần túy đời sau. Đó cũng là nguyên nhân mấy tòa thiên hạ chưa từng cố ý dẫn dắt võ vận đi hay giữ lại. Vị sơ tổ kia có công mở đường lên trời, lại có tội chia rẽ nhân tộc. Công tội không bù trừ cho nhau, công đức vẫn là đại công đức, phạm sai lầm vẫn phải chịu phạt vạn năm.
 
-Nhưng Thanh Thúy thành nằm trong đạo thống Bạch Ngọc Kinh, quả thật có tên gọi khác của Ngọc Hoàng Thành. Thanh Thúy thành quản lý bảy mươi hai địa phương Thanh Minh Thiên Hạ, trong đó có một trong mười đại động thiên, ba mươi sáu tiểu động thiên có hai, bảy mươi hai phúc địa có ba, vương triều có sáu, về phần đạo môn cung quan trên núi dưới núi, lại càng vô số. Mỗi một giáp, thành chủ Thanh Thúy Thành hai mươi lăm tháng chạp đều tế ra một bộ loan giá, tuần tra công lao của Thanh Lưu đạo quan trong thiên hạ, khảo hạch địa linh sông núi quỷ thần, nơi loan giá đi qua, đều nằm trong phạm vi khảo bình kiểm tra nghiệm, thậm chí có thể không giới hạn trong một thành.
+Năm vị luyện khí sĩ chia nhau thi hài năm xưa, nếu đặt vào chiến trường cổ đại, thật ra cảnh giới đều không cao. Một người dẫn đầu lấy đầu của sơ tổ, bốn người còn lại đều có thu hoạch; chuyện “cộng trảm” ấy đã trở thành một trang sử cũ[?].
 
-Cho nên Thanh Thúy thành là một tiên phủ nằm trong tầng mười hai của năm thành Bạch Ngọc Kinh, vị trí không cao nhưng nắm quyền cực lớn.
+Một tiểu đạo đồng từ một trong năm thành Bạch Ngọc Kinh ngự gió bay lên, dừng lại phía xa trên biển mây, chắp tay hành lễ về phía cao. Hắn không dám mạo muội tự ý lên trên.
 
-Mà thành này sở dĩ địa vị cao cả như thế, bắt nguồn từ đại chưởng giáo Bạch Ngọc Kinh ở đây tu đạo năm tháng cực lâu, mà thường thường ở đây truyền đạo thiên hạ, bất luận có phải là đạo sĩ ba mạch Bạch Ngọc Kinh hay là đạo quan nhân gian, hay là sơn trạch tinh quái, quỷ mị âm linh, đến lúc đó đều có thể vào thành tới đây hỏi đạo, cho nên Thanh Thúy Thành lại được coi là nơi kết thiện duyên nhất với thiên hạ của Bạch Ngọc Kinh.
+Thanh Thúy thành là một trong năm thành Bạch Ngọc Kinh, nằm ở phía bắc. Theo lời Tôn đạo trưởng Đại Huyền Đô quan, tên thành bắt nguồn từ câu “Ngọc Hoàng Lý Tử Chân thanh thúy”[?], cũng giống như Đạo Tổ trồng một dây hồ lô, kết thành bảy quả. Đạo nhân Thanh Thúy thành đương nhiên không thừa nhận, cho đó là lời vô căn cứ.
 
-Lục Trầm cười vẫy vẫy tay, hô câu Vân Sinh mau tới khách khí làm chi, tiểu đạo đồng lúc này mới đi tới chỗ cao nhất của Bạch Ngọc Kinh, sau khi dừng chân ở hành lang, lại chắp tay với hai vị chưởng giáo, một chút cũng không dám vượt qua quy củ. Ở Bạch Ngọc Kinh tu đạo, thật ra quy củ không nhiều, đại chưởng giáo quản Bạch Ngọc Kinh, hoặc là nói thời điểm cả tòa Thanh Minh Thiên Hạ, thật sự làm được vô vi mà trị, cho dù là trọng địa đạo môn như Đại Huyền Đô Quan cùng Tuế Trừ Cung như vậy, cũng tâm phục khẩu phục, cho dù là Lục Trầm tiểu đệ tử đạo tổ năm đó, chấp chưởng Bạch Ngọc Kinh, cũng coi như thuận theo tự nhiên, đơn giản là thiên hạ cãi lộn nhiều chút, loạn tượng nhiều chút, chém giết nhiều hơn chút, tám chỗ thiên hạ gõ trống trời, hầu như năm nào nổi trống không ngừng nghỉ, Bạch Ngọc Kinh cùng Lục Trầm cũng không quản quá nhiều, duy chỉ có lúc lão nhị chấp chưởng Bạch Ngọc Kinh, quy củ sẽ tương đối nặng.
+Nhưng trong đạo thống Bạch Ngọc Kinh, Thanh Thúy thành quả thật còn có tên là Ngọc Hoàng thành. Thành quản lý bảy mươi hai địa phương của Thanh Minh Thiên Hạ, trong đó có một trong mười đại động thiên, hai trong ba mươi sáu tiểu động thiên, ba trong bảy mươi hai phúc địa và sáu vương triều; còn cung quán đạo môn trên núi dưới núi thì nhiều vô số kể. Cứ mỗi giáp, vào ngày hai mươi lăm tháng chạp, thành chủ lại tế ra loan giá đi tuần tra công lao của các đạo quan Thanh Lưu trong thiên hạ[?], khảo hạch địa linh, sông núi và quỷ thần. Nơi loan giá đi qua đều thuộc phạm vi khảo hạch, thậm chí không giới hạn trong một thành.
 
-Đạo lão nhị liếc mắt nhìn đạo quan trên đỉnh đầu của tiểu đạo đồng, cười lạnh lùng.
+Vì vậy, tuy địa vị của Thanh Thúy thành trong năm thành mười hai lầu Bạch Ngọc Kinh không cao, quyền hành lại cực lớn.
 
-Ở Đảo Huyền sơn là ngư vĩ quan, đoán chừng là lão tổ Khương thị Tử Khí lâu bày mưu đặt kế, xem như là để tiểu gia hỏa này bán đứng một đạo mạch với hắn. Hiện giờ trở về Bạch Ngọc Kinh, Khương Vân Sinh liền đổi thành đạo quan chế thức Thanh Thúy thành, một đỉnh như ý quan.
+Địa vị đặc biệt ấy bắt nguồn từ việc đại chưởng giáo Bạch Ngọc Kinh từng tu đạo ở đây rất lâu, còn thường truyền đạo cho thiên hạ. Bất luận là đạo sĩ ba mạch Bạch Ngọc Kinh, đạo quan nhân gian hay tinh quái núi sông, quỷ mị âm linh, đến lúc đó đều có thể vào thành hỏi đạo. Vì vậy Thanh Thúy thành được coi là nơi kết nhiều thiện duyên với thiên hạ nhất của Bạch Ngọc Kinh.
 
-Nếu như không phải nể mặt mũi sư huynh, tiểu đạo đồng lập tức đổi thành Liên Hoa Quan đầu đội sư đệ Lục Trầm nhất mạch, như vậy Đạo lão nhị cũng không phải là dễ nói chuyện như vậy.
+Lục Trầm cười vẫy tay, gọi Vân Sinh mau tới, khách khí làm gì. Tiểu đạo đồng lúc này mới lên nơi cao nhất Bạch Ngọc Kinh, dừng chân trên hành lang rồi lại chắp tay với hai vị chưởng giáo, không dám vượt quá quy củ chút nào.
 
-Bạch Ngọc Kinh và cả Thanh Minh Thiên Hạ đều rõ ràng một chuyện, Đạo lão nhị thờ ơ lạnh nhạt không nói lời nào, bản thân chính là một loại dễ nói chuyện lớn nhất.
+Tu đạo ở Bạch Ngọc Kinh thật ra không có nhiều quy củ. Khi đại chưởng giáo quản lý Bạch Ngọc Kinh, hay cả Thanh Minh Thiên Hạ, hắn thật sự làm được vô vi mà trị. Cho dù là trọng địa đạo môn như Đại Huyền Đô quan và Tuế Trừ cung cũng tâm phục khẩu phục. Đến khi tiểu đệ tử Đạo Tổ là Lục Trầm chấp chưởng Bạch Ngọc Kinh, cũng coi như thuận theo tự nhiên, chẳng qua thiên hạ nhiều tranh cãi, loạn tượng và chém giết hơn một chút. Tám nơi trong thiên hạ đánh trống trời, hầu như năm nào tiếng trống cũng không ngừng, Bạch Ngọc Kinh và Lục Trầm đều không quản quá nhiều. Chỉ khi lão nhị chấp chưởng, quy củ mới nặng nề hơn.
 
-"Vân Sinh, lúc nào mới lên làm thành chủ Thanh Thúy Thành? Sư thúc đã chuẩn bị xong lễ vật rồi. Làm sư điệt cũng không thể để mắt của sư thúc chờ đợi quá lâu, dễ dàng ánh mắt đăm đăm."
+Đạo Lão Nhị liếc đạo quan trên đầu tiểu đạo đồng, cười lạnh.
 
-Lục Trầm mang mặt dán ở trên lan can, quay đầu cười hì hì nói: "Quan hệ của ta cùng sư tổ cùng sư tôn ngươi đều tốt, trao tặng nghi thức thành chủ, cho dù bọn họ không đến, sư thúc đến làm, cũng là danh chính ngôn thuận. Huống chi sư thúc có quy củ có tiếng ít nhất, nghi lễ vốn có thể lăn qua lộn lại vài ngày, cũng không cần thời gian một nén nhang."
+Khi ở Đảo Huyền sơn, hắn đội ngư vĩ quan, hẳn là do lão tổ Khương thị ở Tử Khí lâu bày mưu, coi như để tiểu gia hỏa này tỏ ý thân cận với một mạch của Đạo Lão Nhị[?]. Nay trở về Bạch Ngọc Kinh, Khương Vân Sinh lại đổi sang Như Ý quan theo kiểu của Thanh Thúy thành.
 
-Tiểu đạo đồng vẫn ngậm miệng không nói, chỉ là lại quy củ chắp tay, cho là cảm ơn sư thúc Lục Trầm, thuận tiện bồi tội cùng Nhị chưởng giáo thúc.
+Nếu không nể mặt sư huynh, mà tiểu đạo đồng lập tức đổi sang Liên Hoa quan của một mạch sư đệ Lục Trầm, Đạo Lão Nhị đã không dễ nói chuyện như vậy.
 
-Lúc trước còn trẻ không biết gì, cõng gia tộc, tự tiện chuyển vào nhất mạch đại chưởng giáo Bạch Ngọc Kinh, thật ra là phạm vào thiên đại kiêng kị, mấu chốt là lúc ấy đại chưởng giáo ở thiên ngoại thiên trấn áp ngoại thiên ma, cũng không biết tình hình, thuần túy là tiểu sư thúc lúc đó vụng trộm kéo hắn đi kính hương bái tượng của Thanh Thúy thành, vì thế gia tộc không tiếc rất nhanh mang hắn trực tiếp "di chuyển" đến Hạo Nhiên thiên hạ, hơn nữa còn là tòa Đảo Huyền sơn kia, còn muốn hắn nhất định phải đội mũ đuôi cá hàng năm, bằng không sẽ đem hắn đuổi đi tổ sư đường của gia tộc, hoặc là dứt khoát ở lại Hạo Nhiên thiên hạ cho xong.
+Cả Bạch Ngọc Kinh và Thanh Minh Thiên Hạ đều biết, Đạo Lão Nhị đứng nhìn lạnh nhạt, không nói lời nào, bản thân đã là sự dễ nói chuyện lớn nhất rồi.
 
-Tiểu đạo đồng tên là Khương Vân Sinh, ở Đảo Huyền sơn cùng hán tử ôm kiếm Trương Lộc kia, làm hàng xóm cùng môn thần nhiều năm. Vị Khương Vân Sinh này có hi vọng trở thành thành chủ Thanh Thúy thành, hàng năm lưng tựa cọc buộc trâu ở Đảo Huyền sơn, thích ngồi ở trên bồ đoàn, xem chút tài tử giai nhân cùng giang hồ diễn nghĩa tiểu thuyết. Là một trong những cao chân trong đạo môn Đảo Huyền sơn, bình dị gần gũi nhất, rất nhiều trẻ con đều thích qua bên kia chơi đùa đùa giỡn, để tiểu đạo đồng thi triển đạo pháp, hỗ trợ đằng vân giá vũ.
+Lục Trầm áp mặt lên lan can, quay đầu cười hì hì:
 
-Tổ sư gia tộc Khương Vân Sinh, là lâu chủ Tử Khí Lâu của một trong mười hai tầng năm thành Bạch Ngọc Kinh, Phi Thăng cảnh.
+- Vân Sinh, lúc nào ngươi mới làm thành chủ Thanh Thúy thành? Sư thúc đã chuẩn bị lễ vật rồi. Làm sư điệt không thể để sư thúc trông chờ quá lâu, nhìn đến đờ cả mắt.
 
-Tử Khí Lâu kia, ráng mây dâng cao, tử khí quanh quẩn, còn có kiếm khí tích tụ đấu ngưu, được khen là "Nguyệt nguyệt phù sinh tử khí chồng, gia tại trong bàn tay tiên nhân". Cộng thêm tòa lầu này ở cực đông Bạch Ngọc Kinh, vị trí cao chân trong hàng tiên, vốn đã ở trên mây trời, trưởng thành là nghênh ánh trăng trước. Nữ quan tiên nữ tu hành ở tòa lầu này, phần lớn vốn họ Khương, hoặc ban cho họ Khương, thường thường là trâm hoa sen đầu tiên, còn có mỹ dự của xuân quan.
+- Ta có quan hệ tốt với cả sư tổ lẫn sư tôn ngươi. Nghi lễ nhận chức thành chủ, cho dù bọn họ không tới, để sư thúc làm cũng danh chính ngôn thuận. Huống chi sư thúc nổi tiếng là ít quy củ nhất, nghi lễ vốn phải lăn qua lộn lại mấy ngày, đến tay ta sẽ chưa tới một nén nhang.
 
-Bạch Ngọc Kinh Khương thị, tình cảnh của hai bên có hiệu quả như nhau với Đồng Diệp Châu Khương thị.
+Tiểu đạo đồng vẫn ngậm miệng, chỉ lại cung kính chắp tay, coi như cảm tạ Lục Trầm sư thúc, đồng thời bồi tội với Nhị chưởng giáo sư thúc.
 
-Thành Thanh Thúy và thành Thần Tiêu kia liền kề nhau, thành chủ đều là nhất mạch đại chưởng giáo Bạch Ngọc Kinh, người sau chính là Đạo gia Thánh Nhân tọa trấn Kiếm Khí Trường Thành.
+Trước kia tuổi còn nhỏ không hiểu chuyện, hắn giấu gia tộc, tự ý chuyển sang một mạch đại chưởng giáo Bạch Ngọc Kinh, thật ra đã phạm điều kiêng kỵ lớn. Mấu chốt là lúc ấy đại chưởng giáo đang trấn áp thiên ma ở Thiên Ngoại Thiên, cũng không biết chuyện. Hoàn toàn là tiểu sư thúc khi đó lén kéo hắn đi thắp hương bái tượng ở Thanh Thúy thành. Vì vậy gia tộc nhanh chóng đưa hắn tới Hạo Nhiên Thiên Hạ, lại còn là Đảo Huyền sơn, bắt hắn quanh năm đội mũ đuôi cá. Nếu không sẽ đuổi hắn khỏi tổ sư đường gia tộc, hoặc dứt khoát để hắn ở lại Hạo Nhiên Thiên Hạ.
 
-Mà Đại thiên quân tọa trấn đảo ngọn núi cao nhất của Huyền Sơn, là đệ tử đích truyền của Đạo Lão Nhị, phụ trách trông coi cho sư tôn ấn khắc lớn nhất thế gian treo ngược ở Hạo Nhiên Thiên Hạ.
+Tiểu đạo đồng tên Khương Vân Sinh, từng làm hàng xóm, cùng trông cửa với hán tử ôm kiếm Trương Lộc ở Đảo Huyền sơn nhiều năm. Vị Khương Vân Sinh có hy vọng trở thành thành chủ Thanh Thúy thành này quanh năm tựa lưng vào cọc buộc trâu, thích ngồi trên bồ đoàn đọc tiểu thuyết tài tử giai nhân và giang hồ diễn nghĩa. Trong các vị cao chân đạo môn Đảo Huyền sơn, hắn là người bình dị dễ gần nhất. Nhiều đứa trẻ thích chạy đến chơi, nhờ tiểu đạo đồng thi triển đạo pháp, đưa chúng cưỡi mây đạp gió.
 
-Khương Vân Sinh sinh ra ở Tử Khí Lâu, tòa lầu này hoàn toàn xứng đáng là Đạo lão nhị nhất mạch, nhưng mà khi Khương Vân còn nhỏ tuổi, lại ở dưới sự xúi giục của Tam chưởng giáo Lục Trầm, thân là nơi đích truyền của Khương thị Tử Khí Lâu, lại chuyển sang gia nhập vào nhất mạch đại chưởng giáo, dựa theo gia phả gia tộc, Khương Vân Sinh và lão tổ nhà mình ở Tử Khí Lâu kém mấy đời, nhưng dựa theo bối phận đạo mạch của Thanh Minh Thiên Hạ, lại bởi vậy ngang hàng với lão tổ ở Bạch Ngọc Kinh. Cho nên chỉ cần không ở Tử Khí Lâu, ngẫu nhiên gặp lão tổ, chắp tay hành lễ với nhau, sư huynh đệ xưng hô, trở về Tử Khí Lâu, tính toán khác.
+Tổ sư gia tộc Khương Vân Sinh là lâu chủ Tử Khí lâu, một trong mười hai lầu của Bạch Ngọc Kinh, tu vi Phi Thăng cảnh.
 
-Bắc Câu Lô Châu thiên quân Tạ Thực, Bảo Bình châu Thần Cáo tông tông chủ, Thiên Quân Kỳ Chân. Thật ra vốn còn có Đồng Diệp châu Thái Bình sơn lão thiên quân, cùng với sơn chủ Tống Mao.
+Tử Khí lâu ráng mây dâng cao, tử khí quanh quẩn, còn có kiếm khí xông lên tận sao Đẩu sao Ngưu. Người ta ca ngợi nơi ấy: “Tháng tháng tử khí dâng chồng, nhà ở trong lòng bàn tay tiên nhân”[?]. Tòa lầu nằm ở cực đông Bạch Ngọc Kinh, vị trí vốn đã cao trên mây, lại luôn đón ánh trăng trước. Nữ quan tiên tử tu hành ở đây phần lớn vốn họ Khương hoặc được ban họ Khương, thường cài trâm hoa sen, còn có mỹ danh xuân quan[?].
 
-Phân biệt thuộc về mạch Lục Trầm, mạch Đạo Lão Nhị và mạch Đại chưởng giáo. Trong đó đạo thống Thần Cáo tông lại tương đối phức tạp, tuy đạo sĩ nữ quan mỗi người đầu đội ngư vĩ quan, thật ra cùng hai mạch còn lại đều có nguồn gốc sâu xa, cùng Bạch Ngọc Kinh năm thành mười hai lâu cách một tòa thiên hạ, ít nhiều đều có thể trèo lên chút họ hàng xa.
+Khương thị Bạch Ngọc Kinh và Khương thị Đồng Diệp Châu có tình cảnh tương tự nhau.
 
-Đương nhiên còn có Hạ Tiểu Lương Bắc Câu Lô châu khai tông lập phái, đạo nhân ẩn cư trên núi Bạch Sương vương triều lấy tên giả Tào Dung ở Bảo Bình châu, đều thuộc về dòng dõi đích truyền Lục Trầm.
+Thanh Thúy thành và Thần Tiêu thành nằm liền kề, thành chủ đều thuộc một mạch đại chưởng giáo Bạch Ngọc Kinh. Thành chủ Thần Tiêu thành chính là Đạo gia thánh nhân tọa trấn Kiếm Khí Trường Thành.
 
-Những đạo môn xuất thân từ ba mạch Bạch Ngọc Kinh này, ngang hàng với Long Hổ sơn Thiên Sư phủ bản thổ Hạo Nhiên Thiên Hạ, Phù lục của Nhất Sơn Ngũ Tông làm Định Hải Thần Châm của Vu Huyền.
+Đại thiên quân tọa trấn ngọn núi cao nhất Đảo Huyền sơn là đệ tử đích truyền của Đạo Lão Nhị, phụ trách trông coi cho sư tôn tòa ấn khắc lớn nhất thế gian, treo ngược ở Hạo Nhiên Thiên Hạ.
 
-Hạo Nhiên Thiên Hạ, tam giáo bách gia, đại đạo khác nhau, lòng người tự nhiên chưa chắc chỉ là phân chia thiện ác đơn giản như vậy.
+Khương Vân Sinh sinh ra ở Tử Khí lâu, nơi thuộc hẳn một mạch Đạo Lão Nhị. Nhưng khi còn nhỏ, dưới sự xúi giục của Tam chưởng giáo Lục Trầm, hắn vốn là đích truyền Khương thị Tử Khí lâu lại chuyển sang một mạch đại chưởng giáo. Theo gia phả, hắn kém lão tổ Tử Khí lâu mấy đời, nhưng theo bối phận đạo mạch Thanh Minh Thiên Hạ, hắn lại ngang hàng với lão tổ ở Bạch Ngọc Kinh. Bởi vậy, khi không ở Tử Khí lâu, gặp nhau thì hai người chắp tay hành lễ, xưng hô sư huynh sư đệ; trở về Tử Khí lâu lại tính khác.
 
-Đạo lão nhị hỏi: "Năm đó ở Ly Châu động thiên, vì sao phải chọn riêng Trần Bình An, muốn làm quan môn đệ tử của ngươi?"
+Thiên quân Tạ Thực ở Bắc Câu Lô Châu, tông chủ Thần Cáo tông Bảo Bình Châu là thiên quân Kỳ Chân, còn có lão thiên quân Thái Bình sơn Đồng Diệp Châu cùng sơn chủ Tống Mao, lần lượt thuộc các mạch Lục Trầm, Đạo Lão Nhị và đại chưởng giáo[?]. Đạo thống Thần Cáo tông tương đối phức tạp, tuy đạo sĩ và nữ quan đều đội ngư vĩ quan, thật ra vẫn có nguồn gốc sâu xa với hai mạch còn lại. Cách một tòa thiên hạ, họ ít nhiều đều có thể nhận họ hàng xa với năm thành mười hai lầu Bạch Ngọc Kinh.
 
-Nghe nói hôm nay là một trong những đích truyền của sư đệ, Thanh Lương Tông tông chủ Hạ Tiểu Lương, cùng Trần Bình An còn có chút dính dáng loạn thất bát tao.
+Còn có Hạ Tiểu Lương khai tông lập phái ở Bắc Câu Lô Châu, và đạo nhân lấy tên giả Tào Dung ẩn cư trên núi ở vương triều Bạch Sương, Bảo Bình Châu, đều là đích truyền của Lục Trầm.
 
-Trên thực tế, nhìn tư thế sư đệ lười biếng bên cạnh năm đó thật vất vả mới nghiêm túc một lần, chỉ cần Trần Bình An kia nguyện ý cò kè mặc cả, Lục Trầm lại nâng hắn lên một bối phận, đều là có thể thương lượng.
+Đạo môn xuất thân từ ba mạch Bạch Ngọc Kinh này sánh ngang với Thiên Sư phủ Long Hổ sơn bản thổ Hạo Nhiên Thiên Hạ, cùng Nhất Sơn Ngũ Tông của phù lục và vị Định Hải Thần Châm Vu Huyền[?].
 
-Lục Trầm cười nói: "Trần Bình An ở phụ cận Giao Long Câu, đã sớm một câu nói toạc ra huyền cơ, ta là nhìn trúng Trần Bình An có hi vọng trở thành đệ tử của ta, bỏ qua con đường ban đầu, không phải bản thân Trần Bình An như thế nào như thế nào, thực sự khiến Lục Trầm ta coi trọng như thế nào. Bằng không một Trần Bình An mình muốn như thế nào thì sao? Nhìn như cho hắn rất nhiều lựa chọn, thật ra chính là không có lựa chọn nào khác. Trên đường nhân sinh, không phải đều như thế? Không chỉ riêng Trần Bình An thân hãm khốn cục như thế."
+Ở Hạo Nhiên Thiên Hạ, tam giáo bách gia có đại đạo khác nhau, lòng người tự nhiên cũng chưa chắc chỉ có thể phân biệt thiện ác đơn giản.
 
-Lục Trầm lại nói: "Đạo lý tương tự, tồn tại viễn cổ không giảng đạo lý kia, sở dĩ lựa chọn Trần Bình An hắn, không phải ý nguyện của bản thân Trần Bình An, một thiếu niên ngây thơ, năm đó lại có thể biết chút gì, trên thực tế vẫn là Tề Tĩnh Xuân muốn như thế nào. Chẳng qua nhất sinh nhị, nhị sinh tam, tam sinh vạn vật, dần dần trở nên rất khả quan. Cuối cùng từ một chút hy vọng của Tề Tĩnh Xuân, biến thành toàn bộ cuộc đời của Trần Bình An. Chỉ là không biết Tề Tĩnh Xuân cuối cùng đi xa Liên Hoa tiểu động thiên, hỏi đạo sư tôn, rốt cuộc hỏi đạo gì, ta từng hỏi sư tôn, sư tôn lại không nói tỉ mỉ."
+Đạo Lão Nhị hỏi:
 
-Nhớ năm đó, thiếu niên giày rơm ngõ Nê Bình lần đầu tiên chân đạp phố Phúc Lộc cùng ngõ Đào Diệp con đường lát đá xanh kia, học đồ lò nung đứng ở ngoài học thục lấy ra phong thư đều phải theo bản năng lau bàn tay, ở lúc đó, thiếu niên nhất định sẽ không thể tưởng được tương lai của mình, sẽ là nhân sinh hôm nay. Sẽ từng bước một đi qua nhiều sơn sơn thủy thủy như vậy, tận mắt kiến thức được nhiều sóng to gió lớn cùng sinh ly tử biệt như vậy.
+- Năm đó ở Ly Châu động thiên, vì sao ngươi chọn riêng Trần Bình An làm quan môn đệ tử?
 
-Đạo lão nhị hỏi: "Thôi Sàm tựa như thay đổi đòn sát thủ đối phó thiên hạ Man Hoang. Bằng không Thôi Sàm bằng vào loạn thế, vừa lúc miễn đi rất nhiều bó tay bó chân."
+Nghe nói bây giờ Hạ Tiểu Lương, tông chủ Thanh Lương tông và là một trong những đích truyền của sư đệ, còn có chút dây dưa rối rắm với Trần Bình An.
 
-Lục Trầm cười nói: "Hắn không dám, một khi tế ra, so với khi sư diệt tổ cái gì đó, càng thêm đại nghịch bất đạo. Hơn nữa chuyện xảy ra gấp gáp, thời gian không để ta ở lại. Trên đời này nào có chuyện gì, là có thể thương lượng thật tốt."
+Thật ra nhìn dáng vẻ nghiêm túc hiếm có của sư đệ lười biếng năm đó, chỉ cần Trần Bình An chịu cò kè mặc cả, ngay cả chuyện Lục Trầm nâng hắn lên một bối phận cũng có thể thương lượng.
 
-Lục Trầm thở dài, "Thôi Sàm năm xưa thắng thuật gia khai sơn thuỷ tổ kia một bậc, để người sau tự nhận ra cái "Mười", lập tức tuyệt đại đa số tu sĩ đỉnh núi mấy tòa thiên hạ, căn bản không hiểu được học vấn trong đó, đại học vấn, nếu là thời đại mạt pháp người kia sợ hãi, một ngày kia quả thực đến, nhất định không ai có thể ngăn cản mà nói, như vậy mặc dù thế gian không có thuật gia tu sĩ, không có toàn bộ người tu đạo, mỗi người đều ở dưới núi."
+Lục Trầm cười nói:
 
-Lục Trầm
+- Ở gần Giao Long Câu, Trần Bình An đã sớm nói toạc huyền cơ chỉ bằng một câu. Ta coi trọng chuyện hắn có hy vọng trở thành đệ tử của ta, bỏ qua con đường ban đầu, chứ không phải bản thân Trần Bình An thế này thế nọ khiến Lục Trầm ta coi trọng đến vậy. Bằng không, một mình Trần Bình An muốn thế nào thì làm được gì? Nhìn như cho hắn rất nhiều lựa chọn, thật ra hắn không có lựa chọn nào khác. Đường đời chẳng phải đều như vậy sao? Không chỉ riêng Trần Bình An rơi vào khốn cảnh ấy.
 
-"Đến lúc đó chỉ có tôn chỉ học vấn của Thuật gia để lại, vẫn có thể dựa vào cái này đắc đạo nhiều nhất. Không chừng chuyện khiến trong lòng Thôi Sàm lo lắng kia, ví dụ như... Nhân tộc vì thế biến mất, hoàn toàn trở thành bộ hạ cũ của thần linh mới của thiên đình, cũng là có khả năng rất lớn. Thôi Sàm tựa như vẫn tin tưởng ngày đó đến. Cho nên cho dù Bảo Bình châu thủ giữ tình thế hiểm trở, Thôi Sàm vẫn không dám thật sự liên thủ với Mặc gia."
+Lục Trầm nói tiếp:
 
-"Cho nên vị Mặc gia cự tử khó tránh khỏi thất vọng kia, trên mặt không nhịn được, cảm thấy bị Tú Hổ hố một phen, chuyển đi Nam Bà Sa châu giúp Trần Thuần An. Chẳng qua Mặc gia rốt cuộc là Mặc gia, du hiệp có cổ phong, hay là không tiếc mang toàn bộ gia sản phó gia đặt ở Bảo Bình châu. Huống chi vụ làm ăn này của Mặc gia, quả thật có lời. Mặc gia, Thương gia, quả thật so với nông gia cùng Dược gia lưu phách lực càng lớn hơn."
+- Cùng một đạo lý, tồn tại viễn cổ không giảng đạo lý kia chọn Trần Bình An cũng không phải vì ý nguyện của hắn. Một thiếu niên ngây thơ, năm đó có thể biết được bao nhiêu? Thật ra vẫn là Tề Tĩnh Xuân muốn thế nào. Chẳng qua nhất sinh nhị, nhị sinh tam, tam sinh vạn vật, dần dần có triển vọng hơn. Cuối cùng chút hy vọng của Tề Tĩnh Xuân biến thành cả cuộc đời Trần Bình An. Chỉ không biết cuối cùng Tề Tĩnh Xuân đi xa tới Liên Hoa tiểu động thiên, hỏi đạo sư tôn, rốt cuộc đã hỏi điều gì. Ta từng hỏi sư tôn, nhưng người không nói rõ.
 
-Đạo lão nhị nhớ tới một chuyện: "Đệ tử Lục thị kia, ngươi định xử trí như thế nào?"
+Nhớ năm đó, thiếu niên giày rơm ngõ Nê Bình lần đầu đặt chân lên con đường lát đá xanh ở phố Phúc Lộc và ngõ Đào Diệp, người học đồ lò nung đứng ngoài học thục lấy thư ra cũng phải theo bản năng lau bàn tay, hẳn không thể ngờ đời mình sau này sẽ như hôm nay. Hắn sẽ từng bước đi qua biết bao núi sông, tận mắt chứng kiến biết bao sóng gió và sinh ly tử biệt.
 
-Ngẫu Hoa phúc địa của Hạo Nhiên Thiên Hạ Đồng Diệp châu, được lão quan chủ lấy thần thông có cả màu trắng và màu sắc, chia ra làm bốn, trong đó ba phần Ngẫu Hoa phúc địa đều theo lão quan chủ, cùng nhau phi thăng đến Thanh Minh thiên hạ.
+Đạo Lão Nhị hỏi:
 
-Trong đó Lục Đài ngồi ôm một trong những phúc địa, hơn nữa thành công "phi thăng" rời khỏi phúc địa, bắt đầu ở Thanh Minh thiên hạ bộc lộ tài năng, cùng nữ quan trẻ tuổi ở Lưu Nhân cảnh một bước lên trời kia, quan hệ cực kỳ không tệ, không phải đạo lữ hơn hẳn đạo lữ.
+- Thôi Sàm hình như đã đổi đòn sát thủ đối phó Man Hoang thiên hạ. Bằng không, dựa vào loạn thế, hắn vừa vặn có thể bớt rất nhiều điều bó tay bó chân.
 
-Lục Trầm bất đắc dĩ nói: "Như thế nào, ngươi muốn thu quan môn đệ tử? Không sợ làm cho Trâu Tử kia được như mong muốn?"
+Lục Trầm cười nói:
 
-Đối với đồ tử đồ tôn lại tự tiện sửa đổi tên là "Lục Sĩ" này, thể chất âm dương ngư trời sinh hiếm thấy, hoàn toàn xứng đáng là thần tiên chủng, Lục Trầm lại không quá nguyện ý đi gặp. Đời sau đối với cách nói thần tiên chủng này, thường thường kiến thức nửa vời, không biết tiên thần hậu tiên mới là đạo chủng chân chính. Thật ra không phải tư chất tu hành không tệ, có thể được xưng là thần tiên chủng, nhiều nhất là hạt giống tu đạo mà thôi.
+- Hắn không dám. Một khi dùng đến, chuyện ấy còn đại nghịch bất đạo hơn cả khi sư diệt tổ. Hơn nữa tình thế gấp gáp, thời gian không cho phép hắn nấn ná[?]. Trên đời nào có chuyện gì cũng có thể thương lượng cho ổn thỏa?
 
-Khương Vân Sinh ở một bên trợn mắt há hốc mồm, năm đó ở Đảo Huyền sơn, vị tiểu đạo đồng này đã một chưởng đánh Lục Đài ra khỏi Thượng Hương lâu.
+Lục Trầm thở dài:
 
-Lục Đài hôm nay cùng cái mũi trâu thối kia có quan hệ rất sâu, nếu lại trở thành đích truyền của nhị chưởng giáo sư thúc, tương lai lại tọa trấn một trong ngũ thành mười hai lâu, loại lòng dạ hẹp hòi như lão tổ nhà mình, còn không phải cùng mình tử chiến trăm năm ngàn năm? Một tòa Bạch Ngọc Kinh, vị chưởng giáo sư tôn kia của mình đã lâu không lộ diện, hai vị sư thúc thay phiên chưởng quản trăm năm, khiến cho cả tòa Thanh Minh thiên hạ đánh đánh giết giết đều nhiều, nếu không phải tòa thiên hạ thứ năm mở ra, Khương Vân Sinh đều cảm thấy quê nhà vốn tương đối thanh tĩnh, biến thành Hạo Nhiên Thiên Hạ nơi Đảo Huyền sơn ở.
+- Năm xưa Thôi Sàm thắng khai sơn thủy tổ Thuật gia một bậc, để người kia tự nhận ra cái “Mười”. Đại đa số tu sĩ trên đỉnh núi ở mấy tòa thiên hạ căn bản không hiểu được học vấn trong đó. Đó là đại học vấn. Nếu thời đại mạt pháp người kia lo sợ quả thật đến, không ai có thể ngăn cản, vậy thì dù thế gian không còn tu sĩ Thuật gia, không còn bất cứ tu sĩ nào, mọi người đều ở dưới núi...
 
-Hôm nay tòa Đảo Huyền sơn kia đã một lần nữa biến thành một Sơn Tự Ấn có thể được người ta đeo bên hông, thậm chí có thể luyện hóa thành vật bản mạng.
+- Đến lúc ấy chỉ có tôn chỉ học vấn của Thuật gia lưu lại, vẫn có thể dựa vào đó mà đắc đạo nhiều nhất[?]. Chuyện Thôi Sàm lo lắng, chẳng hạn như nhân tộc vì thế biến mất, hoàn toàn trở thành bộ hạ cũ của thần linh mới trên thiên đình, cũng rất có thể xảy ra[?]. Thôi Sàm dường như vẫn tin ngày đó sẽ tới. Cho nên dù Bảo Bình Châu phải giữ hiểm chống địch, hắn vẫn không dám thật sự liên thủ với Mặc gia.
 
-Nghe nói được Nhị chưởng giáo sai người ban cho tiểu sư thúc Sơn Thanh.
+- Vì vậy vị cự tử Mặc gia kia khó tránh khỏi thất vọng, không giữ được thể diện, cảm thấy bị Tú Hổ lừa một phen, bèn chuyển sang Nam Bà Sa Châu giúp Trần Thuần An. Nhưng Mặc gia rốt cuộc vẫn là Mặc gia, du hiệp mang cổ phong, vẫn không tiếc đem toàn bộ gia sản đặt vào Bảo Bình Châu. Huống chi vụ làm ăn này quả thật có lời. Mặc gia, Thương gia quả thật có phách lực hơn Nông gia và Dược gia.
 
-Khương Vân Sinh đối với tiểu sư thúc chưa bao giờ gặp mặt kia, thật ra tương đối hiếu kỳ, chỉ là chín mươi năm gần đây, hai bên nhất định không cách nào gặp mặt.
+Đạo Lão Nhị nhớ ra một chuyện:
 
-Đạo Lão Nhị nói: "Ta không thèm để ý những thứ này. Tính toán thiên toán địa, tùy hắn tính đi, ta đi ta nói."
+- Đệ tử Lục thị kia, ngươi định xử trí thế nào?
 
-Lục Trầm lắc đầu, "Suy nghĩ của Trâu Tử rất... Kỳ lạ, hắn ngay từ đầu đã coi thế đạo hiện giờ là thời đại mạt pháp đi thôi diễn diễn hóa, Thuật gia là chỉ có thể ngồi chờ thời đại mạt pháp đến, Trâu Tử lại là sớm đã bắt đầu bố cục mưu đồ, thậm chí đem tổ sư tam giáo đều xem nhẹ không tính, lần này không thấy, cũng không phải một lá che mắt không thấy, mà là... Xem như không thấy. Cho nên nói ở Hạo Nhiên Thiên Hạ, một người lực áp toàn bộ Lục thị, quả thật bình thường."
+Ngẫu Hoa phúc địa ở Đồng Diệp Châu của Hạo Nhiên Thiên Hạ được lão quan chủ dùng thần thông chia làm bốn[?]. Trong đó ba phần theo lão quan chủ cùng phi thăng đến Thanh Minh thiên hạ.
 
-Ở Ly Châu Động Thiên kia, Lục Trầm cùng Trâu Tử kia, thật ra không có đối mặt, một người bày quầy bán hàng, một người vẫn là bày quầy bán hàng, đều tính mệnh.
+Lục Đài nắm giữ một trong các phúc địa ấy, còn thành công “phi thăng” rời khỏi đó, bắt đầu bộc lộ tài năng ở Thanh Minh thiên hạ. Hắn có quan hệ cực tốt với nữ quan trẻ tuổi một bước lên trời ở Lưu Nhân cảnh, tuy không phải đạo lữ mà còn hơn đạo lữ.
 
-Hai bên nhìn như nước giếng không phạm nước sông, kì thực cùng con cháu Trâu Tử đích truyền, Lục Trầm hai thanh "phi kiếm bản mạng" đặt tên giống nhau như đúc, châm nhọn đấu với mạch mang.
+Lục Trầm bất đắc dĩ nói:
 
-Hai vị sư huynh đệ nói chuyện phiếm, chỉ đáng thương cho vị tiểu đạo đồng thành Thanh Thúy kia, hai vị chưởng giáo sư thúc, mở miệng một lần thời đại mạt pháp, Khương Vân Sinh nghe được kinh tâm động phách, đạo tâm cũng không ổn.
+- Sao, ngươi muốn nhận quan môn đệ tử? Không sợ để Trâu Tử được như ý?
 
-Lục Trầm đột nhiên cười tủm tỉm nói: "Vân Sinh, vị lão tổ kia của nhà ngươi, năm đó quyền khai vân hải, đánh về phía Ly Châu động thiên, rất uy phong a, đáng tiếc lúc ấy ngươi ở xa Đảo Huyền sơn, đạo hạnh lại không đủ, không thể tận mắt nhìn thấy cảnh này. Không sao, chỗ ta có một bức họa cuộn tròn quang âm trường hà trân quý nhiều năm, đưa ngươi đi, quay đầu cầm lấy Tử Khí lâu, bồi dưỡng lên, lão tổ nhà ngươi tất nhiên hài lòng, nâng đỡ ngươi đảm nhiệm thành chủ Thanh Thúy thành, liền không lén lút nữa, chỉ biết quang minh chính đại..."
+Đối với đồ tử đồ tôn tự ý đổi tên thành “Lục Sĩ” này, Lục Trầm không mấy muốn đi gặp. Hắn có thể chất âm dương ngư hiếm thấy bẩm sinh, xứng đáng là thần tiên chủng. Người đời sau thường chỉ hiểu nửa vời về thần tiên chủng, không biết hậu duệ của tiên thần mới là đạo chủng chân chính. Không phải cứ tư chất tu hành tốt là có thể được gọi là thần tiên chủng, nhiều nhất chỉ là hạt giống tu đạo.
 
-Tiểu đạo đồng mắt nhìn mũi mũi nhìn tâm, ngoảnh mặt làm ngơ.
+Khương Vân Sinh đứng bên cạnh trợn mắt há mồm. Năm xưa ở Đảo Huyền sơn, chính tiểu đạo đồng đã đánh một chưởng khiến Lục Đài văng khỏi Thượng Hương lâu.
 
-Đạo lão nhị cau mày nói: "Được rồi, đừng có lòng vòng cầu tình giúp thằng nhãi con này, ta không có ý gì với Khương Vân Sinh và Thanh Thúy Thành, ai có ý đồ với vị trí thành chủ thì cứ dựa vào bản lĩnh mà tranh giành là được. Cho Khương Vân Sinh vào túi, ta không sao cả. Thanh Thúy thành luôn được coi là địa bàn của đại sư huynh, ai đến trông cửa, ta cũng không có ý kiến, chuyện duy nhất có ý kiến chính là ai canh cửa cho nát bét, đến lúc đó để lại cho sư huynh một cục diện rối rắm."
+Bây giờ Lục Đài có quan hệ rất sâu với tên mũi trâu thối kia, nếu lại trở thành đích truyền của Nhị chưởng giáo sư thúc, tương lai tọa trấn một trong năm thành mười hai lầu, với lòng dạ hẹp hòi ấy, chẳng phải sẽ tử chiến với hắn cả trăm ngàn năm sao[?]?
 
-Lục Trầm lắc đầu, "Sư huynh ơi sư huynh, ta và ngươi ở chỗ cao này, tùy tiện vung tay áo, nhíu mày, ngáp một cái, các tiên nhân phía dưới, phải cẩn thận nghiền ngẫm tâm tư hơn nửa ngày. Tranh? Khương Vân Sinh tranh giành như thế nào? Hôm nay thật không dễ gì mới có gan đến ôn chuyện cùng hai vị sư thúc, kết quả nhị chưởng giáo từ đầu tới đuôi sẽ không liếc mắt nhìn hắn một cái, ngươi cảm thấy ngũ thành thập nhị lâu sẽ đối đãi Khương Vân Sinh như thế nào? Nói cho cùng sư huynh ngươi tùy tùy tiện tiện không sao cả, vừa vặn chính là Khương Vân Sinh liều mạng cũng vẫn là đại đạo thân bất do kỷ. Sư huynh đương nhiên có thể không để ý, cảm thấy là đại đạo tự nhiên, vạn pháp quy nhất là được..."
+Ở Bạch Ngọc Kinh, vị chưởng giáo sư tôn của hắn đã lâu không lộ diện, hai vị sư thúc thay nhau chấp chưởng mỗi trăm năm, khiến Thanh Minh thiên hạ có thêm nhiều cuộc chém giết. Nếu không có thiên hạ thứ năm mở ra, Khương Vân Sinh còn cảm thấy quê nhà vốn khá thanh tĩnh đã biến thành Hạo Nhiên Thiên Hạ nơi Đảo Huyền sơn tọa lạc.
 
-Đạo lão nhị không chịu nổi nhất là Lục Trầm làm ra vẻ này, cũng không tự nhiên như sư tôn, cũng không thẳng thắn như sư huynh, liền có chút không kiên nhẫn, gọn gàng dứt khoát nói: "Ngươi rốt cuộc là muốn để cho Sơn Thanh tiếp quản thành Thanh Thúy, hay là để Khương Vân Sinh tiếp nhận?"
+Đảo Huyền sơn hôm nay đã một lần nữa biến thành Sơn Tự ấn có thể đeo bên hông, thậm chí luyện hóa thành vật bản mạng. Nghe nói Nhị chưởng giáo sai người ban nó cho tiểu sư thúc Sơn Thanh.
 
-Khương Vân Sinh ai thán một tiếng, được rồi, Tam chưởng giáo ở bên kia nói dóc, liên lụy mình xong đời.
+Khương Vân Sinh khá tò mò về vị tiểu sư thúc chưa từng gặp mặt kia, chỉ là trong chín mươi năm tới, hai bên chắc chắn không thể gặp nhau.
 
-Thật không biết Tam chưởng giáo sư thúc muốn giúp mình, hay là hại mình. Nếu Nhị chưởng giáo sư thúc không có ở đây, tiểu đạo gia ta đã sớm mắng rồi.
+Đạo Lão Nhị nói:
 
-Thật ra đối với quyền sở hữu Thanh Thúy thành, Khương Vân Sinh là thật tâm không thèm để ý, hôm nay kiên trì đến đây, là khó có được phát hiện bóng dáng Lục sư thúc. Thành Thanh Thúy thuộc về vị tiểu sư thúc mới nhất kia tốt hơn, đỡ cho mình bị đuổi vịt lên thớt, bởi vì một khi kế nhiệm thành chủ Thanh Thúy thành, sẽ rất bận, phân tranh rất nhiều. Khương Vân Sinh ở Đảo Huyền sơn đó lâu rồi, vẫn là quen mỗi ngày sống qua ngày nhàn nhã, có việc tu hành, không có việc lật sách. Huống chi chỉ bằng cảnh giới cùng danh vọng của Khương Vân Sinh hắn, căn bản không có tư cách trổ hết tài năng, chưởng quản một tòa Thanh Thúy thành được thiên hạ coi là Tiểu Bạch Ngọc Kinh.
+- Ta không để ý những chuyện này. Hắn muốn tính trời tính đất thì cứ tính, ta đi con đường của ta.
 
-Lục Trầm cười ha ha sờ sờ đầu tiểu đạo đồng, "Về thôi."
+Lục Trầm lắc đầu:
 
-Tiểu đạo đồng vội vàng chắp tay, cáo từ rời đi, ngự phong trở về thành Thanh Thúy.
+- Suy nghĩ của Trâu Tử rất... kỳ lạ. Ngay từ đầu hắn đã coi thế đạo hiện giờ là thời đại mạt pháp để suy diễn. Thuật gia chỉ có thể ngồi chờ thời đại mạt pháp đến, còn Trâu Tử đã sớm bố trí mưu đồ, thậm chí không tính đến tổ sư tam giáo. Không tính đến ở đây không phải vì một lá che mắt không thấy, mà là... coi như không thấy. Cho nên tại Hạo Nhiên Thiên Hạ, một mình hắn áp đảo toàn bộ Lục thị cũng là chuyện bình thường.
 
-Đạo Lão Nhị dùng tiếng lòng nói: "Ngươi cứ thế mà tiện tay vứt bỏ một con Hóa Ngoại Thiên Ma trong đạo tâm của Khương Vân Sinh?"
+Ở Ly Châu động thiên, Lục Trầm và Trâu Tử thật ra chưa từng đối mặt. Một người bày quầy, người kia cũng bày quầy, đều tính mệnh.
 
-Lục Trầm mỉm cười nói: "Nhàm chán mà."
+Hai bên nhìn như nước giếng không phạm nước sông, nhưng hai thanh “phi kiếm bản mạng” của Lục Trầm lại có tên giống hệt phi kiếm của đích truyền Trâu Tử, chẳng khác nào mũi kim đối chọi mũi nhọn[?].
 
-Đạo Lão Nhị nhắc nhở: "Ngươi nên trở về Thiên Ngoại Thiên."
+Hai sư huynh đệ trò chuyện, chỉ khổ cho tiểu đạo đồng Thanh Thúy thành. Hai vị chưởng giáo sư thúc hễ mở miệng là nhắc tới thời đại mạt pháp, khiến Khương Vân Sinh nghe mà kinh hồn bạt vía, đạo tâm cũng không vững.
 
-Lục Trầm chỉ là giả ngu lười biếng, trầm mặc hồi lâu, đột nhiên nói: "Sư huynh, ngươi có nghĩ tới ngày nào đó có người hỏi kiếm với ngươi hay không."
+Lục Trầm chợt cười tủm tỉm:
 
-Đạo Lão Nhị nói: "Không phải chuyện thường."
+- Vân Sinh, lão tổ nhà ngươi năm đó một quyền mở biển mây, đánh về phía Ly Châu động thiên, thật uy phong. Đáng tiếc khi ấy ngươi ở xa Đảo Huyền sơn, đạo hạnh lại không đủ, không được tận mắt nhìn thấy. Không sao, chỗ ta có một bức họa cuộn dòng sông thời gian đã quý trọng nhiều năm, tặng cho ngươi. Sau này mang về Tử Khí lâu bồi lên, lão tổ nhà ngươi tất nhiên hài lòng, nâng đỡ ngươi làm thành chủ Thanh Thúy thành cũng không cần lén lút nữa, chỉ việc quang minh chính đại...
 
-Cho dù được xưng là Chân Vô Địch, nhưng vị vấn đạo giả vấn kiếm vấn đạo với vị Nhị chưởng giáo Bạch Ngọc Kinh này, kỳ thật vẫn có.
+Tiểu đạo đồng mắt nhìn mũi, mũi nhìn tim, làm như không nghe thấy.
 
-Lục Trầm cười nói: "Ta là nói loại vấn kiếm khiến ngươi dốc sức xuất kiếm."
+Đạo Lão Nhị nhíu mày:
 
-"A Lương? Bạch Dã? Hay là nói Trần Bình An phi thăng đến tận đây?"
+- Được rồi, đừng vòng vo cầu tình cho thằng nhãi này nữa. Ta không có ý kiến gì với Khương Vân Sinh và Thanh Thúy thành. Ai muốn tranh vị trí thành chủ thì cứ dựa vào bản lĩnh. Để Khương Vân Sinh nắm lấy, ta cũng không sao. Thanh Thúy thành vẫn được coi là địa bàn của đại sư huynh, ai tới trông cửa ta cũng không có ý kiến. Chuyện duy nhất ta có ý kiến là người trông cửa làm hỏng bét, để lại một cục diện rối rắm cho sư huynh.
 
-Đạo Lão Nhị hỏi: "Vậy phải đợi bao lâu, huống chi còn chưa đợi được, còn chưa biết được."
+Lục Trầm lắc đầu:
 
-Lục Trầm giơ hai tay lên, hai ngón tay khẽ gõ Liên Hoa Quan, vẻ mặt vô tội nói: "Là sư huynh chính ngươi nói, ta cũng chưa từng nói qua."
+- Sư huynh ơi sư huynh, ta và ngươi ở chỗ cao này, tùy tiện phất tay áo, nhíu mày hay ngáp một cái, đám tiên nhân bên dưới đã phải cẩn thận nghiền ngẫm tâm tư cả buổi. Tranh? Khương Vân Sinh tranh thế nào? Hôm nay khó khăn lắm hắn mới có gan đến ôn chuyện với hai vị sư thúc, kết quả Nhị chưởng giáo từ đầu đến cuối không nhìn hắn lấy một cái. Ngươi nghĩ năm thành mười hai lầu sẽ đối đãi với hắn thế nào? Sư huynh tùy tiện nói không sao, đối với Khương Vân Sinh lại là liều mạng cũng không làm chủ được đại đạo của mình. Đương nhiên sư huynh có thể không để ý, cảm thấy cứ để đại đạo tự nhiên, vạn pháp quy nhất là được...
 
-Đạo lão nhị cười cười, "Ngươi quả thật nhàm chán đến cực điểm."
+Đạo Lão Nhị không chịu nổi nhất là dáng vẻ này của Lục Trầm, vừa không tự nhiên như sư tôn, vừa không thẳng thắn như sư huynh. Hắn hơi mất kiên nhẫn, nói thẳng:
 
-Lục Trầm nằm úp sấp ở trên lan can, "Thực chờ mong Trần Bình An dạo chơi bốn phương trong tòa thiên hạ này. Nói không chừng đến lúc đó hắn bày sạp thầy tướng số, còn quen thuộc hơn ta."
+- Rốt cuộc ngươi muốn Sơn Thanh tiếp quản Thanh Thúy thành, hay để Khương Vân Sinh tiếp nhận?
 
-Đạo Lão Nhị nói: "Thể phách võ phu xấp xỉ có cảnh giới thứ mười Thần đến, cộng thêm linh khí của tu sĩ Phi Thăng cảnh chống đỡ, hắn mới có thể thật sự cầm kiếm, miễn cưỡng đảm nhiệm kiếm thị."
+Khương Vân Sinh than thầm, thôi xong, Tam chưởng giáo nói dóc một hồi, liên lụy mình rồi.
 
-Lục Trầm nói: "Không cần phiền toái như vậy, chen thân cảnh giới thứ mười bốn là được. Không phải kiếm thị gì, là kiếm chủ của kiếm chủ. Đương nhiên, phải sống thật tốt mới được."
+Hắn thật không biết Lục sư thúc muốn giúp hay hại mình. Nếu Nhị chưởng giáo sư thúc không ở đây, tiểu đạo gia hắn đã sớm mắng người.
 
-Đạo Lão Nhị cười to: "Có chút chờ mong. Tu đạo tám ngàn năm, bỏ lỡ chiến trường viễn cổ, thất bại khó cầu."
+Thật ra Khương Vân Sinh không hề để ý Thanh Thúy thành thuộc về ai. Hôm nay hắn cố tới đây là vì khó khăn lắm mới thấy bóng dáng Lục sư thúc. Để thành thuộc về vị tiểu sư thúc mới kia thì tốt hơn, khỏi bị đuổi vịt lên giàn. Một khi kế nhiệm thành chủ, hắn sẽ rất bận, tranh chấp cũng nhiều. Ở Đảo Huyền sơn đã lâu, hắn quen sống nhàn nhã mỗi ngày, có việc thì tu hành, không có việc thì giở sách. Huống chi với cảnh giới và danh vọng của hắn, căn bản không đủ tư cách nổi bật giữa mọi người, chưởng quản Thanh Thúy thành được thiên hạ coi là Tiểu Bạch Ngọc Kinh.
+
+Lục Trầm cười ha ha, xoa đầu tiểu đạo đồng:
+
+- Về đi.
+
+Tiểu đạo đồng vội chắp tay cáo từ, ngự gió trở về Thanh Thúy thành.
+
+Đạo Lão Nhị dùng tiếng lòng hỏi:
+
+- Ngươi cứ thế tiện tay bỏ đi một con Hóa Ngoại Thiên Ma trong đạo tâm Khương Vân Sinh?
+
+Lục Trầm mỉm cười:
+
+- Nhàm chán thôi mà.
+
+Đạo Lão Nhị nhắc nhở:
+
+- Ngươi nên trở về Thiên Ngoại Thiên.
+
+Lục Trầm chỉ giả ngu, lười nhác không đáp. Im lặng hồi lâu, hắn đột nhiên hỏi:
+
+- Sư huynh, ngươi có nghĩ một ngày nào đó sẽ có người tới vấn kiếm ngươi không?
+
+- Chẳng phải chuyện thường sao?
+
+Dù được xưng là Chân Vô Địch, vị Nhị chưởng giáo Bạch Ngọc Kinh này quả thật vẫn có người tới vấn kiếm, vấn đạo.
+
+Lục Trầm cười nói:
+
+- Ta nói là loại vấn kiếm khiến ngươi phải dốc sức xuất kiếm.
+
+- A Lương? Bạch Dã? Hay là Trần Bình An phi thăng đến đây?
+
+Đạo Lão Nhị hỏi:
+
+- Vậy phải đợi bao lâu? Huống chi còn chưa biết có đợi được hay không.
+
+Lục Trầm giơ hai tay, dùng ngón tay khẽ gõ Liên Hoa quan, vẻ mặt vô tội:
+
+- Là sư huynh tự nói, ta chưa từng nói gì cả.
+
+Đạo Lão Nhị cười:
+
+- Ngươi đúng là nhàm chán đến cực điểm.
+
+Lục Trầm nằm sấp trên lan can:
+
+- Thật mong chờ Trần Bình An dạo chơi bốn phương ở thiên hạ này. Nói không chừng đến lúc hắn bày sạp xem tướng, còn thành thạo hơn ta.
+
+Đạo Lão Nhị nói:
+
+- Thể phách võ phu gần tới cảnh giới thứ mười Thần Đáo, lại thêm linh khí của tu sĩ Phi Thăng cảnh chống đỡ, hắn mới có thể thật sự cầm kiếm, miễn cưỡng làm kiếm thị.
+
+Lục Trầm nói:
+
+- Không cần phiền phức như vậy, bước vào cảnh giới thứ mười bốn là được. Không phải kiếm thị gì cả, mà là kiếm chủ của kiếm chủ. Đương nhiên, trước hết phải sống cho tốt.
+
+Đạo Lão Nhị cười lớn:
+
+- Có chút mong chờ. Tu đạo tám ngàn năm, bỏ lỡ chiến trường viễn cổ, muốn cầu một lần thất bại cũng khó.

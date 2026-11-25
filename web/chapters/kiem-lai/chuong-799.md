@@ -1,203 +1,273 @@
 # Chương 799: Bày trận phía trước
 
-Bảo Bình châu. Đỉnh Nam Nhạc, ngoài thần từ sơn quân, lâm thời dựng ra một mảng kiến trúc thô ráp tương tự hành cung quân trướng, văn võ bí thư lang Đại Ly, phiên thuộc võ tướng các quốc gia, ở giữa dòng chảy như nước, bước chân vội vã, mỗi người đều huyền bội một ngọc bội tạm thời coi là văn điệp thông quan, là hình thức ngọc bội Lão Long Bố Vũ của Phù gia Lão Long thành. Ở một khu vực tương đối yên tĩnh, có bốn người già trẻ dựa vào lan can trông về chiến trường phía nam, đều đến từ Trung Thổ Thần Châu, trong đó một vị lão giả, tay nắm hai viên binh gia giáp hoàn, nhẹ nhàng xoay tròn., Như võ phu tiểu quốc kia thưởng thức thiết cầu, một tay cầm bội vải, cười nói: "Tú Hổ tốt, kiếm tiền tiết kiệm tiêu tiền đều là một hảo thủ. Khương lão nhi, chuyện tiết kiệm tiền, học được chưa? Trong ngoài chiến trường Đại Ly, lúc trước ở ngươi ta tính sơ lược, ước chừng ba ngàn sáu trăm việc lớn việc nhỏ, kiếm tiền tiêu tiền chiếm đa số, tiết kiệm tiền một câu chỉ hai trăm bảy mươi ba việc, cùng loại chuyện nhỏ ngọc bội này, thật ra mới là mấu chốt thực sự hiển hiện công lực Tú Hổ, về sau Khương lão nhi ngươi ở bên kia tổ sơn truyền đạo thụ nghiệp, có thể cường điệu nói lại việc này."
+Trên đỉnh Nam Nhạc của Bảo Bình châu, bên ngoài thần từ sơn quân, người ta tạm dựng một dãy nhà thô sơ giống như hành cung và quân trướng. Văn võ bí thư lang Đại Ly cùng võ tướng các nước phiên thuộc vội vã qua lại như nước chảy. Mỗi người đều đeo một miếng ngọc bội làm văn điệp thông hành tạm thời, chính là kiểu ngọc bội Lão Long Bố Vũ của Phù gia Lão Long thành.
 
-Một lão nhân khác xưng là "Khương lão nhân", áo gai vải thô, thắt lưng buộc giỏ cá nhỏ, gật gật đầu, sau đó nhìn bố cục tầng tầng lớp lớp rậm rạp trên chiến Tr**ng X* xa, cảm khái nói: "Công có lập trận, thủ có tọa trấn, tung hoành đan xen, chằng chịt có trật tự, đều có binh lý, ngoài ra còn có trữ tài quốc gia trong binh pháp bên ngoài binh thư, hai chuyện hợp tung liên hoành đều nhìn thấy được một ít dấu vết quen thuộc, mạch lạc rõ ràng, xem ra Tú Hổ đối với Úy lão đệ quả nhiên rất tôn sùng, khó trách đều nói trên đường du học lúc ấy Tú Hổ trẻ tuổi, đã lặp đi lặp lại lật nát ba quyển sách, trong đó còn có bản binh thư kia của Úy lão đệ."
+Ở một nơi tương đối yên tĩnh, bốn người già trẻ dựa lan can nhìn về chiến trường phía nam. Bọn họ đều đến từ Trung Thổ Thần Châu. Một lão giả cầm hai viên giáp hoàn binh gia xoay nhẹ trong tay, giống như võ phu tiểu quốc chơi thiết cầu, tay kia cầm một tấm vải[?], cười nói:
 
-Lão giả họ Úy vuốt râu cười, "Hai quyển còn lại, có vẻ dư thừa, đoán chừng chỉ tính thêm, chính là hai đĩa rượu và thức ăn, bản binh thư kia của ta, mới là thuần rượu chân chính."
+- Tú Hổ giỏi thật, kiếm tiền lẫn tiết kiệm tiền đều là hảo thủ. Khương lão nhi, chuyện tiết kiệm tiền, ngươi học được chưa? Trước đó ngươi và ta tính sơ qua, trong ngoài chiến trường Đại Ly có khoảng ba ngàn sáu trăm việc lớn nhỏ, phần nhiều liên quan đến kiếm tiền, tiêu tiền, còn việc tiết kiệm tiền chỉ có hai trăm bảy mươi ba. Những chuyện nhỏ như ngọc bội này mới thật sự cho thấy công phu của Tú Hổ. Sau này ngươi truyền đạo thụ nghiệp ở tổ sơn, có thể nhấn mạnh chuyện ấy.
 
-Không phải vị lão tu sĩ Trung Thổ này không chịu nổi khen ngợi, trên thực tế lão nhân họ Úy đời này được khen ngợi, trong sách ngoài sách cũng đủ nhiều.
+Một lão nhân khác được gọi là Khương lão nhân, mặc áo gai vải thô, bên hông buộc một giỏ cá nhỏ, gật đầu. Lão nhìn cách bố trí tầng tầng lớp lớp trên chiến trường phía xa, cảm khái:
 
-Lão nhân lại thành tâm thành ý bổ sung một phen, "Trước kia chỉ cảm thấy tiểu tử Thôi Sàm này quá thông minh, lòng dạ thâm sâu, công phu thật sự, chỉ ở trên con đường tu thân trị học, làm phó giáo chủ văn miếu dư dả, thật sự nếu luận binh pháp, đề cập đề cập thực chiến, cực có khả năng là đàm binh trên giấy, hôm nay xem ra, trái lại là năm đó lão phu khinh thường Tú Hổ trị quốc bình thiên hạ, thì ra hạo nhiên tú hổ, quả thật thủ đoạn thông thiên, rất không tệ nha."
+- Tiến công có trận thế, phòng thủ có người trấn giữ, ngang dọc đan xen, chằng chịt mà có trật tự, đều hợp binh lý. Ngoài ra còn có việc tích trữ của cải cho quốc gia, là binh pháp nằm ngoài binh thư. Cả hai chuyện hợp tung liên hoành[?] đều thấy được vài dấu vết quen thuộc, mạch lạc rõ ràng. Xem ra Tú Hổ quả nhiên rất tôn sùng Úy lão đệ. Khó trách người ta nói khi còn trẻ, trên đường du học Tú Hổ đã lật đi lật lại ba quyển sách đến mức nát bươm, trong đó có binh thư của lão đệ.
 
-Hai vị lão nhân, đều đến từ tổ đình binh gia Trung Thổ Thần Châu, dựa theo quy củ đó là thượng tông Phong Tuyết miếu cùng Chân Võ sơn, tòa tổ sơn quan hệ thật lớn với võ vận, sâu xa sâu xa kia, càng là chính tông binh gia thiên hạ. Mà một lão giả họ Khương một họ úy, đương nhiên chính là binh gia lão tổ hoàn toàn xứng đáng. Chẳng qua hai người Khương, Úy, chỉ có thể tính là hai vị binh gia trung hưng tổ sư, dù sao bộ lão hoàng lịch kia của binh gia, số trang giấy trắng rất nhiều.
+Lão giả họ Úy vuốt râu cười:
 
-Mà bên cạnh hai vị lão nhân, một nam một nữ tuổi còn trẻ, một người là Hứa Bạch, bởi vì tinh thông cờ vua, có mỹ dự "Thiếu niên Khương thái công" cùng "Hứa Tiên".
+- Hai quyển còn lại có lẽ chỉ tính kèm vào, giống như hai đĩa thức ăn nhắm rượu. Binh thư của ta mới là rượu ngon nguyên chất.
 
-Một thiếu nữ dung mạo, tên là thuần thanh, mặc một bộ trường bào màu xanh dày đặc tơ trúc bện thành, nàng tết một bím tóc đuôi ngựa, vòng qua đầu vai, treo ở trước người, bên hông đeo trúc đao trúc kiếm, thuần thanh đến từ Trúc Hải động thiên, là đích truyền duy nhất của Thanh Thần sơn phu nhân, vừa là đệ tử mở cửa vừa là quan môn đệ tử.
+Không phải vị lão tu sĩ Trung Thổ này không chịu nổi lời khen. Suốt đời lão đã được ca ngợi đủ nhiều, cả trong sách lẫn ngoài sách.
 
-Hứa Bạch nhẹ giọng hỏi: "Xuống núi Bảo Bình châu, vậy mà đều không loạn chút nào, quả nhiên là lòng người có thể trọng dụng? Chúng ta từ bắc hướng nam, một đường đi tới, trong lúc đó còn cố ý dọc biển du lịch vạn dặm, giống như ngay cả mấy tu sĩ muốn ý đồ thoát khỏi Bảo Bình châu cũng không có, chẳng phải là quái sự? Không đề cập tới Đồng Diệp châu kia, chỉ nói Phù Diêu châu cùng Kim Giáp châu đã tính là dám chết dám đánh, tu sĩ trên núi, cũng xa xa không làm được loại trình độ khoa trương này, có nhiều tu sĩ chạy trốn kết đội thành đàn, vụng trộm rời khỏi lục địa một châu."
+Lão thành tâm bổ sung:
 
-Lão nhân họ Khương cười nói: "Đạo lý rất đơn giản, tu sĩ Bảo Bình châu không dám không thể không nghe, không dám, là vì luật lệ Đại Ly khắc nghiệt, bản thân chiến tuyến vùng duyên hải chính là một loại chấn nhiếp lòng người, thần tiên trên núi đầu lại không nhiều hơn so với phàm tục phu tử một viên, tự tiện rời cương vị công tác, không hỏi mà giết, đây là quy củ Đại Ly hôm nay. Không thể, là vì phiên thuộc triều đình, sơn thủy thần linh các nơi, tính cả tổ sư đường cùng với dã tu các nơi mật báo tin đều nhìn chằm chằm lẫn nhau, ai cũng không muốn bị liên lụy. Không muốn, là vì trận chiến này Bảo Bình châu nhất định sẽ thảm liệt hơn so với chiến trường ba châu, nhưng vẫn có thể đánh, ngay cả trẻ con vỡ lòng nơi hương dã phố phường, du côn vô lại chơi bời lêu lổng, cũng không có quá nhiều người cảm thấy trận chiến tranh này Đại Ly, hoặc là nói Bảo Bình châu nhất định sẽ thua."
+- Trước kia ta chỉ cảm thấy tiểu tử Thôi Sàm quá thông minh, lòng dạ thâm sâu. Công phu thật sự của hắn chỉ ở việc tu thân trị học, làm phó giáo chủ văn miếu thì dư sức, nhưng nói đến binh pháp và thực chiến, rất có thể chỉ là đàm binh trên giấy. Hôm nay xem ra năm đó lão phu đã coi thường tài trị quốc bình thiên hạ của Tú Hổ. Hạo Nhiên Tú Hổ quả nhiên thủ đoạn thông thiên, rất không tệ.
 
-Hứa Bạch nhìn về phía một chỗ chiến trường trên mặt đất, tìm được một vị võ tướng thân khoác thiết giáp, nhẹ giọng hỏi: "Đều đã thân là phẩm cấp cao nhất của võ tướng Đại Ly, còn muốn chết? Là người này tự nguyện, hay là Tú Hổ phải chết, để làm đại quân Đại Ly biểu thị, dùng để trấn an lòng dân phiên bang sau chiến tranh?"
+Hai lão nhân đều đến từ tổ đình binh gia Trung Thổ Thần Châu. Theo quy củ, đó là thượng tông của miếu Phong Tuyết và Chân Võ sơn. Tòa tổ sơn có quan hệ sâu xa với võ vận ấy cũng là chính tông binh gia trong thiên hạ. Hai lão nhân họ Khương và họ Úy đương nhiên xứng đáng được gọi là lão tổ binh gia. Chẳng qua bọn họ chỉ có thể xem là hai vị tổ sư trung hưng, bởi cuốn hoàng lịch cũ của binh gia còn có rất nhiều trang giấy trắng.
 
-Lão nhân họ Khương mỉm cười nói: "Võ tướng biên quân Đại Ly, người nào không phải người sống đứng lên trong đống người chết, từ Tống Trường Kính đến Tô Cao Sơn, Tào Bình, đều giống nhau. Nếu nói quan mũ lớn, không nỡ chết, mạng cũng đáng giá đến không thể chết, như vậy thiết kỵ Đại Ly cũng không mạnh hơn được bao nhiêu. Hứa Bạch, ngươi có từng nghĩ một chút hay không., Đại Ly Thượng Trụ quốc là có thể thế tập võng thế, hơn nữa tương lai sẽ không ngừng tiếp cận danh hiệu quan văn, như vậy làm tuần thú sứ phẩm cấp võ tướng hàng đầu thì sao? Hoàng đế Đại Ly vẫn chưa bao giờ nói việc này, tự nhiên là bởi vì quốc sư Thôi Sàm chưa từng đề cập, vì sao? Đương nhiên là có tuần thú sứ, hoặc là Tô Cao Sơn, hoặc là chủ tướng tuyến đông Tào Bình, oanh oanh liệt liệt chết trận, Tú Hổ nói đến việc này, đến lúc đó mới có thể danh chính ngôn thuận. Nói vậy trong lòng đại tướng quân Tô Cao Sơn rất rõ ràng..."
+Bên cạnh hai lão nhân là một nam một nữ trẻ tuổi. Nam tử tên Hứa Bạch, tinh thông cờ[?], được gọi là “thiếu niên Khương thái công” và “Hứa Tiên”.
 
-Hứa Bạch nhịn không được nói: "Nhưng Tô Cao Sơn bây giờ mới hơn năm mươi tuổi, đã muốn người chết trên chiến trường, dù là mượn ân ấm tử tôn này, đời đời vinh hoa, thì làm sao có thể bảo đảm được võ huân tuần thú sứ này, sau này kế thừa mấy đời người, nhân chi thường tình, không thể không lo..."
+Thiếu nữ tên Thuần Thanh, mặc trường bào xanh đan bằng những sợi trúc dày đặc. Nàng tết tóc thành một bím, vòng qua vai buông trước ngực, bên hông đeo đao trúc và kiếm trúc. Thuần Thanh đến từ Trúc Hải động thiên, là đệ tử đích truyền duy nhất của Thanh Thần sơn phu nhân, vừa là đệ tử khai sơn vừa là quan môn đệ tử.
 
-Nói tới đây, Hứa Bạch tự mình gật đầu nói: "Hiểu rồi, sau khi chiến tử vinh thăng anh linh võ miếu, như hai đại thượng trụ quốc Viên Tào kia, có Cao Thừa, Chung Khôi vận chuyển thần thông, chẳng những có thể ở trên chiến trường tiếp tục chỉ huy âm binh, cho dù chết trận kết thúc, vẫn có thể xem Cố Chiếu Cố quan tâm gia tộc vài phần."
+Hứa Bạch nhẹ giọng hỏi:
 
-Thuần Thanh nói: "Thôi tiên sinh, hùng tài vĩ lược, hiểu rõ lòng người."
+- Dưới núi Bảo Bình châu lại không loạn chút nào, quả nhiên lòng người có thể trông cậy sao? Chúng ta đi từ bắc xuống nam, còn cố ý dọc theo bờ biển vạn dặm, vậy mà dường như không gặp mấy tu sĩ muốn rời khỏi Bảo Bình châu. Chẳng phải chuyện lạ sao? Không nói Đồng Diệp châu, ngay cả Phù Diêu châu và Kim Giáp châu vốn đã dám đánh dám chết, tu sĩ trên núi cũng không làm được đến mức này, vẫn có rất nhiều người kết thành từng nhóm lén rời khỏi lục địa.
 
-Nho sĩ Thôi Sàm lúc trẻ tuổi, thật ra có chút "ân oán" với Trúc Hải động thiên, nhưng sư phụ thuần thanh, cũng chính là vị Thanh Sơn thần phu nhân kia của Trúc Hải động thiên, quan cảm đối với Thôi Sàm thật ra không kém. Cho nên tuy tuổi Thuần Thanh quá nhỏ, chưa bao giờ từng giao tiếp với Tú Hổ kia, nhưng ấn tượng đối với Thôi Sàm rất tốt, cho nên sẽ thành tâm thành ý kính xưng một tiếng "Thôi tiên sinh". Dựa theo cách nói vị sơn chủ sư phụ kia của nàng, nhân phẩm của kiếm khách nào đó cực kém, nhưng người được tên kiếm khách kia coi là bằng hữu, nhất định có thể kết giao, Thanh Sơn Thần không thiếu mấy bầu rượu.
+Lão nhân họ Khương cười nói:
 
-Hứa Bạch đột nhiên trừng to mắt.
+- Đạo lý rất đơn giản. Tu sĩ Bảo Bình châu không dám, không thể và không muốn bỏ đi. Không dám là vì luật lệ Đại Ly nghiêm khắc, chiến tuyến vùng duyên hải tự nó đã khiến lòng người khiếp sợ. Thần tiên trên núi cũng không có nhiều hơn phàm phu tục tử một cái đầu, tự ý rời vị trí thì không hỏi mà giết, đó là quy củ Đại Ly hôm nay. Không thể là vì triều đình các nước phiên thuộc, sơn thủy thần linh, tổ sư đường cùng những kẻ ngầm báo tin trong đám dã tu đều nhìn chằm chằm lẫn nhau, không ai muốn bị liên lụy. Không muốn là vì trận này ở Bảo Bình châu chắc chắn sẽ thảm liệt hơn chiến trường ba châu kia, nhưng vẫn có thể đánh. Ngay cả trẻ con mới học chữ nơi thôn quê, phố phường hay đám du côn lêu lổng cũng không có mấy người cảm thấy Đại Ly, hay nói đúng hơn là Bảo Bình châu, nhất định sẽ thua.
 
-Một vị thiếu niên áo trắng từ phù thủy xa xa tới, nhìn như thảnh thơi, thực ra nhanh như điện chớp, đỉnh núi Nam Nhạc đề phòng nghiêm ngặt như thấy lạ mà không lạ lẫm, đối với người này cố ý làm như không thấy, Hứa Bạch lập tức nhớ tới thân phận đối phương, là tồn tại vân che vụ nhiễu thân phận quỷ quyệt, người này mang danh hiệu liên tiếp, chẳng những là nhân vật lãnh tụ gián điệp phía nam Đại Ly, còn là đốc tạo sứ phía sau màn của trung bộ Đại Ly cùng một con đường lớn, không có bất cứ quan thân Đại Ly nào, lại là nhân vật cực kỳ mấu chốt, địa vị siêu nhiên.
+Hứa Bạch nhìn về một chiến trường trên mặt đất, tìm thấy một võ tướng khoác thiết giáp, nhẹ giọng hỏi:
 
-Thiếu niên kia ở bên cạnh một hàng bốn người tiếp tục bơi bơi, vẻ mặt không có thành ý cả kinh hét lên: "Này này này, đây không phải vị Khương lão nhân vô địch biểu diễn kia của chúng ta sao, vẫn ăn mặc mộc mạc như vậy, câu cá tới đây, sao vấn đề chứ, một hồ nước lớn như vậy, cá tôm gì không có, có bà dì tên Phi Phi Phi, chính là một con cá to lớn, còn có Úy lão tổ giúp đỡ lưới, một Phi Phi còn không phải dễ như trở bàn tay sao? Sợ là sợ cái sọt cá nhỏ bên hông Khương lão nhi chứa không nổi..."
+- Đã là võ tướng phẩm cấp cao nhất Đại Ly, vẫn phải chết sao? Người này tự nguyện, hay Tú Hổ muốn hắn chết để làm gương cho đại quân Đại Ly, sau chiến tranh dùng chuyện đó trấn an lòng người ở các nước phiên thuộc?
 
-Một lão nho sĩ tóc mai hai bên bạc đột nhiên xuất hiện, một tay đặt ở trên đầu Thôi Đông Sơn, không cho người sau tiếp tục, thiếu niên áo trắng ầm ầm ngã xuống đất, làm bộ làm tịch tức giận quát một tiếng, một con cá chép đánh qua lại không thể đứng dậy, nhảy nhót vài cái, ngã lăn xuống mặt đất vài lần, giống như võ sĩ võ quán giang hồ vụng về nhất, khéo quá hóa vụng, cuối cùng Thôi Đông Sơn đành phải hầm hậm hực bò dậy, Hứa Bạch nhìn thấy luôn luôn quy củ hành lễ có chút không hiểu gì, Đại Ly Tú Hổ hình như cũng không thi triển thuật pháp cấm chế gì, thiếu niên sao lại chật vật như thế?
+Lão nhân họ Khương mỉm cười:
 
-Thôi Sàm lấy thân phận nho sĩ, chắp tay hành lễ đối với hai vị binh gia lão tổ.
+- Võ tướng biên quân Đại Ly có ai không đứng dậy từ trong đống người chết? Từ Tống Trường Kính đến Tô Cao Sơn, Tào Bình đều như nhau. Nếu quan càng lớn càng không nỡ chết, mạng quý đến mức không thể chết, thiết kỵ Đại Ly cũng chẳng mạnh được đến thế. Hứa Bạch, ngươi từng nghĩ chưa, Thượng Trụ quốc Đại Ly có thể thế tập võng thế, sau này chức ấy sẽ ngày càng gần với danh hiệu của quan văn. Vậy còn tuần thú sứ, chức vị thuộc hàng võ tướng cao nhất thì sao? Hoàng đế Đại Ly chưa từng nhắc tới, tự nhiên là vì quốc sư Thôi Sàm chưa từng đề xuất. Vì sao? Đương nhiên phải có một tuần thú sứ, hoặc Tô Cao Sơn, hoặc chủ tướng phía đông Tào Bình, oanh liệt chết trận, khi ấy Tú Hổ nhắc đến chuyện này mới danh chính ngôn thuận. Chắc hẳn đại tướng quân Tô Cao Sơn hiểu rất rõ...
 
-Hai vị lão nhân lúc trước nói cười thoải mái cũng đều nghiêm túc ôm quyền hoàn lễ.
+Hứa Bạch không nhịn được nói:
 
-Tôn kính thứ này, cầu là cầu không được, không tới, cũng ngăn không được.
+- Nhưng Tô Cao Sơn mới hơn năm mươi tuổi, đã muốn người ta chết trên chiến trường. Dù con cháu nhờ ân ấm mà đời đời vinh hoa, làm sao bảo đảm tước vị võ huân tuần thú sứ này truyền được mấy đời? Theo lẽ thường, không thể không lo...
 
-Thôi Sàm mỉm cười nói: "Khương lão tổ, Úy tiên sinh, theo ta đi một chút, nói chuyện phiếm vài câu?"
+Nói đến đây, Hứa Bạch tự gật đầu:
 
-Hai vị binh gia lão tổ cùng nhau theo Thôi Sàm đi xa, chỉ để lại ba người trẻ tuổi nhìn như xấp xỉ tuổi, số tuổi "chân thật" của Thôi Đông Sơn, nếu tính từ lúc thần hồn tách ra tiến vào Ly Châu động thiên, quả thật không khác gì thuần thanh cùng Hứa Bạch.
+- Ta hiểu rồi. Sau khi chết trận, anh linh được thờ ở võ miếu như hai vị Thượng Trụ quốc họ Viên và họ Tào kia. Nhờ thần thông của Cao Thừa và Chung Khôi, bọn họ không chỉ có thể tiếp tục chỉ huy âm binh trên chiến trường, mà sau khi chiến sự kết thúc còn có thể chăm nom gia tộc ít nhiều.
 
-Thôi Đông Sơn ghé vào trên lan can, cách đó khoảng vạn dặm, chính là chỗ giao giới cực nam Bảo Bình châu cùng thủy lục biển lớn.
+Thuần Thanh nói:
 
-Hôm nay trừ toàn bộ Nam Nhạc địa giới của một tòa Lão Long thành, đã trở thành tòa chiến trường thứ hai ngoại trừ Bảo Bình châu kế Lão Long thành chiếm đóng thủ chiến đấu, cùng đại quân Yêu tộc Man Hoang thiên hạ cuồn cuộn không ngừng ùa lên lục địa, chiến sự hai bên hết sức căng thẳng.
+- Thôi tiên sinh hùng tài vĩ lược, thấu hiểu lòng người.
 
-Chiến trường rộng lớn phía nam nam núi Nhạc, đỉnh núi đều đã bị khuân vác di chuyển hết, Đại Ly cùng tinh nhuệ phiên thuộc sớm tập kết ở đây, Đại Ly hệ thiết kỵ ba mươi vạn, trong đó khinh kỵ hai mươi lăm, trọng kỵ năm vạn, khinh kỵ nhân cùng ngựa giống nhau thân khoác thủy vân giáp, trên mỗi một bộ giáp trụ đều được phù lục tu sĩ khắc hoa văn thủy vân, không cố ý theo đuổi những chi tiết nhỏ phù lục văn càng thêm nhuần nhuyễn.
+Khi còn trẻ, nho sĩ Thôi Sàm thật ra có chút “ân oán” với Trúc Hải động thiên. Nhưng sư phụ Thuần Thanh, vị Thanh Thần sơn phu nhân ấy, lại có ấn tượng không tệ về hắn. Thuần Thanh tuổi còn nhỏ, chưa từng giao tiếp với Tú Hổ, song cũng có thiện cảm với Thôi Sàm, cho nên thành tâm kính gọi một tiếng Thôi tiên sinh. Theo lời sơn chủ sư phụ nàng, nhân phẩm của một kiếm khách nào đó cực kém, nhưng người được kiếm khách kia xem là bằng hữu thì nhất định đáng kết giao. Thanh Thần sơn không thiếu mấy bầu rượu.
 
-Đại Ly ba mươi vạn thiết kỵ, chủ tướng Tô Cao Sơn.
+Hứa Bạch đột nhiên mở to mắt.
 
-Xuất thân hàn tộc vương triều Đại Ly, lúc trước bằng vào chiến công hiển hách, thành công chen thân tuần thú sứ lần đầu thiết lập trong lịch sử Đại Ly, danh hiệu quan lại phẩm trật ngang với danh hiệu thượng trụ quốc cũ của Đại Ly.
+Một thiếu niên áo trắng từ xa ngự gió[?] đến, nhìn như thong thả mà thật ra nhanh như chớp. Đỉnh Nam Nhạc đề phòng nghiêm ngặt lại đã quen với chuyện này, cố ý làm như không thấy hắn. Hứa Bạch lập tức nhớ ra thân phận đối phương, một nhân vật lai lịch mờ mịt khó lường, mang rất nhiều danh hiệu. Hắn không chỉ là người đứng đầu mạng lưới gián điệp phía nam Đại Ly, còn là đốc tạo sứ đứng sau màn ở miền trung Đại Ly cùng một con đường lớn[?]. Trên người không có chức quan Đại Ly nào, hắn lại là nhân vật vô cùng quan trọng, địa vị siêu nhiên.
 
-Tám mươi vạn bộ tốt chia làm Ngũ Đại Trận, giữa các Đại Phương Trận nhìn như cách xa nhau mấy chục dặm, kì thực đối với loại chiến tranh này, chiến trường này mà nói, chút khoảng cách ấy hoàn toàn có thể bỏ qua không tính.
+Thiếu niên dạo đến bên cạnh bốn người, làm ra vẻ kinh ngạc chẳng chút thành ý:
 
-Ước chừng tám mươi vạn bộ tốt trọng giáp, từ các đại phiên thuộc quốc gia nam bộ Bảo Bình Châu cũ của vương triều Bạch Sương, điều động đến, thuần một sắc trọng giáp bộ tốt, dựa theo vị trí trú đóng khác nhau của các phương trận khác nhau, sĩ tốt mặc giáp có sơn văn ngũ nhạc giáp màu sắc khác nhau, cùng sơn hà xã tắc ngũ sắc của Hạo Nhiên Thiên Hạ, toàn bộ ngũ sắc thổ, đều đến từ các sơn nhạc, đỉnh núi của các phiên thuộc lớn, trữ quân, trước kia ở dưới điều động vô số lao dịch các phiên thuộc địa vị, khí số núi sông, ở dưới biên quân Đại Ly giám sát, lấy hàng ngàn tinh quái thuộc Bàn Sơn Trạch, thuật thuật khôi lỗi Mặc gia, phù lục lực sĩ hợp lực đục sơn mạch lớn nhỏ, toàn bộ giao do nha môn Đại Ly cùng các đại phiên thuộc công bộ thống nhất, trong lúc đó điều động vô số lao dịch các phiên thuộc, ở dưới tu sĩ trên núi dẫn dắt, ngày đêm đúc sơn văn ngũ nhạc giáp.
+- Này này này, đây chẳng phải Khương lão nhân nhà ta, người biểu diễn vô địch[?] đó sao? Vẫn ăn mặc mộc mạc như vậy, đến đây câu cá à? Không thành vấn đề, một hồ nước lớn như thế, cá tôm gì mà không có. Có một bà dì tên Phi Phi Phi, chính là cá lớn, lại có Úy lão tổ giúp kéo lưới, bắt một Phi Phi còn không dễ như trở bàn tay sao? Chỉ sợ giỏ cá nhỏ bên hông Khương lão nhi không chứa nổi...
 
-Ba mươi vạn kỵ quân chia làm năm đội kỵ quân, nhẹ ba trọng hai, ở trong khoảng cách bộ tốt, cùng năm đại bộ tốt quân trận lại hình thành bố cục chiến trường núi sông nương tựa.
+Một lão nho sĩ tóc mai bạc trắng đột nhiên xuất hiện, đặt một tay lên đầu Thôi Đông Sơn, không cho hắn nói tiếp. Thiếu niên áo trắng ầm một tiếng ngã xuống đất, giả vờ tức giận quát lên, làm động tác cá chép bật dậy nhưng không đứng nổi, nhảy nhót mấy cái rồi lại lăn trên đất mấy vòng. Giống như võ sĩ vụng về nhất trong võ quán giang hồ, hắn khéo quá hóa vụng, cuối cùng đành hậm hực bò dậy.
 
-Đại tướng quân Tô Cao Sơn bày trận trong đại quân, tay cầm một cây thiết thương.
+Hứa Bạch luôn giữ quy củ hành lễ, thấy vậy hơi khó hiểu. Đại Ly Tú Hổ dường như không thi triển thuật pháp cấm chế gì, sao thiếu niên kia lại chật vật như thế?
 
-Kiếp sống ba mươi năm chinh chiến mã, từ một tiểu tốt biên quân vô danh quật khởi thành võ quan cao phẩm nhất một châu tức một quốc gia.
+Thôi Sàm lấy thân phận nho sĩ, chắp tay hành lễ với hai vị lão tổ binh gia. Hai lão nhân lúc nãy còn nói cười thoải mái cũng nghiêm túc ôm quyền đáp lễ.
 
-Tô Cao Sơn ngồi trên lưng ngựa, nhìn lại một cái, đáng tiếc có Nam Nhạc Cao Sơn cản trở tầm mắt, bằng không một đường Bắc Vọng, núi sông tốt đẹp, thu hết vào đáy mắt. Nhãn lực có thể đạt tới trong ngoài, đều là lãnh thổ thổ thổ thổ địa hạt của Đại Ly ta. Một kẻ thất phu, cuộc đời đến tận đây, có thể nói là sinh gặp kỳ ngộ cực điểm, chết đến cực điểm.
+Sự tôn kính là thứ cầu không được, nhưng khi nó đến cũng không ngăn được.
 
-Tô Cao Sơn một tay vỗ nhẹ chuôi đao, một tay giơ lên mũ giáp, vị tuần thú sứ xuất thân hàn tộc duy nhất trong biên quân Đại Ly này, ánh mắt kiên nghị, trầm giọng nói nhỏ: "Để Tô mỗ, vì tất cả hậu thế hàn tộc đệ tử xuất hiện một đầu Dương Quan Đại Đạo."
+Thôi Sàm mỉm cười:
 
-Ở trước hai quân cưỡi ngựa, ngoài ra phía trước chiến trường, còn có một tuyến Cự Mã Trận xếp thành, đều do biên quân thanh niên trai tráng tinh nhuệ cương lực kinh người của nước phiên thuộc tập kết mà thành, nhân số nhiều đến tám vạn, chiến tuyến thứ hai phía sau, tay cầm Trảm - mã đao thật lớn, hai bên ký kết quân lệnh trạng với triều đình các quốc gia, đảm nhiệm tử sĩ, xây dựng ra cọc chống ngựa chém ngựa chưa từng có từ trước đến nay chưa từng có ai.
+- Khương lão tổ, Úy tiên sinh, theo ta đi một đoạn, trò chuyện vài câu được chứ?
 
-Ở giữa kỵ bộ cùng đao trận, là đại trận tu sĩ trên núi Bảo Bình châu, còn có cung nỏ thủ mười hai vạn, một vạn hai ngàn chiếc xe bắn đá, đại khái lấy hình dạng trăng cung sắp xếp, ngoài ra chỉ là sàng nỏ đã có ba ngàn cái, từng cái nỏ tiễn lớn như thiết thương, thế đi như sấm đánh, thanh thế không kém gì phi kiếm kiếm tu trung ngũ cảnh ngoài Địa tiên.
+Hai vị lão tổ binh gia cùng Thôi Sàm đi xa, chỉ để lại ba người trẻ tuổi trông xấp xỉ nhau. Tuổi “thật” của Thôi Đông Sơn, nếu tính từ lúc thần hồn tách ra tiến vào Ly Châu động thiên, quả thật không khác Thuần Thanh và Hứa Bạch là bao.
 
-Ở trên chiến tuyến này, tu sĩ binh gia hai tòa bảo bình tổ đình Bảo Bình châu cùng Phong Tuyết miếu, đảm nhiệm chủ tướng, tu sĩ Chân Võ sơn am hiểu nhất chiến trận sa trường, thường thường đã sớm dấn thân vào Đại Ly cùng các đại phiên thuộc ngũ, phần lớn đã là xuất thân võ tướng trung cao tầng, bày trận trong đó, trừ rơi vào trận chém giết, còn cần điều binh khiển tướng, mà phong cách chém giết của tu sĩ miếu Phong Tuyết, càng tương tự du hiệp, phần nhiều là tu sĩ theo quân biên quan các quốc gia. Mã Khổ Huyền một trong mười người trẻ tuổi dự khuyết, thân ở chiến trường nơi đây, sắc lệnh ra mười mấy vị thần linh tổ đình Chân Võ sơn, sóng vai sừng sững ở hai bên trái phải.
+Thôi Đông Sơn tựa vào lan can. Cách đó chừng vạn dặm là nơi cực nam Bảo Bình châu tiếp giáp biển lớn.
 
-Nữ tử tông chủ Phi Ma tông, Tự Trì tiên sư Trúc Tuyền, bội đao hịch văn là "Hách hách thiên uy, chấn sát vạn quỷ".
+Hôm nay, trừ Lão Long thành, toàn bộ địa giới Nam Nhạc đã trở thành chiến trường phòng thủ thứ hai của Bảo Bình châu. Đại quân yêu tộc Man Hoang thiên hạ cuồn cuộn tràn lên lục địa, chiến sự giữa hai bên hết sức căng thẳng.
 
-Nàng cùng một vị kiếm tu bạch cốt trong Quỷ Trát cốc ở bãi xương cốt, kiếm khách Bồ Phản sóng vai mà đứng, người sau dáng người thon dài, mặc một bộ pháp bào đen nhánh, thi triển ra một thủ thuật che mắt xương trắng sinh thịt, lần đầu khôi phục chân dung trước người, lại là một vị nữ tử trẻ tuổi anh khí bừng bừng.
+Trên chiến trường rộng lớn phía nam Nam Nhạc, các đỉnh núi đều đã được dời đi. Quân tinh nhuệ Đại Ly và các nước phiên thuộc sớm tập kết tại đây. Ba mươi vạn thiết kỵ Đại Ly gồm hai mươi lăm vạn khinh kỵ, năm vạn trọng kỵ. Người và ngựa của khinh kỵ đều khoác thủy vân giáp, mỗi bộ giáp được phù lục tu sĩ khắc hoa văn sóng nước, không cố ý theo đuổi sự tinh xảo ở từng chi tiết.
 
-Trúc Tuyền cười nói: "Bồ Sàm, thì ra bộ dạng ngươi đẹp như vậy nha. Mỹ nhân, đại mỹ nhân, con lừa trọc Đại Viên Nguyệt Tự kia chẳng lẽ là người mù, nếu có thể còn sống về quê, ta muốn thay ngươi bênh vực kẻ yếu, ngươi không nỡ mắng hắn, ta dù sao cũng là một người ngoài, tùy tiện tìm cớ mắng hắn vài câu, dạy hắn một thằng ngốc càng thêm không hiểu gì."
+Chủ tướng ba mươi vạn thiết kỵ Đại Ly là Tô Cao Sơn.
 
-Trúc Tuyền vừa mới nói xong, đã có một tăng một đạo bài thái bình đẳng lưng đeo Hình bộ Đại Ly, dắt tay nhau ngự phong tới, phân biệt rơi ở một bên trái phải Trúc Tuyền cùng Bồ Phản.
+Hắn xuất thân hàn tộc vương triều Đại Ly, trước đây nhờ chiến công hiển hách mà trở thành một trong những tuần thú sứ đầu tiên trong lịch sử Đại Ly, phẩm trật ngang với chức Thượng Trụ quốc trước kia.
 
-Chính là một vị chân nhân của Tiểu Huyền Đô Quan, cùng vị tăng nhân ở Đại Viên Nguyệt Tự không giải được khúc mắc, không thể thành Phật kia.
+Tám mươi vạn bộ tốt chia thành năm đại trận. Các phương trận nhìn như cách nhau mấy chục dặm, nhưng đối với trận chiến và chiến trường này, chút khoảng cách ấy hoàn toàn có thể bỏ qua.
 
-Tăng nhân đứng ở bên cạnh Bồ Liễn, Bồ Liễn Bột Cận đã triệt hồi thủ thuật che mắt, một lần nữa lấy khuôn mặt bạch cốt hiện thế.
+Khoảng tám mươi vạn bộ tốt trọng giáp được điều động từ các nước phiên thuộc lớn ở phía nam Bảo Bình châu, vùng đất cũ của vương triều Bạch Sương. Tùy vị trí đóng quân của từng phương trận, sĩ tốt mặc sơn văn ngũ nhạc giáp có màu sắc khác nhau, tương ứng với ngũ sắc sơn hà xã tắc của Hạo Nhiên thiên hạ. Đất năm màu đều lấy từ các ngọn núi và núi phụ thuộc[?] của các nước phiên thuộc.
 
-Tăng nhân chỉ quay đầu nhìn về phía nàng, nhẹ giọng nói: "Người thành Phật thì thành Phật, người thương khanh thì thương khanh. Nếu bởi vậy mà không thành Phật được thì nhất định phải có sai sót, vậy thì chỉ có thể làm hại Phật Như Lai ta."
+Trước đó, dưới sự giám sát của biên quân Đại Ly, hàng ngàn tinh quái giỏi dời núi lấp đầm, khôi lỗi Mặc gia và phù lục lực sĩ hợp sức khai đục các dãy núi lớn nhỏ. Nha môn Đại Ly cùng công bộ các nước phiên thuộc thống nhất điều phối, huy động vô số dân phu, dưới sự dẫn dắt của tu sĩ trên núi ngày đêm đúc sơn văn ngũ nhạc giáp.
 
-Bồ Liễn Bột Cận chỉ quay đầu lại rồi quay người, đưa lưng về phía tăng nhân, giống như không dám gặp hắn.
+Ba mươi vạn kỵ quân chia làm năm đội, ba đội nhẹ, hai đội nặng, đóng giữa các bộ trận, cùng năm đại trận bộ tốt tạo thành thế núi sông nương tựa.
 
-Trúc Tuyền dậm chân nói: "Mẫu thân ơi, đau quá."
+Đại tướng quân Tô Cao Sơn ở giữa đại quân, tay cầm thiết thương.
 
-Lão chân nhân cười nói: "Trúc tông chủ lại làm hỏng hết phong cảnh rồi."
+Ba mươi năm chinh chiến, từ một tiểu tốt biên quân vô danh, hắn đã trở thành võ quan phẩm cấp cao nhất của một châu cũng là một nước.
 
-Trúc Tuyền một tay đè lại chuôi đao, ngẩng đầu cao cao nhìn phía nam, cười nhạo nói: "Thả ngươi cái rắm, lão nương ta, Nghệ Thải, lại thêm Bồ Phản, đàn bà Bắc Câu Lô Châu chúng ta, mặc kệ có phải kiếm tu hay không, là người hay quỷ, bản thân chính là phong cảnh!"
+Tô Cao Sơn ngồi trên lưng ngựa, quay đầu nhìn lại. Đáng tiếc núi cao Nam Nhạc che khuất tầm mắt, bằng không nhìn thẳng về phương bắc, núi sông tươi đẹp sẽ thu hết vào đáy mắt. Trong ngoài nơi tầm mắt nhìn tới đều là lãnh thổ Đại Ly. Một kẻ thất phu sống đến hôm nay có thể nói là gặp được cơ hội tốt nhất, chết cũng xứng đáng[?].
 
-Một nhóm lớn tu sĩ trú đóng ở trên mấy ngọn núi của Nam Nhạc sơn mạch, Luyện khí sĩ cảnh giới tương đối thấp, tuyệt đại đa số thân ở Nam Nhạc tổ sơn, từ chân núi một đường lan tràn ra giữa sườn núi, thiên địa linh khí nồng đậm dư thừa trực tiếp ngưng tụ thành hơi nước mênh mông, khiến một ít Luyện khí sĩ hạ ngũ cảnh như "Say rượu".
+Tô Cao Sơn một tay vỗ nhẹ chuôi đao, một tay nâng mũ giáp. Vị tuần thú sứ duy nhất xuất thân hàn tộc trong biên quân Đại Ly ánh mắt kiên nghị, trầm giọng nói:
 
-Lại hướng lên trên, là từng chiếc từng chiếc Kiếm Chu treo trên bầu trời.
+- Để Tô mỗ mở ra một con đường lớn cho tất cả con cháu hàn tộc đời sau.
 
-Phiên vương Tống Mục mặc mãng bào, tự mình tọa trấn quân trướng bên ngoài thần từ đỉnh Nam Nhạc sơn.
+Phía trước kỵ quân và bộ quân còn có một tuyến cự mã trận. Tám vạn thanh niên trai tráng tinh nhuệ, sức lực kinh người được tập kết từ biên quân các nước phiên thuộc. Ở tuyến thứ hai phía sau, bọn họ cầm trảm mã đao to lớn, đã ký quân lệnh trạng với triều đình nước mình, nhận làm tử sĩ, bày trận chống ngựa chém ngựa chưa từng có[?].
 
-Chiến dịch Lão Long thành, Tống Mục rút lui cực muộn.
+Giữa kỵ binh, bộ binh và đao trận là đại trận tu sĩ trên núi Bảo Bình châu, cùng mười hai vạn cung nỏ thủ và một vạn hai ngàn xe bắn đá, đại khái bày thành hình vòng cung. Riêng sàng nỏ đã có ba ngàn chiếc, mỗi mũi tên lớn như thiết thương, lao đi như sấm đánh, thanh thế không kém phi kiếm của kiếm tu trung ngũ cảnh chưa tới Địa tiên.
 
-Phiên vương thủ biên giới.
+Trên chiến tuyến này, tu sĩ binh gia của hai tổ đình Bảo Bình châu là Chân Võ sơn và miếu Phong Tuyết đảm nhiệm chủ tướng. Tu sĩ Chân Võ sơn am hiểu chiến trận sa trường, thường đã sớm gia nhập quân ngũ Đại Ly và các nước phiên thuộc, phần lớn là võ tướng trung cao cấp. Bọn họ bày trận trong quân, ngoài xông pha chém giết còn phải điều binh khiển tướng. Tu sĩ miếu Phong Tuyết chém giết lại giống du hiệp hơn, phần nhiều theo quân ở biên quan các nước.
 
-Chỗ giữa sườn núi Nam Nhạc, anh linh cao thừa kinh quan thành, quỷ vật Chung Khôi xuất thân quân tử thư viện Đồng Diệp Châu, đứng ở bên cạnh một vị lão hòa thượng hai tay vuốt một cái đầu trọc nhà mình.
+Mã Khổ Huyền, một trong mười người trẻ tuổi dự khuyết, cũng ở chiến trường này, sắc lệnh cho mười mấy vị thần linh tổ đình Chân Võ sơn hiện ra, sóng vai sừng sững hai bên.
 
-Phía sau Cao Thừa còn có đứa nhỏ, nhìn phía bóng lưng Cao Thừa, gọi một tiếng anh, sau đó nói cho Cao Thừa, chủ nhân Thôi Đông Sơn đến Nam Nhạc.
+Nữ tông chủ Phi Ma tông, Tự Trì tiên sư Trúc Tuyền, đeo thanh đao có khắc dòng hịch văn: “Hách hách thiên uy, chấn sát vạn quỷ”.
 
-Cao Thừa ngoảnh mặt làm ngơ đối với chuyện này.
+Nàng đứng sóng vai với kiếm tu bạch cốt của Quỷ Trát cốc ở bãi xương trắng, kiếm khách Bồ Phản[?]. Người sau vóc dáng thon dài, mặc pháp bào đen nhánh, thi triển thủ thuật che mắt cho xương trắng mọc thịt, lần đầu khôi phục dung mạo lúc còn sống, hóa ra là một nữ tử trẻ tuổi anh khí bừng bừng.
 
-Trên núi Nam Nhạc Trữ Quân, hai vị võ phu thập cảnh, Lý Nhị cùng Vương phó Kỳ Ngọc đứng sóng vai, ngoài ra còn có sơn trưởng Chu Mật cũng đến từ Bắc Câu Lô Châu, trùng tên trùng họ với đại yêu vương tọa Nguyệt Sơn Văn Hải kia, cho nên Chu Sơn trưởng ở thư viện quẳng xuống một câu kiềm chế con mẹ nó, liền mang theo một nhóm lớn nho sinh thư viện dắt tay nhau nam hạ Bảo Bình Châu, nhưng Chu Mật để cho đệ tử thư viện đều ở lại Trung Bộ hầu hạ, một mình nam hạ, hôm nay cùng bạn tốt Lý Nhị, cùng với lão mãng phu vương đến Đồng Lư, cùng nhau phụ trách tọa trấn đỉnh núi Nam Nhạc trữ quân.
+Trúc Tuyền cười nói:
 
-Tại ngọn núi Nam Nhạc Trữ Quân này, vị trí của một tiên gia phủ đệ cao gần với sơn đỉnh thần từ, mấy thế lực dòng họ lớn của Lão Long thành trước mắt đều tạm trú ở nơi này, trừ Phù gia Lão Long thành, Tôn gia Phạm gia, ngoài ra còn có mấy vị đại kiếm tiên, lão kiếm tiên, còn có thành chủ Thanh Phong thành Hứa Hồn, lập tức đều đặt chân ở các nhã tĩnh viện khác nhau, thiếu thành chủ Phù Nam Hoa của Lão Long thành đang ôn chuyện cùng Nguyên Anh tổ sư Thái Kim Giản của Vân Hà sơn.
+- Bồ Phản, thì ra ngươi đẹp như vậy. Mỹ nhân, đại mỹ nhân! Con lừa trọc ở Đại Viên Nguyệt Tự kia chẳng lẽ bị mù? Nếu còn sống trở về quê, ta phải đòi lại công bằng cho ngươi. Ngươi không nỡ mắng hắn, ta là người ngoài, tùy tiện tìm cớ mắng hắn vài câu, khiến tên ngốc ấy càng thêm không hiểu chuyện gì.
 
-Mấy gia tộc thế gia vọng tộc Lão Long thành đều đã dời ra khỏi thành. Chỉ là tổn thất vẫn không thể đo lường. May mà trước đại chiến, mấy lộ tuyến thương mậu, tích góp vốn liếng không mỏng. Cho dù thương gân động cốt, nhưng còn chưa đến mức chưa gượng dậy nổi, chỉ cần Bảo Bình châu thủ được, tất cả dễ nói, bản thân cái này chính là một hồi hoặc là cược lớn thắng lớn, hoặc là thua cược lớn, hoặc là thua cược hào quang, còn nữa Đại Ly cũng không thể không cho lão Long thành không đáp ứng.
+Trúc Tuyền vừa dứt lời, một tăng nhân và một đạo nhân đeo thái bình bài của Hình bộ Đại Ly cùng ngự gió tới, lần lượt đáp xuống bên cạnh Trúc Tuyền và Bồ Phản.
 
-Huống chi Phù gia Lão Long thành làm dê dẫn đầu, biểu hiện là tận hết sức lực nhất, mấy dòng họ phụ thuộc lớn, tự nhiên chỉ có thể đánh rớt răng cùng nuốt máu, ngày thường còn phải nặn ra nụ cười, bày ra một tư thế thản nhiên, không dám toát ra chút oán khí nào. Dù sao vạn nhất thật sự thắng trận đại chiến này, cũng phải một vốn bốn lời.
+Đó là một vị chân nhân của Tiểu Huyền Đô Quan, cùng tăng nhân Đại Viên Nguyệt Tự không cởi được khúc mắc, không thể thành Phật.
 
-Về phần mấy độ thuyền vượt châu kia của Lão Long thành, Quế Hoa Đảo và Sơn Hải Quy ở trong, đều đã sớm di chuyển đi hướng vùng bắc bộ Bảo Bình châu.
+Tăng nhân đứng bên cạnh Bồ Phản. Nàng đã thu lại thủ thuật che mắt, một lần nữa dùng khuôn mặt bạch cốt gặp người.
 
-Hứa thị phu phụ hai người, còn có con trai trưởng Hứa Bân Tiên, thì cùng lão tổ Đào gia, hộ sơn cung phụng cùng nữ tử Đào Tử của Chính Dương sơn, cùng nhau bí mật nghị sự.
+Tăng nhân chỉ quay sang nhìn nàng, nhẹ giọng nói:
 
-Thành chủ Hứa Hồn hôm nay đã là tu sĩ binh gia Ngọc Phác cảnh, thân khoác giáp hạt.
+- Người thành Phật thì thành Phật, người thương khanh thì thương khanh. Nếu vì thế mà không thành Phật được, nhất định có chỗ sai, vậy thì chỉ có thể là Phật Như Lai của ta sai[?].
 
-Con trai trưởng Hứa Bân Tiên. Trước kia có một vị đạo cô phong tư trác tuyệt, vân du Thanh Phong thành, tự mình ban tên cho Hứa Hồn đích tử, ngụ ý "Văn võ song toàn sơn nhân".
+Bồ Phản chỉ quay đầu nhìn rồi xoay người, đưa lưng về phía tăng nhân, giống như không dám gặp hắn.
 
-Quan hệ giữa Chính Dương sơn và Thanh Phong thành không chỉ đơn giản là đồng minh, mấy người đang ngồi trong thư phòng lại càng có quan hệ chặt chẽ có vinh cùng vinh có nhục cùng nhục.
+Trúc Tuyền giậm chân nói:
 
-Hứa Hồn mặt không biểu cảm, nhìn về phía phụ nhân lo sợ bất an đến thỉnh tội kia, giọng điệu cũng không tỏ ra cứng ngắc như thế nào, "Hồ quốc không phải một tòa thành trì gì cả, đóng cửa, mở ra trận pháp hộ thành, là có thể ngăn cách toàn bộ tin tức. Một địa bàn lớn như vậy, chiếm địa bàn tròn mấy ngàn dặm, không có khả năng sau khi hư không tiêu thất, không có nửa điểm tin tức truyền ra. Những quân cờ sớm an bài sẵn kia, vốn không có chút tin tức nào truyền về Thanh Phong thành?"
+- Mẹ ơi, đau quá.
 
-Phụ nhân Hứa thị lắc đầu, "Chẳng biết tại sao, thủy chung không có nửa điểm tin tức truyền ra."
+Lão chân nhân cười nói:
 
-Hứa Hồn khẽ nhíu mày: "Người ngoại hương gọi Nhan Phóng kia rốt cuộc có phải dư nghiệt của vương triều Chu Huỳnh Độc Cô thị hay không?"
+- Trúc tông chủ lại phá hỏng phong cảnh rồi.
 
-Phụ nhân Hứa thị thật cẩn thận nói: "Vương triều Chu Huỳnh bị diệt nhiều năm, tình thế quá loạn, vương triều kiếm tu như mây kia, năm xưa lại nổi danh trên núi dưới núi đan xen từng nơi, cao nhân dật sĩ, mỗi người thân phận đen tối khó hiểu. Gia hỏa dùng tên giả Nhan Phóng này làm việc quá mức quỷ quái, rất nhiều manh mối của vương triều Chu Huỳnh, đứt quãng, tan thành từng mảnh, chắp vá không ra chân tướng, thế cho tới nay cũng khó có thể xác định hắn có thuộc về Độc Cô dư nghiệt hay không."
+Trúc Tuyền đặt một tay lên chuôi đao, ngẩng cao đầu nhìn về phía nam, cười nhạo:
 
-Đây cũng không phải phụ nhân giảo biện, ví dụ như sơn hà vương triều Bạch Sương cũ, đạo nhân tên là Tào Dung kia sau khi xuất hiện ở chiến trường Lão Long thành, từ đó về sau thi triển ra rất nhiều thần thông huyền diệu, khiến tu sĩ Bảo Bình châu rất giật mình. Lại có đắc đạo chân nhân thần thông quảng đại bực này, tuy cảnh giới cụ thể vẫn khó dò, nhưng mà thủ đoạn huyền bí, thuật pháp cao, hoàn toàn có thể coi là tiên nhân.
+- Đánh rắm! Lão nương ta, Nghệ Thải và Bồ Phản, nữ tử Bắc Câu Lô Châu chúng ta, bất kể có phải kiếm tu hay không, là người hay quỷ, bản thân đã là phong cảnh!
 
-Chính là một thân đạo pháp, không kém chút nào so với Đại Thiên Quân mới lên cấp Bảo Bình châu, Thần Cáo tông Kỳ Chân.
+Một nhóm lớn tu sĩ đóng trên mấy ngọn núi của dãy Nam Nhạc. Phần lớn luyện khí sĩ cảnh giới thấp ở trên tổ sơn Nam Nhạc, từ chân núi kéo dài đến sườn núi. Linh khí trời đất nồng đậm đến mức ngưng tụ thành hơi nước mênh mông, khiến một số luyện khí sĩ hạ ngũ cảnh giống như say rượu.
 
-Khiến cho Bảo Bình châu chấn động, càng nhiều là một loại vinh dự cùng hưởng, Bảo Bình châu ta, quả nhiên tàng long ngọa hổ, núi cao không thể chạm, nước sâu không lường được.
+Phía trên nữa là từng chiếc kiếm chu treo giữa trời.
 
-Cho nên Lão Long thành cho dù trở thành phế tích chiến trường, tạm thời rơi vào tay súc sinh trong Man Hoang Thiên Hạ, người tu đạo trên núi Bảo Bình châu, cùng thiết kỵ phiên quân dưới núi, sĩ khí lòng người không giảm mà còn tăng.
+Phiên vương Tống Mục mặc mãng bào, tự mình tọa trấn quân trướng ngoài thần từ trên đỉnh Nam Nhạc. Trong chiến dịch Lão Long thành, Tống Mục rút lui rất muộn.
 
-Trận chiến này, cho dù người chết nhiều hơn nữa, nhưng rốt cuộc không uất ức nửa điểm không uất ức, cho nên có đánh, hoàn toàn có thể đánh!
+Phiên vương giữ biên cương.
 
-Về phần Đồng Diệp châu kia, thực con mẹ nó là cục diện rối rắm một cú đã phá, nhờ có chúng ta năm xưa coi Bảo Bình châu nhà mình là nhà nghèo cửa nhỏ, luôn cảm thấy hàng xóm nhà cao cửa rộng phía nam kia có bao nhiêu khó lường, thế cho nên đám đông sơn thủy đệ báo thường có ngôn ngữ lưu chuyển, nói Kim Đan Đồng Diệp châu kia có thể giết Nguyên Anh Bảo Bình châu, thật sự là có rất nhiều Luyện khí sĩ tin, hơn nữa tin tưởng không nghi ngờ. Kết quả vốn từ nhà núi sông, mới là trụ cột, khí phách lớn.
+Giữa sườn núi Nam Nhạc, anh linh Cao Thừa của Kinh Quan thành và quỷ vật Chung Khôi, vốn xuất thân là quân tử thư viện Đồng Diệp Châu, đứng bên cạnh một lão hòa thượng đang dùng hai tay xoa đầu trọc của mình.
 
-Nhưng đối với Thanh Phong Thành hiện giờ mà nói, một nửa tài nguyên bị cắt đứt một cách khó hiểu, hơn nữa ngay cả mạch lạc tương đối chính xác cũng tìm không thấy, tự nhiên không có nửa điểm tâm tình tốt.
+Phía sau Cao Thừa còn có một đứa nhỏ. Nó nhìn bóng lưng hắn, gọi một tiếng ca ca, rồi báo chủ nhân Thôi Đông Sơn đã đến Nam Nhạc.
 
-"Dù Chính Dương sơn hỗ trợ, để một ít kiếm tu bản thổ Trung Nhạc địa giới đi thăm dò tìm manh mối, vẫn rất khó đào ra được gốc gác của Nhan Phóng kia."
+Cao Thừa làm như không nghe thấy.
 
-Phụ nhân lã chã chực khóc, cầm lấy một cái khăn, lau khóe mắt.
+Trên ngọn núi phụ thuộc Nam Nhạc, hai võ phu thập cảnh Lý Nhị và Vương Phó Kỳ Ngọc[?] đứng sóng vai. Ngoài ra còn có sơn trưởng Chu Mật đến từ Bắc Câu Lô Châu, trùng tên trùng họ với đại yêu vương tọa Văn Hải Chu Mật[?]. Vì thế Chu sơn trưởng ném lại thư viện một câu “nhịn con mẹ nó không nổi”, rồi dẫn một nhóm lớn nho sinh cùng xuống phía nam, đến Bảo Bình châu. Nhưng sau đó Chu Mật để đệ tử thư viện ở lại miền trung trông nom[?], một mình tiếp tục xuống nam. Hôm nay hắn cùng bằng hữu Lý Nhị và lão mãng phu Vương[?] trấn giữ ngọn núi phụ thuộc Nam Nhạc.
 
-Hứa Hồn khoát tay: "Vậy bàn tiếp."
+Trên ngọn núi này có một phủ đệ tiên gia ở vị trí chỉ thấp hơn thần từ trên đỉnh núi. Mấy gia tộc lớn của Lão Long thành tạm trú tại đây, ngoài Phù gia còn có Tôn gia, Phạm gia. Mấy vị đại kiếm tiên, lão kiếm tiên và thành chủ Thanh Phong thành Hứa Hồn cũng ở trong những viện riêng thanh tĩnh. Thiếu thành chủ Lão Long thành Phù Nam Hoa đang ôn chuyện với Nguyên Anh tổ sư Thái Kim Giản của Vân Hà sơn.
 
-Một số tin tức chân chính, vẫn là đóng cửa lại đến người nhà thương nghị càng tốt hơn.
+Mấy thế gia vọng tộc Lão Long thành đều đã dời khỏi thành, nhưng tổn thất vẫn không thể tính hết. May mà trước đại chiến, bọn họ có mấy tuyến buôn bán, tích góp vốn liếng không ít. Tuy thương gân động cốt, vẫn chưa đến mức không gượng dậy nổi. Chỉ cần Bảo Bình châu giữ được, mọi chuyện đều dễ nói. Đây vốn là một canh bạc lớn, hoặc thắng lớn, hoặc thua sạch; hơn nữa Đại Ly cũng không để Lão Long thành từ chối[?].
 
-Đào gia lão tổ kia cười ha ha nói: "Cho đến bây giờ, Lạc Phách Sơn vẫn không có người xuất hiện ở chiến trường."
+Huống chi Phù gia Lão Long thành dẫn đầu, biểu hiện tận hết sức lực, mấy dòng họ lớn phụ thuộc tự nhiên chỉ có thể đánh rớt răng nuốt máu, ngày thường còn phải gượng cười tỏ vẻ thản nhiên, không dám lộ chút oán khí. Dù sao nếu thật sự thắng trận đại chiến này, cũng sẽ được một vốn bốn lời.
 
-"Có thể có, nhưng không có danh tiếng gì."
+Mấy chiếc độ thuyền vượt châu của Lão Long thành, trong đó có Quế Hoa Đảo và Sơn Hải Quy, đã sớm dời về phía bắc Bảo Bình châu.
 
-Hứa Bân Tiên cười nói: "Hình như cho quân đội Đại Ly một chiếc thuyền rồng độ thuyền, cũng coi như xuất lực? Giả nhân giả nghĩa, làm ăn lâu dài, đều hiểu được thu mua lòng người, thật ra thủ đoạn tốt. Dính quang của Phi Vân sơn Ngụy Đại Sơn Quân, bằng vào một tòa cửa ra Ngưu Giác sơn, ôm lấy đùi những tiên gia Bắc Câu Lô châu Phi Ma tông, Xuân Lộ Phố này. Hôm nay lại thành địa chủ lớn nhất địa giới Ly Châu cũ, số lượng phiên thuộc sơn đầu, cũng đã vượt qua Long Tuyền Kiếm Tông."
+Vợ chồng Hứa Hồn cùng con trưởng Hứa Bân Tiên đang bí mật nghị sự với lão tổ Đào gia, hộ sơn cung phụng và nữ tử Đào Tử của Chính Dương sơn.
 
-Bàn Sơn lão viên Chính Dương sơn kia một thân áo trắng, dáng người khôi ngô, hai tay ôm ngực, cười khẩy nói: "Hay cho một cái vận chuyển thời cơ, khiến cho con trai thẳng thắn thành danh đắc thế."
+Thành chủ Hứa Hồn hôm nay đã là tu sĩ binh gia Ngọc Phác cảnh, trên người khoác giáp hạt. Trước kia có một đạo cô phong tư trác tuyệt vân du qua Thanh Phong thành, đích thân đặt tên cho con trai trưởng của hắn là Hứa Bân Tiên, ngụ ý “sơn nhân văn võ song toàn”.
 
-Hứa Bân Tiên nhịn không được nói: "Bắc Nhạc Phi Vân Sơn, thật là nội tình thâm hậu đáng sợ. Chỉ là Ngụy Bách nói rõ bị Đại Ly bỏ qua, thần vị trước kia chỉ là thổ địa công Kỳ Đôn sơn, quật khởi quá mức cổ quái, bếp lạnh bực này, ai có thể đốt được. Lạc Phách Sơn may mắn nói."
+Quan hệ giữa Chính Dương sơn và Thanh Phong thành không chỉ đơn giản là đồng minh. Mấy người ngồi trong thư phòng càng có quan hệ chặt chẽ, vinh nhục cùng chung.
 
-Phụ nhân Hứa thị rụt rè nói: "Chỉ là không hiểu được sơn chủ trẻ tuổi kia, nhiều năm như vậy, vì sao vẫn không có tin tức."
+Hứa Hồn không biểu cảm nhìn phụ nhân đang lo sợ đến thỉnh tội, giọng điệu cũng không quá nghiêm khắc:
 
-Lão viên áo trắng nhếch khóe miệng, "Một tiện chủng ngõ Nê Bình, không đến ba mươi năm, có thể lăn lộn ra bao nhiêu sóng gió, ta cầu hắn báo thù. Trước kia ta ở Chính Dương sơn, hắn không dám tới thì thôi, hôm nay rời khỏi Chính Dương sơn, vẫn là che giấu giấu, loại mặt hàng nhát gan sợ phiền phức này, cũng không xứng Hứa phu nhân đề cập tên, không cẩn thận nhắc tới tai cũng bẩn."
+- Hồ quốc đâu phải một tòa thành, chỉ cần đóng cửa, mở trận pháp hộ thành là có thể ngăn cách mọi tin tức. Một địa bàn rộng mấy ngàn dặm đột nhiên biến mất, không thể không có chút tin tức nào truyền ra. Những quân cờ đã sớm an bài kia thật sự không gửi chút tin tức nào về Thanh Phong thành sao?
 
-Phụ nhân Hứa thị đại khái là tự nhận là thân mang tội, cho nên hôm nay nghị sự, giọng nói cũng không lớn, mềm nhu sợ hãi, "Chúng ta vẫn là cẩn thận thì hơn, trên núi ngoài ý muốn nhiều. Nếu người trẻ tuổi kia chưa giao thiệp tu hành thì thôi, hôm nay đã tích góp ra một phần gia nghiệp to như vậy, không thể khinh thường, nhất là dựa lưng đại thụ dễ hóng mát, cùng đỉnh núi nhà khác tình hương khói rất nhiều., Sợ là sợ tên kia mấy năm nay luôn luôn âm thầm mưu tính, nói không chừng ngay cả chuyện Hồ quốc kia biến mất, chính là một chiêu tiên thủ của Lạc Phách sơn. Hơn nữa Lưu Tiện Dương kia vận đạo vô cùng tốt, khiến cho Lạc Phách sơn lại có quan hệ với Long Tuyền kiếm tông, thân càng thêm thân, về sau chúng ta xử trí Lạc Phách sơn sẽ rất phiền toái, ít nhất phải chú ý thái độ của triều đình Đại Ly bên kia. Dù sao không nói Lạc Phách sơn, chỉ nói Ngụy Sơn Quân cùng Nguyễn thánh nhân, đều là tồn tại rất quan trọng trong cảm nhận của hoàng đế Đại Ly chúng ta."
+Phụ nhân Hứa thị lắc đầu:
 
-Lão viên cười to không thôi, song chưởng đan xen, nhẹ nhàng vê động: "Thật muốn phiền những việc vụn vặt cong cong quấn quanh, không bằng dứt khoát chút, Chính Dương sơn cùng Thanh Phong thành chia chút quân công chiến trường cho ta, một quyền đánh nát nửa tòa Lạc Phách sơn, xem tiểu tử kia còn nỡ tiếp tục làm rùa đen rút đầu hay không."
+- Chẳng biết tại sao, từ đầu đến cuối không có chút tin tức nào truyền ra.
 
-Một vị kiếm tiên phong lưu không biết là Ngọc Phác cảnh hay là Tiên Nhân cảnh, khuôn mặt trung niên cực kỳ anh tuấn, người này ngang trời xuất thế, tự xưng đến từ Bắc Câu Lô Châu, sơn trạch dã tu mà thôi, từng ở chiến trường Lão Long thành xuất kiếm sắc bén, kiếm thuật cao tuyệt, nhìn mà than thở, chiến công cực lớn, giết yêu thành thạo như chém dưa thái rau, hơn nữa thích kiếm tu Địa tiên chuyên môn nhằm vào Man Hoang thiên hạ.
+Hứa Hồn khẽ nhíu mày:
 
-Bái kiếm đài Thôi Sàm, sau khi đi qua Phi Thăng đài, đánh vỡ bình cảnh Kim Đan, đã là kiếm tu Nguyên Anh. Tạm thời tuyên bố với bên ngoài là khách khanh núi Thái tử của Phi Vân sơn. Đi tới vùng duyên hải Đông Nhạc lãnh địa, phụ trách một chỗ chiến trường, xuất kiếm cực nhanh, giết yêu cực nhiều. Vân Lâm Khương thị hy vọng chiêu mộ hắn làm cung phụng cho gia tộc, nhưng Thôi Sàm bị dùng tên giả cự tuyệt.
+- Người ngoại hương tên Nhan Phóng kia rốt cuộc có phải dư nghiệt Độc Cô thị của vương triều Chu Huỳnh không?
 
-Võ phu đỉnh phong Viễn Du cảnh Chủng Thu lấy thân phận võ phu Bắc Câu Lô Châu, thân ở địa giới Tây Nhạc Bảo Bình Châu đã mấy năm, đã là thượng khách của lão tổ Phong Tuyết miếu.
+Phụ nhân cẩn thận đáp:
 
-Vẫn là ở chiến trường Lão Long thành, tương truyền có tiên sư gia phả Thư Giản hồ Chân cảnh, một nữ tử kiếm tu họ Tùy, xuất kiếm sát phạt quả quyết, đối địch tâm ngoan thủ lạt. Mấu chốt là vị nữ tử này, phong tư trác tuyệt, nghiêng nước nghiêng thành. Nghe nói ngay cả hai vị tông chủ nữ tử châu Bắc Câu Lô của Trử Thải cùng Trúc Tuyền kia cũng nhìn nàng với cặp mắt khác xưa.
+- Vương triều Chu Huỳnh đã diệt vong nhiều năm, tình thế quá hỗn loạn. Vương triều ấy năm xưa kiếm tu nhiều như mây, thế lực trên núi dưới núi đan xen, cao nhân dật sĩ ai nấy đều có thân phận khó dò. Kẻ dùng tên giả Nhan Phóng hành sự quá quỷ quái. Manh mối về vương triều Chu Huỳnh lại đứt đoạn, rời rạc, không thể ghép ra chân tướng, cho nên đến nay vẫn khó xác định hắn có phải dư nghiệt Độc Cô thị hay không.
 
-Những người này không phải sơn trạch dã tu, chính là đến từ Bắc Câu Lô Châu, quả thật nhìn qua đều không có quan hệ gì với Lạc Phách Sơn.
+Phụ nhân không phải đang giảo biện. Chẳng hạn đạo nhân Tào Dung ở vùng đất cũ của vương triều Bạch Sương, sau khi xuất hiện tại chiến trường Lão Long thành đã thi triển nhiều thần thông huyền diệu, khiến tu sĩ Bảo Bình châu kinh ngạc. Không ngờ còn có một vị chân nhân đắc đạo thần thông quảng đại như vậy. Tuy cảnh giới cụ thể khó dò, thủ đoạn huyền bí và thuật pháp cao thâm của hắn hoàn toàn có thể xem là tiên nhân.
 
-Mà một nữ tử tên Trịnh Tiễn vũ phu, cũng vừa mới đến núi Thái tử Nam Nhạc, tìm được tiền bối Lý Nhị từng hỗ trợ luyện quyền.
+Một thân đạo pháp ấy không hề kém Đại Thiên Quân mới lên cấp của Bảo Bình châu, Kỳ Chân ở Thần Cáo tông.
 
-Thật ra nàng cách mấy vị đương gia Thanh Phong thành và Chính Dương sơn rất gần.
+Sự chấn động của Bảo Bình châu phần nhiều là niềm vinh dự chung: Bảo Bình châu chúng ta quả nhiên tàng long ngọa hổ, núi cao không thể trèo, nước sâu không thể dò.
 
-Sau đó ở bên ngoài tòa phủ đệ tiên gia này, một thiếu niên áo trắng lén lút ngồi xổm chân tường, lỗ tai kề sát mặt tường, dùng mặt cọ cọ mặt tường, nhỏ giọng tán thưởng: "Không nói chuyện đạo hành quyền cước, chỉ nói chuyện gan dạ, mấy vương tọa Viên Thủ cộng lại cũng không lớn bằng ngươi, hẳn là nhận thức ngươi hoàn toàn xứng đáng là Bàn Sơn lão tổ! Cũng đúng, trên đời này có mấy cường giả, đáng giá tiên sinh ta cùng sư nương cùng nhau liên thủ đối địch còn muốn liều mạng."
+Cho nên dù Lão Long thành đã thành phế tích chiến trường, tạm thời rơi vào tay súc sinh Man Hoang thiên hạ, sĩ khí của tu sĩ trên núi Bảo Bình châu và thiết kỵ phiên quân dưới núi không giảm mà còn tăng.
 
-Thiếu nữ thanh thuần ngồi bên cạnh Thôi Đông Sơn còn mặc pháp bào màu xanh, rất tán đồng, nhớ tới sư phụ mình đánh giá đối với ẩn quan trẻ tuổi cùng với Trữ Diêu thành Phi Thăng, gật đầu nói: "Bội phục bội phục, lợi hại lợi hại."
+Trận này, dù chết thêm bao nhiêu người, rốt cuộc cũng không phải chịu uất ức. Có thể đánh, hoàn toàn có thể đánh!
+
+Còn Đồng Diệp châu kia, đúng là một cục diện rối nát, vừa đánh đã vỡ. Uổng công năm xưa người Bảo Bình châu coi nhà mình nghèo hèn, luôn cảm thấy người hàng xóm nhà cao cửa rộng phía nam vô cùng ghê gớm. Sơn thủy đệ báo thường truyền nhau rằng Kim Đan Đồng Diệp châu có thể giết Nguyên Anh Bảo Bình châu, thật sự có rất nhiều luyện khí sĩ tin không chút nghi ngờ. Kết quả mới biết núi sông nhà mình mới có cốt khí, có khí phách lớn.
+
+Nhưng đối với Thanh Phong thành hiện nay, một nửa nguồn tài nguyên bị cắt đứt khó hiểu, ngay cả manh mối tương đối rõ ràng cũng không tìm được, tự nhiên chẳng ai có tâm tình tốt.
+
+- Dù Chính Dương sơn hỗ trợ, để một số kiếm tu bản địa vùng Trung Nhạc đi tìm manh mối, vẫn rất khó đào ra gốc gác của Nhan Phóng.
+
+Phụ nhân chực khóc, lấy khăn lau khóe mắt.
+
+Hứa Hồn khoát tay:
+
+- Vậy bàn tiếp đi.
+
+Một số chuyện quan trọng vẫn nên đóng cửa để người nhà bàn bạc với nhau.
+
+Lão tổ Đào gia cười ha ha:
+
+- Cho đến bây giờ, Lạc Phách sơn vẫn chưa có ai xuất hiện trên chiến trường.
+
+- Có thể có, nhưng không có danh tiếng gì.
+
+Hứa Bân Tiên cười nói:
+
+- Hình như bọn họ cho quân đội Đại Ly một chiếc độ thuyền thuyền rồng, cũng coi như xuất lực? Giả nhân giả nghĩa, làm ăn lâu dài thì phải biết thu mua lòng người, thủ đoạn cũng khá đấy. Nhờ ánh sáng của Ngụy đại sơn quân Phi Vân sơn, lại dựa vào bến đò Ngưu Giác sơn mà ôm đùi tiên gia Bắc Câu Lô Châu như Phi Ma tông, phố Xuân Lộ. Hôm nay Lạc Phách sơn đã thành địa chủ lớn nhất địa giới Ly Châu cũ, số núi phụ thuộc còn vượt cả Long Tuyền kiếm tông.
+
+Bàn Sơn lão viên của Chính Dương sơn mặc áo trắng, thân hình khôi ngô, hai tay ôm ngực, cười khẩy:
+
+- Đúng là gặp vận gặp thời, để tiểu tử kia thành danh đắc thế[?].
+
+Hứa Bân Tiên không nhịn được nói:
+
+- Bắc Nhạc Phi Vân sơn có nội tình sâu dày đáng sợ. Chỉ là trước kia Ngụy Bách rõ ràng bị Đại Ly bỏ qua, thần vị chỉ là thổ địa công Kỳ Đôn sơn, quật khởi quá kỳ lạ. Cái bếp lạnh ấy ai có thể đoán mà nhóm lửa trước? Lạc Phách sơn may mắn thật.
+
+Phụ nhân Hứa thị rụt rè:
+
+- Chỉ là không hiểu sơn chủ trẻ tuổi kia vì sao nhiều năm như vậy vẫn không có tin tức.
+
+Lão viên áo trắng nhếch miệng:
+
+- Một tiện chủng ngõ Nê Bình, chưa đến ba mươi năm có thể gây được bao nhiêu sóng gió? Ta cầu hắn đến báo thù đấy. Trước kia ta ở Chính Dương sơn, hắn không dám đến thì thôi, hôm nay ta đã rời núi mà hắn vẫn trốn tránh. Thứ nhát gan sợ phiền phức ấy không xứng để Hứa phu nhân nhắc tên, lỡ nghe thấy cũng bẩn tai.
+
+Phụ nhân Hứa thị có lẽ tự biết mình mang tội, cho nên lúc nghị sự nói năng nhỏ nhẹ, rụt rè:
+
+- Chúng ta vẫn nên cẩn thận, trên núi có nhiều chuyện ngoài ý muốn. Nếu người trẻ tuổi kia chưa bước vào đường tu hành thì thôi, hôm nay hắn đã gây dựng gia nghiệp lớn như vậy, không thể khinh thường. Hắn lại dựa lưng vào cây lớn dễ hóng mát, có không ít tình nghĩa với các ngọn núi khác. Chỉ sợ mấy năm nay hắn vẫn âm thầm mưu tính, nói không chừng chuyện Hồ quốc biến mất cũng là nước cờ đi trước của Lạc Phách sơn. Hơn nữa Lưu Tiện Dương vận đạo vô cùng tốt, khiến Lạc Phách sơn có thêm quan hệ với Long Tuyền kiếm tông, càng thêm thân thiết. Sau này chúng ta đối phó Lạc Phách sơn sẽ rất phiền phức, ít nhất phải chú ý thái độ của triều đình Đại Ly. Không nói đến Lạc Phách sơn, chỉ riêng Ngụy sơn quân và Nguyễn thánh nhân cũng đều có vị trí rất quan trọng trong lòng hoàng đế Đại Ly.
+
+Lão viên cười lớn, đan hai bàn tay vào nhau, nhẹ nhàng xoa:
+
+- Nếu thật sự ngại những chuyện vòng vo vụn vặt ấy, chi bằng dứt khoát một chút. Chính Dương sơn và Thanh Phong thành chia cho ta chút quân công chiến trường, ta sẽ một quyền đánh nát nửa ngọn Lạc Phách sơn, xem tiểu tử kia còn nỡ làm rùa rụt đầu hay không.
+
+Có một vị kiếm tiên phong lưu, không biết là Ngọc Phác cảnh hay Tiên Nhân cảnh, dung mạo trung niên cực kỳ anh tuấn. Người này đột nhiên xuất hiện, tự xưng là sơn trạch dã tu đến từ Bắc Câu Lô Châu. Hắn từng xuất kiếm ở chiến trường Lão Long thành, kiếm thuật cao tuyệt khiến người ta than thở, chiến công cực lớn, giết yêu như chém dưa thái rau, đặc biệt thích nhắm vào kiếm tu Địa tiên của Man Hoang thiên hạ.
+
+Thôi Sàm[?] ở Bái Kiếm đài sau khi đi qua Phi Thăng đài đã phá bình cảnh Kim Đan, trở thành kiếm tu Nguyên Anh. Hắn tạm tuyên bố với bên ngoài là khách khanh núi Thái tử của Phi Vân sơn, đến vùng duyên hải thuộc Đông Nhạc phụ trách một chiến trường, xuất kiếm cực nhanh, giết rất nhiều yêu tộc. Vân Lâm Khương thị muốn mời hắn làm cung phụng gia tộc, nhưng hắn dùng tên giả từ chối.
+
+Võ phu đỉnh phong Viễn Du cảnh Chủng Thu lấy thân phận võ phu Bắc Câu Lô Châu, ở địa giới Tây Nhạc Bảo Bình châu đã mấy năm, trở thành thượng khách của lão tổ miếu Phong Tuyết.
+
+Cũng ở chiến trường Lão Long thành, nghe nói có một nữ kiếm tu họ Tùy, tiên sư gia phả Chân Cảnh tông ở Thư Giản hồ, xuất kiếm sát phạt quyết đoán, đối địch tâm ngoan thủ lạt. Mấu chốt là nàng phong tư trác tuyệt, nghiêng nước nghiêng thành. Nghe nói ngay cả hai nữ tông chủ Bắc Câu Lô Châu là Trử Thải và Trúc Tuyền cũng nhìn nàng bằng con mắt khác.
+
+Những người này nếu không phải sơn trạch dã tu thì cũng đến từ Bắc Câu Lô Châu, thoạt nhìn quả thật chẳng có quan hệ gì với Lạc Phách sơn.
+
+Một nữ võ phu tên Trịnh Tiễn[?] cũng vừa đến núi phụ thuộc Nam Nhạc, tìm tiền bối Lý Nhị từng giúp nàng luyện quyền.
+
+Thật ra nàng ở rất gần mấy người đương gia Thanh Phong thành và Chính Dương sơn.
+
+Bên ngoài phủ đệ tiên gia, một thiếu niên áo trắng lén lút ngồi xổm dưới chân tường, áp tai vào tường, cọ cọ mặt, nhỏ giọng tán thưởng:
+
+- Không nói đạo hạnh quyền cước, chỉ nói gan dạ, mấy vương tọa Viên Thủ cộng lại cũng không lớn bằng ngươi. Phải công nhận ngươi xứng đáng là Bàn Sơn lão tổ! Cũng đúng, trên đời có mấy cường giả đáng để tiên sinh và sư nương của ta liên thủ đối địch, còn phải liều mạng chứ.
+
+Thiếu nữ Thuần Thanh mặc pháp bào xanh ngồi bên cạnh Thôi Đông Sơn rất tán đồng. Nhớ tới lời sư phụ đánh giá vị ẩn quan trẻ tuổi và Ninh Diêu ở thành Phi Thăng, nàng gật đầu:
+
+- Bội phục, bội phục, lợi hại, lợi hại.

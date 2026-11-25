@@ -1,277 +1,327 @@
 # Chương 796: Vấn kiếm cao vị
 
-Khi đạo kiếm quang bảy màu lưu ly rực rỡ rời khỏi thành Phi Thăng, lại phá vỡ màn trời, trực tiếp rời khỏi tòa thiên hạ này, cả tòa thành Phi Thăng đầu tiên là yên lặng một lát, sau đó cả thành ồ lên, đèn đuốc sáng lên vô số, từng vị kiếm tu vội vàng rời khỏi phòng, ngửa đầu nhìn lại, chẳng lẽ là Trữ Diêu phá cảnh phi thăng?!
+Đạo kiếm quang lưu ly bảy màu rực rỡ rời khỏi thành Phi Thăng, phá vỡ màn trời, bay thẳng ra khỏi tòa thiên hạ này. Cả thành yên lặng trong chốc lát, rồi lập tức ồ lên. Đèn đuốc khắp nơi sáng rực, từng vị kiếm tu vội vàng rời phòng, ngẩng đầu nhìn trời. Chẳng lẽ Trữ Diêu đã phá cảnh phi thăng?!
 
-Trần thị phủ đệ Thái Tượng phố, Trần Hi lão kiếm tiên năm xưa đổi tên thành Trần Tập, hôm nay là khuôn mặt thiếu niên tản bộ đêm đêm, vừa vặn là người sớm nhất phát hiện dị tượng, Trần Tập trước mắt mang thân phận chân thật, cảnh giới đều ẩn giấu, cho nên phía sau vẫn đi theo một vị thị nữ thiếp thân hộ giá, làm thủ thuật che mắt có cũng được mà không có cũng không sao, thật ra ở Phi Thăng thành mỗi một năm, Trần Tập cách Kiếm Tiên khắc chữ năm xưa Trần Hi càng gần một bước, cho nên thị nữ kiếm tu phía sau "thiếu niên" đảm nhiệm tử sĩ, cách cái chết càng xa, sau đó cách chỗ cao của kiếm đạo càng gần.
+Ở phủ đệ Trần thị trên phố Thái Tượng, lão kiếm tiên Trần Hi năm xưa nay đổi tên thành Trần Tập, mang dáng vẻ thiếu niên, đang tản bộ trong đêm. Hắn vừa khéo là người đầu tiên phát hiện dị tượng. Thân phận và cảnh giới thật của Trần Tập đều được giấu kín, cho nên phía sau còn có một thị nữ thiếp thân đi theo bảo vệ, làm chút thủ thuật che mắt có cũng được mà không có cũng chẳng sao.
 
-Trần Tập thở dài, cảm thấy Trữ Diêu tế ra thanh tiên kiếm này, hơi sớm, sẽ có tai hoạ ngầm. Bằng không đợi luyện hóa nó hoàn chỉnh, dùng cái này đánh vỡ bình cảnh Tiên Nhân cảnh, chen thân Phi Thăng cảnh, công việc thích hợp nhất, chẳng qua Trần Tập tuy không rõ vì sao Trữ Diêu làm như thế, nhưng Trữ Diêu đã lựa chọn mạo hiểm hành sự như thế, tin tưởng tự có lý do của nàng, Trần Tập đương nhiên sẽ không khoa tay múa chân, lấy đại nghĩa thành phi thăng cùng Trữ Diêu chỉ là tạm lĩnh chức ẩn quan phân rõ phải trái, thứ nhất Trần Bình làm gia chủ Trần thị trước kia, người thừa kế hương khói quan trọng nhất nhất của Trần Thanh Đô nhất mạch này, không đến mức bụng dạ hẹp hòi như thế, còn nữa hôm nay cảnh giới Trần Tập không đủ, tìm Trữ Diêu? Hỏi kiếm? Muốn sao?
+Thật ra mỗi năm ở thành Phi Thăng, Trần Tập lại gần thêm một bước với kiếm tiên khắc chữ Trần Hi năm xưa. Vì vậy nữ kiếm tu làm tử sĩ đi theo sau “thiếu niên” cũng ngày càng cách xa cái chết, càng đến gần chỗ cao của kiếm đạo.
 
-Sau đó Trần Tập nhíu mày không thôi, chẳng những là hắn cùng thị nữ, hầu như toàn bộ kiếm tu bị dị tượng kinh động, đều phát hiện Trữ Diêu mặc pháp bào trắng như tuyết, đeo hộp ngự kiếm rời khỏi thành Phi Thăng, xem bộ dáng là muốn đi xa nơi nào đó.
+Trần Tập thở dài. Hắn cảm thấy Trữ Diêu tế ra tiên kiếm hơi sớm, e rằng sẽ lưu lại tai họa ngầm. Đợi luyện hóa hoàn toàn rồi dùng kiếm phá bình cảnh Tiên Nhân cảnh, bước vào Phi Thăng cảnh mới là thích hợp nhất.
 
-Tỳ nữ trẻ tuổi nhan sắc bình thường kia nhịn không được nhẹ giọng nói: "Mỹ nhân như ngọc kiếm như cầu vồng, người cùng kiếm quang, đều đẹp."
+Tuy không hiểu vì sao nàng làm vậy, hắn tin nàng đã mạo hiểm thì tự có lý do. Hắn đương nhiên sẽ không lấy đại nghĩa của thành Phi Thăng ra chỉ trỏ, nói lý với vị ẩn quan tạm thời là nàng. Một là gia chủ Trần thị trước kia, người kế thừa hương khói quan trọng nhất của một mạch Trần Thanh Đô, không đến mức lòng dạ hẹp hòi như vậy. Hai là cảnh giới của hắn bây giờ còn chưa đủ, tìm Trữ Diêu hỏi kiếm sao? Muốn chết à?
 
-Năm đó hào phiệt đứng đầu phố Thái Tượng và phố Ngọc Tuyền thường sẽ bồi dưỡng mấy nữ kiếm thị có ngoại hình kiếm tiên, cực kỳ đối xử tử tế, tương lai cưới gả đều ở trong môn phái nhà mình.
+Sau đó Trần Tập nhíu mày. Không chỉ hắn và thị nữ, gần như toàn bộ kiếm tu bị dị tượng kinh động đều nhìn thấy Trữ Diêu mặc pháp bào trắng như tuyết, đeo hộp kiếm, ngự kiếm rời khỏi thành, dường như muốn đi xa.
 
-Vị tỳ nữ tư chất vô cùng tốt này tên là Ngôn Huyễn, ban họ Trần.
+Thị nữ trẻ tuổi dung mạo bình thường không nhịn được khẽ nói:
 
-Trần Ngôn Huyên ngưỡng mộ Trữ Diêu đã lâu. Luôn cảm thấy nữ tử thế gian, làm thành như Trữ Diêu, thật sự là đẹp đến mức tận cùng.
+- Mỹ nhân như ngọc, kiếm như cầu vồng. Người và kiếm quang đều đẹp.
 
-Trữ Diêu lần này không hề có dấu hiệu đi xa núi sông, vẫn mặc pháp bào Kim Lễ, chân đạp một thanh trường kiếm, trường kiếm trong hộp kiếm, tên là kiếm tiên.
+Năm xưa các hào phiệt đứng đầu phố Thái Tượng và phố Ngọc Tuyền thường bồi dưỡng vài nữ kiếm thị có tư chất kiếm tiên, đối đãi rất tốt, sau này cũng gả cưới trong gia tộc mình.
 
-Trần Tập trước kia vốn có ý tác hợp nàng ta và Trần Tam Thu kết thành đạo lữ, chỉ là Trần Tam Thu vẫn nhớ mãi không quên Đổng Bất Đắc, Trần Tập cũng liền phai nhạt phần tâm tư này.
+Thị nữ tư chất cực tốt này tên là Ngôn Huyên[?], được ban họ Trần. Nàng ngưỡng mộ Trữ Diêu đã lâu, luôn cảm thấy nữ tử thế gian sống được như Trữ Diêu quả thật đã đẹp đến cùng cực.
 
-Trần Tập vẻ mặt ngưng trọng: "Trữ Diêu cố ý rời xa thành Phi Thăng, muốn dẫn dụ những tồn tại viễn cổ kia mượn cơ hội này vây giết mình, nàng muốn tự chém nhân quả, khiến cho rất nhiều đại đạo áp thắng bởi vì nàng mà lên, không rơi vào trên đầu thành Phi Thăng chút nào."
+Lần này Trữ Diêu không báo trước mà đi xa, vẫn mặc pháp bào Kim Lễ, chân đạp trường kiếm. Thanh kiếm trong hộp tên là Kiếm Tiên.
 
-Không ngăn được Trữ Diêu rời thành, càng không thể giúp được chút gì.
+Trước kia Trần Tập vốn có ý tác hợp nàng và Trần Tam Thu thành đạo lữ, chỉ là Trần Tam Thu vẫn nhớ mãi Đổng Bất Đắc, hắn cũng dần bỏ ý định ấy.
 
-Trần Tập tự giễu nói: "Cảnh giới không đủ, chẳng lẽ thật sự muốn uống rượu góp đủ?"
+Trần Tập vẻ mặt ngưng trọng:
 
-Mấy năm nay Trần Tập có ý định chậm lại bước chân phá cảnh, cho nên bây giờ mới chen thân Nguyên Anh không bao lâu, bằng không thì quá sớm chen thân thượng ngũ cảnh, động tĩnh quá lớn, gã khó che giấu thân phận. Hôm nay là ngày tan rã, Trần Tập còn muốn nhiều hơn mấy năm, tốt xấu đợi đến khi túi da này đến tuổi nhược quán, rời núi cũng không muộn. Vừa vặn có thể nhìn thêm những người trẻ tuổi như Tề Thú, Cao Dã Hầu trưởng thành. Trong vòng trăm năm, Trần Tập cũng không muốn khôi phục thân phận "Trần Hi".
+- Trữ Diêu cố ý rời xa thành Phi Thăng, dẫn dụ những tồn tại viễn cổ kia nhân cơ hội vây giết nàng. Nàng muốn tự chém nhân quả, để những đại đạo áp thắng vì nàng mà sinh ra không rơi xuống đầu thành Phi Thăng chút nào.
 
-Trần Ngôn kinh ngạc, có chút hiếu kỳ đạo kiếm quang kia, có phải là phi kiếm bản mạng Trữ Diêu trong truyền thuyết không dễ dàng tế ra, trảm tiên hay không.
+Hắn không ngăn được nàng rời thành, càng không giúp được gì.
 
-Trần Tập thì có chút tò mò thánh nhân văn miếu hiện giờ tọa trấn màn trời, là ngăn không được thanh tiên kiếm "ngây thơ" kia, chỉ có thể tránh mũi nhọn, hay là căn bản không nghĩ tới muốn ngăn, mặc kệ.
+Trần Tập tự giễu:
 
-Điều này rất quan trọng. Thấy mầm biết cây, cái này liên quan đến thái độ chân thật của văn miếu Trung Thổ đối với Phi Thăng thành, phải chăng đã dựa theo ước định nào đó, không chút nào ước thúc đối với kiếm tu.
+- Cảnh giới không đủ, chẳng lẽ thật sự phải uống rượu góp cho đủ số?
 
-Vị thánh hiền bồi tự kia rốt cuộc là sống chết mặc bây, chỉ phụ trách giám sát một tòa thiên hạ mới tinh, đồng thời dựa theo quy củ lễ thánh, thuận tiện giám sát một tòa thành phi thăng, ghi lại công đức lưu chuyển của một tòa thiên hạ, vẫn là sớm đặt trọng tâm giám sát ở trên người thành phi thăng, như phòng trộm đề phòng toàn bộ kiếm tu, đây mới là chuyện Trần Tập quan tâm nhất, nếu là người trước, thành phi thăng trăm năm sau, đối với nho gia nguyện ý lấy lễ đối đãi, ân oán với Hạo Nhiên Thiên Hạ triệt để hai bên rõ ràng, nếu là người sau, Trần Tập không ngại tương lai lấy thân phận Trần Hi, hỏi màn trời kiếm.
+Mấy năm nay hắn cố ý chậm bước phá cảnh, cho nên mới bước vào Nguyên Anh chưa lâu. Nếu sớm bước vào thượng ngũ cảnh, động tĩnh quá lớn, hắn khó mà che giấu thân phận. Nay thân phận sắp bại lộ[?], Trần Tập vẫn muốn chờ thêm mấy năm, ít nhất đợi thân xác này đến tuổi nhược quán rồi xuất đầu lộ diện cũng không muộn. Vừa khéo hắn có thể nhìn những người trẻ như Tề Thú, Cao Dã Hầu trưởng thành. Trong vòng trăm năm, hắn không muốn khôi phục thân phận Trần Hi.
 
-Chỉ cần là kiếm tu, ai mà không có chút tính khí?
+Trần Ngôn kinh ngạc, tò mò không biết đạo kiếm quang kia có phải phi kiếm bản mạng Trảm Tiên mà Trữ Diêu hiếm khi tế ra trong lời đồn hay không.
 
-Trần Tập đột nhiên cười hỏi: "Ngôn Dục, ngươi cảm thấy vị ẩn quan đại nhân kia của chúng ta ở bên cạnh Trữ Diêu, có dám nói mấy câu nặng lời, có thể giống như các đại lão gia hay không?"
+Còn Trần Tập tò mò vị thánh nhân Văn Miếu đang trấn giữ màn trời không ngăn nổi tiên kiếm Thiên Chân, chỉ có thể tránh mũi nhọn, hay là căn bản không muốn ngăn, mặc cho nó đi.
 
-Trần Ngôn suy nghĩ một lát, đáp: "Năm đó ở bên ngoài cửa Trữ phủ, Trữ Diêu thật ra rất thuận theo Ẩn Quan đại nhân, về phần về đến nhà, nô tỳ phỏng chừng vị Ẩn Quan Đại Nhân kia của chúng ta, rất khó có anh hùng khí khái gì. Nghe nói mỗi lần Ẩn Quan ở cửa hàng nhà mình uống rượu, vừa đến cửa Trữ phủ, sẽ giống như kẻ trộm, cũng không biết thật giả, dù sao trên bàn rượu trong thành đều truyền như vậy. Càng quá phận, là có một tửu quỷ biết ngâm thơ, nói chắc như đinh đóng cột, vỗ ngực cam đoan mình tận mắt nhìn thấy Ẩn Quan Đại Nhân, đêm nào đó về nhà, gõ cửa nửa ngày, cũng không có ai mở cửa, hắn liền hảo tâm cùng Ẩn Quan ngồi xuống đến lúc bình minh, sau mỗi lần nhớ tới, hắn đều muốn thay Ẩn Quan Đại Nhân chân thành chăm chú chua xót một phen."
+Chuyện này rất quan trọng. Nhìn mầm biết cây, từ đó có thể thấy thái độ thật sự của Văn Miếu Trung Thổ đối với thành Phi Thăng, xem họ có theo ước định mà không hề ước thúc kiếm tu hay không.
 
-Trần Tập tức giận cười nói: "Trước kia phong cách bàn rượu của Kiếm Khí Trường Thành thuần phác đến mức nào, đến khi hai người đọc sách đến, thì bắt đầu trở nên khó coi đến mức đó, khó nghe vô cùng."
+Vị thánh hiền được phối thờ ấy chỉ phụ trách giám sát thiên hạ mới, thuận tiện theo quy củ của Lễ Thánh trông coi thành Phi Thăng, ghi lại công đức lưu chuyển trong thiên hạ, hay đã sớm đặt trọng tâm lên tòa thành, đề phòng tất cả kiếm tu như phòng trộm? Đó mới là điều Trần Tập quan tâm nhất. Nếu là chuyện trước, trăm năm sau thành Phi Thăng sẽ lấy lễ đối đãi Nho gia, ân oán với Hạo Nhiên thiên hạ hoàn toàn thanh toán. Nếu là chuyện sau, hắn không ngại dùng thân phận Trần Hi hỏi kiếm màn trời.
 
-Trần Ngôn ngập ngừng một chút, nói: "Thật ra nô tỳ tương đối hoài niệm Ẩn Quan đại nhân."
+Đã là kiếm tu, ai lại không có chút tính khí?
 
-Trần Tập cười hỏi: "Là cảm thấy đầu óc Trần Bình An tương đối tốt?"
+Trần Tập đột nhiên cười hỏi:
 
-Trần Ngôn nghiêm nghị lắc đầu nói: "Nô tỳ chỉ cảm thấy Ẩn Quan xử thế bình tĩnh, cho nên người ngoài không cần lo lắng xảy ra sai lầm."
+- Ngôn Huyên, ngươi thấy vị Ẩn Quan đại nhân của chúng ta ở bên Trữ Diêu có dám nói vài câu nặng lời, ra dáng đại lão gia không?
 
-Trần Tập gật gật đầu: "Chính xác."
+Trần Ngôn suy nghĩ một lát rồi đáp:
 
-Trữ Diêu một mình ngự kiếm đi tới một lần nữa đứng sừng sững ở phía đông Phi Thăng thành "Kiếm" tự bi.
+- Năm đó ở ngoài cửa Trữ phủ, Trữ Diêu thật ra rất thuận theo Ẩn Quan đại nhân. Còn về đến nhà, nô tỳ đoán đại nhân khó mà có được khí khái anh hùng gì. Nghe nói mỗi lần uống rượu ở cửa hàng nhà mình, đại nhân về đến cửa Trữ phủ đều giống như kẻ trộm. Cũng không biết thật giả, dù sao trên bàn rượu trong thành đều truyền như vậy.
 
-Nàng ngự kiếm cực nhanh, nhanh như điện chớp, tựa như tiên nhân thi triển thần thông Súc Địa Sơn Hà, ngự kiếm bổ ra biển mây, trong lúc đó xuyên qua một lôi vân thiểm điện đan xen, hơi tới gần, đã bị một thân kiếm khí tràn trề của Trữ Diêu nghiền nát toàn bộ.
+- Còn quá đáng hơn là có một tửu quỷ biết làm thơ, vỗ ngực cam đoan tận mắt thấy một đêm Ẩn Quan đại nhân về nhà, gõ cửa nửa ngày không ai mở. Hắn tốt bụng ngồi cùng đại nhân đến sáng, sau này mỗi lần nhớ lại đều đau lòng thay đại nhân.
 
-Thu kiếm vào hộp, bay xuống bên cạnh tấm bia đá, Trữ Diêu dựa lưng vào bia đá, bắt đầu nhắm mắt dưỡng thần.
+Trần Tập vừa tức vừa buồn cười:
 
-Trữ Diêu lấy tiếng lòng để cho kiếm tu phụ cận Phi Thăng Thành lập tức rút lui khỏi nơi đây, tận lực hướng Phi Thăng Thành bên kia tới gần.
+- Trước kia phong khí trên bàn rượu ở Kiếm Khí Trường Thành thuần phác biết bao. Từ khi hai người đọc sách kia đến, chuyện nói ra càng lúc càng khó nghe.
 
-Hơn mười vị kiếm tu chào hỏi lẫn nhau, sau đó không chút do dự, đều ngự kiếm rời khỏi nơi đây.
+Trần Ngôn ngập ngừng rồi nói:
 
-Khi Trữ Diêu tế kiếm "Ngây thơ" phá vỡ màn trời không bao lâu, Nho gia thánh nhân tọa trấn màn trời đã nhận thấy được không thích hợp, cho nên chẳng những không ngăn trở tiên kiếm hạo nhiên đi xa nọ, ngược lại lập tức truyền tin trung thổ văn miếu.
+- Thật ra nô tỳ rất nhớ Ẩn Quan đại nhân.
 
-Thiên địa bát phương, dị tượng lan tràn, đại địa chấn động, nhiều chỗ mặt đất lật nhào mà lên, từng dãy núi nháy mắt ầm ầm sụp đổ nghiền nát, từng tồn tại viễn cổ ẩn núp đã lâu hiện ra thân hình khổng lồ, như giáng xuống nhân gian, thần linh khổng lồ lấy tội hình phạt, rốt cuộc có cơ hội lấy công chuộc tội, chúng nó đứng dậy, tùy tiện một cước đạp xuống, liền đạp đứt sườn núi, tạo ra một cái hạp cốc ngay tại chỗ, những tồn tại cổ xưa năm tháng dài lâu này, khởi điểm hơi tỏ ra động tác chậm chạp, chỉ là đợi đến khi một đôi mắt lớn như hồ sâu trở nên kim quang lưu chuyển, lập tức liền khôi phục vài phần thần tính sáng rọi.
+- Vì cảm thấy đầu óc Trần Bình An tốt sao?
 
-Ngoài ra còn có mấy chỗ vực sâu đầm lầy chướng khí hoành hành, cũng có mấy tòa thân hình nguy nga trùng kiến thiên nhật, cuốn theo từng cỗ khí vận sơn hà bàng bạc, há miệng hít vào một hơi, liền có thể thôn phệ thiên địa linh khí trong phạm vi trăm dặm, thậm chí ngay cả thủy vận kia cũng nuốt vào bụng, trong nháy mắt khiến cho đầm lầy khô cạn, cỏ cây khô kiệt.
+Nàng nghiêm túc lắc đầu:
 
-Trong minh minh, vị tồn tại viễn cổ hoặc ngủ say hoặc lựa chọn thờ ơ lạnh nhạt này, hôm nay không hẹn mà cùng đều rõ ràng một chuyện, nếu là có trăm năm yên lặng không làm, cũng chỉ có thể là khoanh tay chịu chết, nghển cổ chờ chết, cuối cùng đều phải bị những kẻ ngoại lai kia chém giết từng cái một, đuổi hoặc giam giữ, mà trong những kẻ ngoại lai, nữ tử kiếm tu trên người mang theo vài phần quen thuộc khí tức kia, đáng chết nhất, nhưng mà cỗ khí tức hùng hậu mang theo áp thắng thiên nhiên kia, làm tuyệt đại đa số dư nghiệt viễn cổ ngủ đông các nơi, đều tâm tồn kiêng kị, nhưng khi thanh tiên kiếm "Thiên Chân" đi xa Hạo Nhiên Thiên Hạ, lại không kiềm chế được, đánh giết người này, phải hoàn toàn đoạn tuyệt đại đạo của nàng! Tuyệt đối không thể để cho người này thành công chen thân vào vị trí đầu tiên Phi Thăng cảnh tu sĩ!
+- Nô tỳ chỉ cảm thấy Ẩn Quan xử sự bình tĩnh, người khác không cần lo xảy ra sai sót.
 
-Phía nam thiên địa, tu sĩ Đồng Diệp Châu hoặc là xa xa rút lui khỏi nơi thị phi, ôm đầu chạy trốn, chỉ để ý chạy trốn, hoặc là có mấy vị người được gọi là đắc đạo đã ở địa vị cao thôi diễn một phen, cười to không thôi. Cùng lúc đó, một tu sĩ ôm đoàn hình thái ban đầu thật vất vả tạo ra được đỉnh núi tiên phủ, hầu như mỗi người tuyệt vọng, thật ra tu sĩ thương vong không lớn, phần nhiều là con kiến dưới ngũ cảnh, nhưng tổ sư đường vừa mới xây dựng lên bị một quái vật khổng lồ không hiểu thấu vung cánh tay lên, tùy ý đánh nát, ngoài ra thiên địa linh khí, sơn hà khí số phạm vi mấy trăm dặm đều bị nó ngưng tụ ở trong người, cùng nhau dời đi.
+Trần Tập gật đầu:
 
-Chỉ là nó ở trên đường di chuyển, một đôi mắt màu vàng nhìn thẳng một đỉnh núi chướng mắt ánh sáng quanh quẩn, khí vận nồng hậu dày đặc, nó thoáng thay đổi tuyến đường, chạy như điên, một cước nặng nề giẫm xuống, lại chưa thể mang trận pháp sơn thủy giẫm vỡ, nó cũng sẽ không dây dưa quá nhiều nữa, chỉ liếc mắt một vị tu sĩ trẻ tuổi ngửa đầu đối mặt với nó, tiếp tục chạy vội ở trên đại địa. Thân hình khôi ngô cao ngàn trượng từng bước một giẫm đạp đại địa, mỗi lần rơi xuống đất đều sẽ dẫn phát sấm rền từng trận.
+- Đúng vậy.
 
-Đỉnh núi tiên phủ một cước không đạp vỡ được kia, chính là một trong mười người trẻ tuổi dự khuyết của mấy tòa thiên hạ, tu sĩ Lưu Hà châu bị say nắng, Siêu Nhiên đài hắn tự tay tạo ra.
+Trữ Diêu một mình ngự kiếm đến tấm bia chữ “Kiếm” lại sừng sững ở phía đông thành Phi Thăng.
 
-Chỉ là không biết vì sao là từ đại môn Đồng Diệp Châu tới tòa thiên hạ thứ năm. Nếu không phải phần công báo kia tiết lộ thiên cơ, không ai biết được hắn là thiếu chủ Lưu Hà châu trời góc động thiên.
+Nàng đi nhanh như điện chớp, tựa tiên nhân thi triển thần thông súc địa sơn hà, ngự kiếm xẻ biển mây. Giữa đường nàng xuyên qua một đám mây sấm chớp đan xen, vừa tới gần đã dùng kiếm khí tràn trề quanh thân nghiền nát cả đám mây.
 
-Một vị hắc y thư sinh mở ra quạt gấp trong tay, sóng vai mà đứng cùng Thục Trung, mỉm cười nói: "Thục huynh, thật ra chúng ta có thể ngăn cản một chút, thật là một cơ duyên lớn, nước phù sa không chảy ruộng người ngoài mà, Thục huynh liên thủ với ta, lại chiếm địa lợi, phần thắng không nhỏ, một khi đắc thủ, hồi báo cực lớn. Trời cho không phạt ngược lại chịu phạt."
+Nàng thu kiếm vào hộp, đáp xuống cạnh bia đá, dựa lưng vào bia nhắm mắt dưỡng thần. Sau đó nàng dùng tiếng lòng bảo kiếm tu gần thành Phi Thăng lập tức rút lui, cố gắng đến gần tòa thành.
 
-Thục Trung Thử mặc một bộ pháp y cẩm bào sáng lạn như ráng chiều cười nói: "Ta đây không phải không tin được Trần Bình huynh sao, lo lắng một cái không cẩn thận, đài siêu nhiên sẽ làm giá y cho người khác."
+Hơn mười kiếm tu báo cho nhau, không chút do dự ngự kiếm rời đi.
 
-"Trần ổn" đến từ Bắc Câu Lô Châu, khép lại quạt trúc, nhẹ nhàng gõ ngực, quay đầu nhìn phía thân hình đi xa của tồn tại viễn cổ kia, trong mắt tràn đầy mất mát, giống như trơ mắt nhìn một thần tiên Tiền Khê Giản từ bên người trôi đi không giữ được, thư sinh trẻ tuổi thương tâm nói: "Thấy tốt không thu, dùng người lại nghi, Thục huynh không đủ hào kiệt. Đổi thành vị người tốt kia của ta ở đây, cam đoan đêm nay hai bên sẽ chuyện trò vui vẻ, ngồi xuống đất chia của."
+Không lâu sau khi Trữ Diêu tế kiếm Thiên Chân phá màn trời, thánh nhân Nho gia trấn giữ nơi đó đã nhận ra chuyện không ổn. Ông chẳng những không ngăn tiên kiếm đi đến Hạo Nhiên thiên hạ, còn lập tức truyền tin cho Văn Miếu Trung Thổ.
 
-Thục Trung nóng hỏi: "Người tốt huynh? Trần Bình An huynh hình như rất coi trọng người này?"
+Khắp tám phương trời đất, dị tượng lan tràn. Đại địa rung chuyển, nhiều nơi đất đá lật tung, từng dãy núi trong nháy mắt ầm ầm sụp đổ. Những tồn tại viễn cổ ẩn nấp đã lâu hiện ra thân hình khổng lồ, như thần linh chịu hình phạt giáng xuống nhân gian, cuối cùng có cơ hội lấy công chuộc tội. Chúng đứng dậy, tùy tiện một chân giẫm đứt sườn núi, tạo thành một hẻm vực.
 
-Trần Bất An gật đầu nói: "Đã kề vai chiến đấu, cùng nhau kiếm tiền, lại đấu trí đấu lực, tóm lại vừa địch vừa bạn, gặp nhau vô cùng hợp ý, nhưng cuối cùng ta vẫn là tài cao một bậc, vị huynh tốt kia xem như một nửa thủ hạ bại tướng của ta."
+Những tồn tại cổ xưa ấy ban đầu cử động có phần chậm chạp. Chờ đến khi đôi mắt lớn như hồ sâu lưu chuyển ánh vàng, chúng lập tức khôi phục vài phần thần tính.
 
-Thục Trung Thử cười nói: "Ta thấy chưa chắc."
+Ở mấy vực sâu đầm lầy đầy chướng khí cũng có thân hình nguy nga thấy lại ánh mặt trời. Chúng cuốn theo khí vận núi sông bàng bạc, há miệng hít một hơi đã nuốt sạch linh khí trong vòng trăm dặm, thậm chí cả thủy vận cũng vào bụng, khiến đầm lầy khô cạn, cỏ cây héo úa.
 
-Trần Bất An dùng quạt xếp nhẹ nhàng gõ mặt, ủy khuất nói: "Hảo tâm khuyên Thục huynh một câu, ở Bắc Câu Lô Châu chúng ta có một tập tục, đánh người gần chết, cũng đừng đánh mặt."
+Trong cõi u minh, những tồn tại viễn cổ ngủ say hoặc chọn khoanh tay đứng nhìn đều hiểu rõ một chuyện: nếu trăm năm nữa vẫn im lìm không làm gì, chúng chỉ có thể nghển cổ chờ chết, cuối cùng bị đám người ngoại lai lần lượt giết chết, xua đuổi hoặc giam giữ.
 
-Thục Trung Thử ngẩng đầu cười nói: "Hay cho một nữ kiếm tiên Thái Bình Sơn."
+Trong đám người ngoại lai ấy, nữ kiếm tu mang khí tức quen thuộc kia đáng chết nhất. Nhưng khí tức hùng hậu tự nhiên áp chế chúng khiến phần lớn dư nghiệt viễn cổ ngủ đông khắp nơi đều kiêng kỵ. Nay tiên kiếm Thiên Chân đã đi xa đến Hạo Nhiên thiên hạ, chúng không còn nhịn được nữa. Phải giết nàng, chặt đứt đại đạo của nàng, tuyệt đối không để nàng trở thành tu sĩ Phi Thăng cảnh đầu tiên!
 
-Thì ra trong lời nói của hai người, trong số tu sĩ bản thổ Đồng Diệp Châu, chỉ có một vị nữ quan cầm kiếm đuổi theo, ngự kiếm đi ngang qua biên giới Siêu Nhiên Đài Địa, cuối cùng cứng rắn ngăn lại đường đi của vị dư nghiệt viễn cổ kia.
+Ở phía nam thiên địa, tu sĩ Đồng Diệp Châu có người xa xa rút khỏi nơi thị phi, chỉ lo ôm đầu chạy trốn; cũng có mấy người đắc đạo ở địa vị cao suy tính một phen rồi cười lớn. Cùng lúc ấy, những tu sĩ hợp sức khó khăn lắm mới dựng nên một tiên phủ trên núi gần như đều tuyệt vọng. Thương vong thật ra không lớn, phần nhiều là tu sĩ dưới ngũ cảnh, nhưng tổ sư đường vừa xây đã bị một quái vật khổng lồ tiện tay vung nát. Linh khí và khí số núi sông trong mấy trăm dặm cũng bị nó thu vào người mang đi.
 
-So với tu sĩ Đồng Diệp châu am hiểu chạy nạn tránh họa, tu sĩ Phù Diêu châu quần cư phương Bắc, thế mà ở dưới một vị nam tử toàn thân đế vương khí dẫn dắt, dẫn dắt hơn trăm vị luyện khí sĩ tụ lại bên người, giống hệt nữ quan Hoàng Đình Thái Bình sơn kia, mạnh mẽ túm lấy một tên dư nghiệt viễn cổ. Chẳng qua Hoàng Đình phá cảnh chen thân Ngọc Phác cảnh ở đây là đơn thuần nhàm chán, tìm một trận đánh một trận, về phần võ phu thuần túy Phù Diêu châu thân khoác đại sương bảo giáp này, là vì kiếm tiền kiếm khí vận.
+Trên đường di chuyển, đôi mắt vàng của nó nhìn thấy một ngọn núi ánh sáng lượn quanh, khí vận dồi dào rất chướng mắt. Nó hơi đổi hướng, chạy như điên đến, giẫm mạnh một chân xuống nhưng không phá được trận pháp sơn thủy. Nó cũng không dây dưa, chỉ liếc vị tu sĩ trẻ tuổi đang ngẩng đầu đối mặt với mình rồi tiếp tục chạy trên đại địa. Thân hình cao ngàn trượng bước từng bước, mỗi lần đặt chân đều gây ra tiếng động như sấm rền.
 
-Thiên địa phương tây, một vị thiếu niên tăng nhân một tay nâng bát, một tay cầm quyền trượng, nhẹ nhàng rơi xuống đất, liền đem một tôn dư nghiệt viễn cổ giam cầm ở trong một tòa hồ sen thiên địa.
+Tiên phủ không bị nó giẫm nát chính là Siêu Nhiên đài do tu sĩ Thục Trung Thử[?] của Lưu Hà châu tự tay xây dựng. Hắn là một trong mười người trẻ tuổi dự khuyết của mấy tòa thiên hạ.
 
-Thiếu niên tăng nhân cúi đầu nhìn lại, trong phật bát lòng bàn tay, từng đoá từng đoá hoa sen to bằng ngón cái, về phần vị viễn cổ dư nghiệt kia nhỏ như một hạt cải, đang dời sông lấp biển, vẫn phí công, chỉ là kích khởi một chút gợn sóng mà thôi.
+Chỉ không biết vì sao hắn lại từ đại môn Đồng Diệp Châu đến thiên hạ thứ năm. Nếu không có phần công báo kia tiết lộ thiên cơ, chẳng ai biết hắn là thiếu chủ động thiên Thiên Giác[?] ở Lưu Hà châu.
 
-Phía đông, Đại Huyền Đô quan kiếm tiên nhất mạch một vị nữ quan trẻ tuổi, cùng hai vị tu sĩ Trừu Cung nửa đường gặp mặt, hợp lực đuổi giết một vị viễn cổ dư nghiệt ngang trời xuất thế trong đó.
+Một thư sinh áo đen mở quạt xếp, đứng sóng vai với Thục Trung Thử, mỉm cười nói:
 
-Dù vậy, vẫn có bốn con cá lọt lưới, đi tới địa giới chữ "Kiếm" bia.
+- Thục huynh, thật ra chúng ta có thể ngăn nó lại. Đây là cơ duyên lớn, nước phù sa không chảy ruộng ngoài. Huynh liên thủ với ta, lại chiếm địa lợi, phần thắng không nhỏ. Một khi đắc thủ, thu hoạch sẽ cực lớn. Trời cho không lấy, ắt phải chịu phạt.
 
-Trữ Diêu chờ đã lâu, trước đó, khắp nơi không có người, nàng đã chơi đùa hết lần này tới lần khác nhảy nhà, nhưng vẫn chán đến chết, nàng liền ngồi xổm trên mặt đất, tìm một đống lớn đá nhỏ không sai biệt lắm, lần lượt lật bàn tay, chụp cục đá chơi.
+Thục Trung Thử mặc pháp bào rực rỡ như ráng chiều, cười nói:
 
-Chỉ là đợi đến khi Trữ Diêu phát hiện tung tích của viễn cổ dư nghiệt, liền lập tức đứng lên, mà tồn tại trước tiên tới gần Kiếm Tự Bia, tựa như có cảm ứng với ba dư nghiệt còn lại, cũng không sốt ruột động thủ, thẳng đến khi bốn quái vật khổng lồ mỗi người chiếm cứ một phương, vừa vặn vây khốn tấm bia đá kia, lúc này chúng nó mới chậm rãi đi về phía Trữ Diêu chân thật tạm thời mất đi tiên kiếm.
+- Chẳng phải vì ta không tin được Trần Bình huynh sao? Ta lo sơ sẩy một chút, Siêu Nhiên đài sẽ may áo cưới cho người khác.
 
-Trữ Diêu liền tự do chúng nó bao vây tiễu trừ mình, chỉ là mũi chân điểm nhẹ, đem từng cục đá đá bay ra ngoài.
+“Trần Ổn” đến từ Bắc Câu Lô Châu khép quạt trúc, nhẹ gõ lên ngực, quay đầu nhìn tồn tại viễn cổ đi xa. Trong mắt hắn đầy vẻ tiếc nuối, giống như trơ mắt nhìn một dòng suối tiền thần tiên chảy qua bên người mà không giữ được. Hắn đau lòng nói:
 
-Nàng tùy tiện liếc mắt nhìn một vị dư nghiệt viễn cổ trong đó, đây là mấy ngàn Trần Bình An vừa mới luyện quyền?
+- Thấy lợi không lấy, dùng người còn nghi, Thục huynh không đủ hào kiệt. Nếu đổi thành vị người tốt huynh kia của ta ở đây, bảo đảm đêm nay hai bên sẽ chuyện trò vui vẻ, ngồi xuống chia của.
 
-Trữ Diêu khóe miệng hơi nhếch lên, lại nhanh chóng bị nàng đè xuống.
+Thục Trung Thử hỏi:
 
-Nàng giơ tay lên, một thanh tiên kiếm ra khỏi vỏ cũng ra khỏi hộp, bị Trữ Diêu nắm trong tay.
+- Người tốt huynh? Hình như Trần Bình An huynh rất coi trọng người này?
 
-Cùng lúc đó, không cần phải dùng một trong những phi kiếm bản mạng " khờ dại" để hỏi kiếm, trảm tiên hiện thế nữa.
+Trần Bất An gật đầu:
 
-Trong nháy mắt đâm thủng đầu một vị viễn cổ dư nghiệt, người sau tựa như bị một sợi dây mảnh khảnh treo lên.
+- Từng kề vai chiến đấu, cùng nhau kiếm tiền, lại đấu trí đấu sức. Tóm lại vừa là địch vừa là bạn, gặp nhau rất hợp ý. Nhưng cuối cùng ta vẫn cao tay hơn một bậc, người tốt huynh ấy xem như một nửa bại tướng dưới tay ta.
 
-Trảm Tiên thế đi cực nhanh, toàn bộ viễn cổ dư nghiệt như là bị từng sợi tơ kiếm khí giam cầm tại chỗ, chỉ cần thoáng giãy dụa một cái, liền sẽ kéo rách ra vô số vết thương to lớn.
+Thục Trung Thử cười:
 
-Trữ Diêu âm thần đi xa, tay cầm một thanh kiếm tiên.
+- Ta thấy chưa chắc.
 
-Một đại thần thông súc địa sơn hà giống như đại tu sĩ Phi Thăng cảnh, một thân hình nhỏ bé bỗng nhiên xuất hiện ở trước mắt tàn dư viễn cổ thân cao nghìn trượng, hai tay nàng cầm kiếm, một đạo kiếm quang chém nghiêng tới.
+Trần Bất An dùng quạt nhẹ gõ lên mặt, tủi thân nói:
 
-Cùng lúc đó, trên đại địa, kiếm khí nhỏ bé mờ mịt như mây mù bốc lên, phạm vi ngàn dặm, giống như trong mây trắng.
+- Hảo tâm khuyên Thục huynh một câu, Bắc Câu Lô Châu chúng ta có tập tục, đánh người gần chết cũng đừng đánh vào mặt.
 
-Trên trời cao, mây tụ lại như biển, trùng trùng điệp điệp, chậm rãi hạ xuống.
+Thục Trung Thử ngẩng đầu cười nói:
 
-Không có tiểu thiên địa, kiếm ý không có gì sai.
+- Hay cho một nữ kiếm tiên Thái Bình sơn!
 
-Một tên dư nghiệt hai tay đập loạn, kim quang quanh quẩn toàn thân, thân thể to lớn vẫn như rơi vào trong biển mây kiếm khí, lấy hai tay cùng kim quang cùng những kiếm quang ngưng thành thực chất kia điên cuồng chém giết.
+Thì ra trong lúc hai người trò chuyện, giữa đám tu sĩ Đồng Diệp Châu chỉ có một nữ quan cầm kiếm đuổi theo, ngự kiếm qua địa giới Siêu Nhiên đài, cuối cùng cứng rắn chặn đường dư nghiệt viễn cổ kia.
 
-Thân hình khổng lồ bị một đạo kiếm quang của âm thần Trữ Diêu chém thành nghiêng thành hai nửa, dung nham màu vàng như máu tươi của người tu đạo, quấn lấy nhau, tự mình bù lại vết thương.
+Khác với tu sĩ Đồng Diệp Châu giỏi chạy nạn tránh họa, tu sĩ Phù Diêu châu tụ cư ở phương bắc lại được một nam tử toàn thân mang khí thế đế vương dẫn dắt. Hơn trăm luyện khí sĩ tụ tập bên hắn, giống nữ quan Hoàng Đình của Thái Bình sơn, mạnh mẽ giữ lại một dư nghiệt viễn cổ. Chẳng qua Hoàng Đình vừa phá cảnh bước vào Ngọc Phác cảnh, chỉ vì buồn chán mà tìm một trận đánh; còn võ phu thuần túy Phù Diêu châu khoác bảo giáp Đại Sương kia lại vì kiếm tiền, kiếm khí vận.
 
-Kiếm tiên chém ra chém lại, so với nơi khác chiến trường, lồng giam kiếm khí trảm tiên ngay ngắn trật tự, một thanh trường kiếm tiên binh phẩm cấp kéo ra hàng trăm hàng ngàn đường kiếm quang, không có kết cấu gì đáng nói.
+Ở phương tây, một thiếu niên tăng nhân một tay nâng bát, một tay cầm quyền trượng, nhẹ nhàng đáp xuống đất, giam một dư nghiệt viễn cổ vào thiên địa hồ sen.
 
-Thuần túy lấy kiếm tu lực lượng sát thương cực lớn đối địch.
+Hắn cúi đầu nhìn phật bát trên tay. Trong bát là từng đóa sen lớn bằng ngón cái, dư nghiệt viễn cổ nhỏ như hạt cải đang dời sông lấp biển, nhưng chỉ phí công làm mặt nước nổi chút gợn sóng.
 
-Trữ Diêu hiện ra một pháp tướng ngàn trượng khoác pháp bào màu vàng, ngự phong rời khỏi kiếm tự bia, cầm trong tay một thanh trường kiếm do kiếm khí ngưng tụ mà thành, một kiếm gọt đi đầu lâu một tên dư nghiệt viễn cổ, lại một kiếm đinh vào giữa đầu, dư nghiệt thần linh tạm thời mất đi đầu sau đó ngã ngửa ra sau, bị pháp tướng Trữ Diêu một cước giẫm lên ngực, lại rung cổ tay đem thanh trường kiếm xuyên qua đầu dư nghiệt, lại đâm xuyên qua viễn cổ dư nghiệt, người sau như thi thể không đầu nâng đỡ phía trước.
+Ở phương đông, một nữ quan trẻ tuổi thuộc một mạch kiếm tiên Đại Huyền Đô quan gặp hai tu sĩ Trừu Cung giữa đường, cùng nhau đuổi giết một dư nghiệt viễn cổ vừa xuất thế.
 
-Dư nghiệt viễn cổ ngã xuống đất không dậy nổi một cánh tay bị pháp tướng Trữ Diêu dẫm lên, một cánh tay khác ý đồ đánh gãy mắt cá chân của Trữ Diêu pháp tướng, bị Trữ Diêu xoay người túm lấy cổ tay dư nghiệt, dùng sức kéo một cái, tùy tay ném ra xa.
+Dù vậy vẫn có bốn con cá lọt lưới đến địa giới tấm bia chữ Kiếm.
 
-Về phần chân thân Trữ Diêu, vẫn ở nguyên tại chỗ, trận chém giết này chân chính đại địch, không phải ở chỗ bốn tên dư nghiệt viễn cổ khó có thể chân chính chém giết này, mà là đại đạo thiên kiếp đang chậm rãi tạo ra.
+Trữ Diêu đã chờ từ lâu. Trước đó bốn phía không có ai, nàng chơi nhảy ô hết lần này đến lần khác, nhưng vẫn chán, bèn ngồi xổm tìm một đống đá nhỏ cỡ tương đương, lật bàn tay bắt đá chơi.
 
-Chúng nó muốn thừa dịp tiên kiếm ngây thơ không ở tòa thiên hạ này, lấy một trận thiên địa đại kiếp nạn thiên địa vốn nên là tiên nhân phá vỡ bình cảnh, trấn áp Trữ Diêu.
+Phát hiện tung tích dư nghiệt viễn cổ, nàng lập tức đứng dậy. Kẻ đầu tiên đến gần bia chữ Kiếm dường như có cảm ứng với ba kẻ còn lại, cũng không vội động thủ. Chờ bốn quái vật khổng lồ mỗi kẻ chiếm một phương, vây tấm bia vào giữa, chúng mới chậm rãi tiến về phía chân thân Trữ Diêu tạm thời mất đi tiên kiếm.
 
-Chân thân của Trữ Diêu giống như hoàn toàn vô sự, chỉ là đứng tại chỗ, im lặng chờ trận thiên kiếp kia, ngay từ đầu nàng đã làm tốt tính toán tệ nhất, thanh " khờ dại" kia cho dù có thể chạy về chiến trường, vô cùng có khả năng đều sẽ cố ý thả chậm tốc độ quay về, chờ Trữ Diêu đại đạo bị hao tổn, sau khi thiên kiếp hạ cảnh, có thể tìm cơ hội điên đảo thân phận, từ kiếm thị trở thành kiếm chủ.
+Trữ Diêu mặc cho chúng vây tới, mũi chân khẽ điểm, đá từng viên đá nhỏ bay đi.
 
-Trữ Diêu không cảm thấy kiếm linh của tiểu nha đầu kia có thể thực hiện được, không hổ là ngây thơ, thật sự là ý nghĩ ngây thơ.
+Nàng tùy tiện liếc một dư nghiệt viễn cổ: đây là mấy ngàn Trần Bình An mới luyện quyền nhỉ?
 
-Bốn vị dư nghiệt viễn cổ kia, nhìn như ngay cả chân thân Trữ Diêu cũng không thể tới gần, nhưng trên thực tế, Trữ Diêu cũng khó có thể chém giết hầu như không còn, luôn có thể tro tàn lại cháy lên, phạm vi ngàn dặm, xuất hiện vô số dòng sông màu vàng to to nhỏ nhỏ, khe nước, sau đó trong nháy mắt có thể tái tạo kim thân, lại phân biệt bị bản mạng phi kiếm của Trữ Diêu trảm tiên, biển mây kiếm khí, Trữ Diêu pháp tướng, Trữ Diêu âm thần cầm kiếm tiên lần lượt đập nát thân thể.
+Khóe miệng nàng hơi nhếch lên, lại nhanh chóng đè xuống.
 
-Đây chính là mấu chốt duy nhất của kiếm tu, phi kiếm cũng tốt, kiếm khí cũng thế, đều có sát lực to lớn, có một không hai trong thiên hạ, nhưng duy chỉ sợ kiếm rơi vào khoảng không.
+Nàng giơ tay, một thanh tiên kiếm ra khỏi vỏ, rời hộp kiếm, rơi vào tay nàng. Cùng lúc đó, không cần dùng đến Thiên Chân hỏi kiếm, một trong những phi kiếm bản mạng khác của nàng là Trảm Tiên hiện thế, trong nháy mắt xuyên thủng đầu một dư nghiệt viễn cổ. Kẻ đó tựa như bị một sợi dây mảnh treo lên.
 
-Nếu có mấy môn thuật pháp thần thông thượng thừa, hoặc là thủ đoạn cùng loại với thiên địa ngăn cách, tách những máu tươi màu vàng tượng trưng cho căn bản đại đạo ra giam cầm, hoặc là luyện hóa tại chỗ, trận chém giết này, sẽ sớm chấm dứt.
+Trảm Tiên đi nhanh vô cùng. Cả bốn dư nghiệt đều như bị những sợi tơ kiếm khí giam tại chỗ, chỉ cần hơi giãy dụa sẽ bị kéo rách vô số vết thương lớn.
 
-Bởi vì máu tươi màu vàng chảy như sông lớn trên mặt đất, phi kiếm cùng kiếm khí của Trữ Diêu lại sắc bén vô cùng, cho dù có thể tùy ý cắt, vỡ nát, nhưng mà làm "vật căn bản thần linh kim thân so với thiên địa linh khí càng thêm tinh túy, thủy chung không thể giống như đối địch tầm thường, chỉ cần phi kiếm xuyên thủng hồn phách thân thể đối thủ, là có thể đem kiếm khí quanh quẩn ngưng lại ở trong tiểu thiên địa nhân thân, thuận thế quấy nát từng tòa khí phủ khiếu huyệt tựa như động thiên phúc địa của tu sĩ.
+Âm thần Trữ Diêu cầm Kiếm Tiên rời đi. Dùng đại thần thông súc địa sơn hà giống đại tu sĩ Phi Thăng cảnh, thân hình nhỏ bé của nàng bỗng xuất hiện trước dư nghiệt cao ngàn trượng, hai tay cầm kiếm chém xéo một đạo kiếm quang.
 
-Nhưng nếu không có đạo thiên kiếp càng ngày càng đại đạo hiển hóa kia, về lâu về dài, cho dù hai bên dựa theo tình thế này, tiếp tục tiêu hao, một tổn hại kim thân đại đạo, một tiêu hao tâm thần cùng linh khí, Trữ Diêu vẫn như cũ phần thắng lớn hơn.
+Cùng lúc đó, kiếm khí nhỏ bé trên mặt đất bốc lên mờ mịt như mây, bao phủ ngàn dặm. Trên trời cao, mây tụ thành biển, trùng trùng điệp điệp chậm rãi hạ xuống.
 
-Bởi vì những máu tươi màu vàng kia giống như phù hợp thiên địa đại đạo, dù là phi kiếm cũng không tổn hại chút phân lượng nào, nhưng mà Viễn Cổ dư nghiệt muốn tụ lại tái tạo kim thân, liền sẽ xuất hiện một loại hao tổn bẩm sinh.
+Không phải tiểu thiên địa, mà là kiếm ý[?].
 
-Bốn tên dư nghiệt viễn cổ này, so với mấy con lúc trước Trữ Diêu đánh giết, hiển nhiên khác nhau rất lớn. Những tồn tại trước kia, không đến mức khó chơi đến mức này.
+Một dư nghiệt toàn thân kim quang quanh quẩn, hai tay đập loạn. Thân thể khổng lồ của nó như rơi vào biển mây kiếm khí, dùng hai tay và kim quang điên cuồng chống lại những đạo kiếm quang đã ngưng thành thực chất.
 
-Trữ Diêu ngẩng đầu nhìn lại, trên trời tựa như lơ lửng một vòng vầng sáng màu vàng, giống như một đôi mắt màu vàng của thần linh viễn cổ cao vị, gắt gao nhìn thẳng mình.
+Một kẻ khác bị kiếm quang của âm thần Trữ Diêu chém xéo thành hai nửa. Dung nham màu vàng giống máu tươi của tu sĩ quấn lấy nhau, tự bù đắp vết thương.
 
-Mà trên đại địa, bốn vị viễn cổ dư nghiệt kia vậy mà tự động như tuyết đọng tan rã, triệt để hóa thành một tòa huyết hải màu vàng, cuối cùng trong nháy mắt đứng sừng sững lên một vị kim thân thần linh thân cao vạn trượng, một vòng màu vàng tròn vo, như hậu thế pháp tướng bảo luân, vừa vặn treo ở phía sau vị thần linh khôi phục chân dung kia.
+Kiếm Tiên chém ra liên tiếp. So với lồng giam kiếm khí của Trảm Tiên ngay ngắn trật tự ở nơi khác, thanh trường kiếm phẩm cấp tiên binh này kéo ra hàng trăm hàng ngàn đạo kiếm quang, chẳng có kết cấu gì đáng nói, thuần túy dùng sát lực to lớn của kiếm tu đối địch.
 
-Sau đó, trên cánh tay của Thần Linh, đại đạo hiển hóa mà sinh, có một con giao long màu vàng quấn quanh, mãng xà.
+Trữ Diêu lại hiện ra pháp tướng cao ngàn trượng, khoác pháp bào màu vàng, ngự gió rời bia chữ Kiếm, cầm trường kiếm ngưng tụ từ kiếm khí. Một kiếm gọt đầu dư nghiệt viễn cổ, rồi một kiếm đóng vào giữa đầu. Thần linh mất đầu ngã ngửa, bị pháp tướng giẫm lên ngực. Nàng rung cổ tay, dùng trường kiếm xuyên qua đầu nó rồi đâm xuyên thân thể, nâng thi thể không đầu lên phía trước[?].
 
-Thần linh quan sát nhân gian.
+Một cánh tay dư nghiệt ngã xuống đất bị pháp tướng giẫm lên, cánh tay kia định đánh gãy mắt cá chân nàng. Pháp tướng xoay người túm lấy cổ tay nó, dùng sức kéo rồi thuận tay ném ra xa.
 
-Kiếm tu hỏi Kiếm Thiên Đình.
+Chân thân Trữ Diêu vẫn đứng tại chỗ. Đại địch thật sự trong trận này không phải bốn dư nghiệt viễn cổ khó giết kia, mà là thiên kiếp đại đạo đang chậm rãi hình thành.
 
-Trữ Diêu ngẩng cao đầu, cùng vị thần linh rốt cuộc không hề che đậy thân phận kia nhìn thẳng.
+Chúng muốn nhân lúc tiên kiếm Thiên Chân không ở thiên hạ này, dùng thiên kiếp vốn dành cho tiên nhân phá cảnh để trấn áp Trữ Diêu.
 
-Dựa theo ghi chép bí mật của hành cung tránh nóng, trong mười hai vị thần linh viễn cổ, dưới trướng người mặc giáp có một mắt, chấp chưởng thưởng phạt thiên hạ giao long chi chúc, thủy duệ tiên linh, một trong chức trách trong đó, là cùng một vị thần linh địa vị cao Lôi bộ, phân biệt phụ trách Hóa Long Trì cùng Trảm Long Đài.
+Chân thân nàng như không có chuyện gì, chỉ đứng yên chờ thiên kiếp. Ngay từ đầu nàng đã tính đến tình huống xấu nhất: dù Thiên Chân có thể trở về chiến trường, rất có thể nó sẽ cố ý đi chậm, chờ đại đạo của nàng bị hao tổn, cảnh giới sa sút vì thiên kiếp, rồi tìm cơ hội đổi thân phận từ kiếm thị thành kiếm chủ.
 
-Vị thần linh địa vị cao này ở trên chiến trường viễn cổ bị hao tổn đại đạo, ở tòa thiên hạ thứ năm yên lặng vạn năm sau, đã là đang may vá đại đạo, cũng đang chậm rãi phù hợp với thiên địa đại đạo, cho nên nó chính là bản thân thiên kiếp.
+Trữ Diêu không cho rằng kiếm linh tiểu nha đầu kia làm được. Không hổ tên là Thiên Chân, ý nghĩ thật ngây thơ.
 
-Khó trách khó giết như thế.
+Bốn dư nghiệt viễn cổ nhìn như không thể đến gần chân thân nàng, nhưng nàng cũng khó giết sạch chúng. Chúng luôn có thể tro tàn cháy lại: trong phạm vi ngàn dặm xuất hiện vô số dòng sông, khe suối màu vàng lớn nhỏ, rồi chúng lập tức tái tạo kim thân, lần lượt bị Trảm Tiên, biển mây kiếm khí, pháp tướng và âm thần cầm Kiếm Tiên của Trữ Diêu đánh nát.
 
-Khó trách lúc trước Bạch cũng chưa từng xuất kiếm chém giết đầu dư nghiệt này, bởi vì nó đã tính là một bộ phận của thiên địa.
+Đó chính là chỗ khó của kiếm tu. Phi kiếm hay kiếm khí đều có sát lực đứng đầu thiên hạ, nhưng chỉ sợ kiếm đánh vào khoảng không.
 
-Cảnh tượng lúc này, không hỏi một kiếm, thì không phải là Trữ Diêu.
+Nếu có vài môn thuật pháp thần thông thượng thừa hoặc thủ đoạn ngăn cách thiên địa, giam giữ hay luyện hóa tại chỗ máu vàng tượng trưng cho căn bản đại đạo kia, trận chiến đã sớm kết thúc.
 
-Nàng đã sớm đối với tất cả tồn tại có liên quan với chân long, xa gần, là người không phải người, nói chuyện nhiều không nói chuyện, Trữ Diêu đều không vừa mắt đã lâu.
+Máu vàng chảy như sông trên mặt đất. Phi kiếm và kiếm khí của Trữ Diêu sắc bén vô cùng, tùy ý cắt nát được nó, nhưng đây là căn bản kim thân thần linh, còn tinh túy hơn linh khí trời đất. Nàng không thể giống như lúc đối địch bình thường, dùng phi kiếm xuyên thủng hồn phách và thân thể đối thủ, để kiếm khí lưu lại trong tiểu thiên địa nhân thân, thuận thế nghiền nát từng khí phủ khiếu huyệt như động thiên phúc địa của tu sĩ.
 
-Phi kiếm bản mạng trảm tiên lơ lửng ở một bên vai Trữ Diêu, âm thần quy khiếu, Trữ Diêu mặc kim lễ, cầm kiếm tiên trong tay.
+Nhưng nếu không có thiên kiếp đại đạo ngày càng hiển hiện kia, về lâu dài hai bên cứ tiếp tục tiêu hao như vậy, một bên tổn hại kim thân đại đạo, một bên hao tâm thần và linh khí, Trữ Diêu vẫn có phần thắng lớn hơn.
 
-Nhưng vào lúc này, Trữ Diêu nheo mắt lại, có chút ngoài ý muốn.
+Máu vàng kia dường như phù hợp với đại đạo trời đất, phi kiếm cũng không thể khiến nó mất đi chút nào. Nhưng mỗi lần dư nghiệt viễn cổ tụ máu tái tạo kim thân, bản thân chúng đều bị hao tổn.
 
-Trước tiên có một đạo kiếm quang phá vỡ màn trời, đi về phía dường như là gần thành Phi Thăng.
+Bốn kẻ này khác hẳn mấy dư nghiệt Trữ Diêu từng giết trước đó. Những kẻ trước không khó đối phó đến vậy.
 
-Lại có một đạo kiếm quang tuyết trắng càng thêm hoàn chỉnh phá vỡ màn trời, thẳng tắp xuyên qua cái ót vị thần linh kia, kiếm quang càng ngày càng rõ ràng, thế mà lại là bộ dáng tiểu cô nương mặc xiêm y tuyết trắng, chỉ là va chạm mà qua, bên trên xiêm y tuyết trắng quấn vô số sợi tơ màu vàng nhỏ bé, nàng choáng váng như hán tử say rượu, hàm hồ không rõ kêu ca ca ca giòn giòn, sau đó lảo đảo lắc lư, cuối cùng cả người ngã cắm xuống, hung hăng đụng vào trên mặt đất bên chân Trữ Diêu.
+Trữ Diêu ngẩng đầu nhìn, trên trời tựa như có một vầng sáng vàng lơ lửng, giống đôi mắt của thần linh viễn cổ địa vị cao đang nhìn chằm chằm nàng.
 
-Vị thần linh viễn cổ lại tổn hại đại đạo kia lặng lẽ tiêu tán, cứ thế rời đi.
+Trên mặt đất, bốn dư nghiệt bỗng tự tan ra như tuyết, hóa thành một biển máu vàng. Trong nháy mắt, một vị thần linh kim thân cao vạn trượng đứng sừng sững, sau lưng là một vòng tròn màu vàng giống bảo luân pháp tướng đời sau.
 
-Trữ Diêu không có do dự, chờ Phi Thăng cảnh nói sau.
+Trên cánh tay thần linh, đại đạo hiển hóa, sinh ra giao long vàng và mãng xà quấn quanh.
 
-Nàng cúi người, đem kiếm linh dung mạo tiểu cô nương "ngây thơ", tựa như nhổ củ cải, đem tiểu cô nương kéo ra.
+Thần linh nhìn xuống nhân gian.
 
-Trữ Diêu hỏi: "Nói như thế nào?"
+Kiếm tu hỏi kiếm thiên đình.
 
-Tiểu cô nương ngồi xếp bằng ở trên đất, hai tay khoanh trước ngực, hai má phình lên thở phì phì nói: "Không nói."
+Trữ Diêu ngẩng cao đầu, nhìn thẳng vị thần linh cuối cùng không còn che giấu thân phận.
 
-Bên trong thành Phi Thăng.
+Theo ghi chép bí mật của hành cung tránh nóng, trong mười hai thần linh viễn cổ, vị này dưới trướng kẻ mặc giáp một mắt, chấp chưởng thưởng phạt loài giao long và thủy duệ tiên linh trong thiên hạ. Một trong các chức trách của vị thần là cùng một thần linh địa vị cao của Lôi bộ phân biệt phụ trách Hóa Long trì và Trảm Long đài.
 
-Một vị nho sĩ trẻ tuổi từ xa tới đây, ở bên cửa hàng tìm được Trịnh chưởng quầy nước miếng văng khắp nơi, một mực cung kính chắp tay nói: "Triệu Diêu bái kiến Trịnh tiên sinh."
+Thần linh địa vị cao này bị tổn hại đại đạo trên chiến trường viễn cổ. Sau vạn năm yên lặng ở thiên hạ thứ năm, nó vừa vá lại đại đạo của mình, vừa chậm rãi phù hợp với đại đạo trời đất, cho nên bản thân nó chính là thiên kiếp.
 
-Hôm nay quán rượu làm ăn thịnh vượng, công lao thuộc về Ninh nha đầu tế kiếm cùng đi xa, cùng với hai đạo kiếm quang đột ngột phía sau rơi xuống nhân gian, khiến cho cả tòa Phi Thăng Thành ầm ầm, khắp nơi đều là tìm rượu uống.
+Khó trách khó giết như vậy.
 
-Trịnh Đại Phong cười đứng dậy, "Đáng chúc mừng."
+Cũng khó trách Bạch Dã trước kia chưa từng xuất kiếm chém giết nó, bởi nó đã được tính là một phần của thiên địa.
 
-Triệu Tuân gật đầu, không phủ nhận cơ duyên to lớn kia.
+Trước cảnh này, không hỏi một kiếm thì đã chẳng phải Trữ Diêu.
 
-Tuổi tác dung mạo trẻ, nhưng mà số tuổi thật sự đã chạy bốn.
+Từ lâu nàng đã không vừa mắt tất cả những tồn tại có liên quan đến chân long, bất kể xa gần, là người hay không phải người, nói chuyện nhiều hay ít.
 
-Trịnh Đại Phong thật ra lúc ở Ly Châu động thiên trông cửa sớm nhất, trong số đông đảo hài tử, hắn coi trọng Triệu Diêu nhất, khi Triệu Diêu ngồi xe đẩy rời khỏi Ly Châu động thiên, Trịnh Đại Phong còn cùng Triệu Diêu tán gẫu vài câu.
+Phi kiếm bản mạng Trảm Tiên lơ lửng bên vai, âm thần quy khiếu, Trữ Diêu mặc Kim Lễ, cầm Kiếm Tiên trong tay.
 
-Thứ nhất Trịnh Đại Phong mỗi lần đi học thục bên kia, thời điểm thỉnh giáo học vấn cùng Tề tiên sinh, thường xuyên sẽ đánh một ván cờ, Triệu Diêu ở bên cạnh xem cờ không nói, ngẫu nhiên rót rượu rót cho Trịnh tiên sinh uống.
+Nhưng đúng lúc ấy nàng nheo mắt, hơi bất ngờ.
 
-Trịnh Đại Phong và Triệu Diêu kề vai sát cánh, "Triệu Diêu à, cô nương xinh đẹp này phần nhiều là nhiều, đáng tiếc ngươi tới muộn, để lại cho ngươi không nhiều lắm. Trịnh thúc thúc giúp ngươi chọn trúng mấy người, họ gì tên gì, nhà ở phương nào, mấy tuổi, tính tình như thế nào, cảnh giới cao thấp đều có, ta biên soạn một quyển sách nhỏ, bán cho bằng hữu thì phải lấy tiền, tiểu tử ngươi thì thôi. Khách hàng này của ta là được, ngồi ở đây làm ăn nhiều hơn, người đọc sách nổi tiếng nhất, nhất là người trẻ tuổi có tướng mạo đường đường, Trịnh thúc thúc ta cũng chỉ chịu chút thiệt thòi về tuổi tác, bằng không căn bản không tới phiên ngươi."
+Trước tiên có một đạo kiếm quang phá màn trời, bay về phía dường như gần thành Phi Thăng. Sau đó một đạo kiếm quang trắng như tuyết, hoàn chỉnh hơn, cũng phá màn trời, xuyên thẳng qua gáy thần linh.
 
-Triệu Tuân cười khổ nói:"Trịnh tiên sinh đừng trêu vãn bối nữa."
+Kiếm quang ngày càng rõ, lại là một tiểu cô nương mặc xiêm y trắng như tuyết. Chỉ vừa xuyên qua thần linh, trên áo nàng đã quấn vô số sợi tơ vàng nhỏ bé. Nàng choáng váng như hán tử say rượu, miệng kêu ú ớ[?], lảo đảo lắc lư, cuối cùng cả người cắm đầu xuống đất ngay bên chân Trữ Diêu.
 
-Nhiều năm rời quê đi xa như vậy, khiến Triệu Diêu trưởng thành rất nhiều, năm đó một mình vượt châu đi Trung Thổ Thần Châu, đầu tiên là gặp rủi ro, nhân họa đắc phúc, ở hòn đảo cô huyền hải ngoại kia, gặp vị nhân gian đắc ý nhất lúc ấy Triệu Diêu không biết thân phận. Sau đó lên bờ một đường du lịch, cuối cùng ở Long Hổ sơn một tòa đạo cung đặt chân, tu tập đạo pháp, mài giũa đạo tâm, không vì cảnh giới, chỉ vì giải tâm kết. Đợi được nghe nói tòa thiên hạ thứ năm xuất hiện, Triệu Diêu liền xuống núi, đi tới đi lui, liền đi tới Phi Thăng thành. Bởi vì lựa chọn này, nếu Triệu Diêu muốn về quê Bảo Bình châu, thì phải hơn tám mươi năm sau.
+Thần linh viễn cổ lại bị tổn hại đại đạo kia lặng lẽ tiêu tán, cứ thế rời đi.
 
-Trịnh Đại Phong nghiêm trang nói: "Khai chi tán diệp, hương khói truyền thừa, đại sự bực này, trêu ghẹo thế nào được?"
+Trữ Diêu không đuổi theo, chuyện đó đợi đến Phi Thăng cảnh rồi tính.
 
-Triệu Tuân cười không nói gì.
+Nàng cúi người nắm lấy kiếm linh Thiên Chân mang dáng vẻ tiểu cô nương, kéo lên như nhổ củ cải, rồi hỏi:
 
-Trịnh tiên sinh chúc mừng, là đạo kiếm quang lúc trước, thật ra bản thân Triệu Tuân cũng rất bất ngờ.
+- Nói thế nào?
 
-Thái Bạch kiếm một trong bốn thanh tiên kiếm chia làm bốn, chia tặng bốn người.
+Tiểu cô nương ngồi xếp bằng trên đất, khoanh hai tay trước ngực, phồng má giận dỗi:
 
-Trần Bình An. Lưu Tài, Phỉ Nhiên, Triệu Diêu.
+- Không nói.
 
-Mũi kiếm sát lực lớn nhất, ẩn chứa một đoạn thân kiếm nhiều kiếm khí nhất, chuôi kiếm kiếm kiếm ý nặng nhất, mang theo nửa đoạn thân kiếm còn thừa lại của kiếm thuật Bạch Dã. Cuối cùng bốn người trẻ tuổi, mỗi người chiếm một đoạn.
+Trong thành Phi Thăng, một nho sĩ trẻ tuổi từ xa tới tìm được Trịnh chưởng quầy đang nói đến nước miếng tung tóe bên cửa hàng. Hắn cung kính chắp tay:
 
-Trịnh đại chưởng quầy dùng mông gạt hai tửu quỷ quen biết đi, kéo Triệu Tuân ngồi xuống một bàn rượu, gọi hai chén rượu ngon nhất trong cửa hàng đương nhiên cũng đắt nhất.
+- Triệu Diêu bái kiến Trịnh tiên sinh.
 
-Trịnh Đại Phong nhẹ giọng hỏi: "Sao lại tới chỗ này? Tiểu tử ngươi thật sự chịu rời quê hương hơn trăm năm rồi mà."
+Hôm nay quán rượu làm ăn thịnh vượng, công lao thuộc về Ninh nha đầu tế kiếm đi xa và hai đạo kiếm quang sau đó đột ngột rơi xuống nhân gian, khiến cả thành Phi Thăng xôn xao, khắp nơi đều tìm rượu uống.
 
-Triệu Diêu cười nói: "Chỉ là tương đối hiếu kỳ thiên hạ mới này, không có lý do gì đặc biệt. Lúc này thật ra rất hối hận."
+Trịnh Đại Phong cười đứng dậy:
 
-Trịnh Đại Phong nhẹ nhàng thở dài, thôi bỏ đi, nơi này không có bạc, loại bạc này để trong lòng, người ngoài đừng đi lôi kéo.
+- Đáng chúc mừng.
 
-Uống xong một chén rượu, Triệu Diêu đột nhiên quay đầu nhìn nơi xa, đứng dậy tính tiền cáo từ rời đi, Trịnh Đại Phong cũng không giữ lại.
+Triệu Diêu gật đầu, không phủ nhận cơ duyên to lớn kia. Hắn dung mạo trẻ tuổi, nhưng tuổi thật đã gần bốn mươi.
 
-Triệu Tuân dường như tùy tiện dạo chơi đến một con đường lớn.
+Khi còn trông cửa ở động thiên Ly Châu, trong đám trẻ, Trịnh Đại Phong coi trọng Triệu Diêu nhất. Lúc Triệu Diêu ngồi xe rời động thiên, hắn còn trò chuyện với thiếu niên vài câu.
 
-Trữ Diêu ngự kiếm cực nhanh, hơn nữa thi triển thủ thuật che mắt, bởi vì phía sau trường kiếm dưới chân, có một tiểu cô nương đang lơ lửng trên không trung.
+Mỗi lần Trịnh Đại Phong đến học thục thỉnh giáo học vấn với Tề tiên sinh, hai người thường đánh cờ. Triệu Diêu đứng bên xem không nói, thỉnh thoảng rót rượu cho Trịnh tiên sinh.
 
-Sau khi rơi xuống cửa Trữ phủ, Trữ Diêu thu kiếm vào hộp, tiểu cô nương dứt khoát đặt mông ngồi xuống đất.
+Trịnh Đại Phong khoác vai Triệu Diêu:
 
-Trữ Diêu đi lên bậc thang, không để ý tới phía sau, tiểu cô nương đành phải tự mình đứng dậy, đi theo phía sau Trữ Diêu.
+- Triệu Diêu à, cô nương xinh đẹp ở đây thì nhiều, đáng tiếc ngươi đến muộn, còn lại cho ngươi không nhiều lắm. Trịnh thúc thúc đã chọn giúp ngươi mấy người, họ tên, nhà ở đâu, bao nhiêu tuổi, tính tình và cảnh giới ra sao đều có cả. Ta soạn thành một quyển sách nhỏ, bán cho bằng hữu phải lấy tiền, riêng tiểu tử ngươi thì thôi.
 
-Triệu Tuân vốn tưởng rằng nàng sẽ nhìn về phía mình một cái, hắn liền lên tiếng chào hỏi, nào ngờ nữ tử kia chỉ là hồn nhiên chưa phát giác ra, Triệu Tuân đành phải lên tiếng hô:"Ninh cô nương."
+- Khách trong quán ta đều là người tốt, ngươi cứ ngồi đây nhiều hơn. Người đọc sách được yêu thích nhất, nhất là người trẻ tuổi tướng mạo đường đường. Trịnh thúc thúc ta chỉ thiệt ở tuổi tác, bằng không căn bản không đến lượt ngươi.
 
-Trữ Diêu dừng bước chân, quay đầu hỏi: "Ngươi là?"
+Triệu Diêu cười khổ:
 
-Triệu Tuân cười nói:"Ly Châu Động Thiên, Triệu Tuân."
+- Trịnh tiên sinh đừng trêu vãn bối nữa.
 
-Trữ Diêu hỏi: "Sau đó?"
+Nhiều năm xa quê khiến Triệu Diêu trưởng thành rất nhiều. Năm đó hắn một mình vượt châu đến Trung Thổ Thần Châu, đầu tiên gặp tai họa rồi nhân họa đắc phúc. Trên hòn đảo lẻ loi giữa biển, hắn gặp người đắc ý nhất nhân gian lúc ấy, nhưng không biết thân phận đối phương. Sau đó hắn lên bờ du lịch, cuối cùng dừng chân tại một đạo cung ở Long Hổ sơn, tu tập đạo pháp, mài giũa đạo tâm, không vì cảnh giới mà chỉ để giải tâm kết.
 
-Lúc trước Trữ Diêu thật sự không nhận ra người này là ai, chỉ coi là tu sĩ Phù Diêu châu xa xôi đến tận đây, nhưng bởi vì quan hệ với bốn kiếm tiên, Trữ Diêu đoán ra người này giống như được một bộ phận Thái Bạch kiếm, giống như còn được thêm vào một phần truyền thừa kiếm đạo của Bạch Dã. Nhưng mà chuyện này thì sao chứ, có liên quan gì đến Trữ Diêu nàng.
+Nghe nói thiên hạ thứ năm xuất hiện, Triệu Diêu xuống núi, đi một vòng rồi đến thành Phi Thăng. Vì lựa chọn này, nếu muốn trở về quê cũ Bảo Bình Châu, hắn phải đợi hơn tám mươi năm nữa.
 
-Đợi đến lúc này Triệu Diêu tự báo tính danh, Trữ Diêu mới rốt cuộc có chút ấn tượng, năm đó nàng du lịch Ly Châu Động Thiên, ở dưới lầu đền thờ kia, người này đi theo bên cạnh Tề tiên sinh.
+Trịnh Đại Phong nghiêm trang nói:
 
-Triệu Diêu hỏi đến á khẩu không trả lời được, hắn vừa muốn kiên trì nói vài câu khách sáo, chỉ thấy tiểu cô nương cổ quái không biết thân phận kia nhếch khóe miệng, liếc xéo Triệu Diêu, sau đó trợn trắng mắt, cuối cùng kéo kéo tay áo Trữ Diêu, giọng trẻ con nói: "Mẹ, cha sống thật tốt, cái này không phải vừa lấy được một đoạn mũi kiếm tiên kiếm quá trắng, mẫu thân người cùng cha thương lượng một chút, về sau coi như đồ cưới của con đi? Tuổi của con còn nhỏ, nhưng không nỡ lập gia đình rời khỏi bên cạnh cha mẹ, cứ dựa theo tập tục quê nhà của cha, trước để dành đi."
+- Khai chi tán diệp, nối dõi hương hỏa là đại sự, sao có thể đem ra trêu ghẹo?
+
+Triệu Diêu cười không nói.
+
+Trịnh tiên sinh chúc mừng là vì đạo kiếm quang trước đó. Bản thân Triệu Diêu cũng rất bất ngờ.
+
+Thái Bạch, một trong bốn thanh tiên kiếm, được chia thành bốn phần, tặng cho bốn người: Trần Bình An, Lưu Tài, Phỉ Nhiên và Triệu Diêu.
+
+Mũi kiếm có sát lực lớn nhất, một đoạn thân kiếm chứa nhiều kiếm khí nhất, chuôi kiếm mang kiếm ý nặng nhất và nửa thân kiếm còn lại mang kiếm thuật của Bạch Dã: bốn người trẻ tuổi mỗi người nhận một phần.
+
+Trịnh đại chưởng quầy dùng mông đẩy hai tửu quỷ quen biết ra, kéo Triệu Diêu ngồi xuống một bàn, gọi hai chén rượu ngon nhất, đương nhiên cũng đắt nhất trong cửa hàng.
+
+Hắn nhẹ giọng hỏi:
+
+- Sao lại đến đây? Tiểu tử ngươi thật sự chịu xa quê hơn trăm năm sao?
+
+Triệu Diêu cười:
+
+- Chỉ là tò mò thiên hạ mới này, không có lý do gì đặc biệt. Bây giờ thật ra có hơi hối hận.
+
+Trịnh Đại Phong nhẹ nhàng thở dài. Thôi bỏ đi, chuyện giấu trong lòng người ta, người ngoài đừng cố moi ra[?].
+
+Uống xong một chén rượu, Triệu Diêu đột nhiên quay đầu nhìn nơi xa, đứng dậy tính tiền cáo từ. Trịnh Đại Phong cũng không giữ lại.
+
+Triệu Diêu dường như tùy tiện dạo bước đến một con đường lớn.
+
+Trữ Diêu ngự kiếm cực nhanh, còn dùng thủ thuật che mắt, bởi phía sau trường kiếm dưới chân có một tiểu cô nương đang lơ lửng giữa không trung.
+
+Đáp xuống trước cửa Trữ phủ, nàng thu kiếm vào hộp, tiểu cô nương dứt khoát đặt mông ngồi xuống đất. Trữ Diêu đi lên bậc thang, chẳng để ý phía sau, tiểu cô nương đành tự đứng dậy đi theo.
+
+Triệu Diêu vốn tưởng nàng sẽ nhìn mình một cái để hắn chào hỏi, nào ngờ nàng như hoàn toàn không phát giác, hắn đành lên tiếng:
+
+- Ninh cô nương.
+
+Trữ Diêu dừng bước, quay đầu hỏi:
+
+- Ngươi là?
+
+Hắn cười nói:
+
+- Triệu Diêu ở động thiên Ly Châu.
+
+- Sau đó?
+
+Trước đó Trữ Diêu thật sự không nhận ra hắn là ai, chỉ coi là tu sĩ Phù Diêu châu từ xa tới. Nhưng nhờ quan hệ với bốn thanh tiên kiếm, nàng đoán người này dường như đã nhận một phần Thái Bạch kiếm, còn nhận thêm một phần truyền thừa kiếm đạo của Bạch Dã. Nhưng chuyện ấy thì sao? Có liên quan gì đến nàng?
+
+Đến khi Triệu Diêu tự báo họ tên, nàng mới có chút ấn tượng. Năm đó nàng du lịch động thiên Ly Châu, dưới lầu đền thờ, người này đi theo bên cạnh Tề tiên sinh.
+
+Triệu Diêu bị hỏi đến á khẩu. Hắn vừa định gượng nói vài câu khách sáo, đã thấy tiểu cô nương cổ quái không rõ thân phận kia nhếch miệng, liếc xéo hắn rồi đảo mắt xem thường. Cuối cùng nàng kéo tay áo Trữ Diêu, giọng non nớt nói:
+
+- Mẹ, cha thật lợi hại, vừa lấy được một đoạn mũi tiên kiếm Thái Bạch. Mẹ thương lượng với cha một chút, sau này để làm đồ cưới cho con nhé? Con còn nhỏ, không nỡ lấy chồng rời xa cha mẹ, cứ theo tập tục quê cha, để dành trước đi.

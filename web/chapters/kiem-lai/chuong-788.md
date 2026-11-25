@@ -1,417 +1,471 @@
 # Chương 788: Chém xong lại chém, mình ta đắc ý
 
-Viên thủ chân đạp một thanh trường kiếm viễn cổ di vật, trường côn trong tay lượn vòng bất định, cương khí hùng hậu thành hình tròn lớn, không ngừng khuếch tán ra ngoài, đánh vỡ từng cơn mưa thất sắc lưu ly từ trên trời giáng xuống.
+Viên Thủ chân đạp một thanh trường kiếm để lại từ thời viễn cổ, trường côn trong tay không ngừng xoay chuyển. Cương khí hùng hậu tỏa thành một vòng tròn lớn, đánh tan từng trận mưa lưu ly bảy màu từ trên trời rơi xuống.
 
-Vương Tọa đại yêu thân khoác kim giáp, dùng tên giả ngưu đao, lù lù bất động, tùy ý để cho kiếm khí tràn ngập lăng lệ đánh giáp trụ, chỉ hận kiếm khí quá nhẹ quá ít, căn bản không phá được lồng giam trên người. Cho nên sau đó Bạch cũng dốc sức xuất kiếm lần đầu tiên, hắn tới tiếp kiếm.
+Đại yêu Vương Tọa khoác kim giáp, lấy tên giả là Ngưu Đao, đứng sừng sững bất động, mặc cho kiếm khí sắc bén đánh lên giáp trụ. Hắn chỉ hận kiếm khí quá nhẹ, quá ít, căn bản không phá nổi lồng giam trên người. Cho nên khi Bạch Dã lần đầu dốc sức xuất kiếm, hắn liền tới tiếp kiếm.
 
-Cắt Vận khẽ vỗ hồ lô dưỡng kiếm bên hông, lấy kiếm khí va chạm kiếm khí, lấy ngón tay để ở hai má, nheo lại mắt nhìn về phía cảnh đẹp kia, thì thào nói nhỏ, mưa gió phiêu diêu, đánh tan gió thổi.
+Thiết Vận khẽ vỗ hồ lô dưỡng kiếm bên hông, lấy kiếm khí đối chọi kiếm khí. Hắn chống ngón tay bên má, nheo mắt ngắm cảnh đẹp, lẩm bẩm: “Mưa gió phiêu diêu, gió thổi tan đi.”[?]
 
-Người khổng lồ khôi ngô ngồi ở bồ đoàn màu vàng, nhẹ nhàng hà hơi, thổi tan phong vũ kiếm khí nghiêng nơi khác.
+Người khổng lồ khôi ngô ngồi trên bồ đoàn màu vàng khẽ hà một hơi, thổi tan mưa gió kiếm khí đang trút xuống phía mình.
 
-Giao thân đầu người chỉ ngửa chỉ thoáng vận chuyển bản mạng thần thông, đem trận mưa kia tụ lại bên người, cuối cùng ngưng tụ thành từng viên lưu ly bảy màu, chẳng qua rất nhanh đã không chịu nổi kiếm khí xung kích, nổ tung vỡ vụn, lại nháy mắt một lần nữa tụ lại, sau vài lần tụ tán, vài vị khôi lỗi thị nữ ôm tỳ bà nhận được pháp chỉ, đem những hạt mưa xen lẫn kiếm khí kia lần lượt thu vào máng, phần lớn tỳ bà vẫn không chịu nổi kiếm khí xâm nhập dày đặc, ngay cả khôi lỗi dây tỳ bà cùng nhau hóa thành bột mịn, nhưng mà vẫn có tỳ bà rực rỡ lưu chuyển, có từng luồng kiếm khí mảnh mai dọc theo bảng ngô đồng, hoa văn rất nhỏ nơi phủ tay, cuối cùng ở trên tỳ bà hiển hóa ra một tia kiếm ý tinh túy, ngửag tay nắm một cái, một cây kẹp tỳ bà ở đầu ngón tay, ngưng thần nhìn lại, tâm ý khẽ động, dây tỳ bà khẽ động, đáng tiếc nhất nhất nhất bùm bùm đứt gãy.
+Ngưỡng Chỉ thân giao long đầu người chỉ hơi vận chuyển thần thông bản mệnh, gom mưa quanh người thành từng hạt lưu ly bảy màu. Nhưng chúng nhanh chóng bị kiếm khí đánh vỡ, rồi lại ngưng tụ. Sau mấy lần tan hợp, mấy thị nữ khôi lỗi ôm tỳ bà nhận pháp chỉ, lần lượt thu những hạt mưa lẫn kiếm khí vào đàn.
 
-Ngưỡng Chỉ và Viên Thủ đứng sát nhau lắc đầu, ra hiệu cho Bạch Dã Kiếm Khí không có dấu vết để lại nào có thể lấy ra thôi diễn diễn hóa, còn phải tìm cơ hội khác.
+Phần lớn tỳ bà không chịu nổi kiếm khí dày đặc xâm nhập, cả đàn lẫn khôi lỗi đều hóa thành bột mịn. Nhưng vẫn có cây tỳ bà ánh sáng lưu chuyển, từng luồng kiếm khí mảnh như tơ men theo mặt gỗ ngô đồng và hoa văn nhỏ trên đàn, cuối cùng hiện ra một tia kiếm ý tinh túy.
 
-Ngưỡng Chỉ, hoặc là nói tất cả đại yêu Vương Tọa tham dự lần vây giết này, đều cần phải biết rõ ràng một chuyện.
+Ngưỡng Chỉ đưa tay nắm lấy một cây tỳ bà, chăm chú nhìn. Nàng khẽ động tâm niệm, dây đàn rung lên, nhưng đáng tiếc lần lượt đứt phựt.
 
-Bạch Dã thập tứ cảnh, rốt cuộc hợp đạo gì với Hạo Nhiên Thiên Hạ.
+Nàng lắc đầu với Viên Thủ đứng gần đó, ra hiệu kiếm khí của Bạch Dã không để lại dấu vết nào có thể dùng để suy diễn, phải tìm cơ hội khác.
 
-Trên chiến trường lúc trước, mặc kệ là Kiếm Khí Trường Thành hay là Kim Giáp Châu, thủy chung vẫn lấy một bộ bạch cốt vương tọa cao cư xuất hiện. Hôm nay lại thu hồi xương khô vương tọa, hơn nữa xương trắng sinh thịt, trở thành một nam tử trung niên. Thân khoác một kiện pháp bào ảm đạm vô quang, lại là Khô Cốt vương tọa hiển hóa.
+Ngưỡng Chỉ, hay tất cả đại yêu Vương Tọa tham dự cuộc vây giết lần này, đều cần biết rõ một chuyện: Bạch Dã ở cảnh giới mười bốn, rốt cuộc hợp đạo với điều gì ở Hạo Nhiên thiên hạ?
 
-Vị lão kiếm thị được rót tiên nhưỡng vào đầu Bạch Oánh đã biến thành cốt nhục, thân cao hơn trượng, là dung mạo chân thực của Long Quân năm xưa, chỉ có điều mất đi linh trí của Long Quân, được Bạch Oánh đặt tên là "Long Giản". Lập tức, kiếm thị cầm trường kiếm "Chúc Chiếu", là một trong những hồn phách còn sót lại của kiếm tu, là do Bạch Oánh vất vả tìm kiếm, lại hao phí vô số thiên tài địa bảo, cuối cùng luyện hóa thành một thanh tiên binh, thật ra Thác Nguyệt Sơn đã sớm biết việc này, nhưng vẫn ra vẻ không biết.
+Trước kia, dù trên chiến trường Kiếm Khí Trường Thành hay ở Kim Giáp châu, Bạch Oánh vẫn luôn ngồi cao trên một vương tọa bằng xương trắng. Hôm nay hắn thu vương tọa lại, xương khô mọc thịt, hóa thành một nam tử trung niên khoác pháp bào ảm đạm không ánh sáng. Đó chính là hình dạng của Khô Cốt vương tọa.
 
-Chân đạp một cái đầu Long Quân, luyện hóa một luồng quan chiếu hồn phách. Lần này ở Kim Giáp châu, Bạch Oánh lại trước tiên phù lục Vu Huyền một bước, bí mật đạt thành giao dịch với Hoàn Nhan Lão Cảnh Phi Thăng cảnh kia, luyện hóa Hoàn Nhan Lão Cảnh mục nát không chịu nổi thành một loại hình nộm anh linh, không người không quỷ không thần không tiên, đại yêu Bạch Oánh, giống như không có gì là không dám làm.
+Lão kiếm thị từng được Bạch Oánh rót tiên nhưỡng vào đầu cũng đã có da thịt, thân cao hơn một trượng, mang dung mạo thật của Long Quân năm xưa. Chỉ là hắn không còn linh trí của Long Quân, được Bạch Oánh đặt tên là Long Giản. Thanh trường kiếm Chúc Chiếu trong tay kiếm thị do một hồn phách còn sót lại của kiếm tu luyện thành. Bạch Oánh phải vất vả tìm kiếm, lại tiêu tốn vô số thiên tài địa bảo mới luyện được một thanh tiên binh. Thác Nguyệt sơn đã sớm biết chuyện, nhưng vẫn làm như không biết.
 
-Hoàn Nhan lão cảnh mò tới tay chỗ tốt duy nhất, chính là có thể mượn cái này đủ tránh thoát đạo thiên kiếp sắp tới kia, hoàn toàn mất đi tính mạng đại đạo của tu sĩ Nhân tộc đỉnh phong, dựa vào đó sống tạm tiếp, cho dù thời khắc sống không bằng chết, Hoàn Nhan lão cảnh cũng phải sống. Vạn nhất tương lai đại đạo thật ở Man Hoang Thiên Hạ, Hoàn Nhan lão cảnh chưa hẳn không có cơ hội thấy lại ánh mặt trời quật khởi, khi đó sơn thủy thần linh tọa trấn một phương cũng không phải không thể.
+Dưới chân Bạch Oánh có một cái đầu của Long Quân, hắn còn luyện hóa một hồn phách Quan Chiếu. Lần này ở Kim Giáp châu, hắn đi trước phù lục Vu Huyền một bước, bí mật giao dịch với Hoàn Nhan Lão Cảnh ở Phi Thăng cảnh, luyện hóa thân thể mục nát của lão thành một hình nộm anh linh, chẳng phải người, chẳng phải quỷ, cũng chẳng phải thần tiên. Đại yêu Bạch Oánh dường như không có chuyện gì không dám làm.
 
-Tâm tư của Bạch Oánh không ở trận mưa lớn này, chỉ là Bạch cũng tiện tay rút kiếm ra khỏi vỏ mà thôi.
+Lợi ích duy nhất Hoàn Nhan Lão Cảnh nhận được là nhờ đó tránh thoát thiên kiếp sắp tới. Lão hoàn toàn mất đi tính mạng và đại đạo của một tu sĩ Nhân tộc đỉnh phong, dựa vào cách này sống tạm. Dù từng khắc sống không bằng chết, lão vẫn muốn sống. Biết đâu sau này đại đạo thật sự thuộc về Man Hoang thiên hạ, lão còn có cơ hội thấy lại ánh mặt trời, thậm chí trở thành thần linh núi sông trấn giữ một phương.
 
-Hắn là một trong những tay mấu chốt chân chính để vây giết Bạch Dã lần này, sở dĩ là một trong số đó là Bạch Oánh tạm thời còn chưa rõ Chu tiên sinh đang bày mưu tính kế cho những đại yêu khác.
+Bạch Oánh không đặt tâm tư vào trận mưa lớn này. Dù sao đó cũng chỉ là một kiếm Bạch Dã tiện tay rút khỏi vỏ.
 
-Long Quân mang theo khuôn mặt Thị Long Giản, chém một kiếm về phía trận mưa to trên đỉnh đầu, như khai mở một đường chân trời. Kiếm khí hai bên một đường như mưa to, như thể một dòng sông dài âm u đột nhiên xuất hiện, sau đó bị đại đạo cọ rửa, cứ vậy tiêu tán không còn tung tích.
+Hắn là một trong những người giữ vai trò then chốt trong cuộc vây giết lần này. Sở dĩ nói là một trong số đó vì hắn chưa rõ Chu tiên sinh đã bày mưu tính kế gì cho những đại yêu khác.
 
-Bạch Oánh vẫn đang vận chuyển thần thông bản mệnh, dùng Vân Hải tạm thời thu nạp linh khí của một châu.
+Kiếm thị Long Giản mang khuôn mặt Long Quân chém một kiếm lên trận mưa trên đầu, như mở ra một đường chân trời. Kiếm khí hai bên như mưa lớn, tựa một dòng sông dài u ám chợt hiện rồi bị đại đạo cọ rửa, tiêu tán không còn dấu vết.
 
-Bạch Oánh cần hấp thu tất cả thiên địa linh khí trong đại trận một châu, cho dù không thể cướp lấy toàn bộ cũng phải dùng sát khí ô uế lẫn lộn linh khí. Dưới chân Bạch Oánh là biển mây rộng lớn, sát khí ngất trời, chính là muốn mỗi lần Bạch cũng đánh ra một kiếm, tích tụ linh khí trong thiên địa nhỏ sẽ tiêu hao một phần.
+Bạch Oánh vẫn vận chuyển thần thông bản mệnh, dùng biển mây tạm thời thu nạp linh khí của cả một châu.
 
-Bình thường mà nói, tu sĩ đỉnh núi chen thân Phi Thăng cảnh chém giết từng đôi với người, cho dù sinh tử tương hướng, thủ đoạn ra hết, vẫn là cực ít xuất hiện tình huống linh khí không chống đỡ nổi. Năm đó ở Man Hoang thiên hạ đại yêu vương tọa ẩn nấp các nơi, A Lương chính là như thế, cho dù bị mấy con đại yêu dắt tay nhau đuổi giết, nhưng mà hơi có dấu hiệu thiên địa vây khốn, đều sẽ không chút do dự một kiếm vỡ nát, xuất kiếm tuyệt đối nghiêm túc, đây mới là thủ đoạn chạy trốn mấu chốt nhất, ngự kiếm đi xa, nháy mắt trăm ngàn dặm, A Lương căn bản không sợ thuật pháp oanh đập, cứng rắn gánh vác vài đạo thần thông thuật pháp cũng không ngại, chỉ sợ một cái không cẩn thận bị vây trong đó, lại bị hao hết linh khí.
+Hắn muốn hút hết thiên địa linh khí trong đại trận, cho dù không thể cướp sạch cũng phải dùng sát khí làm ô uế linh khí. Biển mây rộng lớn dưới chân hắn sát khí ngút trời. Như vậy, mỗi lần Bạch Dã chém ra một kiếm, linh khí tích tụ trong thiên địa nhỏ này sẽ tiêu hao một phần.
 
-Chỉ cần người tu đạo thân người tiểu thiên địa, thủy chung tương thông cùng đại thiên địa, chẳng khác nào thân người cùng thiên địa có đại khí tượng phúc địa động thiên nối liền, đối với tu sĩ đỉnh núi mà nói, chỉ cần có một nguồn nước chảy, vậy thì rất khó bị giết.
+Thông thường, hai tu sĩ đỉnh núi ở Phi Thăng cảnh chém giết với nhau, dù liều sống chết, dùng hết thủ đoạn, cũng rất hiếm khi cạn kiệt linh khí. Năm xưa A Lương ở Man Hoang thiên hạ, các đại yêu Vương Tọa ẩn náu khắp nơi cũng không làm gì được hắn. Cho dù bị mấy đại yêu liên thủ đuổi giết, hễ có dấu hiệu thiên địa sắp bị phong tỏa, hắn đều không chút do dự xuất kiếm đánh vỡ.
 
-Bình thường chém giết giữa các Phi Thăng cảnh, thường thường là thi triển thần thông, thiên thời địa lợi đều là biến số, thắng bại thật ra là chuyện bình thường, song phương rốt cuộc có thể tính là thực lực cách xa hay không, thật ra cũng chỉ có một cách nói, xem có thể đánh chết đối phương hay không. Cho nên mặc kệ là vương tọa đại yêu của Man Hoang thiên hạ, hay là mười người Trung Thổ hoặc là Hạo Nhiên mười người, có thể hay không ngồi trên vương tọa hoặc là đứng ra bình luận mười người?, Chỉ cần xem có thật sự đánh giết được một vị đại tu sĩ Phi Thăng cảnh hay không, hoặc ít nhất cũng phải đánh cho một vị Phi Thăng cảnh khác không hề có lực hoàn thủ, ví dụ như Hỏa Long chân nhân từng chặn cửa lớn của Hố nước Tầm mấy tháng, lão chân nhân một chưởng có thể đánh Phi Tiên nhân cảnh, về phần Phù Lục Vu Huyền, ở di chỉ chiến trường Kim Giáp châu kia, không thấy thi triển thuật pháp, đã dễ dàng đánh giết một tu sĩ yêu tộc Ngọc Phác cảnh, thật ra ở trong mắt tu sĩ đỉnh núi thật sự, không đáng nhắc tới.
+Mỗi kiếm ấy đều nghiêm túc đến cực điểm, đó mới là thủ đoạn chạy trốn quan trọng nhất. Ngự kiếm đi xa, trong chớp mắt đã vượt qua trăm ngàn dặm, A Lương chẳng sợ thuật pháp oanh kích, cứng rắn chịu mấy đạo thần thông cũng không sao. Hắn chỉ sợ sơ ý bị vây khốn, cuối cùng bị đối phương tiêu hao sạch linh khí.
 
-Nếu không phải Hạo Nhiên Thiên Hạ thật sự quá nhiều quy củ, như vậy "Không đáng giá nhắc tới", sẽ mờ mịt nhiều.
+Chỉ cần tiểu thiên địa trong thân thể tu sĩ luôn thông với đại thiên địa bên ngoài, tựa như nối với một tòa phúc địa động thiên có khí tượng lớn, thì đối với tu sĩ đỉnh núi, chỉ cần còn một nguồn nước chảy, đã rất khó bị giết chết.
 
-Cho nên cảnh giới phi thăng của Man Hoang thiên hạ, thường thường người nào cũng biết xem xét thời thế, chủ động lựa chọn dựa vào người mạnh hơn, hoặc là dứt khoát hoàn toàn rời xa nơi ẩn cư của đám đại yêu vương tọa. Ví dụ như con chó trông cửa bên cạnh lão mù, tốt xấu gì cũng là một vị Phi Thăng cảnh nổi tiếng là chém giết hung ác trứ danh hậu thế. Kết cục như thế nào, đi một chuyến Kiếm Khí Trường Thành, ý tốt bổ sung gia dụng, đào mấy món pháp bảo cho lão mù cũng bị ghét bỏ chướng mắt, sau khi bị một cước đá bay, dứt khoát nằm úp sấp xuống đất không dậy nổi, cũng không dám thở mạnh một hơi.
+Các tu sĩ Phi Thăng cảnh chém giết với nhau, thần thông, thiên thời, địa lợi đều là biến số, thắng bại vốn là chuyện thường. Muốn biết thực lực hai bên có thật sự cách biệt hay không, chỉ cần xem một người có thể đánh chết người kia hay không.
 
-Tễ thân Phi Thăng cảnh, địa vị thanh cao siêu nhiên ngoại vật, nhật nguyệt mỗi lần từ trên vai lên, núi sông thường ở trong lòng bàn tay xem. Càng được Luyện khí sĩ coi là đại trường sinh đã chứng đạo, cùng thiên địa bất hủ...
+Cho nên bất kể đại yêu Vương Tọa ở Man Hoang thiên hạ, hay những người được bình chọn vào mười người mạnh nhất Trung Thổ hoặc Hạo Nhiên, muốn biết có xứng với địa vị ấy hay không, phải xem người đó có thể thật sự giết chết một đại tu sĩ Phi Thăng cảnh, hoặc ít nhất đánh cho đối phương không còn sức hoàn thủ hay không. Ví như Hỏa Long chân nhân từng chặn cửa Hố nước Tầm mấy tháng, một chưởng có thể đánh bay tu sĩ Tiên Nhân cảnh. Còn phù lục Vu Huyền ở di chỉ chiến trường Kim Giáp châu, chưa thấy thi triển thuật pháp đã dễ dàng giết một tu sĩ yêu tộc Ngọc Phác cảnh, chuyện ấy trong mắt tu sĩ đỉnh núi thật sự lại chẳng đáng nhắc tới.
 
-Đương nhiên là thuyết pháp khoa trương trên núi, nếu muốn bất hủ với thiên địa, Phi Thăng cảnh căn bản không có tư cách nói như vậy, Hoàn Nhan lão cảnh không giống chỉ có thể ngồi chờ chết.
+Nếu Hạo Nhiên thiên hạ không có quá nhiều quy củ, những chuyện “không đáng nhắc tới” như thế hẳn sẽ nhiều hơn rất nhiều.[?]
 
-Càng đến đỉnh núi, đường đi càng ít, thế cho nên người tu đạo cuối cùng đăng đỉnh, chỉ có một con đường có thể đi, chính là lại phá một cảnh giới, cần mười bốn cảnh người người kia mỗi khác thiên địa hợp đạo nào đó, nhưng mà liên quan tới việc này, một là tu sĩ cảnh giới mười bốn, mấy tòa thiên hạ cộng lại, vẫn là có thể đếm được trên đầu ngón tay, hơn nữa thật sự chen thân cảnh giới này, ai cũng sẽ giữ kín như bưng, đề cập căn bản đại đạo, sẽ không mở miệng, bằng không chẳng khác nào giao ra nửa cái mạng của người thân.
+Bởi vậy, tu sĩ Phi Thăng cảnh ở Man Hoang thiên hạ thường rất biết xem xét thời thế, chủ động dựa vào kẻ mạnh hơn, hoặc dứt khoát tránh xa nơi các đại yêu Vương Tọa ẩn cư. Như con chó trông cửa bên cạnh lão mù, dù sao cũng là một vị Phi Thăng cảnh nổi tiếng chém giết hung ác. Kết quả ra sao? Nó đi một chuyến đến Kiếm Khí Trường Thành, có lòng tốt đào mấy món pháp bảo bổ sung gia dụng cho lão mù, lại bị lão chê chướng mắt. Sau khi bị đá bay một cước, nó dứt khoát nằm rạp xuống đất, không dám đứng dậy, cũng chẳng dám thở mạnh.
 
-Lão tú tài hợp đạo Hạo Nhiên Thiên Hạ ba châu. Kết cục như thế nào? Bị Văn Hải Chu chặt chém tinh chuẩn khí vận sơn thủy ba châu, luyện hóa thành một món pháp bào khoác ở trên người Tiêu Tiển.
+Chen thân Phi Thăng cảnh, địa vị siêu nhiên, mặt trời mặt trăng như mọc lên từ trên vai, núi sông thường được ngắm trong lòng bàn tay. Luyện khí sĩ càng coi đó là đã chứng đại trường sinh, bất hủ cùng thiên địa...
 
-Bạch cũng nhẹ nhàng cầm tiên kiếm Thái Bạch, giơ kiếm trước người, cong ngón tay búng ra.
+Đương nhiên, đó là lời khoa trương trên núi. Muốn bất hủ cùng thiên địa, Phi Thăng cảnh căn bản không đủ tư cách. Chẳng phải Hoàn Nhan Lão Cảnh cũng chỉ có thể ngồi chờ chết sao?
 
-Trường kiếm rung động mãnh liệt, một đạo kiếm quang sáng như tuyết như một con thu liễn, thanh tịnh mà sâu, kiếm khí cùng thủy khí, cùng nhau làm Long Đàm liễn trạng, bay đi bất định, nhật nguyệt cùng ở trong thu liễn, bạch quang quấn lôi, dạ nguyệt quan thủy, kiếm khí như hơi nước sương mù chi khí, cảnh tượng mờ mịt âm tình bất định.
+Càng lên cao, đường càng ít. Tu sĩ cuối cùng đã tới đỉnh núi chỉ còn một con đường, chính là phá thêm một cảnh giới, hợp đạo với một phần thiên địa để bước vào cảnh giới mười bốn. Nhưng người ở cảnh giới này trong mấy tòa thiên hạ cộng lại vẫn đếm được trên đầu ngón tay. Hơn nữa, một khi thật sự bước vào cảnh giới ấy, ai nấy đều giữ kín chuyện hợp đạo. Đây là căn bản đại đạo, nói ra chẳng khác nào giao nửa cái mạng của mình cho người khác.
 
-Nga Lệ Nguyệt, Lệ Châu Nguyệt, Diễm Thủy Nguyệt, Tiên nhân buông chân xuống, trên rèm thủy tinh Linh Lung Nguyệt, biển mây mênh mông Thiên Sơn Nguyệt, Bạch Dã năm đó cùng bằng hữu đến thăm tiên, từng thấy nhân gian vô số tháng.
+Lão tú tài hợp đạo với ba châu của Hạo Nhiên thiên hạ. Kết quả ra sao? Văn Hải Chu chuẩn xác chém lấy khí vận núi sông ba châu, luyện thành một món pháp bào khoác lên người Tiêu Tiển.
 
-Đến cuối cùng hình như Bạch cũng chính mình mới là tiên nhân.
+Bạch Dã nhẹ nhàng cầm tiên kiếm Thái Bạch, giơ lên trước mặt rồi cong ngón tay búng vào thân kiếm.
 
-Một vầng trăng sáng treo lơ lửng, giống như bỗng dưng thêm ra sáu ngọn đèn, kích thước không đồng nhất, cao thấp không chừng, vừa vặn ở trên đỉnh đầu sáu vị đại yêu vương tọa.
+Trường kiếm rung mạnh, một đạo kiếm quang sáng như tuyết tựa làn nước mùa thu, trong trẻo mà sâu thẳm. Kiếm khí và thủy khí cùng hóa thành cảnh nước ở Long Đàm[?], phiêu đãng bất định. Mặt trời, mặt trăng cùng hiện trong làn nước thu; ánh trắng quấn lấy sấm, trăng đêm soi mặt nước. Kiếm khí như hơi nước, như sương mù, cảnh tượng mờ mịt, sáng tối không ngừng biến đổi.
 
-Minh nguyệt cùng ánh trăng trong nháy mắt tụ lại một đường.
+Trăng Nga Lệ, trăng Lệ Châu, trăng Diễm Thủy, trăng nơi tiên nhân buông chân xuống, trăng lung linh trên rèm thủy tinh, trăng trên ngàn núi giữa biển mây mênh mông. Năm xưa Bạch Dã cùng bằng hữu đi thăm tiên, từng thấy vô số vầng trăng nhân gian.
+
+Đến cuối cùng, dường như chính Bạch Dã mới là tiên nhân.
+
+Một vầng trăng sáng treo trên cao, chợt như có thêm sáu ngọn đèn lớn nhỏ khác nhau, cao thấp không đều, vừa vặn nằm trên đầu sáu đại yêu Vương Tọa.
+
+Trăng sáng cùng ánh trăng trong nháy mắt tụ thành một đường.
 
 Kiếm quang chém thẳng xuống.
 
-Viên Thủ kia nhíu mày, kiếm thuật bậc này, xinh đẹp đến đáng sợ, không hổ là cảnh giới thứ mười bốn. Ý tượng trong lòng tu sĩ, gần như chân tướng đại đạo.
+Viên Thủ nhíu mày. Kiếm thuật bậc này đẹp đến đáng sợ, quả không hổ là cảnh giới mười bốn. Ý tượng trong lòng tu sĩ gần như đã thành chân tướng đại đạo.
 
-May mắn Bạch cũng không phải kiếm tu.
+May mà Bạch Dã không phải kiếm tu.
 
-Viên Thủ bỗng nhiên cao tới trăm trượng, một côn đánh về phía đạo kiếm quang kia, thiên địa linh khí bốn phía kích động không thôi, không biết là ánh trăng hay là kiếm quang, vỡ vụn như ngàn vạn phi kiếm bay dày đặc, biển mây dưới chân Viên Thủ ngự kiếm treo trên bầu trời, càng ầm vang phá vỡ một lỗ thủng khổng lồ.
+Viên Thủ bỗng hóa thân cao trăm trượng, một côn đánh vào kiếm quang. Linh khí bốn phía chấn động không ngừng, chẳng biết ánh trăng hay kiếm quang vỡ vụn, hóa thành ngàn vạn phi kiếm bay dày đặc. Biển mây dưới chân hắn cũng ầm ầm thủng một lỗ khổng lồ.
 
-Thần nhân giáp vàng vẫn không nhúc nhích, cứng rắn chịu một kiếm, mặc cho đạo kiếm quang kia xỏ xuyên qua đầu, kim giáp toàn thân rung động không thôi, vỡ vụn càng nhiều hơn.
+Thần nhân giáp vàng vẫn bất động, cứng rắn chịu một kiếm xuyên qua đầu. Kim giáp toàn thân rung chuyển, những vết nứt càng nhiều.
 
-Dùng đuôi lớn của thân Giao quét ra kiếm quang, trong nháy mắt máu thịt lẫn lộn, chân thân bị vạch ra một vết thương cực lớn, chỉ là ngửa mặt lên lại hoàn toàn không phát giác, thương thế nhìn thấy mà giật mình, đúng là lấy tốc độ mắt thường có thể thấy được khâu lại khỏi hẳn.
+Ngưỡng Chỉ dùng đuôi giao long quét về phía kiếm quang. Trong nháy mắt máu thịt tung tóe, chân thân bị rạch một vết thương lớn. Nhưng nàng tựa như không hề hay biết, vết thương nhìn mà giật mình kia khép lại với tốc độ mắt thường có thể thấy được.
 
-Viên Thủ chân đạp trường kiếm "Quần Chân" có lịch sử lâu đời, dùng trường côn chỉ vào chỗ cao của Bạch Dã, cười to nói: "Bạch Dã, cũng chỉ là những kỹ xảo lòe loẹt này thôi sao? Còn lâu mới bằng phong thái tam kiếm trảm diệu giáp lúc trước, hay là nói sau khi tam kiếm qua đi, đã bị thương?! Cần gì phải thử xem đạo hạnh của sáu vị chúng ta sâu cạn, dù sao cũng là chết, còn không bằng học Đổng Tam Canh kia, dứt khoát lưu loát chút, tranh thủ đổi mạng với ta."
+Viên Thủ chân đạp trường kiếm Quần Chân có lịch sử lâu đời, dùng trường côn chỉ Bạch Dã trên cao, cười lớn:
 
-Dù sao Bạch nhất định sẽ thử đổi mệnh với một vị trong đó, Viên Thủ đương nhiên không phải không ngại Bạch cũng rơi kiếm trong người, mà là Bạch cũng một khi toàn lực xuất kiếm, ba kiếm cũng được, năm kiếm cũng được, có trời mới biết muốn chém giết vị nào. Dù sao đoán cũng đoán không ra, Viên Thủ hung tính nổi lên, ngược lại có vài phần thật lòng, muốn nhìn xem Bạch này trước khi cùng đường mạt lộ sẽ lấy hay bỏ.
+- Bạch Dã, ngươi chỉ có chút kỹ xảo lòe loẹt này thôi sao? Còn lâu mới bằng phong thái ba kiếm chém Diệu Giáp lúc trước. Hay sau ba kiếm ấy ngươi đã bị thương? Cần gì thử đạo hạnh của sáu người chúng ta sâu cạn thế nào? Dù sao cũng phải chết, chi bằng học Đổng Tam Canh, dứt khoát một chút, tranh thủ đổi mạng với ta.
 
-Là tiếc mạng, cố ý kéo dài, chờ đợi phù lục cứu viện cho Huyền? Hoặc là ý niệm càng lớn hơn, đã gửi hy vọng vào vị Chí Thánh tiên sư kia, có thể rút tay từ trong đại đạo chi tranh của hai tòa thiên hạ, cứu Bạch hắn cũng cứu? Như thế thì tốt rồi, đại tổ Thác Nguyệt sơn nhất định sẽ khiến chiến trường Lão Long thành Bảo Bình châu, hoặc là địa giới bắc bộ còn sót lại của Kim Giáp châu, nháy mắt núi sông tan vỡ vạn dặm.
+Dù sao Bạch Dã nhất định sẽ thử đổi mạng với một người trong số họ. Viên Thủ không phải không ngại kiếm của hắn, nhưng một khi Bạch Dã toàn lực xuất kiếm, dù ba kiếm hay năm kiếm, ai biết hắn sẽ chém ai? Đằng nào cũng đoán không ra, hung tính Viên Thủ nổi lên, ngược lại có mấy phần thật lòng muốn xem Bạch Dã sẽ lựa chọn thế nào trước lúc cùng đường.
 
-Bạch cũng lười nói nửa câu với Viên Thủ.
+Hắn sẽ tiếc mạng, cố ý kéo dài thời gian chờ phù lục Vu Huyền đến cứu? Hay ôm hy vọng lớn hơn, trông cậy Chí Thánh tiên sư có thể rút tay khỏi cuộc tranh chấp đại đạo giữa hai tòa thiên hạ để cứu mình? Nếu vậy thì tốt. Đại tổ Thác Nguyệt sơn nhất định sẽ khiến chiến trường Lão Long thành ở Bảo Bình châu, hoặc vùng đất phía bắc còn sót lại của Kim Giáp châu, trong nháy mắt núi sông vạn dặm tan vỡ.
 
-Ngón tay tùy ý vuốt qua thân kiếm, trong nháy mắt, hàng vạn văn tự màu vàng kim hiện lên dày đặc trong một tấc vuông.
+Bạch Dã lười nói với Viên Thủ nửa câu.
 
-Bạch cũng cười nói: "Đi."
+Hắn tùy ý vuốt ngón tay qua thân kiếm. Trong khoảnh khắc, hàng vạn chữ vàng dày đặc hiện lên trong khoảng tấc vuông.
 
-Một đạo kiếm quang chợt lóe rồi biến mất, kiếm tu tế ra một thanh bản mạng phi kiếm, dẫn đầu cùng Viên Thủ đưa ra một kiếm "bình thường" tương đương với kiếm tu Phi Thăng cảnh.
+Bạch Dã cười nói:
 
-Năm vị đại yêu Vương Tọa còn lại, cũng đều tự mình muốn tiếp một kiếm. Ai cũng đừng nhàn rỗi, trước khi gặp Bạch ta, nhiều mưu đồ thì cũng thôi, lúc này còn phải tính toán, mệt cũng không mệt.
+- Đi.
 
-"Tới hay lắm, gia gia ta lấy côn đập nát phi kiếm!"
+Một đạo kiếm quang lóe lên rồi biến mất, dẫn đầu chém về phía Viên Thủ. Một kiếm “bình thường” ấy tương đương với kiếm tu Phi Thăng cảnh tế ra phi kiếm bản mệnh.[?]
 
-Viên Thủ cất tiếng cười to, đổi thành hai tay cầm côn, nghiêng người đánh một côn vào trên đạo kiếm quang vẽ hình cung kia. Một côn uy thế mênh mông cuồn cuộn, quả thật không tầm thường, dưới trường kiếm "Quần Chân", phạm vi trăm dặm đã không còn một đám mây.
+Năm đại yêu Vương Tọa còn lại cũng đều phải tự mình tiếp một kiếm. Ai cũng đừng nhàn rỗi. Trước khi gặp Bạch Dã, bọn chúng mưu tính nhiều thì thôi, bây giờ còn tính toán, không thấy mệt sao?
 
-Đại yêu Ngưu Đao toàn thân tràn đầy kim quang, lúc trước dù đối mặt Bạch Dã, cũng dám bày ra tư thế dẫn cổ liền lục thủ. Giờ phút này gã khẽ nhíu mày, Bạch cũng nhanh như vậy đã tìm thấy điểm khuyết điểm đại đạo của mình? Không tùy ý để kiếm quang phá giáp, mà hiện ra một pháp tướng to lớn, lại đưa tay nắm lấy đạo kiếm quang kia, sau khi nắm tay, kim quang từ giữa ngón tay trút xuống, như từng thác nước treo trên không.
+- Tới hay lắm, gia gia lấy côn đập nát phi kiếm của ngươi!
 
-Cùng lúc đó, ngưu đao vận chuyển một môn bản mạng thần thông, ở trong thiên địa nhỏ của thân người dời non lấp biển, đúng là trực tiếp đổi hơn mười tòa động phủ đặt vật bản mạng, linh khí mãnh liệt trong cơ thể như hồng thủy đổi tuyến đường, cuối cùng thay đổi đầm nước "Đóng quân".
+Viên Thủ cười lớn, đổi sang hai tay cầm côn, nghiêng người đánh vào đạo kiếm quang đang vẽ một đường cong. Một côn ấy uy thế cuồn cuộn, quả thật không tầm thường, dưới trường kiếm Quần Chân, trong vòng trăm dặm không còn lấy một áng mây.
 
-Vị đại yêu khuôn mặt tuấn mỹ kia cắt vận, mặt mang ý cười, hai ngón tay kết kiếm quyết, nhẹ nhàng chỉ, "Cũng đi."
+Toàn thân đại yêu Ngưu Đao tỏa kim quang. Trước đó, dù đối mặt Bạch Dã, hắn cũng dám bày ra tư thế vươn cổ chịu chém. Lúc này hắn khẽ nhíu mày: Bạch Dã nhanh như vậy đã tìm thấy chỗ thiếu sót trên đại đạo của mình sao? Hắn không còn mặc cho kiếm quang phá giáp, mà hiện ra một pháp tướng khổng lồ, đưa tay nắm lấy kiếm quang. Kim quang từ kẽ ngón tay tuôn xuống như từng thác nước treo giữa không trung.
 
-Lúc trước lấy kiếm khí đối kiếm khí, lập tức lấy kiếm quang đối kiếm quang. Ở ngoài mười mấy dặm, hai đạo kiếm quang như phi kiếm đụng vào nhau.
+Đồng thời, Ngưu Đao vận chuyển một môn thần thông bản mệnh, dời non lấp biển trong tiểu thiên địa thân người, trực tiếp thay đổi vị trí hơn mười tòa động phủ đặt bản mệnh vật. Linh khí cuồn cuộn trong cơ thể như hồng thủy đổi dòng, cuối cùng đổi nơi trú ngụ.[?]
 
-Bên Bạch Oánh vẫn là kiếm thị phụ trách lĩnh kiếm. May mà trường kiếm trong tay Long Giản là một tiên binh thật sự, lại bởi vì quan chiếu hồn phách luyện hóa mà thành, có huyền diệu khác, Bạch Oánh không cần mình tự thân xuất mã. Chuyện đánh nhau, Bạch Oánh vẫn luôn không hiển lộ sơn lộ thủy, ở Man Hoang Thiên Hạ cường giả vi tôn, cũng luôn bị coi là một trong mười bốn vương tọa sát lực lót đáy. Bạch Oánh thậm chí gần như không có ghi chép chém giết từng đôi với Yêu tộc Phi Thăng cảnh, phần nhiều vẫn là khống chế từng nhánh đại quân bạch cốt, trùng trùng điệp điệp nghiền ép quá cảnh, ngẫu nhiên có đối thủ khó dây dưa, nhiều nhất chính là Long Giản xuất kiếm. Huống chi Khô Cốt pháp trường của Bạch Oánh, cường giả dưới trướng không phải số ít.
+Đại yêu có khuôn mặt tuấn mỹ Thiết Vận mỉm cười, hai ngón tay kết kiếm quyết, nhẹ nhàng chỉ một cái:
 
-Không ở đạo tràng, am chủ Hà Hoa rơi vào nhân gian, rời xa sông Diêu Thủy Vực, gặp gỡ đại yêu Hoàng Loan khác trên vương tọa, đều sẽ bị coi là "Chiến lực không đủ".
+- Cũng đi.
 
-Viên Thủ kia lại đánh rơi luồng kiếm quang thứ hai, trong lúc nhất thời tay áo phiêu diêu, hai cái tay áo cương phong bay phất phới, Viên Thủ thân hình hơi lảo đảo, híp mắt nói: "Bạch dã, có bản lĩnh thì lại đến mười bảy mười tám luồng kiếm quang, gia gia muốn xem kiếm quang của ngươi nhiều hơn... Con bà nó! Đúng là đến thật..."
+Vừa rồi hắn lấy kiếm khí đối kiếm khí, bây giờ lấy kiếm quang đối kiếm quang. Ngoài mười mấy dặm, hai đạo kiếm quang như hai thanh phi kiếm va vào nhau.
+
+Bên phía Bạch Oánh vẫn là kiếm thị tiếp kiếm. May mà trường kiếm trong tay Long Giản là tiên binh thật sự, lại do hồn phách Quan Chiếu luyện thành, có chỗ huyền diệu riêng, nên Bạch Oánh không cần đích thân ra tay.
+
+Khi đánh nhau, Bạch Oánh vẫn luôn giấu tài. Ở Man Hoang thiên hạ lấy cường giả làm đầu, hắn luôn bị xem là một trong những kẻ có sát lực thấp nhất trong mười bốn Vương Tọa. Hắn gần như chưa từng được ghi nhận một mình chém giết với yêu tộc Phi Thăng cảnh, phần nhiều chỉ khống chế từng đội đại quân bạch cốt trùng trùng điệp điệp nghiền ép đối thủ. Ngẫu nhiên gặp kẻ khó đối phó, nhiều lắm cũng chỉ để Long Giản xuất kiếm. Huống chi ở Khô Cốt pháp trường của Bạch Oánh, cường giả dưới trướng không hề ít.
+
+Hà Hoa am chủ nếu không ở đạo tràng, rơi xuống nhân gian, rời xa thủy vực sông Diêu, gặp phải đại yêu Vương Tọa như Hoàng Loan cũng sẽ bị xem là “chiến lực không đủ”.
+
+Viên Thủ lại đánh rơi đạo kiếm quang thứ hai. Hai tay áo hắn bị cương phong thổi phấp phới, thân hình hơi lảo đảo. Hắn nheo mắt nói:
+
+- Bạch Dã, có bản lĩnh thì đến thêm mười bảy mười tám đạo kiếm quang nữa, gia gia muốn xem kiếm quang của ngươi có bao nhiêu... Con bà nó! Đến thật rồi...
 
 Như ngươi mong muốn.
 
-Nói nhiều kiếm nhiều.
+Nói nhiều thì kiếm cũng nhiều.
 
-Từng đạo kiếm quang chém thẳng tới Viên Thủ.
+Từng đạo kiếm quang chém thẳng về phía Viên Thủ.
 
-Trông coi con đại yêu Vương Tọa này đến đặc biệt.
+Bạch Dã đặc biệt chăm sóc vị đại yêu Vương Tọa này.[?]
 
-Viên Thủ bỗng nhiên cười to không thôi, từ côn toái kiếm quang, đến đập lệch kiếm quang, lại đến côn chọn kiếm quang, cực kỳ nguy hiểm, mỗi một đạo kiếm quang cắt phá trường không, đều sẽ cắt đứt thiên địa, giống như dao rọc giấy thoải mái cắt đứt một bức tuyên chỉ tuyết trắng.
+Viên Thủ bỗng cười lớn. Từ dùng côn đập vỡ kiếm quang, đến đánh lệch, rồi hất kiếm quang đi, hắn chống đỡ cực kỳ nguy hiểm. Mỗi đạo kiếm quang xé trời đều cắt đứt thiên địa, giống như dao rọc giấy dễ dàng rạch một tờ tuyên chỉ trắng như tuyết.
 
-Viên Thủ hai tay cầm côn, lộ ra hung tính, đôi mắt đỏ bừng, trong con ngươi có một viên kim quang lập loè bất định, mặc dù lấy côn đập kiếm, Viên Thủ vẫn nhìn chằm chằm Bạch Dã một tay cầm kiếm kia, tầm mắt có thể nhìn thấy, là phạm vi ngàn dặm, mấy Bạch cũng có dáng vẻ của một trượng kiếm, trong đó có một vị "Bạch Dã" thân hình tương đối rõ ràng, thậm chí lờ mờ có thể thấy được quỹ tích xuất kiếm, đây cũng là một trong những thần thông bản mạng của Viên Thủ, thấy rõ thiên cơ, chưa biết trước.
+Viên Thủ hai tay cầm côn, hung tính lộ rõ, hai mắt đỏ bừng, trong con ngươi ánh vàng lấp lóe. Dù đang dùng côn đập kiếm, hắn vẫn nhìn chằm chằm Bạch Dã cầm kiếm bằng một tay. Trong tầm mắt hắn, khắp phạm vi ngàn dặm hiện ra mấy bóng Bạch Dã cầm kiếm, trong đó có một bóng tương đối rõ ràng, thậm chí lờ mờ nhìn thấy quỹ tích xuất kiếm. Đây cũng là một trong những thần thông bản mệnh của Viên Thủ, nhìn thấu thiên cơ, biết trước điều chưa xảy ra.
 
-Yêu tộc nổi danh chân thân cứng cỏi, Viên Thủ kia bị vô số kiếm khí nát bét quấy đến khuôn mặt nát nhừ, chỉ trong khoảnh khắc đã có thể khôi phục khuôn mặt, về phần pháp bào trên người, cũng là quang cảnh như vậy, thân là Vương Tọa đại yêu năm tháng, không mặc pháp bào tiên binh phẩm trật, nào có ý tứ hoành hành thiên hạ.
+Yêu tộc vốn nổi danh chân thân cứng cỏi. Mặt Viên Thủ bị vô số kiếm khí vụn quấy nát, chỉ trong khoảnh khắc đã khôi phục. Pháp bào trên người cũng vậy. Đường đường là đại yêu Vương Tọa đã sống bao năm, nếu không mặc pháp bào phẩm trật tiên binh, sao có thể hoành hành thiên hạ?
 
-Ở trên chiến trường Kiếm Khí Trường Thành, số lần đại yêu Vương Tọa ra tay không nhiều, khuynh lực ra tay càng có thể đếm được trên đầu ngón tay, càng nhiều là tuân thủ mệnh lệnh Giáp Tử Trướng, phụ trách đốc chiến đại quân Yêu tộc công thành.
+Trên chiến trường Kiếm Khí Trường Thành, đại yêu Vương Tọa ra tay không nhiều, số lần dốc toàn lực càng đếm được trên đầu ngón tay. Phần lớn thời gian bọn chúng tuân theo mệnh lệnh của Giáp Tử Trướng, phụ trách đốc chiến đại quân yêu tộc công thành.
 
-Lão giả áo xám cố ý để bọn họ đặt tâm tư ở Hạo Nhiên Thiên Hạ.
+Lão giả áo xám cố ý để bọn chúng dành tâm tư cho Hạo Nhiên thiên hạ.
 
-Lưu Xoa xuất kiếm, chỉ vì A Lương.
+Lưu Xoa xuất kiếm chỉ vì A Lương.
 
-Trừ phi Thác Nguyệt sơn đại tổ tự mình ra tay áp chế, bằng không chỉ có loại phong cách chém giết không sợ thân hãm vây ẩu của A Lương, không biết sẽ bị A Lương phá hủy mấy tòa quân trướng.
+Bởi trừ phi đại tổ Thác Nguyệt sơn đích thân ra tay áp chế, với lối chém giết chẳng sợ bị vây đánh của A Lương, không biết hắn sẽ phá hủy bao nhiêu quân trướng.[?]
 
-Diệu Giáp ở giai đoạn sau chiến sự, ra tay với vị thành chủ một trong mười hai lâu của năm thành năm Bạch Ngọc Kinh, là tham công, cố ý nhằm vào vị thánh nhân Đạo gia nỏ mạnh hết đà kia, chỉ là chọc giận người sau, không tiếc thân tử đạo tiêu, cũng phải mời Lục Chi Lạc Kiếm, Lục Chi không phụ ủy thác, thiếu chút nữa một kiếm đã hoàn toàn chém đứt vương tọa kim tinh do Diệu Giáp đúc ra. Diệu Giáp ở Phù Dao Châu điên cuồng đánh nát từ miếu sơn thủy, trắng trợn cướp đoạt mảnh vỡ kim thân, để bù đắp căn bản đại đạo, là bắt nguồn từ đây.
+Giai đoạn cuối chiến sự, Diệu Giáp ra tay với một vị thành chủ trong mười hai lầu của năm thành Bạch Ngọc Kinh là vì tham công, cố ý nhắm vào vị thánh nhân Đạo gia đã như nỏ mạnh hết đà. Nhưng hắn chọc giận đối phương, người nọ không tiếc thân tử đạo tiêu cũng phải mời Lục Chi hạ kiếm. Lục Chi không phụ sự ủy thác, thiếu chút nữa một kiếm chém đứt hoàn toàn vương tọa kim tinh do Diệu Giáp đúc thành.
 
-Ngưỡng Chỉ nói với Bạch Oánh: "Bạch còn không dốc sức xuất kiếm?"
+Sau đó Diệu Giáp điên cuồng phá hủy từ miếu núi sông ở Phù Dao châu, trắng trợn cướp đoạt mảnh vỡ kim thân để bù đắp căn bản đại đạo, chính là vì nguyên cớ này.
 
-Bạch Oánh cười đáp: "Chúng ta không phải cũng che che đậy đậy, chỉ chống đỡ không đánh trả."
+Ngưỡng Chỉ hỏi Bạch Oánh:
 
-Ngưỡng Chỉ hỏi: "Linh khí của một châu này, ngươi phải mất nửa nén hương mới có thể thu hết vào trong túi? Có cần ta hỗ trợ không? Vạn nhất Bạch kia cũng bỏ qua da mặt không nhận, sẽ rất phiền phức."
+- Bạch Dã vẫn chưa dốc sức xuất kiếm sao?
 
-Bạch Oánh gật đầu nói: "Vui vẻ đến cực điểm"
+Bạch Oánh cười đáp:
 
-Trên thực tế, nếu Bạch cũng thật sự tranh đoạt linh khí với mình, quả thật sẽ rất phiền phức.
+- Chẳng phải chúng ta cũng che che giấu giấu, chỉ chống đỡ mà không đánh trả sao?
 
-Nhưng có phiền toái chính là Bạch. Mà không phải sáu vị Vương Tọa bọn họ.
+Ngưỡng Chỉ hỏi:
 
-Cuộc vây săn này, Bạch Oánh dẫn đầu chỉ thấy lợi trước mắt, dùng biện pháp ngu ngốc nhất đối phó với một vị cảnh giới Thập Tứ.
+- Linh khí một châu này, ngươi phải mất nửa nén hương mới thu hết được? Có cần ta giúp không? Nhỡ Bạch Dã không cần thể diện, cũng đến tranh đoạt, sẽ rất phiền phức.
 
-Nếu Bạch cũng vừa cầm kiếm đối địch vừa mở cửa động phủ, thu nạp lượng lớn thiên địa linh khí thì sẽ phiền phức thế nào. Lúc đó Chu Mật không giải thích, chỉ bảo hắn tranh đoạt linh khí, cố gắng ngăn cản, tránh Bạch khám phá chân tướng.
+Bạch Oánh gật đầu:
 
-Bất kể như thế nào, thân hãm cục này, đối với Bạch mà nói, đều là thiên đại phiền toái, hoặc là quá nhẫn tâm, chờ đợi linh khí hao hết lại kiệt lực chết trận, hoặc là không giữ được, sớm phiền toái thì sớm chết.
+- Cầu còn không được.
 
-Hiện tại xem ra, Bạch cũng muốn quá mức tâm cao khí ngạo, hoặc là đã nhận thấy được một tia không thích hợp.
+Thật ra, nếu Bạch Dã tranh đoạt linh khí với hắn, quả thật sẽ rất phiền phức.
 
-Đều không ngại đại cục.
+Nhưng người gặp phiền phức chính là Bạch Dã, không phải sáu vị Vương Tọa bọn họ.
 
-Ngưỡng Chỉ đội mũ miện đế vương, mặc long bào màu đen, cúi đầu quan sát một bức Sơn Hà Đồ treo trên bầu trời ngàn vạn dặm, chỉ có hai màu đen trắng, khác rất lớn sơn thủy chân thật của nhân gian.
+Trong cuộc vây săn này, Bạch Oánh dẫn đầu dùng cách vét sạch linh khí trước mắt, lấy biện pháp ngu ngốc nhất đối phó một tu sĩ cảnh giới mười bốn.
 
-Ngưỡng Chỉ lách qua tất cả sông lớn hồ nước, dãy núi, chỗ tầm mắt nàng nhìn thấy lập tức sôi trào lên, thiên địa linh khí theo đó bị dẫn dắt đụng vào trong nước, ngưng tụ thành thủy vận.
+Nếu Bạch Dã vừa cầm kiếm đối địch vừa mở cửa động phủ, thu nạp thật nhiều thiên địa linh khí, sẽ gây ra phiền phức gì? Khi ấy Chu Mật không giải thích, chỉ bảo Bạch Oánh tranh đoạt linh khí, cố gắng ngăn cản, tránh để Bạch Dã khám phá chân tướng.
 
-Trước có bạch oánh khống chế biển mây, thu nạp thiên địa linh khí, đồng thời lấy sát khí đảo loạn thiên địa khí tượng một châu, lại có ngưỡng chỉ khống chế giang hà, kình thôn linh khí.
+Dù thế nào, rơi vào cục diện này cũng là phiền toái lớn đối với Bạch Dã. Hoặc hắn đủ nhẫn tâm chờ đến khi linh khí hao hết, kiệt sức chết trận, hoặc không nhịn được mà sớm ra tay, sớm tìm đến cái chết.[?]
 
-Hiển nhiên là muốn liên thủ biến Phù Diêu nhất châu thành một tòa mạt pháp chi địa mà Luyện Khí sĩ chán ghét nhất.
+Bây giờ xem ra, hoặc là Bạch Dã quá cao ngạo, hoặc đã nhận ra có gì đó không ổn. Dù thế nào cũng không ảnh hưởng đại cục.
 
-Thiết Vận thừa dịp Bạch Dã Kiếm Quang chiếu cố Viên Thủ, rảnh rỗi không có việc gì, thấy cử động ngưỡng mộ, hai ngón tay Thiết Vận khép lại, nhẹ nhàng chống đỡ hồ lô dưỡng kiếm bên hông, cười nói: "Dù sao nhàn rỗi cũng nhàn rỗi, ta cũng giúp chút chuyện."
+Ngưỡng Chỉ đội mũ miện đế vương, mặc long bào đen, cúi nhìn bức Sơn Hà Đồ treo trên không trung trải dài ngàn vạn dặm. Bức tranh chỉ có hai màu đen trắng, rất khác với núi sông thật ở nhân gian.
 
-Từ nay về sau, tiên gia tửu nhưỡng trên núi, nếu bàn về rượu ẩn chứa linh khí nhiều nhất, chỉ có một nhà này. Bây giờ Thiết Vận dùng tên giả má lúm đồng tiền, cảm thấy mình cũng không nỡ uống.
+Ánh mắt nàng lần lượt lướt qua các sông lớn, hồ nước và dãy núi. Những nơi được nàng nhìn tới lập tức sôi trào, thiên địa linh khí bị dẫn vào trong nước, ngưng tụ thành thủy vận.
 
-Đến Kiếm Khí Trường Thành, dùng tên giả Thanh Hoa, tận mắt nhìn thấy từng vị kiếm tiên của Kiếm Khí Trường Thành, như thanh hoa sứ vỡ.
+Trước có Bạch Oánh khống chế biển mây thu nạp linh khí, đồng thời dùng sát khí quấy loạn khí tượng một châu, sau có Ngưỡng Chỉ khống chế sông ngòi, nuốt chửng linh khí. Rõ ràng bọn chúng muốn liên thủ biến Phù Dao châu thành vùng đất mạt pháp mà luyện khí sĩ chán ghét nhất.
 
-Đến Hạo Nhiên Thiên Hạ, dùng tên giả lúm đồng tiền, ngoài cất giữ các loại rượu tiên gia, chính là nữ tử tu sĩ am hiểu lột da, lấy để vá lại khuôn mặt của mình. Vũ Long tông ở phụ cận Đảo Huyền sơn, Ngọc Chi Cương Đồng Diệp Châu, tổ tiên sơn là điệu hát oan của Ly sơn...
+Thiết Vận thừa lúc kiếm quang của Bạch Dã đang chăm sóc Viên Thủ, rảnh rỗi nhìn thấy Ngưỡng Chỉ hành động, bèn khép hai ngón tay đặt lên hồ lô dưỡng kiếm bên hông, cười nói:
 
-Viễn du hạo nhiên, chuyến đi này không tệ.
+- Dù sao cũng đang rảnh, ta giúp một tay vậy.
 
-Người duy nhất không nhàn rỗi lúc này có lẽ chỉ có lão giả ngự kiếm cầm côn.
+Từ nay về sau, nếu bàn đến rượu tiên gia chứa nhiều linh khí nhất trên núi, chỉ có một nhà này. Thiết Vận hiện dùng tên giả là Má Lúm Đồng Tiền, cảm thấy chính mình cũng không nỡ uống.
 
-Kiếm quang thật sự quá nhiều, một đạo nối tiếp một đạo, thật sự không dám nhàn rỗi. Cái gọi là nhẹ nhàng bâng quơ một kiếm tầm thường, đó cũng là một phi kiếm bản mạng của kiếm tu Phi Thăng cảnh.
+Đến Kiếm Khí Trường Thành, hắn dùng tên giả Thanh Hoa, tận mắt nhìn từng vị kiếm tiên nơi đó vỡ vụn như đồ sứ thanh hoa.
 
-Có kiếm quang bị Viên Thủ một côn quét xuống, rơi xuống một ngọn núi cao nào đó dưới biển mây, núi sụp đất nứt, san thành bình địa.
+Đến Hạo Nhiên thiên hạ, hắn dùng tên giả Má Lúm Đồng Tiền. Ngoài sưu tầm các loại rượu tiên gia, hắn còn lột da những nữ tu xinh đẹp để vá lại khuôn mặt mình. Vũ Long tông gần Đảo Huyền sơn, Ngọc Chi Cương ở Đồng Diệp châu, tổ sơn của Ly sơn...[?]
 
-Có kiếm quang bị một côn đập vào trong sông lớn, nhấc lên sóng lớn trăm trượng không nói, ngay tại chỗ tạo ra một tòa hồ lớn, giang hà nghiêng tràn vào trong đó, khiến cho mặt nước hạ du sông bỗng nhiên hạ xuống hơn trượng.
+Chuyến đi xa đến Hạo Nhiên này quả thật không tệ.
 
-Viên Thủ nổi giận mắng: "Có xong chưa?!"
+Lúc này người duy nhất không rảnh rỗi có lẽ chỉ có lão giả ngự kiếm cầm côn.
 
-Một nửa là mình bị nhằm vào ngoài định mức, biệt khuất đến cực điểm, đã không dám cùng Bạch kia cũng cận thân, lại không cách nào thoát khốn bứt ra, không công chế giễu vương tọa khác, coi như đang xem một vở kịch khỉ.
+Kiếm quang thật sự quá nhiều, đạo này nối tiếp đạo khác, hắn không dám lơi tay. Một kiếm hời hợt tầm thường ấy cũng tương đương phi kiếm bản mệnh của kiếm tu Phi Thăng cảnh.
 
-Một nửa khác là Viên Thủ thật rõ ràng, đau lòng món pháp bào kia tổn hại, cứ tiếp tục đánh như vậy, cũng không phải là thương phẩm đơn giản như vậy, mà là phải rớt một tầng phẩm cấp. Pháp bào lấy mười hai đầu long mạch sơn căn các nơi trong Man Hoang thiên hạ luyện hóa thành, nhưng màu trắng kia cũng tế ra kiếm quang quá nhiều, không ngoại lệ đều là thoáng qua, dù trường côn Viên Thủ có thể đánh nát hoặc là đánh lui kiếm quang, kiếm khí nghiền nát vẫn quá mức phồn thịnh, khiến cho vốn là một kiện pháp bào tự hành khâu lại, trở nên càng ngày càng mục nát, lỗ thủng lớn nhỏ vô số.
+Có kiếm quang bị Viên Thủ quét xuống một ngọn núi dưới biển mây, khiến núi sụp đất nứt, san thành bình địa.
 
-Cắt Vận vừa lấy hồ lô dưỡng kiếm hấp thu thiên địa linh khí, vừa cười tủm tỉm nói: "Viên lão tổ hảo côn pháp, trải qua trận chiến này, nhất định phải uy danh lan xa mấy tòa thiên hạ. Đánh nát trắng cũng mười bảy đạo kiếm quang, so với tổ sư đường một châu nát côn càng đáng được khen hơn. Mười tám đạo kiếm quang!"
+Có kiếm quang bị hắn đập vào sông lớn, không chỉ nhấc lên sóng cao trăm trượng mà còn tạo thành một cái hồ lớn. Nước sông đổ dồn vào đó, khiến mực nước hạ du bỗng hạ xuống hơn một trượng.
 
-Viên Thủ hai tay cầm côn, lòng bàn tay máu thịt lẫn lộn, đầu tiên là một côn đánh bay kiếm quang, sau đó lại một côn quét ngang, cắt ngang kiếm quang kia, kiếm quang chia làm hai, đây chính là chỗ đáng sợ của một kiếm Bạch cũng vậy, chỉ cần không đủ vỡ nát, một đạo kiếm quang tùy ý có thể một mực dây dưa Viên Thủ không ngớt, trốn tránh cũng không xong. Viên Thủ nổi giận gầm lên một tiếng, khuôn mặt lão giả vốn biến thành vài phần viên hầu, ngự kiếm súc địa sơn hà, chuyển dời mấy trăm dặm, một kích đánh nát hai đạo kiếm quang kia.
+Viên Thủ nổi giận mắng:
 
-Lúc trước Viên Thủ chính là " biếng biếng", xuất côn thoáng yếu ớt mấy phần, thế cho nên góp nhặt ba đạo kiếm quang đồng thời cận thân, kết quả chỗ cổ pháp cổ trực tiếp bị xé nứt ra một rãnh máu lớn, thiếu chút nữa muốn đầu rời nhà. Tuy nói mặc dù bị kiếm quang chém đứt đầu, vẫn không coi là đại sự gì, cũng chưa nói tới thương tổn căn bản bao nhiêu đại đạo. Dù sao bàn về chân thân cứng cỏi, Viên Thủ ở trong mười bốn vương tọa, đều phải ổn định hàng đầu, cho nên cùng lắm thì là dời núi một chuyến, một lần nữa chuyển đầu kia về, thậm chí chém đứt, lại bị kiếm quang quấy nát, Viên Thủ vẫn có thể lập tức sinh ra một cái đầu, nhưng kể từ đó, thương thế liền thực sự nghiêm trọng, cũng không phải ăn tươi hơn mười hạt tì bà nữ là có thể bù lại.
+- Có xong chưa?!
 
-Viên Thủ côn phá nát kiếm quang, không có thủ đoạn hoa mỹ gì, con đường buồn tẻ nhàm chán đơn giản là đại khai đại hợp, thẳng tới lui.
+Một nửa là vì hắn bị nhằm vào quá mức, trong lòng uất ức. Hắn không dám tới gần Bạch Dã, lại không thể thoát thân, đành để các Vương Tọa khác không công cười nhạo, xem như đang nhìn khỉ diễn trò.
 
-Cho nên không hiện ra được mười tám đạo kiếm quang kia, nhưng một khi có Luyện Khí Sĩ ở bên cạnh quan chiến, chỉ sợ đạo tâm sẽ sụp đổ tại chỗ.
+Nửa còn lại là vì hắn đau lòng pháp bào bị hư hại. Cứ tiếp tục thế này, nó không chỉ bị thương tổn mà còn phải rơi xuống một phẩm cấp. Pháp bào ấy được luyện từ mười hai đầu long mạch và sơn căn khắp Man Hoang thiên hạ. Nhưng Bạch Dã tung ra quá nhiều kiếm quang, mỗi đạo đều lướt sát người hắn. Dù Viên Thủ có thể đập nát hoặc đánh lui kiếm quang, kiếm khí vỡ vụn vẫn quá dày đặc, khiến pháp bào vốn có thể tự khâu lại càng lúc càng rách nát, thủng vô số lỗ lớn nhỏ.
 
-Mỗi lần kiếm quang của Bạch Dã bắn tung tóe tản ra, cùng cương khí do Viên Thủ xuất ra đều ẩn chứa một phần đạo ý, người tu đạo muốn lấy quan chiến đạo tâm, không khác gì đối địch với hai người.
+Thiết Vận vừa dùng hồ lô dưỡng kiếm hút linh khí, vừa cười híp mắt nói:
 
-Thiết Vận cực kỳ khéo hiểu lòng người, trước khi Viên Thủ mở miệng tức giận mắng, đã sớm giúp Viên Thủ mắng mình, cười mắng một câu " ẻo lả chết tiệt im miệng cho gia gia".
+- Viên lão tổ côn pháp thật giỏi. Sau trận này, uy danh nhất định vang khắp mấy tòa thiên hạ. Đánh nát mười bảy đạo kiếm quang của Bạch Dã còn đáng khen hơn đánh nát tổ sư đường một châu. Mười tám đạo rồi!
 
-Viên Thủ phun ra một ngụm máu, khó trách có thể dạy dỗ ra sư đệ nổi danh ngang hàng với Ẩn Quan, Kiếm Tiên Thụ Thần trẻ tuổi kia. Phỉ Nhiên thân là Bách Kiếm Tiên đứng đầu Thác Nguyệt Sơn, nghe nói là Thiết Vận thay sư phụ thu đồ đệ.
+Viên Thủ hai tay cầm côn, lòng bàn tay máu thịt lẫn lộn. Hắn đánh bay một đạo kiếm quang, sau đó lại quét ngang, chém nó thành hai. Đó chính là chỗ đáng sợ trong kiếm của Bạch Dã: chỉ cần không đánh nát hoàn toàn, một đạo kiếm quang tùy ý cũng có thể bám lấy Viên Thủ không buông, tránh cũng không tránh được.
 
-Đại yêu kia nặng nề mở miệng nói: "Ai tới trước? Đừng kéo dài nữa, ý nghĩa ở đâu."
+Viên Thủ gầm lên, gương mặt lão giả hiện ra mấy phần dáng vẻ vượn khỉ. Hắn ngự kiếm súc địa sơn hà, dời đi mấy trăm dặm, một kích đánh nát hai đạo kiếm quang.
 
-Kỳ thật từ sáu đầu đại yêu vương tọa cùng nhau hiện thân, đến Bạch cũng rút kiếm ra khỏi vỏ đánh nát bình chướng lưu ly, đến mười tám đạo kiếm quang chém về phía Viên Thủ, cũng không đủ phàm tục phu tử ở trên bàn rượu uống mấy ngụm rượu.
+Trước đó hắn chỉ hơi lười biếng, xuất côn yếu đi mấy phần, đã để ba đạo kiếm quang cùng lúc áp sát, trực tiếp xé một rãnh máu lớn trên cổ, suýt nữa đầu lìa khỏi cổ. Dù bị kiếm quang chém đứt đầu cũng không phải chuyện lớn, chưa đến mức tổn thương căn bản đại đạo. Bàn về chân thân cứng cỏi, Viên Thủ đứng hàng đầu trong mười bốn Vương Tọa, cùng lắm chỉ cần đi dời núi một chuyến, chuyển đầu trở về.[?]
 
-Cự nhân khôi ngô ngồi xếp bằng trên bồ đoàn màu vàng, đại yêu ngũ nhạc ba đầu sáu tay, sáu cánh tay sau khi đứng dậy đồng thời cầm một món thần binh lợi khí, cười nói: "Kiến thức qua bài thơ của Bạch tiên sinh hóa kiếm khí, ta liền lấy thần của võ phu chỉ cảnh, cộng thêm một Phi Thăng cảnh, cùng Bạch tiên sinh lĩnh giáo tiên kiếm thái bạch sắc bén vô cùng."
+Dù đầu bị chém đứt rồi bị kiếm quang nghiền nát, hắn vẫn có thể lập tức mọc ra một cái mới. Nhưng như vậy thương thế sẽ thật sự nghiêm trọng, không phải ăn sống hơn mười hạt tỳ bà nữ là bù đắp được.
 
-Luyện khí sĩ, Phi Thăng cảnh. Võ phu thuần túy, thập cảnh "Thần đến".
+Viên Thủ dùng côn phá kiếm quang không có thủ đoạn hoa mỹ nào, chỉ đơn giản là đánh thẳng, quét ngang, đại khai đại hợp.
 
-Sau khi Ngũ Nhạc đứng dậy, chẳng những cầm binh khí, tấm bồ đoàn vốn do vô số quyển sách màu vàng chồng chất thành kia, trong nháy mắt biến thành mười một tấm phù lục màu vàng, phân biệt bám vào hai mắt cá chân, chỗ mi tâm ba đầu cùng trên sáu cánh tay kia.
+Bởi vậy mười tám đạo kiếm quang kia không hiện ra hết vẻ lợi hại. Nhưng nếu có luyện khí sĩ ở bên quan chiến, e rằng đạo tâm sẽ lập tức sụp đổ.
 
-Hai ngón tay Bạch Oánh kẹp một viên bạch cốt châu phát sáng, dùng để đánh giá chính xác lượng thiên địa linh khí còn thừa của một châu, cười nói với cự nhân khôi ngô: "Vẫn phải cẩn thận một chút. Bạch Dã cầm nó, chung quy vẫn là một thanh tiên kiếm đến từ Đại Huyền Đô Quan. Thật ra Ngũ Nhạc ngươi không cần như thế, qua nửa nén hương nữa, ra tay cũng không muộn."
+Mỗi lần kiếm quang Bạch Dã vỡ ra, mỗi luồng cương khí Viên Thủ đánh tới đều ẩn chứa đạo ý. Tu sĩ muốn dùng đạo tâm quan chiến chẳng khác nào đối địch với cả hai người.
 
-Ngũ Nhạc lắc đầu, không nghe theo lời đề nghị của Bạch Oánh, thân hình biến thành cao độ tục tử, sáu cánh tay lần lượt nắm giữ song đao, một thanh đao thẳng, một thanh trảm mã đao kiểu dáng, song kiếm dài ngắn, lại thêm một búa một búa.
+Thiết Vận rất biết ý người. Trước khi Viên Thủ mở miệng mắng, hắn đã cười, mắng thay đối phương:
 
-Nho sinh năm đó thất ý nhất Hạo Nhiên Thiên Hạ, đãi khách hôm nay người đọc sách đắc ý nhất Hạo Nhiên Thiên Hạ, cấp bậc lễ nghĩa không thể nói là không nặng, chẳng những một hơi điều động sáu đại vương tọa vây khốn Bạch Dã, còn liên tiếp bố trí ba tầng cấm chế trong ngoài Phù Dao Châu.
+- Tên ẻo lả chết tiệt, câm miệng cho gia gia!
 
-Bên ngoài cùng là khí số lưu chuyển của sơn hà một châu, bao phủ toàn bộ Phù Diêu châu trong đó, hoàn toàn ngăn cách khả năng Phù Diêu châu và Hạo Nhiên Thiên Hạ linh khí tương thông, cái này tương tự như một tòa Tam Viên Tứ Tượng đại trận năm xưa của Đồng Diệp châu, hiện giờ là hai mươi bốn tiết khí đại trận của Bảo Bình châu.
+Viên Thủ phun ra một ngụm máu. Khó trách Thiết Vận có thể dạy ra vị sư đệ trẻ tuổi nổi danh ngang hàng với Ẩn Quan, kiếm tiên Thụ Thần kia. Nghe nói Phỉ Nhiên, người đứng đầu Bách Kiếm Tiên Thác Nguyệt sơn, là do Thiết Vận thay sư phụ thu làm đệ tử.
 
-Khiến cho chiến trường vốn đã đủ chênh lệch nhân số, thiên thời địa lợi thủy chung vẫn ở bên phía vương tọa đại yêu của Man Hoang Thiên Hạ.
+Một đại yêu trầm giọng nói:
 
-Bản đồ một châu to như vậy, cũng chỉ là bảy vị chiến trường.
+- Ai tới trước? Đừng kéo dài nữa, có ý nghĩa gì đâu.
 
-Màn trời màn trời lưu ly lúc trước bị Bạch cũng ra khỏi vỏ một kiếm đánh vỡ, là một bộ phận thời gian trường hà chặt chẽ cắt ra, làm tòa tiểu thiên địa thứ hai.
+Thật ra từ lúc sáu đại yêu Vương Tọa cùng hiện thân, đến khi Bạch Dã rút kiếm đánh vỡ bình chướng lưu ly, rồi mười tám đạo kiếm quang chém về phía Viên Thủ, thời gian còn chưa đủ cho một phu tử phàm tục uống mấy ngụm rượu trên bàn.
 
-Giữa hai cái này, lại có một tòa sơn thủy đại trận pháp thiên tượng địa, là các quốc gia Ngũ Nhạc trên đại địa Phù Diêu châu, mấy trăm giang hà biến thành, liền ở dưới biển mây, giống như một bức tranh sơn hà bạch miêu, mang "Sơn thủy pháp tướng" cho Chu Mật kéo đến trên không Phù Diêu châu, núi cao tinh la bàn bố, sông ngòi thủy võng tung hoành, vừa vặn dùng cái này đem "thiên địa" Phù Diêu châu ngăn cách, một phân thành hai, phảng phất một trong những công đức lớn nhất của lễ thánh năm đó đoạn tuyệt thiên địa, tái hiện nhân gian.
+Người khổng lồ khôi ngô ngồi xếp bằng trên bồ đoàn vàng chính là đại yêu Ngũ Nhạc ba đầu sáu tay. Sau khi đứng dậy, sáu tay hắn đồng thời cầm thần binh lợi khí. Hắn cười nói:
 
-Vây giết Bạch Thập Tứ cảnh, Chu Mật quả thật không tiếc trả giá.
+- Đã được thấy thơ của Bạch tiên sinh hóa thành kiếm khí, ta xin dùng cảnh giới Thần Đáo của võ phu Chỉ Cảnh cùng tu vi Phi Thăng cảnh, lĩnh giáo sự sắc bén của tiên kiếm Thái Bạch trong tay tiên sinh.
 
-Bạch cũng thấy Ngũ Nhạc đứng dậy, chỉ khẽ lắc đầu, từ chối cho ý kiến.
+Luyện khí sĩ Phi Thăng cảnh, võ phu thuần túy thập cảnh Thần Đáo.
 
-Trong khoảnh khắc, hai bên Bạch cũng ầm ầm rơi xuống sáu vị "Vương Tọa", dần dần sắp xếp ra, trái phải ba.
+Sau khi Ngũ Nhạc đứng dậy, bồ đoàn vốn do vô số quyển sách vàng chồng lên nhau trong nháy mắt biến thành mười một lá phù vàng, lần lượt dán vào hai mắt cá chân, mi tâm của ba cái đầu và sáu cánh tay hắn.
 
-Chỉ có điều trong tay mỗi vị Vương Tọa Đại Yêu đều cầm trường kiếm.
+Bạch Oánh kẹp một viên cốt châu phát sáng giữa hai ngón tay, dùng nó đo chính xác lượng thiên địa linh khí còn lại trong châu, cười nói:
 
-Các ngươi dùng ba tòa thiên địa vây khốn Bạch ta, Bạch cũng không thể không lấy thiên địa trong lòng vây địch.
+- Vẫn phải cẩn thận một chút. Thứ Bạch Dã cầm chung quy là tiên kiếm đến từ Đại Huyền Đô Quan. Thật ra ngươi không cần vội, qua nửa nén hương nữa ra tay cũng không muộn.
 
-Năm đó hăng hái, cùng chí hữu vân du tiên tiên, trong tầm mắt có thể đạt được khí thế hùng hồn, chuyện gì có người nào chưa từng là thiên địa trong mắt ta.
+Ngũ Nhạc lắc đầu, không nghe đề nghị của hắn. Thân hình thu nhỏ bằng người thường, sáu tay lần lượt cầm hai thanh đao, một đao thẳng, một trảm mã đao, hai thanh kiếm dài ngắn khác nhau, cùng một búa một rìu.[?]
 
-Ngũ Nhạc hơi khom lưng, một người trùng trùng điệp điệp đạp đất, không thi triển thần thông súc địa sơn hà, thẳng tắp phóng đi, mỗi một lần giẫm đạp hư không, đều có thiên địa nổi lên gợn sóng, thiên địa linh khí trong phạm vi trăm dặm theo đó kích động hết sạch.
+Nho sinh năm xưa thất ý nhất Hạo Nhiên thiên hạ tiếp đãi người đọc sách đắc ý nhất hôm nay, lễ nghĩa không thể nói là không trọng. Hắn không chỉ điều động sáu đại yêu Vương Tọa vây khốn Bạch Dã, còn liên tiếp bố trí ba tầng cấm chế trong ngoài Phù Dao châu.
 
-Một đao chém rụng đầu lâu cầm kiếm "Ngũ Nhạc", sau khi nghiền nát tiêu tán, lại ngưng tụ nơi khác hiện thân, sáu vị vương tọa đại yêu tâm tướng hiển hóa, vây giết Ngũ Nhạc.
+Ngoài cùng là khí số núi sông của cả một châu lưu chuyển, bao phủ toàn bộ Phù Dao châu, hoàn toàn ngăn cách linh khí nơi này với Hạo Nhiên thiên hạ. Nó tương tự đại trận Tam Viên Tứ Tượng năm xưa ở Đồng Diệp châu, hay đại trận hai mươi bốn tiết khí hiện nay ở Bảo Bình châu.
 
-Ngũ Nhạc bị cản trở, tạm thời không thể chém giết với chân thân Bạch Dã, ba đầu sáu tay, thân hình nhanh như chớp, không nắm chắc, một kích đánh tan những Pháp Tướng kia, phản sát Lục Tướng.
+Trên chiến trường vốn đã chênh lệch nhân số, thiên thời địa lợi vì vậy luôn thuộc về các đại yêu Vương Tọa của Man Hoang thiên hạ. Địa vực một châu rộng lớn cũng chỉ là chiến trường của bảy người.
 
-Ngũ Nhạc cũng muốn nhìn xem những Bạch này có thể chống đỡ được bao lâu, cùng với xác định Bạch có cần tiêu hao linh khí hay không.
+Màn trời lưu ly bị Bạch Dã rút kiếm đánh vỡ lúc trước là một đoạn được cắt rời khỏi dòng sông thời gian, tạo thành tòa tiểu thiên địa thứ hai.
 
-Thiết Vận không nhịn được cười lên, ngón cái nhẹ nhàng v**t v* hồ lô dưỡng kiếm, Chân Chân Kiếm Tiên Bạch Dã.
+Giữa hai tầng ấy còn có một đại trận sơn thủy pháp thiên tượng địa do Ngũ Nhạc của các nước và mấy trăm dòng sông trên đất Phù Dao châu tạo thành. Đại trận nằm dưới biển mây, giống như một bức tranh núi sông vẽ nét trắng. Chu Mật kéo sơn thủy pháp tướng ấy lên không trung: núi cao rải rác, sông ngòi chằng chịt, vừa vặn chia thiên địa Phù Dao châu thành hai. Cảnh tượng ấy tựa như một trong những công đức lớn nhất năm xưa của Lễ Thánh, đoạn tuyệt trời đất, nay tái hiện ở nhân gian.
 
-Ngưỡng mộ ngưỡng mộ, ngưỡng mộ từ đáy lòng.
+Vây giết Bạch Dã cảnh giới mười bốn, Chu Mật quả thật không tiếc trả giá.
 
-Cắt Vận hồ lô dưỡng kiếm này, ấn văn dưới đáy rất dài.
+Thấy Ngũ Nhạc đứng dậy, Bạch Dã chỉ khẽ lắc đầu, không nói gì.
 
-Nguyện nguyện ba trăm vạn tiền thần tiên giao tận mỹ nhân danh sĩ càng kết hết nhân gian kiếm tiên cùng uống ngàn cân thuần tửu.
+Trong khoảnh khắc, sáu vị “Vương Tọa” ầm ầm rơi xuống hai bên hắn, mỗi bên ba người. Chỉ có điều trong tay mỗi đại yêu Vương Tọa đều cầm trường kiếm.
 
-Nếu Bạch chết vào hôm nay, vậy thì vạn năm sau ở nhân gian, e rằng sẽ không còn người nào giống Bạch nữa.
+Các ngươi dùng ba tòa thiên địa vây khốn Bạch ta, vậy Bạch ta cũng lấy thiên địa trong lòng vây địch.
 
-Về phần Ngũ Nhạc kia, kỳ thật cũng không kỳ quái.
+Năm xưa hăng hái cùng bằng hữu thân thiết đi khắp nơi thăm tiên, cảnh vật hùng tráng lọt vào tầm mắt, người và việc từng gặp, có gì không phải thiên địa trong mắt ta?
 
-Yêu tộc ở trên con đường võ đạo, ưu thế bẩm sinh rất lớn. Nhưng nhập môn thì dễ, lên cao thì nhanh, duy chỉ có trèo l*n đ*nh lại khó hơn nhân tộc. Dù sao trên đời này cũng không có chuyện tốt chiếm hết tiện nghi.
+Ngũ Nhạc hơi khom lưng rồi giẫm mạnh, không dùng thần thông súc địa sơn hà mà lao thẳng tới. Mỗi lần hắn đạp vào hư không, thiên địa lại nổi gợn sóng, linh khí trong vòng trăm dặm đều chấn động.
 
-Bởi vì so với Nhân tộc, Yêu tộc tu hành võ học, vô hình trung đại đạo áp thắng tương đối ít. Cùng lúc đó, lợi và hại đều có, khuyết thiếu Côn Bằng, số lượng võ phu mười cảnh của Man Hoang thiên hạ, ngược lại không bằng Hạo Nhiên Thiên Hạ.
+Hắn một đao chém rụng đầu “Ngũ Nhạc” cầm kiếm. Bóng người vỡ tan, lại ngưng tụ ở nơi khác. Sáu tâm tướng đại yêu Vương Tọa hiện ra, vây giết Ngũ Nhạc.
 
-Thật ra thì võ đạo bây giờ chính là nửa con đường thành thần trước kia.
+Bị ngăn cản, Ngũ Nhạc tạm thời không thể chém giết với chân thân Bạch Dã. Ba đầu sáu tay của hắn nhanh như chớp, đánh tan những pháp tướng, phản kích sáu bóng người.[?]
 
-Thần linh thiết lập rất nhiều cấm chế đối với Nhân tộc, lòng người chập trùng, suy nghĩ hỗn loạn, hồn phách phiêu diêu bất định, vẫn chỉ là một trong số đó.
+Hắn cũng muốn xem những bóng hình do Bạch Dã tạo ra chống đỡ được bao lâu, và xác định liệu hắn có phải tiêu hao linh khí hay không.
 
-Thể phách Tiên Thiên yếu đuối, bởi vì ngay từ đầu nhất định sẽ không thể vòng qua dòng sông thời gian kia, dòng sông thời gian vô hình tiếp tục cọ rửa thân thể, khiến cho tuổi thọ Nhân tộc ngắn ngủi, càng là một loại hạn chế lớn lao.
+Thiết Vận không nhịn được cười, ngón cái nhẹ nhàng vuốt ve hồ lô dưỡng kiếm. Bạch Dã quả thật là kiếm tiên.
 
-Thần linh của viễn cổ Thiên Đình đông đảo, con kiến dưới lòng bàn chân nhân tộc, bất kể là hình dung tướng mạo, hay là khí lực tiên thiên, tuy rằng bị bố trí tương đối gần với thần linh, nhưng vẫn quá mức nhỏ yếu, thế cho nên khiến một bộ phận thần linh quen với hương khói cung cấp càng thêm bất mãn, cho dù cố ý tùy ý để những con kiến hôi tụ tập lại, số lượng nhân tộc lần đầu lấy trăm vạn để tính quần cư, thần linh theo đó rơi vào nhân gian, trong nháy mắt, mặt đất vỡ nát, núi sông bị diệt, tất cả đều chết hết. Cái này cùng thần linh chém giết lẫn nhau, hoặc là giảo sát những Yêu tộc hơi lớn kia, căn bản không thể đánh đồng.
+Ngưỡng mộ, ngưỡng mộ từ tận đáy lòng.
 
-Cho nên so với thuật pháp thần thông sớm hơn đi tới nhân gian đại địa, chính là thần linh chủ động cho nhân tộc dùng võ đạo cứng cỏi, Kim Thân cảnh sớm nhất chính là bình cảnh, chính là nơi cuối cùng của đoạn đầu lộ.
+Dưới đáy hồ lô dưỡng kiếm của Thiết Vận khắc một hàng chữ rất dài:
 
-Chỉ là nhân tộc anh tài xuất hiện lớp lớp, binh gia sơ tổ trở thành tồn tại thứ nhất đánh vỡ Kim Thân cảnh ở nhân gian, sau đó một đường thế như chẻ tre, lên cao không ngừng, sau lưng tùy tùng đông đảo, sau khi bị thần linh phát hiện, hầu như chém giết toàn bộ nhân tộc phá vỡ bình cảnh Kim Thân cảnh, sau đó chỉ có người này được thần linh che chở, có thể trốn qua thần linh tuần tra, tự mình đặt tên là Chỉ Cảnh tầng ba khí thịnh, Quy Chân, Thần Đáo. Chỉ là cuối cùng không biết vì sao, thành tựu võ đạo, dừng lại ở đây, từ nay về sau chính là Võ Đạo Chỉ Cảnh.
+“Nguyện có ba trăm vạn tiền thần tiên, kết giao hết mỹ nhân danh sĩ, lại cùng mọi kiếm tiên nhân gian uống ngàn cân rượu ngon.”
 
-Trong lúc này, có một số thần linh coi người này là nửa đồng đạo, có một số thần linh thờ ơ lạnh nhạt, ngấp nghé hương khói nhân gian càng nhiều, Nhân tộc võ đạo cao, hương khói càng thêm tinh thuần, phân lượng càng nặng.
+Nếu Bạch Dã chết hôm nay, vậy trong vạn năm sau, e rằng nhân gian sẽ không còn người nào giống hắn nữa.
 
-Cho nên binh gia có đại đạo công đức trên người, khiến cho binh gia tu sĩ ở hậu thế tương tự như võ học tông sư có võ vận, so với những luyện khí sĩ khác, coi thường nhất là âm đức được mất của nhân gian, nhân quả báo ứng, xét đến cùng, vẫn là binh gia tu sĩ tiên thiên rời xa dòng sông thời gian nhất, về phần võ phu thuần túy cùng binh gia tu sĩ, lại càng có sâu xa.
+Về phần Ngũ Nhạc, kỳ thật cũng không có gì kỳ quái.
 
-Nhân tộc đã chú định không tránh được dòng sông thời gian, vậy cũng chỉ có thể chuyển qua "Nước uống".
+Yêu tộc trên con đường võ đạo có ưu thế bẩm sinh rất lớn. Nhập môn dễ, tiến cảnh nhanh, nhưng muốn lên đỉnh lại khó hơn nhân tộc. Dù sao trên đời cũng không có chuyện tốt nào chiếm hết tiện nghi.
 
-Đây vốn là lựa chọn bất đắc dĩ nhất của nhân tộc năm đó. Chỉ là thời gian lâu dần, ngược lại trong thiên địa ứng vận mà sinh, có thêm Luyện khí sĩ khác hẳn với thần linh. Lại thêm một vị thần linh chí cao ưu ái đối với nhân tộc, truyền thụ kiếm thuật từ trên trời đến nhân gian, cộng thêm nhân tộc không ngừng lên cao, khiến cho càng ngày càng nhiều thuật pháp thần thông bị đánh rơi xuống nhân gian, thời gian trường hà ngược lại trở thành một trong những bất ngờ lớn nhất của thần linh sụp đổ, Thiên Đình phân liệt.
+So với nhân tộc, yêu tộc tu hành võ học chịu sự áp chế vô hình của đại đạo ít hơn. Nhưng có lợi cũng có hại, thiếu sót Côn Bằng[?] đi kèm với ưu thế; số võ phu mười cảnh của Man Hoang thiên hạ ngược lại không bằng Hạo Nhiên thiên hạ.[?]
 
-Viên Thủ lấy tiếng lòng hỏi thăm Bạch Oánh: "Chút hồn phách Quan Chiếu kia có nhìn ra chút manh mối nào không?"
+Thật ra võ đạo bây giờ chính là một nửa con đường thành thần ngày trước.
 
-Bạch Oánh cười nói: "Truy bổn tố nguyên là có hi vọng. Sợ là Bạch cũng cố ý làm vậy."
+Thần linh đặt ra rất nhiều cấm chế đối với nhân tộc. Lòng người chập chờn, suy nghĩ hỗn loạn, hồn phách phiêu diêu bất định chỉ là một trong số đó.
 
-Viên Thủ có chút bực bội, "Không chịu lợi không chịu lợi. Bạch cũng chỉ là nho sinh, cũng không phải kiếm tu, chân thân rốt cuộc xa xa không bằng chúng ta, tụ tập giết đi, còn sợ hắn không lộ ra chân ngựa Hợp Đạo Thập Tứ cảnh? Ngũ Nhạc quen biết ngươi, ngươi đánh tiếng với hắn, hắn ra tay đánh hắn, ta tìm cơ hội quật cho Bạch Dã một gậy, óc văng khắp nơi, xem hắn còn có thể làm gì."
+Thể phách tiên thiên yếu đuối, lại từ đầu đã không thể tránh khỏi dòng sông thời gian vô hình không ngừng cọ rửa thân thể, khiến tuổi thọ nhân tộc ngắn ngủi. Đó càng là một hạn chế lớn lao.
 
-Bạch Oánh nhịn cười, nói: "Nói nửa nén hương, gấp cái gì, Bạch cũng không vội, chúng ta càng không cần phải gấp gáp."
+Thiên Đình viễn cổ có rất nhiều thần linh. Nhân tộc như kiến hôi dưới chân họ, dù dung mạo hay khí lực tiên thiên được sắp đặt tương đối gần với thần linh, vẫn quá mức nhỏ yếu, khiến một bộ phận thần linh quen được cung phụng hương khói càng thêm bất mãn. Dù cố ý để đám kiến hôi tụ tập, lần đầu nhân tộc quần cư đến hàng trăm vạn người, chỉ cần một thần linh giáng xuống nhân gian, trong nháy mắt đất vỡ núi tan, tất cả đều chết sạch. Chuyện ấy căn bản không thể so với thần linh chém giết lẫn nhau, hay vây giết những yêu tộc lớn mạnh hơn.
 
-Viên Thủ vốn trời sinh nóng nảy, vừa muốn tiếp tục nói, đã thở dài.
+Cho nên trước cả khi thuật pháp thần thông đến với nhân gian, thần linh đã chủ động cho nhân tộc dùng võ đạo rèn luyện thân thể. Kim Thân cảnh ban đầu chính là bình cảnh, là điểm cuối của đoạn đường thứ nhất.
 
-Bạch cũng không biết sống chết, mặc cho Bạch Oánh và Ngưỡng Chỉ đánh cắp linh khí không ngăn cản, cũng không đi cướp, lại muốn không hợp với mình.
+Nhưng nhân tộc anh tài xuất hiện lớp lớp. Binh gia sơ tổ là người đầu tiên ở nhân gian phá vỡ Kim Thân cảnh, sau đó một đường tiến lên thế như chẻ tre, người theo sau ngày càng đông. Thần linh phát hiện, gần như giết sạch nhân tộc đã vượt qua bình cảnh ấy. Chỉ có ông được thần linh che chở, tránh được sự tuần tra, tự đặt tên ba tầng Chỉ Cảnh là Khí Thịnh, Quy Chân và Thần Đáo. Cuối cùng không biết vì sao thành tựu võ đạo của ông dừng lại ở đó, từ ấy gọi là Võ Đạo Chỉ Cảnh.
 
-Lần này mười tám đạo kiếm quang lơ lửng ở bốn phía Viên Thủ, phương viên ngàn dặm, kiếm khí um tùm, mũi kiếm đều chỉ ngự kiếm lão giả.
+Trong số thần linh, có người coi ông là nửa đồng đạo, có người lạnh nhạt đứng nhìn, còn ngấp nghé thêm hương khói nhân gian. Võ đạo nhân tộc càng cao, hương khói càng tinh thuần, phân lượng càng nặng.
 
-Trong kiếm quang có văn tự màu vàng kim.
+Bởi vậy binh gia mang công đức đại đạo, khiến tu sĩ binh gia đời sau cũng giống như võ học tông sư có võ vận, so với luyện khí sĩ khác càng ít để ý đến được mất âm đức, nhân quả báo ứng. Xét đến cùng, tu sĩ binh gia tiên thiên cách xa dòng sông thời gian nhất; võ phu thuần túy và tu sĩ binh gia lại càng có nguồn gốc sâu xa.
 
-Bạch Dã thi vô địch, thơ làm phi kiếm.
+Nhân tộc đã định không tránh khỏi dòng sông thời gian, vậy chỉ có thể chuyển sang “uống nước”.[?]
 
-Mười tám đạo kiếm quang, thanh thế kiếm ý hơn xa lúc trước, lớn như ngọn núi nằm ngang trong thiên địa.
+Đó vốn là lựa chọn bất đắc dĩ nhất của nhân tộc năm xưa. Nhưng lâu ngày, thiên địa ứng vận sinh ra luyện khí sĩ khác hẳn thần linh. Lại có một vị thần linh chí cao yêu mến nhân tộc, truyền kiếm thuật từ trên trời xuống nhân gian. Nhân tộc không ngừng đi lên, khiến ngày càng nhiều thuật pháp thần thông rơi xuống nhân gian. Dòng sông thời gian ngược lại trở thành một trong những nguyên nhân bất ngờ nhất khiến thần linh sụp đổ, Thiên Đình phân liệt.
 
-Viên Thủ thấy dị tượng này, chẳng những không có nửa điểm sợ hãi, ngược lại chỉ cảm thấy nhẹ nhàng vui vẻ lâm ly, đúng là giật pháp bào trên người, thu vào trong tay áo càn khôn, lại mặc thêm một bộ giáp Thừa Lộ thần nhân cổ xưa nhất, Sơn Quỷ.
+Viên Thủ dùng tiếng lòng hỏi Bạch Oánh:
 
-Bạch cũng thật sự coi gia gia là quả hồng mềm rồi?!
+- Chút hồn phách Quan Chiếu kia nhìn ra manh mối gì chưa?
 
-Quan hệ trên người Viên Thủ như sấm nổ vang, thu trường kiếm "Quần Chân", không ngự kiếm nữa, một tay cầm côn, trùng trùng điệp điệp đâm vào hư không bên chân, hiện ra chân thân ngàn trượng vẫn chưa phải là viên mãn đỉnh phong.
+Bạch Oánh cười đáp:
 
-Sơn quỷ trên người Viên Thủ, cộng thêm Xa Nguyệt khoác áo tơi ở Kiếm Khí Trường Thành, cùng với Tây Nhạc mà Trần Bình An cho Ngụy Tiện mượn tạm, bảy bộ bảo giáp này, đều từng là áo choàng của viễn cổ cao vị thần, chiếu sáng vạn dặm, cho nên thời đại viễn cổ, mỗi khi thần linh tuần thú du lịch, sẽ sáng như sao chổi kéo màn trời.
+- Có hy vọng lần theo nguồn gốc. Chỉ sợ Bạch Dã cố ý làm vậy.
 
-Cam Lộ Giáp do binh gia đời sau đúc ra, thật ra đều là phỏng chế, không phải luyện sư công nghệ không tinh, trên thực tế đời sau Cam Lộ Giáp, chỉ nói trình độ tinh vi, đã không thua tay nghề thần linh luyện chế, nhất là binh gia Kim Ô Giáp cùng Kinh Vĩ Giáp phẩm trật cao, đều đã vượt qua thời đại viễn cổ, thiếu sót duy nhất, cực kỳ trí mạng, hay là chênh lệch về chất liệu, cần luyện hóa kim thân thần linh!
+Viên Thủ hơi bực bội:
 
-Thời đại Viễn Cổ, rất nhiều hình pháp của Thiên Đình cực kỳ khốc liệt, Trảm Long Đài chỉ là một trong số đó, Thần Linh của ti chức hình pháp, thủ đoạn nhằm vào những Thần Linh bị hoạch tội kia, càng là kinh thế hãi tục.
+- Thật không có lợi. Bạch Dã chỉ là nho sinh, không phải kiếm tu, chân thân rốt cuộc kém xa chúng ta. Cùng nhau giết tới, còn sợ hắn không lộ chân tướng hợp đạo cảnh giới mười bốn sao? Ngũ Nhạc quen ngươi, ngươi nói với hắn một tiếng, để hắn ra tay đánh, ta tìm cơ hội nện Bạch Dã một gậy cho óc văng khắp nơi, xem hắn còn làm được gì.
 
-Hậu thế sơn thuỷ thần linh, thành hoàng gia cùng văn võ miếu anh linh, trước được phong chính, lại tố kim thân, thật ra so với thần linh viễn cổ, sớm đã chiết khấu rất nhiều, hơn nữa cần hương khói nhân gian thấm nhuần, một khi mất đi hương khói, kim thân sẽ lung lay sắp đổ, trái lại vị tồn tại cao cao tại thượng kia của thần linh viễn cổ, hương khói lượn lờ trên đại địa nhân gian, rất quan trọng, có thể để cho thần linh càng thêm rèn luyện kim thân, lại không phải thứ thiết yếu, không có hương khói, cũng tương tự lâu dài bất hủ, thẳng đến khi đại kiếp cùng tiên thiên mệnh lý phù hợp sắp tới, qua được rồi, tăng lên thần vị, không qua được, một thân máu màu vàng dung nhập dòng sông thời gian.
+Bạch Oánh nén cười:
+
+- Đã nói nửa nén hương, gấp cái gì? Bạch Dã không vội, chúng ta càng không cần vội.
+
+Viên Thủ vốn nóng nảy, vừa định nói tiếp đã thở dài.
+
+Bạch Dã không biết sống chết, mặc cho Bạch Oánh và Ngưỡng Chỉ cướp linh khí, chẳng ngăn cản cũng chẳng tranh đoạt, lại cứ muốn gây khó dễ cho hắn.
+
+Lần này mười tám đạo kiếm quang lơ lửng quanh Viên Thủ, kiếm khí um tùm trong phạm vi ngàn dặm, mũi kiếm đều chỉ vào lão giả ngự kiếm.
+
+Trong kiếm quang có từng chữ vàng.
+
+Thơ Bạch Dã vô địch, thơ hóa thành phi kiếm.
+
+Mười tám đạo kiếm quang, thanh thế và kiếm ý vượt xa trước đó, lớn như những ngọn núi nằm ngang giữa thiên địa.
+
+Viên Thủ thấy dị tượng này không hề sợ hãi, ngược lại chỉ cảm thấy thống khoái. Hắn giật pháp bào trên người, thu vào tay áo càn khôn, rồi mặc lên bộ giáp Thừa Lộ thần nhân cổ xưa nhất, Sơn Quỷ.
+
+Bạch Dã thật sự coi gia gia là quả hồng mềm sao?!
+
+Khớp xương trên người Viên Thủ nổ vang như sấm. Hắn thu trường kiếm Quần Chân, không ngự kiếm nữa, một tay cầm côn đâm mạnh vào hư không dưới chân, hiện ra chân thân cao ngàn trượng, nhưng vẫn chưa đạt tới đỉnh phong viên mãn.
+
+Sơn Quỷ trên người Viên Thủ, áo tơi Xa Nguyệt khoác ở Kiếm Khí Trường Thành, cùng Tây Nhạc Trần Bình An tạm cho Ngụy Tiện mượn, đều nằm trong bảy bộ bảo giáp từng là áo choàng của thần linh địa vị cao thời viễn cổ, có thể chiếu sáng vạn dặm. Cho nên thời ấy, mỗi khi thần linh tuần thú du ngoạn, ánh sáng kéo dài trên màn trời như sao chổi.
+
+Cam Lộ giáp do binh gia đời sau đúc ra thật ra đều là hàng phỏng chế. Không phải tay nghề luyện sư không tinh xảo; chỉ bàn về sự tinh vi, Cam Lộ giáp đời sau đã không thua thần linh chế tạo. Đặc biệt, Kim Ô giáp và Kinh Vĩ giáp phẩm trật cao của binh gia đều đã vượt qua thời viễn cổ. Thiếu sót duy nhất mà cũng cực kỳ trí mạng là chất liệu: phải luyện hóa kim thân thần linh!
+
+Thời viễn cổ, nhiều hình phạt của Thiên Đình cực kỳ tàn khốc, Trảm Long Đài chỉ là một trong số đó. Thủ đoạn thần linh coi giữ hình phạt dùng để đối phó với những thần linh phạm tội càng khiến người nghe kinh hãi.
+
+Thần linh núi sông, thành hoàng cùng anh linh trong văn miếu, võ miếu đời sau được phong chính rồi mới đắp kim thân, thật ra đã kém thần linh viễn cổ rất nhiều. Họ còn cần hương khói nhân gian thấm nhuần, một khi mất hương khói, kim thân sẽ lung lay sắp đổ.
+
+Còn đối với những thần linh viễn cổ cao cao tại thượng, hương khói nơi nhân gian tuy quan trọng, có thể giúp họ rèn luyện kim thân, nhưng không phải thứ thiết yếu. Không có hương khói, họ vẫn có thể bất hủ lâu dài, cho đến khi đại kiếp ứng với mệnh số tiên thiên giáng xuống. Vượt qua thì thần vị tăng lên, không qua được, máu vàng toàn thân sẽ hòa vào dòng sông thời gian.
 
 Thi hài hóa thành ngôi sao.
 
 Vạn cổ yên tĩnh.
 
-Bạch cũng liếc mắt nhìn núi sông hư giả của bức họa, lại nhìn đại yêu kia ngửa mặt lên.
+Bạch Dã liếc nhìn núi sông giả tạo trong bức họa, lại nhìn đại yêu Ngưỡng Chỉ.
 
-Lúc trước trăng sáng hóa thành một đường, Vấn Kiếm lục vương tọa, có kiếm quang thẳng hạ trảm cương chi đạo ý, cho nên giao long ngửa đứng, bản tâm sợ hãi nhất, còn lại vương tọa đại yêu, kỳ thật đều tính là tùy ý ngăn kiếm.
+Lúc trước trăng sáng tụ thành một đường, vấn kiếm sáu Vương Tọa, kiếm quang chém thẳng xuống có đạo ý cương mãnh. Vì vậy giao long Ngưỡng Chỉ sợ hãi nhất; các đại yêu Vương Tọa còn lại thật ra đều tùy ý ngăn kiếm.[?]
 
-Bạch cũng nhìn dòng sông mênh mông cuồn cuộn uống no linh khí kia, cười cười, thủy pháp một đạo, ta không tinh thông, chỉ là phá qua thủy pháp, kiếm trảm động thiên.
+Bạch Dã nhìn những dòng sông cuồn cuộn đã uống no linh khí, mỉm cười. Thủy pháp ta không tinh thông, chỉ từng phá thủy pháp, dùng kiếm chém động thiên mà thôi.
 
-Bạch cũng tâm ý đến, từng dòng sông lớn trực tiếp nhao nhao rời khỏi lòng sông, cuối cùng hóa thành từng dòng giang hà đại kiếm trước treo trên bầu trời lại thẳng tắp một đường, nhân gian khởi kiếm, loạn kiếm chém tới chỗ cao, ngửa mặt nhằm vào vị kia trong thiên địa tinh thông một trong thủy pháp đại đạo.
+Tâm niệm vừa động, từng dòng sông lớn nhao nhao rời khỏi lòng sông, hóa thành những thanh đại kiếm treo giữa trời rồi nối thẳng thành hàng. Kiếm khởi từ nhân gian, đồng loạt chém lên cao, nhắm vào vị đại yêu tinh thông thủy pháp trong thiên địa kia.
 
-Ngưỡng Chỉ hừ lạnh một tiếng, trường kiếm giang hà tới gần nàng trăm dặm, vỡ ngay tại chỗ thành một trận mưa to bàng bạc, trở về nhân gian.
+Ngưỡng Chỉ hừ lạnh. Trường kiếm sông ngòi vừa đến cách nàng trăm dặm đã vỡ thành một trận mưa lớn, trở về nhân gian.
 
-Bạch này còn không chân chính xuất kiếm?!
+Bạch Dã vẫn chưa thật sự xuất kiếm sao?!
 
-Bạch Dã cũng chuyển ánh mắt nhìn Bạch Oánh, nghe nói con đại yêu này am hiểu khống chế đại quân Bạch Cốt.
+Bạch Dã lại nhìn sang Bạch Oánh. Nghe nói đại yêu này giỏi khống chế đại quân bạch cốt.
 
-Bạch cũng thầm niệm Ngũ Tự Chân Ngôn, Đạo, Thiên, Địa, Tướng, Pháp.
+Hắn thầm niệm năm chữ chân ngôn: Đạo, Thiên, Địa, Tướng, Pháp.
 
-Quân chỉ thấy thơ Biên Tắc trên sách, quân không thấy khinh kỵ bội đao trục bạch vân.
+Ngươi chỉ thấy thơ biên tái trên sách, nào thấy khinh kỵ đeo đao đuổi theo mây trắng.
 
-Bạch cũng "hiểu sơ binh pháp, cả thế gian đều biết.
+Bạch Dã “hiểu sơ binh pháp”, cả thế gian đều biết.
 
-Bạch cũng lẩm bẩm nói: "Cho dù đã nhiều năm như vậy, vẫn cảm thấy không thuận miệng bằng Thiên Địa Pháp Tướng."
+Hắn lẩm bẩm:
 
-Bạch Oánh, đại yêu khô cốt kia mỉm cười, rốt cuộc tế ra một kiện bản mệnh vật, sau lưng dựng đứng một cây đại kỳ, bạch cốt đại quân trùng trùng điệp điệp giết về phía những anh linh đại quân giục ngựa phi nhanh kia.
+- Bao nhiêu năm rồi, vẫn cảm thấy không thuận miệng bằng Thiên Địa Pháp Tướng.
 
-Sau đó trong nháy mắt, bất kể là đại yêu Vương Tọa xuất thủ hay là chưa từng xuất thủ, đều phát giác được một tia dấu hiệu rất nhỏ.
+Đại yêu khô cốt Bạch Oánh mỉm cười, rốt cuộc tế ra một món bản mệnh vật. Một cây đại kỳ dựng lên sau lưng hắn, đại quân bạch cốt trùng trùng điệp điệp giết về phía đại quân anh linh đang giục ngựa phi nhanh.
 
-Bạch Dã một kiếm chém bay bảo giáp của Thần Nhân Kim Giáp Ngưu Đao, chém cả giáp trụ lẫn thân thể thành hai.
+Ngay sau đó, bất kể đại yêu Vương Tọa đã ra tay hay chưa, đều phát giác một dấu hiệu cực nhỏ.
 
-Tình cảnh cắt vận sau lưng Bạch cũng không khác gì, trúng một kiếm, chỉ là tương đối thần nhân giáp vàng, Thiết Vận nhìn như chỉ là từ mi tâm một mực xuống phía dưới, xuất hiện một vết kiếm tinh tế, Thiết Vận giống như cứng rắn chịu một kiếm, vẫn không nỡ tách ra cái túi da này. Trên thực tế thì Bạch cũng rốt cuộc chân chính đưa kiếm, Thiết Vận tự nhận tránh cũng không thể tránh, trực tiếp tự mình kéo ra thân thể, mới tránh thoát một kiếm của Thái Bạch.
+Bạch Dã một kiếm chém thần nhân giáp vàng của Ngưu Đao, chém cả giáp trụ lẫn thân thể thành hai.
 
-Đây là phân tâm hai kiếm.
+Thiết Vận sau lưng Bạch Dã cũng trúng một kiếm. So với thần nhân giáp vàng, trên người hắn dường như chỉ xuất hiện một vết kiếm mảnh từ mi tâm kéo dài xuống dưới, tựa như hắn cứng rắn chịu kiếm, vẫn không nỡ tách túi da của mình ra.
 
-Nếu Bạch cũng chuyên tâm dốc sức kiếm một kiếm?
+Thật ra, khi Bạch Dã rốt cuộc thật sự đưa kiếm, Thiết Vận biết mình không thể tránh, bèn chủ động tách thân thể làm hai mới thoát được một kiếm của Thái Bạch.
 
-Dù là một kiếm qua đi, Thiết Vận cũng không vội vàng khép thân thể lại, dư vị kiếm khí của thanh tiên kiếm kia quá mức kinh người, nếu Thiết Vận trực tiếp hợp thân thể làm một, sẽ cùng những kiếm khí kia xoắn giết cùng một chỗ, được không bù mất.
+Đó là phân tâm xuất hai kiếm.
 
-Thiết Vận thở dài một tiếng, Hạo Nhiên Thiên Hạ này hình như còn có một thanh tiên kiếm, ở Long Hổ sơn Thiên Sư phủ Trung Thổ Thần Châu.
+Nếu Bạch Dã chuyên tâm dốc sức chém một kiếm thì sao?
 
-Nghe đồn Hỏa Thần viễn cổ giống như Thuỷ Thần kia có được rất nhiều lãnh thổ hành cung tránh nóng, một trong số các thần tọa của Hỏa Thần, nằm ở Huỳnh Hoặc.
+Dù kiếm đã qua, Thiết Vận vẫn không vội khép thân thể. Kiếm khí còn sót lại của tiên kiếm quá kinh người, nếu lập tức hợp thân làm một, hắn sẽ bị kiếm khí giảo sát, được không bù mất.
 
-Càng nghe đồn Huỳnh Hoặc có người hầu, tinh thông đúc, lấy Huỳnh Hoặc làm lò luyện, lấy Hỏa Tinh làm mảnh than, lấy thời gian trường hà đốt lửa, tay nắm từng ngôi sao làm chùy tròn, nghiền nát vứt bỏ, lại đổi một cây, cuối cùng mấy vị thần linh chí cao của Thiên Đình viễn cổ, đúc ra mấy thanh trường kiếm.
+Thiết Vận thở dài. Hạo Nhiên thiên hạ hình như còn có một thanh tiên kiếm, ở Thiên Sư phủ trên Long Hổ sơn thuộc Trung Thổ Thần Châu.
 
-Giống như phong lưu thế gian, đều bị Hạo Nhiên Thiên Hạ chiếm hết.
+Nghe đồn Hỏa Thần viễn cổ cũng như Thủy Thần, có rất nhiều lãnh thổ và hành cung tránh nóng; một trong những thần tọa của Hỏa Thần nằm ở Huỳnh Hoặc.
 
-Cắt Vận thở dài, thở dài. Không nên như thế.
+Lại nghe đồn người hầu ở Huỳnh Hoặc tinh thông rèn đúc, lấy Huỳnh Hoặc làm lò, lấy Hỏa Tinh làm than, dùng dòng sông thời gian nhóm lửa, cầm từng ngôi sao làm chùy. Ngôi sao bị đập nát thì vứt bỏ, đổi ngôi sao khác. Cuối cùng mấy vị thần linh chí cao của Thiên Đình viễn cổ đúc ra mấy thanh trường kiếm.
 
-Vạn năm trước, sau khi nghị sự bên bờ sông qua đi, kỳ thật còn có hai cuộc nghị sự bí mật, một là tổ sư Tam Giáo luận đạo. Một là tranh chấp nội bộ Yêu tộc, Đại tổ và Bạch Trạch mỗi người đi một ngả.
+Dường như phong lưu thế gian đều bị Hạo Nhiên thiên hạ chiếm hết.
 
-Từ đó về sau vạn năm, Man Hoang thiên hạ, quần hùng cát cứ, phân tranh không ngừng.
+Thiết Vận thở dài. Không nên như vậy.
 
-Trong tu sĩ bản thổ Hạo Nhiên Thiên Hạ, tu sĩ cảnh giới thứ mười bốn, trừ Lễ Thánh, Á Thánh, cùng với Văn Thánh sau khi Hợp Đạo Hạo Nhiên ba châu còn có Bạch Dã. Hôm nay lại có kiếm tu A Lương.
+Vạn năm trước, sau cuộc nghị sự bên bờ sông, thật ra còn hai cuộc nghị sự bí mật: một là tổ sư Tam Giáo luận đạo, hai là tranh chấp nội bộ yêu tộc, đại tổ và Bạch Trạch mỗi người đi một ngả.
 
-Về phần Bạch Trạch cũng tốt, lão đạo sĩ Quan Đạo Quán cũng thế, còn có hòa thượng canh gà kia, thật ra đều là người ngoài Hạo Nhiên Thiên Hạ.
+Từ đó suốt vạn năm, Man Hoang thiên hạ quần hùng cát cứ, phân tranh không ngừng.
 
-Lầu mười hai của Bạch Ngọc Kinh năm thành Thanh Minh Thiên Hạ, trong đó ba vị chưởng giáo thay phiên chưởng khống Bạch Ngọc Kinh đều được công nhận là cảnh giới mười bốn.
+Trong số tu sĩ bản thổ Hạo Nhiên thiên hạ đạt cảnh giới mười bốn, ngoài Lễ Thánh, Á Thánh, Văn Thánh sau khi hợp đạo ba châu còn có Bạch Dã. Hôm nay lại thêm kiếm tu A Lương.
 
-Đại tu sĩ mười bốn cảnh trong Man Hoang thiên hạ, chẳng lẽ cũng chỉ có một người già mù lòa đến từ nơi khác?
+Còn Bạch Trạch, lão đạo sĩ Quan Đạo quán cùng hòa thượng canh gà kia, thật ra đều đến từ bên ngoài Hạo Nhiên thiên hạ.
 
-Sau đó một tòa thiên hạ vất vả chờ đợi vạn năm, cũng chỉ là thêm ra một Tiêu Ngọc phản bội chạy trốn Kiếm Khí Trường Thành?
+Ở mười hai lầu năm thành của Bạch Ngọc Kinh thuộc Thanh Minh thiên hạ, ba vị chưởng giáo thay phiên chấp chưởng Bạch Ngọc Kinh đều được công nhận là cảnh giới mười bốn.
 
-Giáp Thân Trướng Kiếm Tu Vũ Tứ, vì sao lại được Phi Phi tôn xưng một tiếng công tử, vậy lão gia là ai?
+Đại tu sĩ cảnh giới mười bốn ở Man Hoang thiên hạ, chẳng lẽ chỉ có một lão mù đến từ nơi khác?
 
-Sư huynh Thiết Vận, sư đệ nổi bật, Thiết Vận là thay sư phụ thu đồ đệ, khiến trong sư môn có thêm một vị tiểu sư đệ nổi bật. Vậy sư phụ của hai vị là ai? Có còn sống hay không?
+Một tòa thiên hạ khổ sở chờ đợi vạn năm, cuối cùng chỉ có thêm Tiêu Ngọc phản bội chạy khỏi Kiếm Khí Trường Thành?
 
-Tấm Sưu Sơn Đồ Bạch Trạch giao cho lão tú tài kia, thật ra cũng không bày ra toàn bộ Yêu tộc cùng thế hệ. Đối với lão tú tài này không có bất cứ lời oán hận nào, thật sự khi thấy lễ thánh kia cũng chỉ hô một tiếng "Tiểu phu tử" Bạch Trạch tính tình quá tốt? Bạch Trạch ở trước khi tham gia trận nghị sự bờ sông kia, trên đường lên trời, chiến công to lớn, còn hơn đại tổ của Thác Nguyệt sơn một bậc. Kiếm tu quyết liệt, Bạch Trạch cũng tự tay đánh giết vô số kiếm tu.
+Kiếm tu Vũ Tứ của Giáp Thân Trướng vì sao được Phi Phi tôn xưng là công tử? Vậy lão gia là ai?
 
-Sau khi Bạch cũng chân chính xuất kiếm, thì không còn là người đọc sách nữa.
+Sư huynh Thiết Vận thay sư phụ thu đồ, khiến sư môn có thêm tiểu sư đệ Phỉ Nhiên xuất chúng. Vậy sư phụ hai người là ai, còn sống hay không?
 
-Một trảm lại chém, không chút phong lưu.
+Tấm Sưu Sơn Đồ Bạch Trạch giao cho lão tú tài thật ra cũng không bày ra toàn bộ yêu tộc cùng thế hệ. Bạch Trạch không hề oán hận lão tú tài, chẳng lẽ thật sự vì vị tồn tại mà ngay cả Lễ Thánh gặp cũng chỉ gọi một tiếng “tiểu phu tử” kia tính tình quá tốt? Trước khi tham gia nghị sự bên bờ sông, Bạch Trạch trên đường lên trời lập chiến công to lớn, còn hơn đại tổ Thác Nguyệt sơn một bậc. Kiếm tu khi ấy quyết liệt, Bạch Trạch cũng tự tay giết vô số kiếm tu.[?]
 
-Trước trảm Kim Giáp Thần Nhân, phá Kim giáp trên người Đại yêu Ngưu đao, tránh khỏi phải tiếp tục chờ đợi.
+Sau khi Bạch Dã thật sự xuất kiếm, hắn không còn là người đọc sách nữa.
 
-Lại chém thêm một nhát nữa, khiến cho Thiết Vận chủ động chia túi da thành hai, chỉ có thể tránh né mũi nhọn.
+Chém xong lại chém, không chút phong lưu.
 
-Chém ngửa Chỉ Đoạn giao vĩ, chém rụng đầu kiếm thị trước người Bạch Oánh, chặt đứt trường côn trong tay Viên Thủ, chém hai tay Ngũ Nhạc.
+Trước chém thần nhân giáp vàng, phá kim giáp trên người đại yêu Ngưu Đao, không cần tiếp tục chờ đợi.
 
-Sáu vị đại yêu Vương Tọa đều tự tế ra thủ đoạn thuật pháp, hoặc là thi triển thần thông bản mệnh, gần như đồng thời khôi phục chân thân, dường như chưa từng bị một kiếm chém qua.
+Lại chém một kiếm, khiến Thiết Vận chủ động chia túi da làm hai, chỉ có thể tránh mũi nhọn.
+
+Chém đứt đuôi giao long của Ngưỡng Chỉ, chém rụng đầu kiếm thị trước người Bạch Oánh, chặt đứt trường côn trong tay Viên Thủ, chém hai tay Ngũ Nhạc.
+
+Sáu đại yêu Vương Tọa đều tự thi triển thuật pháp hoặc thần thông bản mệnh, gần như đồng thời khôi phục chân thân, tựa như chưa từng bị một kiếm chém qua.
 
 Vậy thì chém tiếp.
 
-Nhân gian vẫn không thấy Bạch, rốt cuộc xuất kiếm như thế nào.
+Nhân gian vẫn không thấy Bạch Dã rốt cuộc xuất kiếm thế nào.
 
-Chỉ thấy trong thiên địa có kiếm quang.
+Chỉ thấy kiếm quang giữa thiên địa.
 
-Sáu vị đại yêu Vương Tọa cho dù là Bạch Oánh cũng không còn hàm hồ, hiện ra chân thân và pháp tướng, âm thần đi xa, vật bản mệnh càng xuất hiện, sặc sỡ loá mắt, che khuất bầu trời.
+Sáu đại yêu Vương Tọa, ngay cả Bạch Oánh cũng không còn qua loa, đều hiện chân thân và pháp tướng, âm thần đi xa, bản mệnh vật lần lượt xuất hiện, ánh sáng rực rỡ che khuất bầu trời.
 
-Một lão nhân áo tím tóc trắng chân trần ở sau khi vất vả đánh xuyên ba tòa thiên địa, ngẩn người, nhỏ giọng hỏi: "Nói như thế nào?"
+Một lão nhân áo tím tóc trắng, chân trần, sau khi vất vả đánh xuyên ba tòa thiên địa liền ngẩn người, nhỏ giọng hỏi:
 
-Một người đọc sách mặc áo xanh, cầm trong tay Thái Bạch, lần nữa chỉ có Bạch ta cũng là đắc ý nhất nhân gian.
+- Thế nào rồi?
 
-Phù lục Vu Huyền chỉ nghe người đọc sách kia cười nói: "Chờ ta kiếm trảm Lưu Xoa."
+Người đọc sách áo xanh cầm Thái Bạch, một lần nữa trở thành Bạch Dã đắc ý nhất nhân gian.
+
+Phù lục Vu Huyền chỉ nghe người đọc sách kia cười nói:
+
+- Chờ ta một kiếm chém Lưu Xoa.

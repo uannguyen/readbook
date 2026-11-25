@@ -1,361 +1,383 @@
 # Chương 781: Tả Hữu rốt cuộc không khó xử
 
-Tả Hữu đi tới một chỗ sơn thanh thủy tú, tay cầm một cây trượng trúc xanh biếc, đi lên núi.
+Tả Hữu cầm một cây gậy trúc xanh biếc, đi lên ngọn núi có phong cảnh hữu tình.
 
-Chùa miếu ở chân núi, đạo quan ở đỉnh núi, thư viện giữa sườn núi, cho dù không ở động thiên phúc địa của Hạo Nhiên Thiên Hạ, cũng đại để như thế.
+Chùa miếu ở chân núi, thư viện giữa sườn núi, đạo quan trên đỉnh núi. Ngay cả ngoài động thiên phúc địa, Hạo Nhiên thiên hạ cũng phần lớn như vậy.
 
-Tả Hữu lập tức đặt mình ở một nơi đất lành gọi là phúc địa vũ hóa, nhàn rỗi vô sự, không muốn cũng không nên di chuyển chân thân, cũng chỉ đành phải âm thần đi xa, mượn cơ hội này, thuận tiện du lãm phong cảnh thiên hạ.
+Bây giờ Tả Hữu đang ở một nơi gọi là phúc địa Vũ Hóa. Hắn nhàn rỗi vô sự, lại không muốn cũng không nên di chuyển chân thân, đành để âm thần đi xa, nhân cơ hội ngắm nhìn phong cảnh nơi này.
 
-Lần này hai bên du lịch, phúc địa này là một thánh địa tu đạo, được vinh dự là nơi mà tiên phủ nhân gian, là nơi mà ẩn sĩ thiên hạ đến thăm tiên phải đi qua, cũng là lựa chọn hàng đầu để đi xa thắp hương cho thiện nam thiện nữ nhân gian.
+Ngọn núi hắn đang đến là thánh địa tu đạo của phúc địa, được gọi là tiên phủ nhân gian. Ẩn sĩ trong thiên hạ tìm tiên đều phải qua đây, thiện nam tín nữ muốn đi xa thắp hương cũng thường chọn nơi này đầu tiên.
 
-Tương truyền nơi đây cổ đại có nhiều chân nhân, trong núi tu luyện đạo pháp tiên thuật, vì thế còn có Thúy Tùng Cung đỉnh núi hoàng đế sắc kiến, về sau quả có chân nhân chứng đạo, cưỡi cổ tùng biến thành một con Thanh Long, phi thăng thành tiên, thiên hạ đều biết. Đương thời quân chủ thấy trước đây chưa từng có cổ nhân, thiên địa tường thụy sử vô ghi lại, lập tức thuận theo thiên mệnh sửa đổi niên hiệu, ở năm đầu tường vân, sắc kiến bảo tích quan, dùng để tôn sùng "Vũ hóa phi thăng" vị thần tiên đạo môn kia, hơn trăm năm sau, vương triều thay đổi, cung quan hương khói điêu linh, vị "tiên nhân" kia một lần cuối cùng có thể tra ra trở về nhân gian, là vận chuyển vô thượng thần thông, mang bảo quan không biết vì sao chìm vào trong nước kia bắt đầu vớt lên, dọn đi đỉnh núi.
+Tương truyền thời cổ có nhiều chân nhân tu luyện đạo pháp tiên thuật trong núi, trên đỉnh còn có Thúy Tùng cung do hoàng đế sắc lệnh xây dựng. Về sau quả thật có chân nhân chứng đạo, cưỡi một cây tùng cổ biến thành thanh long, phi thăng thành tiên, thiên hạ đều biết.
 
-Các đời hoàng đế của vương triều mới vội vàng gia phong tôn hiệu cho tổ sư Bảo Tích Quan. Chân Nhân Chân Quân Thiên Quân từng bước lên trời, còn được cung quan lần lượt ban cho tấm biển, tặng đạo thư, khiến cho nơi này hương hỏa cường thịnh, kéo dài đến nay.
+Quân chủ đương thời thấy điềm lành giữa trời đất xưa nay chưa từng được ghi chép, lập tức thuận theo thiên mệnh đổi niên hiệu. Năm Tường Vân đầu tiên, ông sắc lệnh xây Bảo Tích quan để tôn thờ vị thần tiên Đạo môn đã “vũ hóa phi thăng”. Hơn trăm năm sau vương triều thay đổi, hương khói cung quan suy tàn. Lần cuối cùng có thể tra được vị “tiên nhân” ấy trở về nhân gian, ông thi triển thần thông vô thượng, vớt bảo quan chẳng biết vì sao chìm dưới nước lên, dời tới đỉnh núi.
 
-Đời sau có nhiều ý kiến khác nhau, chắc chắn vị chân nhân này sau khi phi thăng không chỉ có thể đứng hàng tiên ban, còn được Thiên Đế trao tặng thanh chương lục điệp phẩm cấp cực cao, chức quan tương tự lục bộ thượng thư nhân gian, cho nên nơi đi qua, sơn dã hồ đầm chi thần, ẩn tiên trên biển đều tới nghênh bái yết kiến.
+Hoàng đế các đời của vương triều mới vội vàng gia phong tôn hiệu cho tổ sư Bảo Tích quan. Từ chân nhân đến chân quân, thiên quân, tôn hiệu mỗi lúc một cao; cung quan cũng lần lượt được ban biển ngạch và đạo thư, khiến hương khói nơi này hưng thịnh cho đến hôm nay.
 
-Tả Hữu đương nhiên biết những lời đồn đại phúc địa dát vàng lên mặt mình này thuộc loại nghe nhầm đồn bậy, lão tu sĩ được coi là "Đắc đạo tiên nhân", thật ra chẳng qua chỉ đảm nhiệm cung phụng ở một tông môn Đồng Diệp Châu, thành tựu cuối cùng của tổ sư đường, là bình cảnh Nguyên Anh kia, chưa thể phá cảnh kéo dài tuổi thọ, chỉ có thể một ngày thiên hình thần mục nát, sau đó liền gặp phải đại cử xâm lấn của Man Hoang thiên hạ, vô luận là lão tu sĩ tự nhận đại hạn đã tới, sống tạm vài năm không có ý nghĩa, hay là có lý do gì khác, lão tu sĩ lựa chọn chết trận ở trên chiến trường Yêu tộc lên bờ Đồng Diệp Châu kia. Mà phúc địa Vũ Hóa chưa thể tránh được một kiếp, rơi vào trong tay một quân trướng.
+Đời sau có nhiều lời đồn, đều khẳng định sau khi phi thăng, vị chân nhân này không những được xếp vào hàng tiên, còn được Thiên Đế ban thanh chương lục điệp phẩm cấp cực cao, chức quan tương tự thượng thư lục bộ nhân gian. Bởi vậy đi đến đâu, thần núi thần sông cùng ẩn tiên trên biển đều đến nghênh đón bái kiến.
 
-Phúc địa vốn nên giao cho một vị tông môn đích truyền tùy thân mang theo, đi hướng Bảo Bình châu, giao ra tòa phúc địa vũ hóa này cho Lão Long thành, giúp tu sĩ tông môn, đổi lấy một chỗ tu đạo với vương triều Đại Ly.
+Tả Hữu đương nhiên biết những lời tô vẽ ấy đều là nghe nhầm đồn bậy. Lão tu sĩ được coi là “tiên nhân đắc đạo” thật ra chỉ làm cung phụng ở một tông môn Đồng Diệp châu, cuối cùng dừng bước ở bình cảnh Nguyên Anh, không thể phá cảnh kéo dài tuổi thọ, chỉ đành chờ ngày hình thần mục nát.
 
-Phúc địa vũ hóa, đất rộng người thưa, bởi vì linh khí mỏng, cộng thêm "lão thiên gia" tay cầm phúc địa, lại không muốn đập tiền như thế nào, khiến cho tu sĩ trên lịch sử miễn cưỡng thành tài ít ỏi, đối với một tòa tông môn tiên gia Đồng Diệp Châu mà nói, quả thật chỉ là một tòa phúc địa hạ đẳng rất gân gà. Từng đống lớn rải tiền cho phúc địa, nếu trì hoãn Luyện khí sĩ đỉnh núi nhà mình tu hành, chung quy được không bù mất. Huống chi một vị tông chủ, cho dù đã là ngọc Phác cảnh, chỉ cần không thể chen thân tiên nhân, tuổi thọ có định, đó chính là cận thị sơn hà, không dám nói ngàn năm sau phúc địa lại như thế nào, về phần lão nhân tổ sư đường còn lại, cung phụng cùng đích truyền, cảnh giới càng thấp hơn đạo pháp, cho nên sẽ càng thêm thiển cận, chưa chắc là thực không nhìn thấy phúc địa tăng lên ích lợi lâu dài. Chỉ là ngàn năm sau, với đại đạo của ta thì ích gì?
+Sau đó Man Hoang thiên hạ phát động đại quân xâm lấn. Chẳng biết vì tự thấy đại hạn đã đến, sống tạm thêm vài năm cũng vô nghĩa, hay vì lý do nào khác, lão tu sĩ lựa chọn chết trận trên chiến trường nơi yêu tộc đổ bộ Đồng Diệp châu. Phúc địa Vũ Hóa cũng không thoát khỏi kiếp nạn, rơi vào tay một quân trướng.
 
-Nhưng đối với Đại Ly Tống thị mà nói, quả thật là có thể giải quyết một bộ phận khẩn cấp, dùng để di chuyển dân chúng các nước phiên thuộc vùng cực nam của một châu, nhanh gọn nhất, phúc địa vũ hóa phẩm trật quá thấp, ngược lại là chuyện tốt, bởi vì tai hoạ ngầm cực nhỏ, bởi vì trên núi cùng dưới núi, người tu đạo xung đột với phàm tục phu tử, hầu như có thể bỏ qua không tính. An trí nạn dân, không có phí tổn.
+Vốn dĩ phúc địa này phải được giao cho một đệ tử đích truyền mang theo đến Bảo Bình châu, giao cho Lão Long thành, giúp tu sĩ tông môn đổi lấy một nơi tu đạo từ vương triều Đại Ly.
 
-Về phần phúc địa vì sao cuối cùng vẫn rơi vào tay quân trướng Yêu tộc, không quá cảm thấy hứng thú. Lòng người tham lam cũng tốt, thế sự ngoài ý muốn cũng được, dù sao hắn cũng bị giam giữ ở đây.
+Phúc địa Vũ Hóa đất rộng người thưa, linh khí mỏng manh, “lão thiên gia” nắm giữ nơi này lại không chịu bỏ nhiều tiền vào, khiến tu sĩ có chút thành tựu trong lịch sử ít ỏi vô cùng. Đối với một tông môn tiên gia ở Đồng Diệp châu, đây quả thật chỉ là phúc địa hạ đẳng bỏ thì tiếc, giữ lại chẳng được bao nhiêu.
 
-Đối với vị nam tử nho sinh thanh sam lục trúc trượng này, các khách hành hương trên đường cũng không để ý quá mức, dù sao cũng rất thường gặp.
+Nếu đổ từng đống tiền vào phúc địa mà làm chậm trễ việc tu hành của luyện khí sĩ trên núi nhà mình, chung quy được không bù mất. Huống chi một vị tông chủ dù đã ở Ngọc Phác cảnh, chỉ cần chưa bước vào Tiên Nhân cảnh thì tuổi thọ vẫn có hạn, tầm mắt cũng chỉ nhìn được chừng ấy núi sông[?], nào dám nói đến chuyện phúc địa ngàn năm sau. Những lão nhân tổ sư đường, cung phụng và đệ tử đích truyền còn lại cảnh giới thấp hơn, lại càng dễ nhìn gần. Chưa chắc họ không thấy lợi ích lâu dài khi nâng phẩm phúc địa, chỉ là ngàn năm sau, chuyện ấy có ích gì cho đại đạo của mình?
 
-Tả Hữu dừng bước ở một chỗ giữa sườn núi có những quầy hàng nhỏ tập trung, trong đó có một cây cờ "Nơi uống rượu cuối cùng, mau mau uống no".
+Nhưng với Tống thị Đại Ly, phúc địa này có thể giải quyết một phần khó khăn trước mắt, dùng để di dời dân chúng các nước phiên thuộc ở cực nam một châu là tiện nhất. Phẩm trật Vũ Hóa quá thấp ngược lại là chuyện tốt, tai họa ngầm rất ít, xung đột giữa tu sĩ trên núi và người phàm dưới núi gần như có thể bỏ qua. An trí nạn dân cũng không tốn kém.
 
-Đại tục đến mức khiến người ta cảm thấy dễ thân.
+Vì sao cuối cùng phúc địa rơi vào tay quân trướng yêu tộc, Tả Hữu không mấy hứng thú. Lòng người tham lam cũng được, thế sự ngoài ý muốn cũng được, dù sao hắn đã bị giam ở đây.
 
-Là chủ nhân quán rượu nhắc nhở thế nhân thắp hương cần thành tâm, người thích rượu, nhanh chóng ở đây đỡ thèm, bằng không lên cao lại uống rượu, một thân mùi rượu say khướt, cho thần tiên khai thiên nhãn nhìn thấy, dễ dàng rước lấy không vui, cầu phúc hứa nguyện liền không linh nghiệm.
+Khách hành hương trên đường không mấy để ý nam tử mặc thanh sam, dáng vẻ nho sinh, tay cầm gậy trúc xanh này. Người như vậy vốn rất thường gặp.
 
-Thần đạo lên núi thắp hương, trừ khách hành hương thành kính, còn có rất nhiều khuân vác lấy tiền làm c* li, hoặc là khuân vác hành lý cho khách hành hương, hoặc là khuân đá lên núi cho khách hành hương, để cho đỉnh núi có thể tích lũy đá, xây dựng ra phủ đệ mới. Người trước kiếm tiền ít, người sau kiếm tiền nhiều, chỉ là khoản tiền vất vả này, thật sự là làm cho người ta vất vả, cho nên một ít khách hành hương của cải giàu có, đều sẽ để khuân vác ở đây đặt chân nghỉ ngơi, mời bọn họ uống một chén rượu, tăng cường khí lực cùng lòng dạ.
+Tả Hữu dừng bước ở nơi hàng quán tụ tập giữa sườn núi. Một quán treo lá cờ viết: “Chỗ uống rượu cuối cùng, mau uống cho no”.
 
-Tả hữu bỏ tiền mua một chén rượu, khách uống rượu khá nhiều, chiếm cứ mấy bàn không lưu quá nhiều chỗ trống, trái phải không muốn chen chúc bàn với người, liền muốn đi xa một chút.
+Tục đến mức khiến người ta cảm thấy thân thiết.
 
-Người bán hàng rong thấy khách nhân kia muốn đi xa uống rượu, liền vội vàng gân cổ họng lên, muốn hắn trước trả một khoản tiền đặt cọc, bằng không liền không thể đi quá xa uống rượu.
+Chủ quán nhắc nhở thế nhân thắp hương phải thành tâm, ai thích rượu thì mau uống cho đỡ thèm ở đây. Nếu lên cao rồi mới uống, cả người say khướt nồng mùi rượu, bị thần tiên mở thiên nhãn nhìn thấy, dễ khiến thần tiên không vui, cầu phúc hứa nguyện sẽ không linh nghiệm.
 
-Nếu gặp phải khách uống rượu lương tâm không tốt, uống rượu xong, trực tiếp ném ra ngoài vách núi, các ngươi bớt lo đỡ tốn sức còn hào khí, tiểu thương chúng ta buôn bán nhỏ, tìm ai bồi thường tiền đây?
+Trên đường lên núi thắp hương, ngoài khách hành hương thành kính còn có rất nhiều người khuân vác kiếm tiền. Họ hoặc mang hành lý cho khách, hoặc vác đá lên núi để tích góp vật liệu xây phủ đệ mới trên đỉnh. Việc trước kiếm ít tiền, việc sau kiếm nhiều hơn, nhưng đều vất vả. Vì vậy một số khách hành hương giàu có sẽ để người khuân vác nghỉ chân ở đây, mời họ uống chén rượu, thêm khí lực và tinh thần.
 
-Tả Hữu đành phải bưng rượu trở về, cùng người bán hàng rong ứng ra thêm mấy văn tiền, mới đi đến lan can bên vách đá, nhìn ra xa sơn thủy phương xa, sơn thủy uốn lượn như cảnh trong chậu.
+Tả Hữu bỏ tiền mua một chén rượu. Khách uống khá đông, mấy chiếc bàn gần như đã kín chỗ; hắn không muốn ngồi chen với người khác, bèn định đi xa một chút.
 
-Lúc trước thụ thần "Vấn kiếm" Đồng Diệp tông chủ động đưa cho Đồng Diệp tông một phần tiền đồ tốt, bất luận Yêu tộc dụng tâm như thế nào, rõ ràng là muốn cho Đồng Diệp tông đại họa chuyển phúc, dù sao người đọc sách dùng tên giả chu mật kia cũng hiện thân, hắn thân là vương tọa đại yêu thứ hai của Man Hoang thiên hạ, lời thề cùng hứa hẹn của hắn quả thật có thể cho là thật.
+Người bán hàng thấy vậy vội cao giọng bảo hắn phải đặt cọc trước, bằng không không được mang chén đi xa.
 
-Cần biết trận nghị sự tổ sư đường Ngọc Khuê Tông ở tận cùng phía nam Đồng Diệp Châu, không có tông chủ ngồi xuống, từ chối đề nghị của cô gái mặt tròn áo bông, chưa giao ra tòa Vân Quật Phúc Địa kia Khương thị nắm giữ. Thế cho nên đại quân Yêu tộc công phạt không ngừng, không lưu lực nữa.
+Gặp phải khách uống rượu vô lương tâm, uống xong ném chén xuống vách núi, các vị vừa đỡ phiền vừa ra vẻ hào khí, người buôn bán nhỏ như chúng ta biết tìm ai đền tiền?
 
-Chưởng luật lão tổ tính tình nóng nảy của Ngọc Khuê Tông vừa mắng to Khương Thượng thật sự là một tên Táng Môn Tinh, vừa đánh giết tu sĩ Yêu tộc.
+Tả Hữu đành bưng rượu trở về, đặt thêm mấy văn tiền rồi mới đến bên lan can cạnh vách đá, nhìn núi sông quanh co phía xa tựa cảnh thu nhỏ trong chậu.
 
-Ngày nào đó lão tử mà treo, Ngọc Khuê Tông và Vân Quật phúc địa đều may mắn còn tồn tại, sẽ để Khương Thượng Chân đến mộ phần của ta dập đầu tạ ơn, tiếng vang sẽ lớn, bằng không nghe không được.
+Trước đó Thụ Thần “vấn kiếm” Đồng Diệp tông, chủ động đưa cho tông môn này một tiền đồ tốt đẹp. Bất kể yêu tộc có dụng tâm gì, rõ ràng là muốn biến đại họa của Đồng Diệp tông thành phúc. Dù sao người đọc sách dùng tên giả Chu Mật cũng đã hiện thân; hắn là đại yêu vương tọa thứ hai Man Hoang thiên hạ, lời thề và hứa hẹn quả thật có thể tin.
 
-Có lẽ đây chính là cái gọi là phong thủy luân chuyển. Thích chế giễu, dễ trở thành trò cười.
+Còn tại cuộc nghị sự ở tổ sư đường Ngọc Khuê tông tận phía nam Đồng Diệp châu, khi tông chủ không có mặt, mọi người đã từ chối đề nghị của thiếu nữ mặt tròn mặc áo bông, không giao phúc địa Vân Quật do Khương thị nắm giữ. Vì vậy đại quân yêu tộc liên tục công phạt, không còn lưu thủ.
 
-Ngọc Khuê Tông nhìn trò cười lớn vài năm của Đồng Diệp tông, hình như lúc này nên đến phiên tu sĩ Đồng Diệp tông, đến xem trò cười của Ngọc Khuê Tông, mà cơ hội này, dễ như trở bàn tay, gật đầu là được.
+Lão tổ chưởng luật nóng nảy của Ngọc Khuê tông vừa giết tu sĩ yêu tộc vừa mắng Khương Thượng Chân đúng là một tên tang môn tinh.
 
-Chỉ cần tổ sư đường Đồng Diệp tông bắt được kỳ ngộ này, nói không chừng về sau trực tiếp thâu tóm Ngọc Khuê Tông, mang đối thủ một mất một còn biến thành phiên thuộc hạ tông, cũng không phải hy vọng xa vời gì.
+Ngày nào đó lão tử chết rồi, nếu Ngọc Khuê tông và phúc địa Vân Quật may mắn còn tồn tại, nhất định phải bảo Khương Thượng Chân đến trước mộ ta dập đầu tạ ơn. Dập cho vang lên, bằng không ta không nghe thấy.
 
-Nhưng mà tu sĩ một tông của Đồng Diệp tông, lòng người sắp nát lại chưa vỡ, bởi vì nhân số tổ sư đường Đồng Diệp tông mỗi người giữ ý kiến của mình, thế mà lại là một nửa đối một nửa.
+Có lẽ đây chính là phong thủy luân chuyển. Kẻ thích cười nhạo người khác cũng dễ trở thành trò cười.
 
-Trái phải thật ra đã tính là khá bất ngờ, vốn tưởng tu sĩ Đồng Diệp tông từ trên xuống dưới, vô luận già trẻ, đều sẽ lập tức đào ngũ, cùng nhau đuổi mình xuất cảnh. Không ngờ những tu sĩ trẻ tuổi Đồng Diệp tông bối phận thấp hơn chút nữa, tuổi nhỏ hơn kia, thế mà có thể liều mạng lo xa gần cùng nhau gánh vác, chẳng những từ chối lời mời của Man Hoang thiên hạ, cũng phải tìm được, dám nói một câu "Khẩn cầu Tả tiên sinh cần phải lưu lại, phía sau Tả tiên sinh cứ việc giao cho chúng ta phụ trách".
+Ngọc Khuê tông đã xem trò cười của Đồng Diệp tông mấy năm, dường như bây giờ đến lượt tu sĩ Đồng Diệp tông xem trò cười của Ngọc Khuê tông. Cơ hội ấy dễ như trở bàn tay, chỉ cần gật đầu là được.
 
-Lão tu sĩ sống càng nhiều trăm năm ngàn năm, còn muốn sống lâu, người trẻ tuổi đi lại đại đạo còn chưa được mấy năm, lại thiên nguyện chết như vậy.
+Nếu tổ sư đường Đồng Diệp tông nắm lấy cơ hội, nói không chừng về sau trực tiếp thâu tóm Ngọc Khuê tông, biến đối thủ một mất một còn thành hạ tông phụ thuộc cũng không phải hy vọng xa vời.
 
-Tả Hữu tại một khắc này, đột nhiên cảm thấy giống như thế đạo thật sự đang trở nên tốt hơn.
+Thế nhưng lòng người Đồng Diệp tông tuy sắp tan vỡ mà vẫn chưa tan. Các thành viên tổ sư đường giữ ý kiến riêng, số người đồng ý và phản đối lại chia đều một nửa.
 
-Thế đạo trước đây rất ít khi khiến Tả Hữu không khó xử như thế.
+Tả Hữu khá bất ngờ. Vốn hắn tưởng tu sĩ Đồng Diệp tông từ trên xuống dưới, bất luận già trẻ đều sẽ lập tức đào ngũ, cùng nhau đuổi hắn ra khỏi địa giới. Không ngờ lớp tu sĩ trẻ tuổi, bối phận thấp hơn lại sẵn lòng liều mạng gánh vác, chẳng những từ chối lời mời của Man Hoang thiên hạ, còn tìm đến hắn, dám nói: “Khẩn cầu Tả tiên sinh nhất định phải ở lại. Phía sau tiên sinh cứ giao cho chúng ta phụ trách.”
 
-Ví dụ như trước kia gặp phải phôi thai kiếm tiên cậy lực làm việc, trượng kiếm càng cậy thế xuống núi, trái phải sẽ tương đối khó xử, là đánh chết, hay là đánh gần chết.
+Lão tu sĩ đã sống mấy trăm, mấy ngàn năm vẫn muốn sống lâu hơn. Người trẻ tuổi đi trên đại đạo chưa được mấy năm lại tình nguyện chết như vậy.
 
-Chỉ cần Tả Hữu còn đang ở Đồng Diệp tông, kiếm khí còn ở Đồng Diệp châu, đối với thiên hạ hoang dã mà nói, chính là như nghẹn ở cổ họng, không phun không được.
+Giờ khắc ấy, Tả Hữu chợt cảm thấy thế đạo dường như thật sự đang trở nên tốt hơn.
 
-Sau khi Tiêu Tiển phá vỡ Phi Thăng cảnh Tuân Uyên Kim, liền đi tới Nam Bà Sa châu tương đối an ổn trong cuộc chiến, nói muốn đánh rơi xuống mặt trăng trên vai Trần Thuần An, đồng thời thuận tiện gặp Lục Chi một lần.
+Trước đây thế đạo rất ít khi khiến Tả Hữu không khó xử như thế.
 
-Cho nên Giáp Thân trướng guốc gỗ kiến ngôn, Kiếm Tiên Thụ Thần phụ trách thực thi mưu đồ cụ thể, cuối cùng dùng một phúc địa hạ đẳng tổng cộng không đủ ngàn vạn nhân số, thành công giam giữ tả hữu.
+Chẳng hạn gặp một mầm kiếm tiên ỷ vào sức mình làm bậy, cậy kiếm cậy thế xuống núi, Tả Hữu sẽ khá khó xử: nên đánh chết hay đánh gần chết?
 
-Thụ Thần nhìn như hỏi kiếm, kì thực thủ đoạn chân chính, lại đột nhiên mở ra một tòa phúc địa thiên địa cấm chế vũ hóa, hung ác đánh về phía trái phải, đồng thời bên trong phúc địa, có một tu sĩ yêu tộc Ngọc Phác cảnh tâm tồn tử chí, ngoắc ngoắc ngón tay sang hai bên. Ý tứ rất rõ ràng, hoặc là nhập cục, hoặc là trơ mắt nhìn một tòa phúc địa vỡ nát ở trước mắt ngươi.
+Chỉ cần Tả Hữu còn ở Đồng Diệp tông, kiếm khí còn ở Đồng Diệp châu, đối với Man Hoang thiên hạ hắn chính là cái gai trong cổ họng, không nhổ ra không được.
 
-Cùng lúc đó, Chu Mật thi triển đại thủ bút thay đổi thiên địa, khiến cho Tả Hữu đang ở bên trong phúc địa.
+Sau khi Tiêu Tiển phá vỡ Phi Thăng cảnh của Tuân Uyên[?], hắn đến Nam Bà Sa châu tương đối yên ổn trong cuộc chiến, nói muốn đánh rơi mặt trăng trên vai Trần Thuần An, đồng thời tiện đường gặp Lục Chi.
 
-Tả Hữu chưa tùy ý phúc địa nghiền nát ở địa giới Đồng Diệp tông, trừ kiếm chém Yêu tộc, còn lấy kiếm khí đi xa vách chắn thiên địa, lấy một thân kiếm khí làm Thiên Địa Đại Trận, che chở phúc địa.
+Vì vậy kẻ đi guốc gỗ ở Giáp Thân trướng hiến kế, kiếm tiên Thụ Thần phụ trách thực hiện, cuối cùng dùng một phúc địa hạ đẳng chưa đến ngàn vạn dân để giam giữ Tả Hữu.
+
+Thụ Thần nhìn như đến hỏi kiếm, thủ đoạn thật sự lại là đột ngột mở cấm chế thiên địa của phúc địa Vũ Hóa, hung hăng ném về phía Tả Hữu. Cùng lúc đó, một tu sĩ yêu tộc Ngọc Phác cảnh đã ôm lòng quyết chết ở trong phúc địa ngoắc ngón tay với hắn. Ý tứ rất rõ: hoặc là vào cuộc, hoặc trơ mắt nhìn phúc địa vỡ nát trước mặt.
+
+Đồng thời Chu Mật thi triển thủ đoạn lớn đổi dời thiên địa, đưa Tả Hữu vào trong phúc địa.
+
+Tả Hữu không để mặc phúc địa vỡ nát trên địa giới Đồng Diệp tông. Hắn xuất kiếm chém yêu tộc, còn đưa kiếm khí đến tận vách chắn thiên địa, dùng một thân kiếm khí làm đại trận che chở phúc địa.
 
 Không chút do dự.
 
-Sau đó được Chu Mật khôi phục sơn hà nguyên bản, thụ thần thì lập tức đóng lại cấm chế phúc địa, ngăn cách thiên địa lớn nhỏ, khiến cho trái phải tạm thời bị giam giữ ở đây, đồng thời trước cắm rễ ở Đồng Diệp Châu, phù hợp với đại đạo của Man Hoang Thiên Hạ, lại hạ lệnh hai đại yêu Tiên Nhân Cảnh, không ngừng lấy thuật pháp thần thông liên tục công phạt bức tường phúc địa, tiên nhân thuật pháp cùng đại đạo liên thủ, lấy cái này không ngừng mài mòn kiếm ý cùng đạo hạnh, không truy cầu kết quả đánh nát phúc địa, cũng không khiến Tả Hữu ở trong phúc địa vũ hóa quá mức thoải mái.
+Sau đó Chu Mật khôi phục núi sông như cũ, Thụ Thần lập tức đóng cấm chế phúc địa, ngăn cách thiên địa lớn nhỏ, tạm thời giam Tả Hữu ở đây. Hắn còn cắm rễ tại Đồng Diệp châu, phù hợp với đại đạo Man Hoang thiên hạ, hạ lệnh cho hai đại yêu Tiên Nhân cảnh liên tục dùng thần thông thuật pháp công kích vách chắn phúc địa. Thuật pháp và đại đạo của tiên nhân hợp sức, không ngừng mài mòn kiếm ý và đạo hạnh của Tả Hữu. Chúng không cầu đánh nát phúc địa, nhưng cũng không để hắn ở trong Vũ Hóa quá thoải mái.
 
-Kể từ đó, cho dù Tả Hữu tùy tiện đưa ra một kiếm, muốn kéo động thiên địa, trái phải rời đi, nhưng một khi không có người quản phúc địa, sẽ long trời lở đất, sẽ chết rất nhiều người.
+Bởi vậy, cho dù Tả Hữu có thể tùy tiện xuất một kiếm, dẫn động thiên địa để rời đi, một khi không còn ai trông coi phúc địa thì nơi này sẽ long trời lở đất, rất nhiều người phải chết.
 
-Sau khi vững chắc ở ranh giới thiên địa bình chướng, hắn bắt đầu quan sát cẩn thận phúc địa nhỏ này.
+Sau khi củng cố bình chướng ở ranh giới thiên địa, hắn bắt đầu quan sát kỹ phúc địa nhỏ này. Một thân hạo nhiên kiếm khí vẫn tránh xa nhân gian.
 
-Một thân hạo nhiên kiếm khí, vẫn là rời xa nhân gian.
+Tả Hữu muốn rời phúc địa trở về Đồng Diệp châu của Hạo Nhiên thiên hạ thì đơn giản vô cùng, tùy tiện một kiếm chém mở màn trời là được, chỉ cần không để ý đến sự sống chết tồn vong của phúc địa Vũ Hóa. Đừng nói Tả Hữu, ngay cả Khương Thượng Chân tế ra mảnh lá liễu kia cũng làm được.
 
-Tả Hữu muốn rời khỏi phúc địa, trở về Đồng Diệp châu Hạo Nhiên Thiên Hạ, đơn giản đến cực điểm, tùy tiện một kiếm khai thiên màn là được, không để ý tới sinh tử tồn vong của phúc địa vũ hóa là được, đừng nói là tả hữu, cho dù Khương Thượng Chân tế ra một mảnh lá liễu kia, đều như nhau đều làm được.
+Cho nên vây Khương Thượng Chân ở đây chẳng có ý nghĩa gì. Hắn tất nhiên sẽ quả quyết xuất kiếm; sau một kiếm ấy, đừng nói phúc địa thương vong trăm vạn, cho dù phúc địa vỡ vụn, ngàn vạn người phàm đều chết hết, tâm cảnh Khương Thượng Chân cũng không gợn sóng.
 
-Cho nên vây Khương Thượng Chân ở nơi đây, không có chút ý nghĩa nào, Khương Thượng Chân tất nhiên sẽ xuất kiếm quả quyết, sau khi xuất kiếm đừng nói là phúc địa thương vong trăm vạn, thậm chí là phúc địa vỡ vụn, ngàn vạn tục tử đều chết hết, Khương Thượng Chân cũng sẽ không có nửa điểm gợn sóng tâm cảnh.
+Năm đó Khương Thượng Chân suýt lật thuyền trong mương nhà mình, khi hỏi tội đám địa tiên kiệt ngạo cầm đầu gây loạn ở phúc địa Vân Quật, trên núi dưới núi thương vong đâu chỉ trăm vạn.
 
-Năm đó Khương Thượng Chân thiếu chút nữa lật thuyền trong mương nhà mình, hỏi tội đám địa tiên kiệt ngạo dẫn đầu Vân Quật phúc địa quấy phá, trên núi dưới núi thương vong đâu chỉ trăm vạn người.
+Nhưng Tả Hữu dự định tạm ở lại đây, cho đến khi nghĩ ra một cách phá giải ổn thỏa[?].
 
-Thế nhưng Tả Hữu dự định ở tạm tại đây, thẳng đến nghĩ ra một phương pháp phá giải không khó.
+Chân thân hắn bởi vậy không thể động đậy, giống như nhập định tại chỗ. Thủ đoạn của Chu Mật chu đáo khác thường. Trước khi bảo Thụ Thần ném phúc địa ra, hắn đã lập sẵn một đạo “đại đạo sắc lệnh” bên trong, giống như danh xứng với thực thay trời hành đạo, chuyên dùng áp chế kiếm khí nhân gian. Bởi vậy Tả Hữu chỉ có thể để âm thần đi xa; nếu không sẽ rút dây động rừng. Thứ được gọi là thiên đạo nơi này không thể làm kiếm tiên bị thương, nhưng lại khiến nhân gian khắp nơi gặp họa.
 
-Điều này khiến cho tả hữu chân thân không thể động đậy, giống như nhập định ở chỗ lúc trước. Thủ đoạn chu đáo chặt chẽ không tầm thường, trước khi khiến cho thụ thần ném ra khỏi phúc địa, đã sớm thiết lập một "Đại Đạo Sắc Lệnh" ở bên trong phúc địa, giống như "Thay trời hành đạo" danh xứng với thực, chuyên dùng để áp thắng kiếm khí nhân gian, cho nên chỉ có thể là âm thần đi xa, nếu không rút dây động rừng, nơi đây gọi là thiên đạo, không cách nào tổn thương tới kiếm tiên, nhưng lại khiến nhân gian khắp nơi gặp rủi ro.
+Ví như trước đó Tả Hữu chém yêu tộc, trên màn trời phúc địa xuất hiện một khe rãnh khổng lồ dài vạn dặm. Đó là vì hắn đã dốc sức dẫn dắt kiếm khí và đại đạo của mình vận chuyển, bằng không sau một kiếm giết yêu, nhân gian vạn dặm sẽ gặp tai ương vô số.
 
-Ví dụ như lúc trước Tả Hữu Kiếm Trảm Yêu tộc, ngay trên màn trời phúc địa, một kiếm bổ ra một khe rãnh thật lớn dài đến vạn dặm, đây là Tả Hữu kiệt lực dẫn dắt kiếm khí và đại đạo bản thân vận chuyển, bằng không sau khi một kiếm giết yêu, nhân gian vạn dặm sẽ gặp tai ương vô số.
+Khe nứt vạn dặm tựa như xé rách bầu trời. Trong mắt số ít tu sĩ đã bước lên núi tu hành ở phúc địa, nó giống một dải cầu vồng kiếm khí lơ lửng giữa trời đất, hào quang lưu ly cùng kiếm khí không ngừng lưu chuyển.
 
-Một khe nứt vạn dặm giống như xé rách bầu trời, trong mắt một số ít tu sĩ đặt chân lên núi trong phúc địa, tựa như một dải cầu vồng kiếm khí, lơ lửng trong thiên địa, lưu ly hào quang, cùng kiếm khí lưu chuyển không ngừng.
+Một thân kiếm khí vô địch có thể giết địch của Tả Hữu bây giờ chỉ có thể dùng để dựng biên giới thiên địa, ngăn thần thông thuật pháp của yêu tộc tùy ý đánh vỡ vách chắn phúc địa.
 
-Tả Hữu một thân kiếm khí, vô địch khả sát, cũng chỉ có thể dùng để tạo ra biên cảnh thiên địa, phòng ngừa thuật pháp thần thông của tu sĩ Yêu tộc, tùy ý đánh vỡ vách chắn phúc địa.
+Nếu không, chỉ một chút dị tượng trời đất cũng khiến dân chúng Vũ Hóa chịu thiên tai: mưa lớn kéo dài bảy ngày, nước lũ ngập trời; hoặc hạn hán mấy năm, đất đỏ ngàn dặm; hoặc tuyết rơi suốt mùa đông, đông chết vạn vật.
 
-Nếu không thiên địa dị tượng thoáng cùng nhau, dân chúng muôn dân của phúc địa vũ hóa sẽ phải chịu loại thiên tai khó khăn, hoặc mưa to kéo dài một tuần, dẫn đến nước lũ ngập trời, hoặc mấy năm hạn hán, đất đai màu đỏ ngàn dặm, hoặc tuyết rơi đầy cả mùa đông, đông lạnh giết vạn vật.
+Ban đầu Tả Hữu còn tưởng trong phúc địa có hậu thủ của yêu tộc chờ thời cơ, chẳng hạn một đại yêu vương tọa ẩn náu ở đây. Nhưng sau mấy lần dò xét thiên địa, hắn vẫn không phát hiện gì.
 
-Ngay từ đầu, hai bên đều cho rằng bên trong phúc địa vẫn còn có Yêu tộc lưu lại hậu thủ, tùy thời mà động, ví dụ như một con Đại Yêu Vương Tọa ẩn nấp ở đây, nhưng mà mấy lần dò xét thiên địa, vẫn không phát hiện được gì.
+Điều này cũng bình thường. Hai bên đại chiến, một khi đánh nát phúc địa khiến núi sông diệt vong, chẳng khác nào giúp Tả Hữu hoàn toàn thoát khỏi nhà giam. Khi ấy đến lượt hắn dốc sức xuất kiếm, cũng không chỉ là Khương Thượng Chân tế lá liễu đâm thẳng về phía đông như vậy.
 
-Cũng bình thường, song phương đại chiến, một khi đánh nát phúc địa, dẫn đến sơn hà bị diệt, chẳng khác nào khiến cho Tả Hữu triệt để tránh thoát khỏi lao tù, đến lúc đó đến phiên hắn dốc sức xuất kiếm, cũng không phải là Khương Thượng Chân tế ra lá liễu, đâm thẳng về phía đông một cái như vậy.
+Xác định phúc địa Vũ Hóa không còn đại yêu ẩn giấu, Tả Hữu mới để âm thần xuất khiếu đi xa.
 
-Sau khi xác định phúc địa vũ hóa không còn đại yêu ẩn tàng, trái phải liền bắt đầu âm thần xuất khiếu đi xa.
+Phúc địa mang tên Vũ Hóa nghe rất có ý nghĩa, trên thực tế lại hữu danh vô thực, chỉ là tài sản riêng của một tiên gia Đồng Diệp châu có phẩm trật thấp.
 
-Phúc địa tên là phúc địa vũ hóa, tên rất có ý nghĩa, trên thực tế lại hữu danh vô thực, thật sự chỉ là tài sản riêng của một tiên gia tự đầu thấp kém Đồng Diệp Châu.
+Năm đó một tu sĩ nơi này kết đan rồi “phi thăng” rời đi, trên đường đến “thiên ngoại thiên” Đồng Diệp châu được tông môn kia thu nhận. Dù tu sĩ này che giấu rất kỹ, tổ sư trên núi vẫn phát hiện phúc địa quê nhà của hắn, lần theo dấu vết suy tính ra vị trí đại khái, mất mấy chục năm mới vớt được phúc địa nhỏ này từ gần bờ sông thời gian[?] lên.
 
-Năm đó tu sĩ nơi đây Kết Đan "Phi Thăng" rời đi, ở trên đường "Thiên Ngoại Thiên" Đồng Diệp Châu, sau đó, bị tiên gia đầu chữ "Tông" kia thu hút, cho dù tu sĩ che giấu cực sâu, vẫn như cũ khiến cho phúc địa quê nhà bị tổ sư đỉnh núi phát hiện, thôi diễn một phen, theo dấu vết để lại, ra địa chỉ đại khái, hao phí mấy chục năm, cuối cùng vớt tòa phúc địa nhỏ này từ chỗ "Sài gần bờ thời gian" của Quang Âm Trường Hà lên.
+Sau đó tông môn đương nhiên mở cửa phúc địa, lấy tư thái trích tiên giáng thế, dò xét phúc địa, cướp lấy thiên tài địa bảo được trời đất sinh ra, tìm ngọc tốt thích hợp tu đạo.
 
-Sau đó chính là thuận lý thành chương mở ra đại môn, trích tiên hạ xuống, khám nghiệm phúc địa, cướp đoạt thiên tài địa bảo sinh ra theo thời thế, tìm kiếm mỹ ngọc thích hợp tu đạo.
+Chỉ tiếc sản vật nơi này quá nghèo nàn, thiên tài địa bảo lọt mắt họ đếm được trên đầu ngón tay. Thiên tài tu đạo càng khan hiếm, thỉnh thoảng mới có một người; sau khi đưa ra khỏi phúc địa, dốc lòng bồi dưỡng cũng thường chẳng đạt thành tựu gì lớn, nhiều nhất tu thành Kim Đan. Với một tông môn tiên gia, dù nắm giữ phúc địa này cũng là nhập không đủ xuất.
 
-Chỉ là phúc địa nơi này, sản vật quá mức cằn cỗi, thiên tài địa bảo có thể lọt vào mắt, có thể đếm được trên đầu ngón tay, cái gọi là thiên tài tu đạo, càng là thời kì giáp hạt, ngẫu nhiên có một cái như vậy, sau khi mang ra khỏi phúc địa, dốc lòng tài bồi, cũng thường thường không có tác dụng gì lớn, nhiều nhất tu thành Kim Đan. Đối với một vị tiên gia đầu chữ tông mà nói, cho dù tay nắm một tòa phúc địa, lại là điển hình nhập không đủ xuất.
+Tiên sư gia phả cùng con cháu môn phiệt phú quý khác tiêu tiền đến phúc địa du ngoạn với tư thái trích tiên, nhưng do tư chất của họ và phẩm cấp phúc địa hạn chế, rốt cuộc thu hoạch quá ít. Những đỉnh núi tiên gia khác ở Đồng Diệp châu đều thấy đây là vụ mua bán lỗ vốn. Lâu dần, Vũ Hóa vẫn chỉ là phúc địa hạ đẳng.
 
-Về phần tiên sư gia phả cùng đệ tử môn phiệt phú quý khác, lấy tư thái trích tiên nhân, tiêu tiền du lịch phúc địa, chịu giới hạn bởi tư chất cùng phẩm cấp phúc địa, rốt cuộc thu hoạch quá nhỏ, cho nên đỉnh núi tiên gia khác của Đồng Diệp Châu đều cảm thấy làm một vụ mua bán lỗ vốn, dần dà, phúc địa vũ hóa vẫn là một phúc địa hạ đẳng. Tông môn thiên hạ đều nguyện ý mang phúc địa trung đẳng tăng lên thành phúc địa thượng đẳng, đập nhiều tiền thần tiên nhiều hơn nữa cũng siêng năng không mỏi mệt, chỉ có mang phúc địa hạ đẳng tăng lên thành phúc địa trung đẳng, thực sự chưa chắc nguyện ý, cho nên trên núi mới có một cách nói "Phúc địa hạ đẳng, có không bằng không".
+Các tông môn trong thiên hạ đều sẵn lòng nâng phúc địa trung đẳng lên thượng đẳng, đổ bao nhiêu tiền thần tiên cũng không biết mệt. Nhưng bảo họ nâng phúc địa hạ đẳng lên trung đẳng thì chưa chắc ai chịu làm. Vì thế trên núi có câu: “Phúc địa hạ đẳng, có chẳng bằng không.”
 
-Rơi vào trong tay đại tông môn, có thể bất kể tiền vốn, cuối cùng nước chảy nhỏ, đạt được một khoản lợi nhuận lâu dài, chuyển thiệt thành lợi nhuận. Nhưng trong lịch sử không ít tông môn nhỏ vốn liếng không đủ hùng hậu, thường thường bị hại ngược lại, cuối cùng phần lớn lựa chọn bán qua tay cho tông môn trên núi tài đại khí thô.
+Nếu rơi vào tay đại tông môn không ngại bỏ vốn, cuối cùng tích góp từng chút vẫn có thể kiếm lời lâu dài, chuyển lỗ thành lãi. Nhưng trong lịch sử có không ít tông môn nhỏ vốn liếng không đủ, thường bị phúc địa kéo lụy, cuối cùng phần lớn phải bán lại cho tông môn giàu có trên núi.
 
-Phẩm cấp phúc địa cao thấp, trừ mức độ núi sông phúc địa rộng lớn cùng số lượng nhân khẩu, linh khí trong thiên địa chất chứa nhiều ít, càng là quan trọng nhất, bằng không mặc cho phúc địa phúc địa diện tích lãnh thổ bao la ngàn vạn dặm, dân cư nhiều tới mấy ngàn vạn, phàm tục phu tử không thích hợp lên núi tu hành, ngưỡng cửa tu đạo quá cao, bình cảnh lại quá lớn, thế cho nên người tu đạo, đều là hạ ngũ cảnh, ngay cả động phủ cảnh cũng là hy vọng xa vời, hoặc là cái gọi là "đắc đạo thành tiên", liền chỉ là động phủ cảnh tầng thứ nhất trung ngũ cảnh, phúc địa phẩm trật đương nhiên cũng chỉ có thể nhận được bình luận "Hạ đẳng".
+Phẩm cấp phúc địa cao thấp, ngoài diện tích núi sông và dân số, điều quan trọng nhất là lượng linh khí trong thiên địa. Nếu không, cho dù phúc địa rộng ngàn vạn dặm, dân cư mấy ngàn vạn, nhưng người phàm khó lên núi tu hành, ngưỡng cửa tu đạo quá cao, bình cảnh quá lớn, tu sĩ đều dừng ở hạ ngũ cảnh, ngay cả Động Phủ cảnh cũng là hy vọng xa vời, hoặc cái gọi là “đắc đạo thành tiên” chỉ là bước vào Động Phủ cảnh đầu tiên của trung ngũ cảnh, phẩm trật phúc địa đương nhiên chỉ được xếp hạ đẳng.
 
-Mà tòa phúc địa vũ hóa này, đạo sĩ đời thứ ba mươi sáu của Thanh Long cung trên đỉnh núi, quan chủ đời đầu của bảo tích quan, thuộc loại thiên tài tu đạo hội tụ thiên địa linh khí, phúc duyên ngàn vạn, ở một phúc địa hạ đẳng, chẳng những tu ra Long Môn cảnh xưa nay chưa từng có, cuối cùng lại tu ra một viên Kim Đan, cho nên được thiên địa đại đạo thanh nhãn cộng thêm, cho phép hắn phá vỡ màn trời, đi xa tha hương.
+Vị đạo sĩ đời thứ ba mươi sáu của Thanh Long cung trên đỉnh núi, cũng là quan chủ đời đầu Bảo Tích quan trong phúc địa Vũ Hóa, chính là thiên tài tu đạo hội tụ linh khí trời đất, phúc duyên sâu dày. Tại một phúc địa hạ đẳng, ông không chỉ tu thành Long Môn cảnh chưa từng có, cuối cùng còn kết được một viên Kim Đan, nhờ đó được đại đạo thiên địa ưu ái, cho phép phá màn trời đi xa tha hương.
 
 Chỉ tiếc thế sự vô thường.
 
-Người tu đạo xuất thân phúc địa, một số người may mắn nào đó gánh chịu thiên địa khí số, một người tiên duyên lên, thiên hạ bắt đầu nỗi lo.
+Trong số tu sĩ xuất thân từ phúc địa, có người may mắn gánh chịu khí số của trời đất. Một người được tiên duyên, thiên hạ quê nhà lại bắt đầu lo lắng.
 
-Tòa phúc địa vũ hóa này coi như vạn hạnh trong bất hạnh, bảo vệ phúc địa, đến nay chưa bị hủy, trong lịch sử Hạo Nhiên Thiên Hạ không ít phúc địa, bởi vì có người sau khi "phi thăng", một lần vô ý, tiết lộ nền móng, không thể được đại tông môn nào đó thu vào trong túi, bảo vệ chặt chẽ, cuối cùng đều là kết cục bi thảm núi sông phúc địa nghiền nát người chết hết. Cũng có rất nhiều phúc địa hạ đẳng, bị tu sĩ chỉ thấy lợi trước mắt mà bắt, hoàn toàn đoạn tuyệt con đường lên núi của tu sĩ bản thổ.
+Phúc địa Vũ Hóa coi như may mắn trong bất hạnh, vẫn được bảo toàn cho đến hôm nay. Trong lịch sử Hạo Nhiên thiên hạ, không ít phúc địa vì có người “phi thăng”, vô ý tiết lộ lai lịch, lại không được đại tông môn nào thu vào tay bảo vệ chặt chẽ, cuối cùng đều có kết cục thê thảm: núi sông vỡ nát, người chết sạch. Cũng có rất nhiều phúc địa hạ đẳng bị tu sĩ chỉ nhìn lợi trước mắt chiếm lấy, hoàn toàn đoạn tuyệt con đường lên núi của tu sĩ bản thổ.
 
-Đương nhiên phúc địa hạ đẳng bởi vì một người, ở Hạo Nhiên Thiên Hạ ứng vận mà lên, vẫn là đa số.
+Đương nhiên, phúc địa hạ đẳng nhờ một người mà thuận theo thời vận hưng thịnh ở Hạo Nhiên thiên hạ vẫn chiếm đa số.
 
-Một cô gái trẻ tuổi quần áo hoa mỹ, thừa dịp trưởng bối trong nhà đang nghỉ chân ở đây, nàng liền mang theo nha hoàn bên người, cùng mẫu thân lấy cớ ngắm cảnh, đi tới bên cạnh vị thư sinh thanh sam một mình bưng bát uống rượu kia, nàng nhấc lên một cước che mặt, khuôn mặt ửng đỏ, nhẹ giọng nói: "Xin hỏi công tử là người phương nào?"
+Một thiếu nữ trẻ tuổi quần áo hoa mỹ thấy trưởng bối trong nhà đang nghỉ chân, bèn lấy cớ ngắm cảnh với mẫu thân, mang nha hoàn đến bên thư sinh thanh sam đang một mình bưng bát rượu. Nàng vén một góc khăn che mặt, hai má ửng hồng, nhẹ giọng hỏi:
 
-Tả Hữu quay đầu đáp: "Một cô nương chưa từng nghe qua."
+“Xin hỏi công tử là người phương nào?”
 
-Gương mặt cô gái kia ửng đỏ, son như phấn, cười nói: "Công tử nói rồi, ta sẽ biết."
+Tả Hữu quay đầu đáp: “Một người cô nương chưa từng nghe qua.”
 
-Tả Hữu lắc đầu nói: "Cho dù ta nói, cô nương vẫn không biết."
+Thiếu nữ mặt đỏ như thoa phấn, cười nói: “Công tử nói rồi, ta sẽ biết.”
 
-Nếu là dĩ vãng, trái phải hoặc là ngoảnh mặt làm ngơ, hoặc là chỉ đáp hỏi một câu.
+Tả Hữu lắc đầu: “Cho dù ta nói, cô nương vẫn không biết.”
 
-Nhưng lần trước sau khi gặp lại tiên sinh rồi lại biệt ly, trái phải cảm thấy có thể tính tình của mình, quả thật cần sửa lại một chút.
+Nếu là trước kia, hắn hoặc sẽ làm như không thấy, hoặc chỉ đáp một câu.
 
-Tỷ như đem nữ tử thế gian bắt chuyện, nghiêm túc coi như một hồi vấn kiếm?
+Nhưng sau lần gặp lại tiên sinh rồi ly biệt vừa qua, Tả Hữu cảm thấy tính tình mình quả thật cần sửa đổi đôi chút.
+
+Chẳng hạn, nghiêm túc coi chuyện nữ tử thế gian đến bắt chuyện như một lần vấn kiếm?
 
 Cho nên hôm nay Tả Hữu nói thêm một hai câu.
 
-Vị cô nương kia không biết vì sao xấu hổ rời đi. Cô gái bên cạnh cô nương, lại căm tức vạn phần, thư sinh này chất phác, bạch sinh một bộ tuấn tú da nang.
+Thiếu nữ chẳng biết vì sao xấu hổ rời đi. Nha hoàn bên cạnh thì tức giận vô cùng, thầm trách thư sinh này quá đần độn, uổng công có bộ mặt tuấn tú.
 
-Tốt lắm, vấn kiếm kết thúc.
+Tốt lắm, vấn kiếm kết thúc. Dứt khoát lưu loát, không dây dưa.
 
-Dứt khoát lưu loát, không chút dây dưa dài dòng.
+Tả Hữu xoay người trả bát không cho người bán hàng. Người nọ lẩm bẩm oán trách, một chén rượu uống cả buổi, không phải làm chậm trễ hắn kiếm tiền thì là gì? Người đọc sách kia rốt cuộc lên núi thắp hương hay đến lừa gạt nữ tử nhà giàu?
 
-Tả hữu xoay người đi đến, cùng người bán hàng rong kia trả lại cái bát không trong tay, người bán hàng rong còn lẩm bẩm oán trách vài câu, một chén rượu uống cả buổi, không phải chậm trễ kiếm tiền thì là cái gì, người đọc sách nói nhảm những thứ này, rốt cuộc là thắp hương tới, hay là lừa gạt nữ tử nhà có tiền tới?
+Ta có oán khí nên chỉ nói nhỏ, ngươi nghe thấy mà người ngoài không nghe thấy. Nếu người đọc sách nhà ngươi bụng dạ hẹp hòi, vậy là mất hết vẻ nhã nhặn. Thật muốn đánh nhau, chẳng lẽ ta sợ ngươi?!
 
-Lòng ta có oán khí, chỉ là nhỏ giọng nói, ngươi nghe thấy người ngoài không nghe thấy, ngươi người đọc sách này nếu độ lượng không lớn, chính là quét rác nhã nhặn, thật muốn đánh nhau, sợ ngươi hay sao?!
+Đổi thành người đọc sách bình thường, hẳn chỉ coi như gió thoảng bên tai, lên núi thắp hương thì không gây chuyện thị phi.
 
-Đổi thành người đọc sách bình thường, cũng chỉ coi như gió thoảng bên tai, lên núi thắp hương, không gây chuyện thị phi.
+Nhưng thư sinh kia lại dừng bước: “Ngươi nói lại lần nữa xem.”
 
-Nhưng thư sinh kia lại dừng bước nói: "Ngươi lặp lại lần nữa xem."
+Người bán hàng thoáng nổi giận, nhưng nhìn thư sinh thanh sam không những không thấp mà còn khá cao, hắn bèn dời mắt, không dám nhìn thẳng kẻ tính tình không tốt này, nhỏ giọng nói: “Không có gì, không có gì, khách quan nghe lầm rồi.”
 
-Người bán hàng rong bỗng nhiên nổi trận lôi đình, chỉ là lại nhìn đối phương, thư sinh áo sam xanh vóc dáng không thấp còn rất cao, liền phẫn nộ thiên chuyển tầm mắt, không dám đối diện với tên tính tình thật kém kia, nhỏ giọng nói: "Không có gì không có gì, khách quan nghe lầm."
+Tả Hữu đưa tay ra.
 
-Hắn vươn tay trái phải.
+Người bán hàng ngẩn người hồi lâu mới nhớ trả lại tiền đặt cọc ban nãy. Đưa tiền xong, hắn vẫn thầm oán: nghèo kiết xác!
 
-Người bán hàng rong sửng sốt nửa ngày, mới nhớ rõ trả lại bút tiền mà đối phương trả lúc trước. Sau khi đưa tiền, trong lòng oán thầm không thôi, nghèo kiết xác!
+Tả Hữu tiếp tục đi về phía Thúy Tùng cung. Một lão Nguyên Anh chết trận nơi tha hương, đối với đại thế mênh mông của Hạo Nhiên thiên hạ, dường như chỉ là hạt muối bỏ biển, chẳng có ích gì. Nhưng Tả Hữu không nghĩ như vậy.
 
-Tả Hữu tiếp tục đi về phía Thúy Tùng cung, một vị lão Nguyên Anh chết trận tha hương, đối với đại thế hùng hổ của Hạo Nhiên Thiên Hạ, giống như chỉ là như muối bỏ biển, không có ích lợi gì, nhưng mà Tả Hữu không cảm thấy như vậy.
+Năm đó bốn đệ tử đích truyền Văn Thánh nhất mạch nhìn thấy chuyện nhỏ tương tự, Thôi Sàm sẽ tìm tòi chỗ sâu kín trong lòng người, nói không chừng vì một chuyện hay một người trên quan đạo mà bỏ ra mấy tháng, nửa năm. Tên to con kia thì chẳng bận tâm, chuyện lớn đến đâu đặt lên đầu cũng vậy: muốn chọc ta tức giận thì phải có bản lãnh, bằng không đều vô ích. Tiểu Tề có lẽ sẽ cân nhắc nhiều hơn đến phong tục, chỉ có Tả Hữu cứ muốn đối mặt phân cao thấp với người ta, không làm rõ trắng đen thì không chịu bỏ qua.
 
-Năm đó bốn vị đích truyền của Văn Thánh nhất mạch, nhìn thấy việc nhỏ tương tự, Thôi Sàm sẽ tìm tòi nghiên cứu chỗ nhỏ bé của lòng người, nói không chừng mượn chuyện nào đó của quan đạo người nào đó, tiêu hao thời gian mấy tháng nửa năm. Tên to con không đến nơi đến chốn, chuyện lớn hơn đặt lên đầu, đều giống nhau, nếu muốn chọc ta tức giận, phải bản lãnh đủ, bằng không đều là hư. Tiểu Tề có thể sẽ càng nhiều cân nhắc phong tục một chút, duy chỉ có trái phải, cứ muốn giáp mặt phân cao thấp với người ta, không bóc trần rõ ràng không bỏ qua. Lúc trẻ tuổi, vì thế đã chịu rất nhiều đau khổ, làm hại tiên sinh rất nhiều lần đều phải đi ra thư phòng, phân tâm lao thần, vì học sinh giải quyết phiền toái thu thập rối rắm, nhất là sau khi chuyển đi luyện kiếm, lại càng là như thế.
+Lúc trẻ hắn vì thế chịu rất nhiều đau khổ, hại tiên sinh nhiều lần phải rời thư phòng, phân tâm nhọc sức dọn dẹp phiền phức cho học sinh. Nhất là sau khi hắn chuyển sang luyện kiếm, chuyện ấy càng nhiều.
 
-Khi lôi kéo hai bên trái phải giáp mặt xin lỗi, mỗi lần lão tú tài thấy học sinh liều chết không chịu cúi đầu kia, tức giận không chỗ phát tiết, lão tú tài thường thường nhảy xuống chính là một cái tát, bằng không thật đúng là không đè xuống được đầu học sinh, bảo Tả Hữu nhanh chóng cúi đầu, xin lỗi người khác cúi đầu!
+Khi kéo Tả Hữu đến trước mặt người ta xin lỗi, lão tú tài thấy học sinh sống chết không chịu cúi đầu, tức giận chẳng biết trút vào đâu, thường nhảy lên tát một cái. Bằng không lão thật sự không đè nổi đầu học sinh xuống, bảo Tả Hữu mau cúi đầu xin lỗi người ta!
 
-Chỉ là sau nhiều lần bất đắc dĩ cúi đầu nhận sai, lão tú tài mang theo Tả Hữu vừa rời khỏi tầm mắt người ngoài, trước hết nói với Tả Hữu một ít đạo lý lớn hơn nữa, cùng với chân chính đúng sai đến cùng ở nơi nào, đạo lý đề cập, từ lâu theo thứ tự rời xa trái phải cùng người khác, cuối cùng khẳng định sẽ khiến cúi đầu hờn dỗi Tả Hữu, đầu ngẩng cao chút, cao hơn chút nữa! Muốn đọc sách, đọc nhiều sách, đừng chỉ học kiếm, sẽ chỉ gặp rắc rối, tương lai thật muốn đọc hiểu sách thánh hiền, về sau xuất kiếm chọc thủng trời, tiên sinh đều phải vá trời cho ngươi! Nhưng mà trước đó, ngươi phải đọc sách nhiều hơn, phải lấy thiên địa đại đạo, nhân gian cực khổ làm vỏ kiếm, bằng không tiên sinh sao có thể yên tâm học sinh luyện kiếm không đọc sách...
+Nhưng sau những lần bất đắc dĩ nhận sai ấy, vừa dẫn Tả Hữu khuất khỏi tầm mắt người ngoài, lão tú tài lại giảng cho hắn đạo lý lớn hơn, nói rõ đúng sai thật sự ở đâu. Những đạo lý ấy từ lâu đã vượt khỏi chuyện giữa Tả Hữu và người khác. Cuối cùng lão nhất định bảo Tả Hữu đang cúi đầu hờn dỗi ngẩng đầu lên, cao hơn một chút, cao hơn nữa!
 
-Sau khi l*n đ*nh, nhìn thấy tòa Thúy Tùng Cung được bao phủ bởi ngói lưu ly xanh biếc, chỉ có điều nơi đây lưu ly, cũng không phải là chất liệu của tiên gia, chỉ tượng trưng cho sự ưu ái của đế vương nhân gian.
+Phải đọc sách, đọc nhiều sách, đừng chỉ học kiếm rồi gây họa. Tương lai thật sự đọc hiểu sách thánh hiền, sau này xuất kiếm chọc thủng trời, tiên sinh cũng sẽ vá trời cho ngươi! Nhưng trước đó phải đọc sách nhiều hơn, lấy đại đạo trời đất, khổ sở nhân gian làm vỏ kiếm. Bằng không sao tiên sinh có thể yên tâm để học sinh luyện kiếm mà không đọc sách...
 
-Tả hữu không có đi đạo cung hương khói lượn lờ kia, lựa chọn chỗ ít người, so với giữa sườn núi cao hơn dựa lan can trông về phía xa.
+Lên đỉnh núi, Tả Hữu nhìn thấy Thúy Tùng cung lợp ngói lưu ly xanh biếc. Lưu ly nơi đây không phải vật liệu tiên gia, chỉ tượng trưng cho sự ưu ái của đế vương nhân gian.
 
-Chỉ sẽ liên lụy tiên sinh lo lắng, sẽ không phân ưu cho tiên sinh.
+Hắn không vào đạo cung hương khói lượn lờ, chọn chỗ ít người, dựa lan can ngắm cảnh từ nơi cao hơn sườn núi.
 
-Trong chuyện này, quả thật chỉ có tên ngốc kia là làm tốt nhất, không nói đến việc mình gây họa như ăn cơm, thật ra ngay cả Tiểu Tề cũng không bằng hắn.
+Hắn chỉ khiến tiên sinh phải lo lắng, chưa từng giúp tiên sinh chia ưu phiền.
 
-Bị mắng không cãi lại, bị đánh không đánh trả, thường đi theo bên cạnh tiên sinh, hầu như không gây chuyện.
+Trong chuyện này, quả thật tên ngốc kia làm tốt nhất. Không nói đến bản thân hắn gây họa như cơm bữa, ngay cả Tiểu Tề cũng không bằng tên ngốc ấy.
 
-Tả Hữu ngửa đầu nhìn lại, đầu tiên là nhíu mày, sau đó lông mày giãn ra, nhịn cười.
+Bị mắng không cãi, bị đánh không đánh trả, thường theo bên cạnh tiên sinh, gần như không gây chuyện.
 
-Có người ra quyền khai thiên màn cấm chế, tiện tay liền đánh tan vách chắn kiếm khí kia, cho nên lúc đầu trái phải tưởng rằng là một vị đại yêu Phi Thăng cảnh nào đó đi tới nơi đây, khó tránh khỏi sầu lo phúc địa an nguy.
+Tả Hữu ngẩng đầu nhìn lên, đầu tiên nhíu mày, sau đó mày giãn ra, cố nhịn cười.
 
-Đợi đến khi nhìn rõ dung mạo vị khách không mời mà đến kia, tâm tình liền tốt lên. Bên trái phải thoáng lộ ra mấy phần kiếm ý tinh túy, làm cho đối phương có thể liếc mắt nhìn thấy, đồng thời lấy kiếm khí mở đường, hỗ trợ che đậy khí tượng, miễn cho đối phương quá mức chú ý tới hành tung của mình tại phúc địa vũ hóa.
+Có người ra quyền phá cấm chế màn trời, thuận tay đánh tan vách chắn kiếm khí. Ban đầu Tả Hữu tưởng một đại yêu Phi Thăng cảnh nào đó đến đây, khó tránh khỏi lo lắng cho an nguy phúc địa.
 
-Mà đối phương phát hiện kiếm ý ở hai bên lập tức thu liễm khí cơ, thẳng tắp một đường, làm khách ở hai bên đỉnh núi, nhưng dù vậy, một ngọn núi, bởi vì hai chân hán tử khôi ngô kia chạm đáy, vẫn hơi rung động, tùng đào trận trận, trong lúc nhất thời khiến các hương khách lầm tưởng là tiên nhân hiển linh, rất nhiều khách hành hương vốn đã đi ra khỏi cửa Thúy Tùng cung, bước chân vội vàng đi thỉnh hương.
+Đến khi thấy rõ dung mạo vị khách không mời, tâm tình hắn liền tốt lên. Tả Hữu để lộ một chút kiếm ý tinh túy cho đối phương nhìn thấy, đồng thời dùng kiếm khí mở đường, giúp che giấu khí tượng, tránh để người trong phúc địa Vũ Hóa quá chú ý đến hành tung của người nọ.
 
-Lưu Thập Lục nhếch miệng cười nói: "Để cho ta tìm dễ."
+Đối phương phát hiện kiếm ý của Tả Hữu liền thu liễm khí cơ, đi thẳng một đường đến làm khách trên đỉnh núi. Dù vậy, lúc hai chân hán tử khôi ngô chạm đất, ngọn núi vẫn hơi rung chuyển, rừng tùng rì rào. Các hương khách tưởng tiên nhân hiển linh, rất nhiều người vừa ra khỏi cửa Thúy Tùng cung lại vội vàng quay vào thỉnh hương.
 
-Trước khi tới đây, Lưu Thập Lục dạo chơi Đồng Diệp châu xa xôi vượt châu, đi Đồng Diệp tông nơi cực bắc kia một chuyến, không xen vào chuyện bên kia, chỉ hỏi phương hướng hai bên, sau đó một đường nam hạ, từ trong miệng một kiếm tu tên là Chu Phì, tự xưng là Lạc Phách sơn cung phụng, biết được tả hữu cụ thể bị giam giữ ở nơi nào sơn thủy Đồng Diệp châu, trước khi quyền mở đại môn, quả thực thấy được cái gọi là "đại yêu" Tiên Nhân cảnh có thể dọa chết người trong hai đầu Chu Phì kia, Chu Phì còn bảo Lưu tiên sinh phải cẩn thận một chút, Lưu Thập Lục có ấn tượng không tệ đối với hắn, Khương Thượng Chân một mảng Liễu Diệp trảm tiên nhân Đồng Diệp châu, danh khí rất lớn, hôm nay ngay cả Bảo Bình châu cũng đang tán gẫu phong cách chém giết của vị tân tông chủ Ngọc Khuê Tông này, thật sự là nhất tuyệt, đại khoái nhân tâm.
+Lưu Thập Lục nhếch miệng cười: “Để ta tìm mãi.”
 
-Tiện thể mang theo danh vọng cả tòa Chân cảnh tông đều tăng cao như nước trong Bảo Bình châu.
+Trước khi đến đây, Lưu Thập Lục vượt châu đến Đồng Diệp châu xa xôi, đi một chuyến tới Đồng Diệp tông ở cực bắc. Hắn không can dự chuyện bên đó, chỉ hỏi phương hướng Tả Hữu rồi một đường đi về nam. Từ miệng kiếm tu tự xưng cung phụng núi Lạc Phách tên Chu Phì, hắn biết Tả Hữu bị giam cụ thể ở nơi nào trong núi sông Đồng Diệp châu.
 
-Ấn tượng duy nhất của người này ở trong lòng Lưu Thập Lục không tốt, chính là thật sự quá đáng, đi theo Lưu Thập Lục ngự phong mấy ngàn dặm không nói, cứ lải nhải không ngừng bên tai, hỏi chút vấn đề Lưu Thập Lục căn bản không cách nào trả lời, ví dụ như hắn đời này rốt cuộc có cơ hội hay không, có thể tấn thăng thành thủ tịch cung phụng của Lạc Phách sơn, còn có đứa bé mình giúp đỡ Lưu tiên sinh sư đệ nuôi dưỡng, hôm nay ở Thư Giản hồ kia bướng bỉnh không bướng bỉnh...
+Trước khi dùng quyền mở cửa, quả thật hắn đã thấy hai con “đại yêu” Tiên Nhân cảnh mà Chu Phì nói có thể dọa chết người. Chu Phì còn bảo Lưu tiên sinh phải cẩn thận. Lưu Thập Lục có ấn tượng không tệ với người này: Khương Thượng Chân dùng một lá liễu chém tiên nhân ở Đồng Diệp châu, danh tiếng rất lớn. Hôm nay ngay cả Bảo Bình châu cũng bàn tán phong thái chém giết của vị tân tông chủ Ngọc Khuê tông, thật sự là tuyệt, khiến lòng người hả hê.
 
-Cho nên sau khi Lưu Thập Lục và Khương Thượng Chân tách ra, không cẩn thận một cái, đã nhẹ nhàng cong ngón búng ra, đánh nổ thân thể một tu sĩ Yêu tộc Tiên Nhân cảnh.
+Ngay cả danh vọng cả tòa Chân Cảnh tông ở Bảo Bình châu cũng theo đó nước lên thuyền lên.
 
-Thi giải tiên nhân hạ thi, di thuế như ve sầu lột xác.
+Chỉ có một điểm khiến Lưu Thập Lục không thích: người này thật sự quá đáng. Hắn đi theo Lưu Thập Lục ngự gió mấy ngàn dặm còn chưa nói, lại cứ lải nhải bên tai, hỏi những chuyện Lưu Thập Lục căn bản không thể trả lời. Chẳng hạn đời này hắn có cơ hội thăng làm thủ tịch cung phụng núi Lạc Phách hay không, đứa trẻ hắn giúp sư đệ của Lưu tiên sinh nuôi dưỡng ở Thư Giản hồ bây giờ có bướng bỉnh không...
 
-Đại đạo hao tổn, giảm một cảnh giới.
+Cho nên sau khi tách khỏi Khương Thượng Chân, Lưu Thập Lục không cẩn thận khẽ búng ngón tay, đánh nổ thân thể một tu sĩ yêu tộc Tiên Nhân cảnh.
 
-Lưu Thập Lục không hề buông tha cho tên tu sĩ Yêu tộc chạy trốn xa kia, trước tiên làm chính sự.
+Tiên nhân thi giải, để lại di thể như ve sầu lột xác. Đại đạo hao tổn, rơi xuống một cảnh giới.
 
-Tả Hữu giữ im lặng.
+Lưu Thập Lục cũng không đuổi theo tên yêu tộc bỏ chạy kia, làm chính sự trước.
 
-Lưu Thập Lục đã quen với tình hình hiện nay, chủ động nói chút tình hình gần đây của tiên sinh cùng Bảo Bình châu.
+Tả Hữu im lặng.
 
-Sau đó nghe hai bên xong, mặt vẫn không biểu tình.
+Lưu Thập Lục đã quen, chủ động kể đôi chút tình hình gần đây của tiên sinh và Bảo Bình châu. Tả Hữu nghe xong vẫn không biểu lộ gì.
 
-Lưu Thập Lục bất đắc dĩ nói: "Chỉ có thế thôi, có nhiều hơn nữa ta cũng không rõ lắm."
+Lưu Thập Lục bất đắc dĩ nói: “Chỉ có vậy thôi, nhiều hơn nữa ta cũng không rõ.”
 
-Tả Hữu lúc này mới nói: "Gọi sư huynh."
+Lúc này Tả Hữu mới nói: “Gọi sư huynh.”
 
-Tên ngốc kia vẫn không hiểu rõ.
+Tên ngốc kia vẫn không hiểu.
 
-Lưu Thập Lục đành phải hô một tiếng Tả sư huynh.
+Lưu Thập Lục đành gọi một tiếng Tả sư huynh. Trong các đồng môn, người có nhiều quy củ nhất chính là Tả sư huynh.
 
-Đồng môn có nhiều quy củ nhất, thuộc về hai bên sư huynh.
+Bấy giờ Tả Hữu mới nói: “Vất vả cho ngươi rồi.”
 
-Lúc này Tả Hữu mới nói: "Vất vả cho ngươi rồi."
+Lưu Thập Lục thăm dò: “Hai ta đổi chỗ một chút? Ta ở Hạo Nhiên thiên hạ, đánh giết mấy thần linh viễn cổ từ xa tới còn được, chuyện khác thì không thích hợp.”
 
-Lưu Thập Lục thăm dò nói: "Hai ta đổi một chút? Ta ở Hạo Nhiên Thiên Hạ, đánh giết mấy thần linh viễn cổ đường xa mà đến, còn đỡ, còn lại, không thích hợp."
+Tả Hữu suy nghĩ một lát, gật đầu: “Được.”
 
-Tả Hữu suy nghĩ một chút, gật đầu nói: "Có thể."
+Với sư đệ Quân Thiến, hắn không cần khách khí chút nào.
 
-Cùng sư đệ Quân Thiến, không cần nửa điểm khách khí.
+Lưu Thập Lục lại do dự.
 
-Lưu Thập Lục ngược lại do dự.
+Tả Hữu nhíu mày: “Quân Thiến, có chuyện gì cứ nói thẳng.”
 
-Tả Hữu nhíu mày nói: "Quân Thiến, có chuyện gì cứ nói thẳng."
+Lưu Thập Lục nói: “Lúc đến phía nam Bảo Bình châu, ta tìm đại sư huynh. Hình như hắn đã biết tình cảnh của ngươi, cho nên lần này ta đến có thể đưa ngươi vượt châu thẳng đến Đại Ly trợ chiến. Đương nhiên, nếu ngươi không muốn thì tiếp tục ở lại Đồng Diệp châu. Chỉ là ở bên này, nhiều nhất ngươi có thể đến Ngọc Khuê tông. Đồng Diệp tông ngươi bảo vệ lúc trước đã chia rẽ nghiêm trọng, lớp người trẻ tuổi trong đó bị mấy vị tổ sư dẫn tu sĩ giam lại. Nhưng ngươi yên tâm, tính mạng họ tạm thời không đáng ngại.”
 
-Lưu Thập Lục nói: "Lúc nam hạ Bảo Bình châu, ta tìm đại sư huynh, hắn hình như đã biết tình cảnh của ngươi, cho nên lần này ta đến, có thể để ngươi trực tiếp vượt châu đi hướng Đại Ly bồi tiếp, đương nhiên, nếu ngươi không muốn, thì tiếp tục ở lại Đồng Diệp châu, chỉ là ở bên này, ngươi nhiều nhất là đi hướng Ngọc Khuê tông, bởi vì Đồng Diệp tông ngươi lúc trước bảo vệ đã phân liệt nghiêm trọng, một phái người trẻ tuổi trong đó đều bị vài vị tổ sư gia mang theo tu sĩ nhốt lại, nhưng ngươi yên tâm, những tù nhân này tạm thời tính mạng không lo."
+“Ta đi Ngọc Khuê tông.”
 
-Tả Hữu nói: "Ta đi Ngọc Khuê Tông."
+Tả Hữu không cần nghĩ ngợi.
 
-Không có bất kỳ suy nghĩ dư thừa nào.
+Lưu Thập Lục thở dài. Quả nhiên là vậy, hắn đành nói những lời đại sư huynh đã sớm nghĩ kỹ, dặn hắn chuyển lại:
 
-Lưu Thập Lục thở dài, quả nhiên, cho nên đành phải nói Đại sư huynh sớm đã nghĩ kỹ, dặn dò những lời kia của mình, "Tả sư huynh, ngươi còn chưa từng đi Lạc Phách sơn, có người hy vọng ngoài tổ sư đường Kỳ Sắc phong, trên mỗi một cái ghế, đều có người thật sự đang ngồi ở bên kia, hoặc là nói có người từng ngồi, sau đó cuối cùng mọi người, cùng nhau bổ sung một bức họa quyển. Tiên sinh của chúng ta trước khi rời đi, đã ngồi ở chỗ trung tâm, ta lần này rời khỏi Lạc Phách sơn, cũng chuyển cái ghế dựa ở trên một vị trí nào đó... Đương nhiên, ngươi có đi hay không, có Tả sư huynh chân chính ngồi ở ngoài cửa, bức họa cuộn tròn về sau vẫn là có thể bổ sung đầy đủ, dù sao Lạc Phách sơn hôm nay, không thiếu chút thuật pháp thần tiên đó."
+“Tả sư huynh, ngươi còn chưa từng đến núi Lạc Phách. Có người hy vọng bên ngoài tổ sư đường Kỳ Sắc phong, mỗi chiếc ghế đều có người thật sự ngồi, hoặc từng ngồi ở đó, cuối cùng mọi người cùng nhau hoàn thành một bức họa. Trước khi rời đi, tiên sinh đã ngồi ở chính giữa. Lần này ta rời núi Lạc Phách cũng dời ghế đến một vị trí... Đương nhiên, dù ngươi có đi hay không, về sau bức họa vẫn có thể vẽ đủ một Tả sư huynh ngồi ngoài cửa, dù sao núi Lạc Phách hôm nay không thiếu chút thuật pháp thần tiên ấy.”
 
-Trái phải trầm mặc một lát, gật đầu nói: "Vậy đi Lạc Phách Sơn trước một chuyến, ta đi Lão Long thành, vừa vặn xem xem kiếm thuật của Ngụy Tấn có tiến bộ chút hay không. Lão đại kiếm tiên từng ký thác kỳ vọng đối với người này."
+Tả Hữu im lặng một lát rồi gật đầu: “Vậy trước tiên đi núi Lạc Phách một chuyến, sau đó ta đến Lão Long thành, vừa khéo xem kiếm thuật Ngụy Tấn có tiến bộ hay không. Lão đại kiếm tiên từng đặt kỳ vọng vào người này.”
 
-Sau đó, lại đi Đồng Diệp tông một chuyến, dạy một số người biết cái gì gọi là kiếm tu Tả Hữu làm người ta khó xử đến cực điểm.
+Sau đó lại đi Đồng Diệp tông một chuyến, dạy cho một số người biết thế nào là kiếm tu Tả Hữu khiến người ta khó xử đến cực điểm.
 
-Lưu Thập Lục khóe miệng vừa có biến hóa rất nhỏ, liền phát hiện Tả Hữu lạnh lùng nhìn tới, Lưu Thập Lục lập tức đè khóe miệng xuống, trước tiên lấy một thân khí tức bao phủ vách chắn thiên địa, cộng thêm chút ít kiếm khí kia, chế tạo ra tòa thiên địa bình chướng thứ hai, lúc này mới lấy ra một bức Sơn Hà Đồ vẽ Trung Nhạc, Đại Độc cùng Đại Ly tháp đô, ném ở trên mặt đất, chỉ cần đạp lên trái phải, liền có thể súc địa sơn hà, vượt qua hai châu.
+Khóe miệng Lưu Thập Lục vừa nhúc nhích, hắn đã thấy Tả Hữu lạnh lùng nhìn sang, lập tức nén cười. Hắn dùng khí tức bản thân bao phủ vách chắn thiên địa, thêm chút kiếm khí tạo thành bình chướng thứ hai, rồi mới lấy ra một bức Sơn Hà Đồ vẽ Trung Nhạc, Đại Độc và kinh đô Đại Ly, ném xuống đất. Chỉ cần Tả Hữu bước lên, có thể súc địa sơn hà, vượt qua hai châu.
 
-Thật ra đại sư huynh lúc trước cười nói thẳng với hắn, để người phương xa tự mình vượt châu, hành động này không thể tầm thường, Thôi Sàm hắn cũng là lần đầu khai sáng núi sông, dù sao cho không thành công, hắn trái phải là đại kiếm tiên, không sợ xuất hiện ngoài ý muốn.
+Thật ra trước đó đại sư huynh đã cười nói thẳng với hắn, đưa một người ở xa vượt châu không phải chuyện tầm thường, Thôi Sàm cũng là lần đầu mở đường núi sông như vậy. Dù sao nếu không thành công, Tả Hữu là đại kiếm tiên, không sợ xảy ra ngoài ý muốn.
 
-Chỉ có điều Lưu Thập Lục lại không ngốc, sao lại nói thẳng với Tả sư huynh những chuyện này. Tả sư huynh vốn không hợp với vị đại sư huynh kia, lại còn xuất kiếm chém người.
+Nhưng Lưu Thập Lục đâu có ngốc mà nói thẳng những chuyện ấy với Tả sư huynh. Tả sư huynh vốn không hợp với đại sư huynh, còn từng xuất kiếm chém người.
 
-Sư đệ cáo trạng, sư huynh gặp nạn. Sư huynh đánh nhau, sư đệ gặp nạn. Là truyền thống cũ của Văn Thánh nhất mạch nhà mình.
+Sư đệ cáo trạng, sư huynh gặp nạn. Sư huynh đánh nhau, sư đệ gặp nạn. Đó là truyền thống cũ của Văn Thánh nhất mạch nhà mình.
 
-Sư đệ thứ nhất là Tiểu Tề, sư đệ thứ hai đáng thương là Quân Thiến hắn.
+Sư đệ thứ nhất là Tiểu Tề, sư đệ thứ hai đáng thương chính là Quân Thiến hắn.
 
-Nhất là có chút tai bay vạ gió, tiên sinh sẽ hạo nhiên chính khí mà an ủi tiểu sư đệ, "Tiểu Tề a, lần này quả thật là ngươi không đúng, Tả Hữu sư huynh ngươi vẫn là phá lệ chiếm lý mà, không sao, thật sự tức giận, thì đánh Quân Thiến là được rồi, nhớ đừng đánh đau mình nha, làm trễ nải Minh nhi đọc sách viết chữ thì không đẹp. Quân Thiến à, lại đây nào, lưng to eo nhỏ ở đó làm người gỗ làm gì."
+Nhất là những lúc tai bay vạ gió, tiên sinh sẽ đầy vẻ chính khí an ủi tiểu sư đệ: “Tiểu Tề à, lần này quả thật ngươi không đúng, hiếm khi Tả Hữu sư huynh ngươi có lý như vậy. Không sao, thật sự tức giận thì đánh Quân Thiến là được, nhớ đừng đánh đau tay mình, làm chậm trễ ngày mai đọc sách viết chữ thì không hay. Quân Thiến à, lại đây nào, lưng rộng eo nhỏ đứng đó làm người gỗ cái gì?”
 
-May mà số lần như vậy không nhiều, tiên sinh nhiều lần đều nháy mắt mất mắt, mà Tiểu Tề cũng nhiều lần không động thủ đánh người, ngược lại rất nhanh liền nguôi giận, ngược lại có nề nếp giáo huấn tiên sinh, không thể thiên vị mình như thế, nên thiên vị đạo lý. Lão tú tài liền bừng tỉnh đại ngộ, lấy quyền quyền chưởng, thề son sắt nói lần sau tiên sinh nhất định sẽ sửa. Cảnh tượng như vậy, chỗ góc, thường xuyên sẽ thò ra hai cái đầu nhìn gió, thấp một chút, là Tả Hữu sư huynh, cao một chút, liền nhẹ nhàng đặt lên trên đầu trái phải, là đại sư huynh Thôi Sàm.
+May mà số lần như vậy không nhiều. Tiên sinh luôn nháy mắt ra hiệu, Tiểu Tề cũng thường không động thủ, ngược lại rất nhanh nguôi giận, còn nghiêm túc dạy bảo tiên sinh không thể thiên vị mình như thế, phải thiên vị đạo lý. Lão tú tài liền bừng tỉnh đại ngộ, lấy nắm tay đập vào lòng bàn tay, thề son sắt lần sau nhất định sẽ sửa.
 
-Cho nên trong lòng Lưu Thập Lục khó tránh khỏi tiếc nuối, giống như những điều tốt đẹp kia, một đi không trở lại.
+Những lúc ấy, nơi góc tường thường có hai cái đầu thò ra nhìn. Thấp hơn là Tả Hữu sư huynh, cái đầu cao hơn nhẹ nhàng đặt lên đầu Tả Hữu là đại sư huynh Thôi Sàm.
 
-Cho nên Lưu Thập Lục mới đáp ứng Thôi Sàm, để Tả Hữu đi Lạc Phách Sơn một chuyến, để ba vị đệ tử đích truyền còn sót lại của Văn Thánh nhất mạch ở trong lòng bọn họ, cho dù vật đổi sao dời, cảnh còn người mất, vẫn như cũ có thể một lần nữa có thêm chút tốt đẹp.
+Vì vậy Lưu Thập Lục khó tránh khỏi tiếc nuối, tựa như những điều tốt đẹp ấy đã một đi không trở lại.
 
-Tả Hữu dịch bước, nghiêm mặt nói: "Quân Thiến, mặc kệ nguyên do, ta tới đây làm khách, đến cùng có chút thiên địa dị tượng, lúc trước ta lấy kiếm khí chống đỡ thiên địa, có kiếp nạn lớn nhỏ đang tiềm ẩn lớn mạnh, sớm muộn gì cũng sẽ rơi ở chỗ này."
+Cũng bởi vậy hắn mới đáp ứng Thôi Sàm, để Tả Hữu đến núi Lạc Phách một chuyến. Ba vị đệ tử đích truyền còn lại của Văn Thánh nhất mạch, cho dù vật đổi sao dời, cảnh còn người mất, trong lòng vẫn có thể có thêm chút tốt đẹp.
 
-Lưu Thập Lục dường như nghe không hiểu.
+Tả Hữu bước đi, nghiêm mặt nói: “Quân Thiến, bất kể nguyên do, ta đến đây làm khách, rốt cuộc cũng gây ra dị tượng trời đất. Trước đó ta dùng kiếm khí chống đỡ thiên địa, có những kiếp nạn lớn nhỏ đang âm thầm lớn lên, sớm muộn cũng sẽ giáng xuống nơi này.”
 
-Tả Hữu trầm giọng nói: "Quân Thiến sư đệ!"
+Lưu Thập Lục làm như không hiểu.
 
-Thích nhất là cái tên bày cái giá sư huynh, lại bắt đầu.
+Tả Hữu trầm giọng: “Quân Thiến sư đệ!”
 
-Không có cách nào, sư huynh chính là sư huynh, sư đệ vẫn là sư đệ.
+Kẻ thích nhất bày ra dáng vẻ sư huynh lại bắt đầu rồi.
 
-Lưu Thập Lục thở dài một tiếng, nói: "Biết rồi, ta chẳng những che chở thiên địa an ổn nơi này, còn phụ trách giúp ngươi bồi thường phúc địa vài phần."
+Không có cách nào, sư huynh là sư huynh, sư đệ vẫn là sư đệ.
 
-Hắn nhẹ nhàng ném cây gậy leo núi trong tay cho Lưu Thập Lục: "Quân Thiến, tặng muội."
+Lưu Thập Lục thở dài: “Biết rồi, ta không những che chở cho trời đất nơi này yên ổn, còn phụ trách giúp ngươi bồi thường phúc địa đôi phần.”
 
-Lưu Thập Lục nhoẻn miệng cười, tiếp được cây Hành Sơn trượng tầm thường kia. Năm đó muốn từ trong tay Tả sư huynh phụ trách quản tiền, lấy được thêm đồ vật, khó như lên trời. Sư huynh đệ không làm được, tiên sinh cũng không làm được.
+Tả Hữu nhẹ nhàng ném cây gậy leo núi trong tay cho hắn: “Quân Thiến, tặng ngươi.”
 
-Sau đó Tả Hữu chắp tay cáo biệt cùng sư đệ.
+Lưu Thập Lục nhoẻn miệng cười, đón lấy cây gậy tầm thường. Năm xưa muốn lấy thêm một món đồ từ tay Tả sư huynh quản tiền còn khó hơn lên trời. Sư huynh đệ không làm được, tiên sinh cũng không làm được.
 
-Lưu Thập Lục thì chắp tay hoàn lễ với sư huynh.
+Sau đó Tả Hữu chắp tay cáo biệt sư đệ, Lưu Thập Lục chắp tay hoàn lễ.
 
-Tả Hữu đi về phía bức họa quyển kia, chân thân trong nháy mắt tới đây cùng Âm Thần quy tụ làm một.
+Tả Hữu đi về phía bức họa, chân thân lập tức đến đây hợp làm một với âm thần. Kiếm tiên và bức tranh cùng lóe lên rồi biến mất.
 
-Kiếm tiên và bức tranh đồng thời lóe lên rồi biến mất.
+Ở trong phúc địa nhỏ bé này, Lưu Thập Lục không mang gánh nặng đại đạo áp chế kiếm khí, đi lại không có nhiều điều kiêng kỵ như Tả Hữu. Nhưng hắn cũng không có hứng thú du ngoạn nhân gian, vừa hóa giải dị tượng trời đất do chân thân sư huynh di chuyển gây ra, vừa ngự gió đi xa trên màn trời.
 
-Lưu Thập Lục ở trong phúc địa nho nhỏ này, bởi vì bớt đi gánh nặng đại đạo áp thắng kiếm khí, không có nhiều cấm kỵ hành tẩu như sư huynh chi phối, chỉ là Lưu Thập Lục đối với nhân gian này, cũng không có hứng thú du lịch gì, vừa đánh mất thiên địa dị tượng do Tả Hữu chân thân của sư huynh di chuyển dẫn phát, vừa ngự phong đi xa màn trời, cuối cùng tìm một ngọn núi cô độc ít dấu chân người, ở bên kia đợi, chuẩn bị tuân theo sư mệnh, tốt xấu thu cái đích truyền, tư chất thiên phú cái gì, có tính là một chuyện không? Dạy hắn chút đạo lý thánh hiền, chắc chắn mấy câu, đệ tử cuối cùng có thể dùng sức khỏe, như vậy là đủ rồi.
+Cuối cùng hắn tìm một ngọn núi đơn độc ít dấu chân người, chờ ở đó, chuẩn bị tuân theo lời sư phụ, ít nhất cũng thu một đệ tử đích truyền. Tư chất thiên phú có đáng kể gì? Dạy hắn chút đạo lý thánh hiền, nhớ chắc mấy câu, sau này đệ tử có thể dùng sức khỏe, như vậy là đủ.
 
-Cho nên Lưu Thập Lục ở đỉnh cô sơn này, lại lưu tâm một Yêu tộc hạ ngũ cảnh chưa hoàn chỉnh biến ảo thành hình người, chỉ thấy tiểu Yêu tộc kia hai chân đứng thẳng, ở trên bàn đá thô ráp bên ngoài động phủ, có một bát không biết lấy đâu ra hồn đồn, lạnh thấu càng hồ, nó dùng một đôi móng vuốt đang học tập sử dụng một đôi đũa, chỉ là nhiều lần kẹp không nổi hồn đồn, đũa còn trượt xuống trong bát, đến cuối cùng tiểu tinh quái liền căm tức vạn phần, ném chiếc đũa vào trong bát, nâng móng vuốt lên hướng chén đũa trên bàn, mắng to không thôi, ăn ăn ăn, ăn của mẹ ngươi ăn, ngươi tự mình ăn hoành thánh đi!
+Trên ngọn núi ấy, Lưu Thập Lục để ý một tiểu yêu tộc hạ ngũ cảnh chưa biến hóa hoàn toàn thành hình người. Nó đứng thẳng bằng hai chân, trước mặt là chiếc bàn đá thô sơ ngoài động phủ. Trên bàn có bát hoành thánh không biết lấy từ đâu, đã nguội lạnh đặc quánh.
 
-Thế là Lưu Thập Lục tận lực thu liễm một thân khí tức đại đạo mênh mông viễn cổ, rơi vào ngoài động phủ kia, tăng thêm tinh quái sơn dã kia bất luận tầm mắt, cảnh giới đều quá thấp, đại khái sẽ chỉ coi hắn như một tiều phu nhân vào núi đốn củi.
+Nó dùng đôi móng vuốt tập cầm đũa, nhiều lần vẫn không gắp được hoành thánh, đũa còn trượt vào trong bát. Cuối cùng tiểu tinh quái tức tối ném đũa xuống, giơ móng vuốt về phía bát đũa mắng ầm lên: “Ăn, ăn, ăn, ăn cái mẹ ngươi! Ngươi tự ăn hoành thánh đi!”
 
-Lưu Thập Lục ngồi trên ghế đá, cầm đũa lên, ăn hoành thánh, mẹ nó thật sự là khó ăn, có phải thiu rồi hay không? Nửa cái lễ bái sư này, có phải là thua lỗ rồi hay không?
+Lưu Thập Lục hết sức thu liễm khí tức đại đạo viễn cổ mênh mông, hạ xuống ngoài động phủ. Tầm mắt và cảnh giới của tinh quái núi rừng đều quá thấp, đại khái chỉ coi hắn là một tiều phu lên núi đốn củi.
 
-Tiểu tinh quái kia vừa mới theo đường cũ quay về, đi ra khỏi động phủ, một bát vằn thắn, phí hết sức lực mới từ thôn trang ngoài núi đưa lên núi, cũng không thể chà đạp cho súc sinh lông bẹp đang đi loạn trong núi, kết quả nó đột nhiên nhìn thấy tiều phu dáng người khôi ngô kia, dọa nó kêu lên một tiếng, đuổi – đòi nợ rồi? Tiểu tinh quái sợ là thật sự sợ, hán tử kia cao to lực lưỡng như thế, nhìn không giống như là người sẽ nói chuyện đàng hoàng thương lượng a!, Chút thuật pháp tiên gia mình học được lung tung kia, không quá mức sao? Trong lòng tiểu tinh quái phẫn uất không thôi, một bát vằn thắn, lão tử trả tiền, một xâu tiền đồng không nói, còn cố ý ném thêm mấy con món ăn thôn quê trong núi ở cạnh bếp lò, nếu không phải lão tử đọc qua mấy quyển sách thánh hiền kia, đã sớm là một vị lão gia đọc sách, bằng không cho cái rắm tiền, đừng nói là cướp của ngươi một bát vằn thắn, ngay cả nồi lớn nấu vằn thắn nhà ngươi cũng bị đoạt!
+Hắn ngồi xuống ghế đá, cầm đũa ăn hoành thánh. Mẹ nó, thật sự quá khó ăn, có phải đã thiu rồi không? Nửa phần lễ bái sư này, chẳng phải mình chịu thiệt sao?
 
-Hay lắm, được tiền, còn có mặt mũi đến nhà ta mắng đường hay sao? Sao lại có ý này chứ, tiểu tinh quái ở cửa động bồi hồi không đi, quả nhiên là hương dã mãng phu không có đọc sách, không thèm so đo với ngươi, ăn bát vằn thắn thiu... Nghĩ đến đây, tiểu tinh quái ai thán một tiếng, lớn gan, trốn ở bên cạnh động phủ cũng không thò đầu ra, cố ý phát ra tiếng động, dọa chạy con quỷ chết đói hạ đũa như bay kia, ăn nhiều, nó sợ nhà mình có thêm quỷ chết đói, thật sự là xui xẻo.
+Tiểu tinh quái vừa quay lại, đi ra khỏi động phủ. Bát hoành thánh này khó nhọc lắm nó mới mang từ thôn trang ngoài núi lên, không thể để lũ súc sinh lông lá chạy lung tung trên núi chà đạp. Nào ngờ đột nhiên thấy tiều phu khôi ngô kia, nó sợ đến kêu lên một tiếng. Đòi... đòi nợ đến rồi?
 
-Nó cũng sẽ không chữa bệnh cho người, trong sách lại không dạy nó những thứ này. Trên sách đạo chỉ có chút đồ án hình người bái Nhật Nguyệt luyện nhân, cho nó tỉnh tỉnh mê mê lật đi, học chút da lông, miễn cưỡng khai khiếu.
+Nó thật sự sợ hãi. Hán tử cao lớn lực lưỡng như vậy trông không giống người có thể nói chuyện thương lượng đàng hoàng! Chút thuật pháp tiên gia nó học lung tung chẳng lẽ có tác dụng sao?
 
-Một tên Toàn Phong Đại Vương tự phong, lại không thể coi là thật, chỉ là bản thân nó lấy ra vui vẻ a.
+Trong lòng tiểu tinh quái phẫn uất: một bát hoành thánh, lão tử đã trả tiền! Không những để lại một xâu tiền đồng, còn cố ý ném thêm mấy món săn được trong núi bên cạnh bếp. Nếu không phải lão tử đọc mấy quyển sách thánh hiền kia, đã sớm là lão gia người đọc sách, thì trả tiền cái rắm! Đừng nói cướp một bát hoành thánh, ngay cả nồi lớn nấu hoành thánh nhà ngươi cũng bị đoạt!
 
-Lưu Thập Lục đột nhiên nhớ lại mình vừa tới phúc địa không bao lâu, cũng không biết nói quan thoại gì, cũng sẽ không nghe tiếng địa phương gì.
+Hay lắm, nhận tiền rồi còn có mặt mũi đến cửa nhà ta mắng chửi sao? Tiểu tinh quái quanh quẩn trước cửa động, không chịu đi ra. Quả nhiên là mãng phu thôn dã chưa đọc sách, không thèm so đo với ngươi. Bát hoành thánh ấy đã thiu...
 
-Cũng có chút xấu hổ, nhìn về phía động phủ bên kia, Lưu Thập Lục đặt đũa xuống gãi đầu liên tục.
+Nghĩ đến đây nó thở dài, lấy hết can đảm nấp bên động phủ không thò đầu ra, cố ý gây tiếng động dọa quỷ chết đói đang hạ đũa như bay kia chạy đi. Hắn ăn nhiều quá, nó sợ trong nhà mình sẽ có thêm một con quỷ chết đói, thật sự xui xẻo.
 
-Tiểu tinh quái kia vừa nhìn, thiếu chút nữa bị dọa khóc, cừ thật, ăn uống no đủ tăng khí lực, còn muốn đánh người sao? Nhịn không được cả người run rẩy, chớ đánh chớ đánh, ta cũng không phải người...
+Nó không biết chữa bệnh, trong sách cũng không dạy. Đạo thư chỉ có mấy hình người bái mặt trời mặt trăng tu luyện, nó mơ mơ hồ hồ lật xem, học được chút da lông, miễn cưỡng khai khiếu.
 
-Những tiều phu thợ săn thích lên núi này, người nào không phải hạng người hung hãn, hôm nay chỉ cần hán tử này không so đo, chúng ta liền thu dọn gia sản lập tức chuyển nhà, chuyển nhà xa xa còn không được sao?
+Danh hiệu Toàn Phong đại vương là nó tự phong, không thể coi là thật, chỉ lấy ra để vui vẻ mà thôi.
 
-Lưu Thập Lục suy nghĩ một biện pháp, liền bắt một người tu đạo gà mờ tới gần, trước tiên học ngôn ngữ, ba phương mới dễ nói chuyện. Coi như là chuyện tốt thành đôi, một hơi thu hai đệ tử tạm thời không ký danh. Về phần cuối cùng mình có thể thu đồ đệ hay không, đối phương có thể bái sư hay không, là trở thành đích truyền của hắn, hay là không biết tôn sư tôn tục danh đệ tử không ký danh, đều nhìn tạo hóa của hai bên đi. Lưu Thập Lục còn chưa đến mức lạm thu đệ tử. Tiên sinh có một việc, nhắc nhở bọn họ những đệ tử này nhiều lần, ngàn vạn lần đừng luôn cảm thấy thu đồ đệ, là một loại bố thí, thu đệ tử vào trong môn, làm học thục tiên sinh cũng tốt, làm sư phụ trên núi cũng thế, một người truyền đạo ở trong lòng mình, nếu như luôn ở chỗ cao hướng thấp ném học vấn, tiên pháp, lòng người chỉ biết sông sông sông ngày sau.
+Lưu Thập Lục chợt nhớ mình mới đến phúc địa chưa lâu, không biết nói quan thoại nơi này, cũng chẳng nghe hiểu tiếng địa phương.
 
-Tiểu tinh quái kia thấy vậy bước nhanh xuống núi, thở phào nhẹ nhõm, thu thập một phần tâm tình khiếp đảm, như thu thập núi sông thật tốt, nghênh ngang đi ra khỏi động phủ, uy phong uy phong, thật sự là uy phong, Toàn Phong Đại Vương trừng mắt, liền bị dọa chạy đi đại hán khôi ngô. Chuyển nhà cái rắm, quay đầu lại lão tử còn muốn treo lên một tấm biển chữ vàng "Toàn Phong Đại Vương phủ đệ". Khí phách mênh mông như vậy, tiểu tinh quái vẫn là cầm bát đũa, nhanh chóng chạy vào trong động thu thập một cái bọc, cẩn thận thu hồi mấy quyển sách nọ, cuối cùng nó hướng về phía một mộ phần nhỏ, cung kính quỳ xuống dập đầu, trong lòng lẩm bẩm, nói chỉ có thể về sau lại thăm thần tiên lão gia, dập đầu xong, tiểu tinh quái lúc này mới chuồn đi đại cát.
+Hắn hơi xấu hổ nhìn về phía động phủ, đặt đũa xuống gãi đầu liên tục.
 
-Lưu Thập Lục kỳ thật cũng không chân chính đi xa, thi triển Chướng Nhãn pháp, kỳ thật vẫn đi theo sau lưng tiểu tinh quái.
+Tiểu tinh quái thấy vậy suýt bị dọa khóc. Hay lắm, ăn uống no đủ có sức rồi còn muốn đánh người sao? Nó run cầm cập: đừng đánh, đừng đánh, ta cũng đâu phải người...
 
-Thời gian xa xưa, thần linh trực chỉ một vài thủ đoạn thần thông của bản tướng nhân tâm, Lưu Thập Lục kỳ thật cũng học qua một chút, chỉ có điều nhìn nhiều thêm vài lần, luôn không sai. Kết quả vừa nhìn, Lưu Thập Lục đã cao hứng vài phần. Giống như mình, còn rất thông minh.
+Đám tiều phu thợ săn hay lên núi, ai chẳng hung hãn? Hôm nay chỉ cần hán tử này không so đo, ta sẽ lập tức thu dọn gia sản chuyển nhà, chuyển thật xa còn không được sao?
 
-Trung bộ Bảo Bình châu, trên biển mây bầu trời bầu trời cùng Đại Ly, pháp tướng tay nâng Thôi Sàm mô phỏng Bạch Ngọc Kinh, chân thân vị quốc sư Đại Ly này, thế mà lại là đang vì đông đảo nho sinh trẻ tuổi thư viện các quốc gia truyền đạo giảng học, sĩ tử đang ngồi, cho dù có nho sĩ xuất thân thư viện Quan Hồ cùng thư viện Sơn Nhai kia, lại không một ai đạt được danh hiệu quân tử hiền tài.
+Lưu Thập Lục nghĩ ra một cách: tìm một tu sĩ gà mờ đến gần đây, trước tiên học ngôn ngữ, ba bên mới dễ nói chuyện. Coi như chuyện tốt thành đôi, một hơi nhận hai đệ tử tạm thời chưa ký danh.
 
-Một bóng người áo sam xanh thon dài bỗng dưng xuất hiện bên cạnh biển mây, Thôi Sàm không chớp mắt, vẫn như cũ giảng giải chỗ tinh diệu của học vấn các con các nhà cho người đọc sách trẻ tuổi.
+Còn cuối cùng hắn có thể thu đồ đệ hay không, đối phương có chịu bái sư hay không, trở thành đích truyền hay chỉ là đệ tử ký danh không biết tên họ sư phụ, đều phải xem tạo hóa đôi bên. Lưu Thập Lục chưa đến mức tùy tiện thu đồ đệ.
 
-Không ít người đọc sách lại nhận thấy được dị tượng, nhất là một ít nho sinh thư viện Quan Hồ tu hành hạo nhiên khí, thần thức càng thêm sâu sắc, cho nên phần lớn lập tức quay đầu nhìn về phía người nọ.
+Có một chuyện tiên sinh đã nhiều lần nhắc nhở các đệ tử: ngàn vạn lần đừng luôn cho rằng thu đồ đệ là ban ơn. Thu đệ tử vào cửa, dù làm tiên sinh trường học hay làm sư phụ trên núi, người truyền đạo nếu luôn nghĩ mình ở trên cao ném học vấn, tiên pháp xuống dưới, lòng người chỉ ngày càng xa cách[?].
 
-Cũng không đi nhìn xung quanh Thôi Sàm tiếp tục giảng học nói lý, nhìn về phía mọi người quay đầu nhìn về phía mình, nhíu mày khiển trách: "Tiến vào bảy mươi hai thư viện, chính là để cho các ngươi làm thần tiên?!"
+Tiểu tinh quái thấy hán tử bước nhanh xuống núi thì thở phào, thu lại tâm tình khiếp sợ, nghênh ngang ra khỏi động phủ. Uy phong, uy phong, thật là uy phong! Toàn Phong đại vương vừa trừng mắt đã dọa đại hán khôi ngô chạy mất. Chuyển nhà cái rắm, quay đầu lão tử còn muốn treo biển chữ vàng “Toàn Phong đại vương phủ đệ”!
 
-Sau đó hai bên hóa thành một đạo kiếm quang rộng lớn, thẳng đến một châu bắc nhạc địa giới, biển mây phụ cận Bạch Ngọc Kinh bị kiếm khí tách ra, đúng là thật lâu chưa thể khép lại.
+Khí phách mênh mông như vậy, nhưng nó vẫn cầm bát đũa chạy nhanh vào động thu dọn một cái bọc, cẩn thận cất mấy quyển sách. Cuối cùng nó cung kính quỳ dập đầu trước một nấm mộ nhỏ, thầm nói chỉ đành để sau này trở lại thăm thần tiên lão gia. Dập đầu xong, tiểu tinh quái mới chuồn đi đại cát.
 
-Thôi Sàm chỉ tiếp tục dạy học, vừa không nói nửa chữ với vị Tả Kiếm Tiên vượt châu đi xa kia, cũng không ngăn cản những người trẻ tuổi kia tạm thời phân tâm, mặc cho bọn họ thần thái sáng láng, xì xào bàn tán, đoán thân phận vị kiếm tiên kia.
+Thật ra Lưu Thập Lục chưa đi xa, hắn dùng chướng nhãn pháp theo sau nó.
 
-Tả Hữu lơ lửng ở ngoài cửa biên giới Bắc Nhạc địa, cuối cùng dừng lại ở Lạc Phách sơn, Trần Noãn thụ hỗ trợ mở cửa, tả hữu trước tiên thắp hương ở trong tổ sư đường của Kỳ Sắc phong, sau đó hạt gạo đã sớm chuyển xong ghế dựa ở bên ngoài, giống như đặt ở trên một vị trí rất chú ý, không sai được chút nào. Tiểu cô nương áo đen cuối cùng đều nằm rạp trên mặt đất, lại ngửa đầu nhìn kỹ, chỉ sợ không để đàng hoàng.
+Ngày xưa hắn từng học qua một chút thần thông của thần linh có thể nhìn thẳng bản tướng lòng người. Nhìn thêm vài lần luôn không sai. Kết quả vừa nhìn, Lưu Thập Lục đã vui mừng hơn mấy phần. Giống như mình, còn rất thông minh.
 
-Tả Hữu ngồi xuống chiếc ghế cuối cùng, thanh sam tả hữu, nhìn sang trái phải.
+Ở trung bộ Bảo Bình châu, trên biển mây cùng với pháp tướng nâng Bạch Ngọc Kinh mô phỏng, chân thân quốc sư Đại Ly Thôi Sàm đang truyền đạo giảng học cho đông đảo nho sinh trẻ tuổi của thư viện các nước. Trong số sĩ tử ngồi đó, dù có nho sinh xuất thân thư viện Quan Hồ và thư viện Sơn Nhai, không ai đã đạt danh hiệu quân tử hay hiền tài.
 
-Giống như có tiên sinh ngồi ở giữa, có sư đệ Quân Thiến, sư đệ Tề Tĩnh Xuân, tiểu sư đệ Trần Bình An, đại sư huynh... Thôi Sàm.
+Một bóng người thanh sam thon dài đột nhiên xuất hiện bên biển mây. Thôi Sàm mắt không chớp, vẫn giảng giải chỗ tinh diệu trong học vấn chư tử bách gia cho người đọc sách trẻ tuổi.
+
+Không ít người nhận ra dị tượng, nhất là nho sinh thư viện Quan Hồ tu hành hạo nhiên khí có thần thức nhạy bén hơn, phần lớn lập tức quay đầu nhìn người nọ.
+
+Tả Hữu không nhìn Thôi Sàm vẫn đang giảng học, chỉ nhìn những người quay đầu về phía mình, nhíu mày quở trách: “Các ngươi vào bảy mươi hai thư viện là để làm thần tiên sao?!”
+
+Sau đó hắn hóa thành kiếm quang rộng lớn, đi thẳng đến địa giới Bắc Nhạc một châu. Biển mây gần Bạch Ngọc Kinh bị kiếm khí tách ra, hồi lâu vẫn chưa khép lại.
+
+Thôi Sàm tiếp tục dạy học, không nói nửa lời với Tả kiếm tiên vượt châu đi xa, cũng không ngăn những người trẻ tuổi tạm thời phân tâm, mặc họ thần thái sáng láng xì xào bàn tán, đoán thân phận vị kiếm tiên kia.
+
+Tả Hữu lướt qua địa giới Bắc Nhạc, cuối cùng dừng ở núi Lạc Phách. Trần Noãn Thụ giúp mở cửa, hắn đến tổ sư đường Kỳ Sắc phong thắp hương trước. Bên ngoài, Hạt Gạo đã chuyển sẵn ghế, vị trí đặt ghế hết sức chú ý, không được sai chút nào. Tiểu cô nương áo đen thậm chí nằm rạp xuống đất, ngẩng đầu nhìn kỹ, chỉ sợ đặt không ngay ngắn.
+
+Tả Hữu ngồi xuống chiếc ghế cuối cùng, thanh sam nhìn sang hai bên trái phải.
+
+Tựa như tiên sinh ngồi ở giữa, có sư đệ Quân Thiến, sư đệ Tề Tĩnh Xuân, tiểu sư đệ Trần Bình An, đại sư huynh... Thôi Sàm.
 
 Tất cả đều ở hai bên trái phải.
 
-Giống như phía sau còn có thể có đông đảo học sinh, đệ tử đích truyền của Lạc Phách Sơn.
+Tựa như phía sau còn có đông đảo học sinh, đệ tử đích truyền của núi Lạc Phách.
 
-Văn thánh nhất mạch, khai chi tán diệp.
+Văn Thánh nhất mạch khai chi tán diệp.
 
-Náo nhiệt náo nhiệt, không còn cô đơn nữa.
+Náo nhiệt, náo nhiệt, không còn cô đơn nữa.
 
-Hai bên vạt áo, ngồi ngay ngắn trên ghế, hai tay nắm chặt, nhẹ nhàng đặt trên đầu gối, mắt nhìn phía trước, mặt mỉm cười.
+Tả Hữu sửa sang vạt áo, ngồi ngay ngắn trên ghế, hai tay nắm lại nhẹ nhàng đặt trên đầu gối, mắt nhìn phía trước, mỉm cười.
 
-Sau khi đứng lên, chính là Kiếm Tiên Tả Hữu. Từ nay về sau xuất kiếm, không còn khó xử.
+Sau khi đứng lên, chính là kiếm tiên Tả Hữu. Từ nay về sau xuất kiếm, không còn khó xử.

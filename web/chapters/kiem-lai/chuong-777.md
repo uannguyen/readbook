@@ -1,389 +1,411 @@
 # Chương 777: Trần Thập Nhất
 
-Trần Bình An hai tay cầm đao, chưa sốt ruột ra tay.
+Trần Bình An cầm đao trong hai tay, không vội ra tay.
 
-Đối mặt một vị "Bạn cùng lứa tuổi" chen thân mười người trẻ tuổi, trận này nên đánh như thế nào, có chút học vấn.
+Đối mặt với một người cùng lứa chen thân vào hàng mười người trẻ tuổi, trận này nên đánh thế nào cũng là một môn học vấn.
 
-Phải biết rằng mười người đứng đầu kia, không phân biệt được trước sau.
+Phải biết mười người đứng đầu kia không phân chia thứ tự trước sau, còn hắn chỉ xếp thứ mười một.
 
-Mà hắn mới là người thứ mười một.
+Cô nương áo bông mặt tròn trước mắt đến từ trong trăng, thân phận chân thật, sư thừa và lai lịch đều như bị mây mù che phủ. Nàng dám đến nơi này, chắc chắn nắm chắc có thể sống sót rời đi, bằng không lão cẩu Long Quân kia cũng sẽ không để nàng tùy hứng làm bậy.
 
-Mà thân phận chân thật trước mắt này, sư truyền sâu xa, lai lịch nền tảng, tất cả mọi thứ, vẫn như cũ mây che sương mù vòng như cô nương áo bông che mặt tròn trốn trong trăng, nàng đã dám đến nơi đây, khẳng định là hoàn toàn nắm chắc có thể sống sót rời khỏi, bằng không lão cẩu Long Quân kia, cũng sẽ không hành động theo cảm tính của nàng.
+Cho nên tuyệt đối không thể dọa nàng chạy mất.
 
-Cho nên tuyệt đối không thể dọa nàng chạy.
+Phải để nàng yên tâm buông tay buông chân, đánh hắn vào chỗ chết.
 
-Để cho nàng yên tâm buông tay buông chân, đánh chính mình vào chỗ chết.
+Huống hồ, một người chen thân vào hàng mười người mà không đánh chết được kẻ chỉ xếp thứ mười một thì cũng không nói nổi, truyền ra ngoài lại càng khó nghe.
 
-Huống chi chen thân mười người, nếu như không đánh chết một người chỉ xếp hạng thứ mười một, nói không thông, truyền đi không dễ nghe.
+Trần Bình An chậm rãi bước về phía nàng, đôi đoản đao nhanh chóng xoay tròn giữa những ngón tay và trên mu bàn tay.
 
-Trần Bình An chậm rãi bước về phía nàng, một đôi đoản đao, ở giữa ngón tay hắn, mu bàn tay nhanh chóng xoay tròn.
+Ánh đao đan xen thành từng dải sáng. Động tác quá nhanh, ánh đao quá nhiều, hào quang không ngừng quanh quẩn, cuối cùng giống như hai vầng trăng nhỏ đáng yêu vờn quanh hai tay hắn.
 
-Ánh đao đan xen, từng dải lưu huỳnh, động tác quá nhanh, ánh đao quá nhiều, hào quang không ngừng quanh quẩn quấn quanh, cuối cùng giống như hai vầng trăng nhỏ đáng yêu bao quanh, ở trong tay Trần Bình An.
+Thấy người trẻ tuổi kia không vội động thủ, Xa Nguyệt cũng kiên nhẫn chờ hắn ra tay trước.
 
-Xa Nguyệt thấy người trẻ tuổi kia không có gấp gáp động thủ, cũng kiên nhẫn chờ hắn khởi thủ.
+Nàng rất tò mò đối phương sẽ mở màn thế nào: dùng phù lục che mắt, hay phi kiếm từng khiến kiếm tiên Giáp Thân Trướng chịu đủ đau khổ? Hoặc là nắm đấm của võ phu thuần túy?
 
-Thật tò mò đối phương sẽ dùng con đường gì để đi thẳng vào vấn đề, là phù lục của chướng nhãn pháp, hoặc là phi kiếm kiếm tu để cho Kiếm Tiên Giáp Thân Trướng chịu hết đau khổ? Hay là nắm đấm của võ phu thuần túy?
+Xa Nguyệt từng nghe không ít chuyện về vị Ẩn Quan cuối cùng của Kiếm Khí Trường Thành. Nàng vốn không thích ghi nhớ chuyện ngoài thân, vậy mà có hai câu hiếm hoi được nàng nhớ kỹ.
 
-Xa Nguyệt từng nghe nói không ít sự tích truyền kỳ về vị ẩn quan cuối đời Kiếm Khí Trường Thành này, nhất là hai cách nói, không quá thích nhớ kỹ Xa Nguyệt thân ngoại sự, khó có dịp nhớ rõ.
+Ở trong ngoài Kiếm Khí Trường Thành, có câu “Xa A Lương, gần Ẩn Quan”, lại có câu “Nam Thụ Thần, bắc Ẩn Quan”.
 
-Ở trong ngoài Kiếm Khí Trường Thành, Viễn A Lương gần Ẩn Quan, Nam Thụ Thần Bắc Ẩn Quan nha.
+Về phần động tác đẹp mắt của Trần Bình An, Xa Nguyệt xem như không thấy. Luận thần thông chơi trăng, người trong thiên hạ đến trước mặt nàng đều chỉ là trò đùa.
 
-Về phần động tác xinh đẹp kia của Trần Bình An, cho dù là Xa Nguyệt làm như không thấy, nếu bàn về thần thông "Chơi với trăng" của người trong thiên hạ, ở trước người nàng, đều là trò đùa.
+Năm đó, vương tọa đại yêu Hà Hoa am chủ, một người hàng xóm của nàng, cũng chỉ ỷ vào tuổi tác lớn hơn mà chiếm được chút tiện nghi.
 
-Năm đó vương tọa đại yêu Hà Hoa am chủ, một trong những hàng xóm của hắn cũng chỉ ỷ vào tuổi tác lớn hơn một chút, mới chiếm chút tiện nghi.
+Nàng dời mắt nhìn quanh, vẫn cảm thấy vị Ẩn Quan trẻ tuổi nổi danh ở Man Hoang thiên hạ này giống như lúc nhìn thấy từ xa trên đường đi về phương bắc: tướng mạo không tệ, nhưng cũng chỉ là không tệ, quả thật không đẹp bằng túi da của Khương Thượng Chân.
 
-Nàng chỉ dời tầm mắt đi, nhìn trái nhìn phải, vẫn cảm thấy vị Ẩn Quan trẻ tuổi danh tiếng lẫy lừng ở Man Hoang thiên hạ này tựa như nhìn thấy từ xa lúc đi về phương bắc, tướng mạo không tệ, nhưng cũng chỉ là không tệ, quả thật không đẹp bằng cái túi da của Khương Thượng Chân.
+Đương nhiên nam tử có anh tuấn hay không vốn không quan trọng, nữ tử cũng vậy.
 
-Đương nhiên, nam tử anh tuấn hay không, không quan trọng. Nữ tử cũng có đạo lý như vậy.
+Từng có một vị hàng xóm trên trời nói, chỉ cần gặp đúng người, trong mắt hai bên sẽ nhìn thấy cảnh sắc đẹp nhất. Dù trời nam đất bắc, như mặt trời mặt trăng xa xa đối diện, ánh mắt ấy vẫn mãi không đổi.
 
-Từng có một vị hàng xóm trên trời nói chỉ cần gặp đúng người, trong mắt hai bên sẽ thấy cảnh sắc đẹp nhất, như trời nam đất bắc, nhật nguyệt xa xa đối diện, ánh mắt lại mãi mãi không thay đổi.
+Đáng tiếc Xa Nguyệt thật sự không có hứng thú với tình yêu nam nữ. Những chuyện quấn quýt si mê kia, nàng nghĩ cũng không tưởng tượng nổi.
 
-Đáng tiếc cho Xa Nguyệt đối với nam nữ tình yêu thật sự không có hứng thú gì. Thật lòng quấn quýt cái gì, nàng nghĩ cũng không thể tưởng tượng.
+Trần Bình An chậm rãi bước đi, vẻ mặt nghi hoặc hỏi:
 
-Trần Bình An chậm rãi mà đi, chậm rãi hỏi, vẻ mặt nghi hoặc dò xét nói: "Lúc trước dị tượng trên trời, bớt đi một tháng, thế cho nên ngay cả ta bên này cũng có thể tâm sinh cảm ứng, sẽ không phải là bị Xa Nguyệt cô nương thu vào trong tay áo chứ? Nếu thật sự là như thế, hai ta còn đánh như thế nào, ta chẳng qua là thân ở đầu tường tiểu thiên địa, Xa Nguyệt cô nương lại là thân ở minh nguyệt đại thiên địa... Huống chi ta mới xếp hạng thứ mười một, cùng các ngươi mười người trước, cách biệt một bước, cách biệt một trời, chút tự biết chi tiết này, ta vẫn là có."
+- Lúc trước trên trời xuất hiện dị tượng, thiếu đi một vầng trăng, đến cả ta ở bên này cũng sinh lòng cảm ứng. Chẳng lẽ bị Xa Nguyệt cô nương thu vào trong tay áo rồi? Nếu thật là vậy, hai ta còn đánh thế nào? Ta chẳng qua ở trong tiểu thiên địa trên đầu tường, Xa Nguyệt cô nương lại ở trong đại thiên địa của trăng sáng. Huống hồ ta chỉ xếp thứ mười một, so với mười người các ngươi, cách nhau một bước chính là cách biệt một trời. Chút tự biết mình ấy ta vẫn có.
 
-Cô gái mặt tròn không nói về hướng đi của vầng trăng sáng kia, nói: "Nếu ngươi không muốn đánh, ta lại không sao cả. Ta vốn dĩ chính là ngắm cảnh đến, là ngươi cứ muốn hùng hổ dọa người, hô đánh hô giết với ta."
+Cô nương mặt tròn không nói đến tung tích vầng trăng, chỉ bảo:
 
-Cùng Đồng Diệp châu Khương Thượng kia thật khó trách là hảo hữu, thật không biết xấu hổ.
+- Nếu ngươi không muốn đánh thì ta cũng không sao. Vốn ta chỉ đến ngắm cảnh, là ngươi cứ hùng hổ dọa người, đòi đánh đòi giết ta.
 
-Nam nhân không biết xấu hổ, cùng tuổi tác lớn nhỏ, quả nhiên quan hệ không lớn.
+Khó trách hắn và Khương Thượng Chân ở Đồng Diệp châu là bằng hữu tốt, thật sự không biết xấu hổ như nhau.
 
-Song phương còn cách nhau chừng ba mươi trượng, chỉ là đối với cảnh giới của song phương mà nói, gần trong gang tấc, hình dung cũng không quá một chút sai biệt.
+Nam nhân không biết xấu hổ quả nhiên không liên quan mấy đến tuổi tác.
 
-Trần Bình An dừng bước không tiến về phía trước hai mươi trượng, đột nhiên thu đao, mũi đao hướng về sau, như đang lấy lòng nữ tử, mỉm cười hỏi: "Nhiếu Nguyệt cô nương, cô là khách nhân, cô nói hai ta đánh như thế nào, trước tiên hợp kế ra chương trình? Đều do cô định đoạt. Bằng không dễ tổn thương hòa khí."
+Hai bên cách nhau chừng ba mươi trượng, nhưng đối với cảnh giới của hai người, nói là gần trong gang tấc cũng không sai.
 
-Xa Nguyệt nghe mà không nghe, chỉ là nhìn đối phương song đao nhiều hơn, nói: "Đao tốt, nhuệ khí vô song, nhưng lại ẩn giấu rất sâu. Tên là gì?"
+Trần Bình An đi thêm mười trượng rồi dừng lại, đột nhiên thu đao, mũi đao hướng về sau. Hắn mỉm cười hỏi, tựa như đang lấy lòng nàng:
 
-Trần Bình An lắc đầu cười nói: "Nhặt được ven đường, không đáng nhắc tới. Không bằng được Xa Nguyệt cô nương bao quát Đại Nguyệt, thủ bút thông thiên luyện hóa thiên vận, đáng tiếc lúc trước Long Quân tiền bối lo lắng ta hỏi đạo luyện quyền không chuyên tâm, giúp thiên địa ta ngăn cách, tiếc thay chưa thể tận mắt nhìn thấy cảnh tượng kỳ tuyệt bực này."
+- Xa Nguyệt cô nương là khách, vậy cô nương nói xem hai ta nên đánh thế nào, có cần bàn trước quy củ không? Đều do cô nương quyết định, bằng không dễ làm tổn thương hòa khí.
 
-Xa Nguyệt nói: "Tuy rằng ngươi vẫn cố ý yếu thế, nhưng sát tâm nhất trọng, ngươi liền giấu không được. Ngươi không nên đem đao quang không cẩn thận ngưng tụ thành hình trăng. Đương nhiên, ta đoán ngươi vẫn cố ý làm. Ẩn quan ngươi, rời khỏi đầu tường chém giết, chi tiết lớn nhỏ của chiến dịch, sớm đã bị biên soạn thành sách, ta là có thể lật xem. Vậy Phỉ Nhiên thích nhất lấy ra lật sách chúc rượu."
+Xa Nguyệt làm như không nghe, chỉ nhìn kỹ đôi đao trong tay hắn, nói:
 
-Trần Bình An lại dừng bước, bất đắc dĩ nói: "Chẳng lẽ thật sự là do tay cầm lợi khí, sát tâm tự khởi? Trách ta tu tâm không đủ, càng bội phục ánh mắt của Xa Nguyệt cô nương độc đáo. Về phần Phỉ Nhiên huynh, ngưỡng mộ ta như thế, Xa Nguyệt sau khi luận bàn với ta, hỗ trợ chuyển lời, để cho hắn dứt khoát theo họ Trần ta là được."
+- Đao tốt, sắc bén vô song, nhưng lại giấu rất sâu. Tên là gì?
 
-Vẻ mặt của Xa Nguyệt hơi cổ quái.
+Trần Bình An lắc đầu cười:
 
-Trần Bình An giật mình nói: "Thứ đồ chơi Phỉ Nhiên thối không biết xấu hổ này, dùng tên giả đã họ Trần rồi hả? Lúc trước tới đây làm khách, cũng không chào hỏi ta trước, không hỏi tự lấy mình là kẻ trộm, nhã nhặn quét rác!"
+- Nhặt được bên đường, không đáng nhắc tới. Không bằng Xa Nguyệt cô nương thu cả vầng trăng lớn, luyện hóa thiên vận bằng thủ bút thông thiên. Đáng tiếc lúc trước Long Quân tiền bối sợ ta hỏi đạo luyện quyền không chuyên tâm, giúp ta ngăn cách thiên địa, nên chưa thể tận mắt nhìn thấy cảnh tượng kỳ tuyệt ấy.
 
-Đã nhiều năm không nói chuyện với người ngoài.
+Xa Nguyệt nói:
 
-Rất hoài niệm.
+- Tuy ngươi vẫn cố ý tỏ ra yếu thế, nhưng sát tâm quá nặng, không giấu được. Ngươi không nên để ánh đao vô tình ngưng tụ thành hình trăng. Đương nhiên, ta đoán là ngươi cố ý. Những trận chém giết sau khi Ẩn Quan ngươi rời đầu tường, từng chi tiết lớn nhỏ đều đã được biên soạn thành sách, ta có thể giở ra xem. Phỉ Nhiên thích nhất là lấy sách ấy ra xem lúc uống rượu.
 
-Cho nên Trần Bình An rất nguyện ý vì nàng phá lệ.
+Trần Bình An lại dừng bước, bất đắc dĩ nói:
 
-Hôm nay đánh nhau, trước tiên nói nhiều một chút. Càng nhiều càng tốt, mặc dù chỉ là nói thêm một câu, có thể giúp mình giết đi rất nhiều thời gian.
+- Chẳng lẽ thật sự là tay cầm lợi khí, sát tâm tự nổi? Trách ta tu tâm chưa đủ, càng bội phục ánh mắt độc đáo của Xa Nguyệt cô nương. Về phần Phỉ Nhiên huynh ngưỡng mộ ta như vậy, sau khi luận bàn với ta, phiền cô nương chuyển lời, bảo hắn dứt khoát theo họ Trần của ta đi.
 
-Thời gian trường hà gần như đình trệ dày vò tâm cảnh, Trần Bình An thật sự không muốn trải qua lần thứ hai.
+Vẻ mặt Xa Nguyệt hơi cổ quái.
 
-Đoản đao trong tay hắn, nhỏ hẹp như chủy thủ, chém giết từ sơn cốc Bắc Câu Lô Châu, lúc ấy Trần Bình An bị một nhóm thích khách Cắt Lộc Sơn mai phục tập kích.
+Trần Bình An giật mình:
 
-Một hồi gặp nhau ngõ hẹp, sau một trận chém giết hung hiểm, Trần Bình An không quá tin tưởng mình vận đạo thật tốt, mới bảo Tùy Cảnh Trừng giúp thu hồi chiến lợi phẩm, trong đó đã cho nàng ta lấy ra đôi đoản đao này, phân biệt là "Triêu Lộ" cùng "Mộ Hà". Trên thực tế chẳng những Trần Bình An cùng Tùy Cảnh Trừng ban đầu không biết hàng, còn tưởng lầm tầm thường. Ngay cả nữ tử thích khách núi Cát Lộc sơn của chủ cũ đoản đao kia cũng không nhận ra trọng bảo của tiên gia, sau đó Trần Bình An là gặp được bạn thân Lưu Cảnh Long, mới được đọc vô số tạp thư Lưu Cảnh Long Đạo Phá Thiên Cơ, Lưu Cảnh Long chẳng những dựa theo ghi chép trong sách, truyền thụ phương pháp luyện chế của Trần Bình An, hơn nữa nhận biết một thanh "Chân thân" đoản đao, minh văn "Đoăt Lộc", chính là thanh "Tào Tử Chủy Thủ" mà sách sử ghi lại, mà Tào Tử kia chính là Tào Mạt mà Trần Bình An định sau này sẽ dùng tên giả đi giang hồ mới nhất.
+- Thứ đồ chơi Phỉ Nhiên không biết xấu hổ ấy đã lấy tên giả họ Trần rồi sao? Lúc trước tới đây làm khách cũng không chào hỏi ta một tiếng. Không hỏi mà lấy là trộm, đúng là nhã nhặn quét rác!
 
-Về sau vô luận là đi Man Hoang thiên hạ, hay là trở về quê nhà thiên hạ, đối địch tất cả tu sĩ dưới thượng ngũ cảnh, Trần Bình An sẽ làm đối phương chết như thế nào cũng không biết.
+Đã nhiều năm hắn không nói chuyện với người ngoài, thật sự rất hoài niệm. Cho nên Trần Bình An rất nguyện ý phá lệ vì nàng.
 
-Về phần những người chết kia, có thể thấy được hình dáng của hắn hay không, biết được tên thật của hắn, phải xem tâm tình của Trần Bình An.
+Hôm nay đánh nhau, trước tiên cứ nói nhiều một chút. Càng nhiều càng tốt, dù chỉ nói thêm một câu cũng giúp hắn giết được chút thời gian.
 
-Đương nhiên điều kiện tiên quyết là hắn có thể rời khỏi Kiếm Khí Trường Thành.
+Nỗi dày vò tâm cảnh khi dòng sông thời gian gần như ngừng trôi, Trần Bình An thật sự không muốn trải qua lần thứ hai.
 
-Tào Tử Mạt, là thích khách đệ nhất trong bộ sử sách huy hoàng kia.
+Đôi đoản đao trong tay hắn nhỏ hẹp như chủy thủ, có được từ trận chém giết ở một sơn cốc thuộc Bắc Câu Lô Châu. Khi ấy Trần Bình An bị một nhóm thích khách Cắt Lộc Sơn mai phục tập kích.
 
-Mà lại có ba lần bại kia, cuối cùng bị Tào Mạt mất mà lấy lại được.
+Sau trận gặp nhau nơi ngõ hẹp hung hiểm ấy, Trần Bình An không quá tin vận may của mình, mới bảo Tùy Cảnh Trừng giúp thu dọn chiến lợi phẩm. Nàng lấy ra đôi đoản đao tên là “Triêu Lộ” và “Mộ Hà”. Ban đầu cả Trần Bình An lẫn Tùy Cảnh Trừng đều không nhận ra, tưởng chúng chỉ là vật tầm thường. Ngay cả nữ thích khách Cắt Lộc Sơn, chủ nhân cũ của chúng, cũng không biết đây là trọng bảo tiên gia.
+
+Về sau gặp bằng hữu tốt Lưu Cảnh Long, người đọc vô số tạp thư, hắn mới biết được huyền cơ. Lưu Cảnh Long dựa theo ghi chép trong sách truyền cho hắn phương pháp luyện chế, lại nhận ra chân thân của một thanh đoản đao có khắc hai chữ “Trục Lộc”. Đó chính là “Tào Tử chủy thủ” được ghi trong sử sách. Mà Tào Tử ấy chính là Tào Mạt, cái tên giả mới nhất Trần Bình An định dùng khi hành tẩu giang hồ.
+
+Sau này bất luận đi Man Hoang thiên hạ hay trở về quê nhà, gặp tu sĩ dưới thượng ngũ cảnh, Trần Bình An sẽ khiến đối phương chết thế nào cũng không biết.
+
+Về phần những kẻ ấy có thể nhìn rõ hình dáng hắn, biết được tên thật của hắn hay không, phải xem tâm tình của Trần Bình An.
+
+Đương nhiên, điều kiện tiên quyết là hắn có thể rời khỏi Kiếm Khí Trường Thành.
+
+Tào Tử Mạt là thích khách đứng đầu trong bộ sử sách huy hoàng ấy. Ông từng thua ba trận, cuối cùng lại giành về những gì đã mất.
 
 Điềm báo thật tốt!
 
-Phải biết rằng ở trên đầu tường Kiếm Khí Trường Thành này, Trần Bình An đích xác thua liên tiếp ba trận.
+Phải biết ở trên đầu tường Kiếm Khí Trường Thành này, Trần Bình An quả thật đã thua liên tiếp ba trận.
 
-Coi như vãn bối này của hắn được nhờ phúc từ vị Tào tiền bối kia, tóm lại Trần Bình An cam đoan tuyệt đối sẽ không để "Trục Lộc" trong tay che mờ bụi trần là được.
+Coi như vãn bối hắn được nhờ phúc vị Tào tiền bối kia. Tóm lại, Trần Bình An cam đoan tuyệt đối sẽ không để “Trục Lộc” trong tay bị phủ bụi.
 
-Trần Bình An lập tức tay phải cầm một con dao găm Tào Tử, được chính sử ghi lại là "Trục Lộc", như vậy một con dao trong tay còn lại, sử sách không có tái, Trần Bình An liền theo Cắt Lộc sơn, đặt tên là Cát Lộc là được.
+Tay phải hắn cầm Tào Tử chủy thủ, chính sử ghi tên là “Trục Lộc”. Thanh còn lại không được sử sách ghi chép, Trần Bình An bèn lấy theo Cắt Lộc Sơn, đặt tên là “Cắt Lộc”.
 
-Trước tiên tranh giành, sau lại tranh giành!
+Trước tranh giành, sau cắt lấy[?]!
 
-Chuyện đặt tên.
+Chuyện đặt tên, quả thật hắn rất am hiểu.
 
-Quả thật am hiểu.
+Xa Nguyệt hỏi:
 
-Xa Nguyệt nói: "Rốt cuộc có đánh hay không?"
+- Rốt cuộc có đánh hay không?
 
-Lúc trước ở Đồng Diệp Châu, đối mặt với Khương Thượng Chân "một mảnh lá liễu trảm tiên nhân", nhìn như không hề có lực chống đỡ, trừ cho cho Xa Nguyệt tạm thời sát lực, cảnh giới đều kém đối phương ra, cũng có nữ tử mặt tròn căn bản không nghĩ làm sao có ước nguyện dây dưa với Khương Thượng Chân. Trong mắt Xa Nguyệt, chuyện tu hành đại đạo, đánh nhau với người ta vốn không có ý nghĩa gì, mà một trận đánh chắc chắn không lại đối thủ, càng làm cho cho Xa Nguyệt cảm thấy phiền lòng, có thể trốn thì trốn. Mà những nàng kia nàng nhất định có thể tùy tiện đánh thắng, nữ tử áo bông lại càng không có hứng thú. Cho nên ở Hạo Nhiên Thiên Hạ, một đường đi xa, từ đầu tới đuôi, nàng ra tay rất ít.
+Trước kia ở Đồng Diệp châu, đối mặt với Khương Thượng Chân “một lá liễu chém tiên nhân”, nàng thoạt nhìn không có sức chống đỡ. Ngoài việc sát lực và cảnh giới của nàng tạm thời đều kém đối phương, còn bởi nữ tử mặt tròn căn bản không muốn dây dưa với hắn.
 
-Chỉ là hôm nay đối mặt với "Ẩn quan thứ mười một" cùng là một trong mười người trẻ tuổi này.
+Trong mắt Xa Nguyệt, chuyện tu hành đại đạo mà phải đánh nhau với người khác vốn không có ý nghĩa gì. Một trận chắc chắn không đánh lại càng khiến nàng phiền lòng, có thể tránh thì tránh. Còn những người nàng có thể tùy tiện đánh thắng, nữ tử áo bông lại càng không có hứng thú. Cho nên suốt đường đi ở Hạo Nhiên thiên hạ, nàng rất ít khi ra tay.
 
-Ký Nguyệt quả thật có chút tư tâm.
+Chỉ là hôm nay, đối mặt với “Ẩn Quan thứ mười một” cũng nằm trong hàng ngũ những người trẻ tuổi này, Xa Nguyệt quả thật có chút tư tâm.
 
-Ở Đồng Diệp châu Khương Thượng Chân đuổi giết vạn dặm, vẫn không thể giết nàng, trước khi rời đi, "Ý tốt" lặng yên nói một phen với nàng, đề cập đại đạo căn bản của Xa Nguyệt.
+Ở Đồng Diệp châu, Khương Thượng Chân đuổi giết nàng vạn dặm mà vẫn không giết được. Trước khi rời đi, hắn “tốt bụng” lặng lẽ nói với nàng một phen, đề cập đến căn bản đại đạo của nàng.
 
-Tựa như một câu sấm sét trong tối tăm tự có thiên ý. Giống như chỉ chờ nàng đến Đồng Diệp châu, để nghe Khương Thượng Chân nói toạc ra với nàng.
+Lời ấy giống như một câu sấm, trong cõi tối tăm tự có thiên ý, tựa hồ chỉ chờ nàng đến Đồng Diệp châu để nghe Khương Thượng Chân nói toạc ra.
 
-Xa Nguyệt không giỏi ăn nói, nhưng tuyệt không ngốc, Khương Thượng Chân một câu nói, ban đầu cũng không coi là thật, chỉ là sau khi nghe qua, đạo tâm của nàng ta rung động, không thể nghi ngờ, đúng là đại đạo huyền diệu khó giải thích.
+Xa Nguyệt không giỏi ăn nói nhưng tuyệt đối không ngốc. Ban đầu nàng không coi lời hắn là thật, nhưng sau khi nghe xong, đạo tâm nàng rung động. Đó quả thật là huyền diệu đại đạo khó giải thích.
 
-Ngôn ngữ của Khương Thượng Chân, như là một bài thơ du tiên Hạo Nhiên Thiên Hạ, như là một bài từ không trọn vẹn.
+Lời Khương Thượng Chân giống một bài thơ du tiên ở Hạo Nhiên thiên hạ, lại giống một bài từ còn thiếu sót:
 
-Muốn ngồi thuyền lên trời, cần có viên mãn bổ sung tiền, hơn nữa năm hồ nợ trăng, bán rượu bốn biển mây trắng biên giới.
+Muốn ngồi thuyền lên trời, cần có tiền bổ sung cho viên mãn; lại mượn trăng năm hồ, bán rượu bên mây trắng bốn biển[?].
 
-Khương Thượng Chân lúc ấy không nói nhiều hơn, nhưng mà ngôn ngữ lúc trước đề cập tới ẩn quan Trần Bình An, nhìn như nói đùa, Xa Nguyệt đã muốn đến bên này thử thời vận.
+Khi ấy Khương Thượng Chân không nói thêm, nhưng trước đó lúc nhắc đến Ẩn Quan Trần Bình An, lời hắn như đang nói đùa. Xa Nguyệt bèn muốn tới đây thử thời vận.
 
-Bằng không dựa theo tính tình bình thường của Xa Nguyệt, sao lại kiên nhẫn lạ thường như vậy với Ẩn Quan.
+Bằng không, theo tính tình thường ngày của nàng, sao lại kiên nhẫn khác thường với Ẩn Quan như thế? Hoặc là đã sớm bỏ đi, hoặc động thủ xong sớm rồi rời khỏi đây.
 
-Hoặc là đi sớm, hoặc là động thủ sớm rồi sớm rời đi.
+Chỉ là nếu sau này biết được chân tướng, nói không chừng Xa Nguyệt sẽ muốn lấy một vầng trăng đập chết tên họ Khương kia.
 
-Chỉ là nếu sau chuyện trăng khuyết biết được chân tướng, nói không chừng sẽ muốn lấy một vầng trăng sáng đập chết họ Khương kia.
+Bởi vì cơ duyên đại đạo ở chỗ Ẩn Quan chỉ là do Khương Thượng Chân nói bừa. Hắn chẳng qua muốn dựa vào tình nghĩa huynh đệ với Trần Bình An cùng thân phận cung phụng núi Lạc Phách, làm ông tơ một lần, tìm đệ muội cho mình.
 
-Bởi vì đại đạo cơ duyên ở Ẩn Quan, chỉ là Khương Thượng Chân nói bậy một trận, hắn chẳng qua là muốn lấy Trần Bình An "huynh đệ chí", cùng với hai thân phận cung phụng ở Lạc Phách Sơn, hồi Nguyệt Lão, tìm em dâu cho mình.
+Cho nên hắn cố ý kéo hai “người cùng lứa” cách xa vạn dặm đến với nhau. Nhưng chỗ lợi hại nhất của Khương Thượng Chân là câu sấm ấy có thật, liên quan đến một bí mật động trời của Đồng Diệp châu. Trong lịch sử, chỉ có lão tông chủ Ngọc Khuê tông Tuân Uyên và một nửa tổ sư trung hưng của Ngọc Khuê tông là Đỗ Mậu biết chuyện này[?].
 
-Cho nên cố ý mang hai "người cùng tuổi" cách xa vạn dặm, cứng rắn kéo đến cùng một chỗ. Nhưng Khương Thượng Chân lợi hại nhất, ngay tại sấm sét ngữ là thật, cái này đề cập đến một thiên đại bí văn Đồng Diệp châu, trong lịch sử từng chỉ có lão tông chủ Ngọc Khuê Tông Tuần Uyên cùng với một nửa tổ tiên trung hưng của Ngọc Khuê Tông Đỗ Mậu biết được việc này.
+Tương truyền Đồng Diệp châu từng có một gốc ngô đồng cao vút đến tận trời.
 
-Đồng Diệp châu, tương truyền từng có một gốc cây ngô đồng thông thiên.
+Có cây cao ấy, tự nhiên sẽ có trăng non treo trên ngọn ngô đồng. Cây gần trời, trăng đến nhân gian, trăng và cây cùng ở một chỗ, nửa tại nhân gian, nửa ở trên trời[?].
 
-Có cây cao này, tự nhiên sẽ có thiếu nguyệt treo sơ đồng.
+Xa Nguyệt chọn Đồng Diệp châu làm nơi đặt chân đầu tiên, thay vì Phù Diêu châu hay Bà Sa châu, vốn là theo ý Chu Mật. Sau khi Hà Hoa am chủ thân tử đạo tiêu, lại có người liên quan đến trăng ngang trời xuất thế. Còn việc Chu Mật bảo Xa Nguyệt giúp tìm Lưu Tài thật ra chỉ là thuận đường làm thêm.
 
-Cây cách trời gần, tháng qua ở nhân gian, trăng cây cùng nhau, nửa ở nhân gian nửa ở trên trời.
+Nhưng Khương Thượng Chân ám chỉ cơ duyên đại đạo của Xa Nguyệt có liên quan đến Trần Bình An thì hoàn toàn giả dối, quả thật là hắn nói hươu nói vượn.
 
-Xa Nguyệt lựa chọn Đồng Diệp châu lên bờ sớm nhất, mà không phải đi Phù Diêu châu hoặc Bà Sa châu, vốn là chu đáo thụ ý, sau khi Hà Hoa Am chủ thân tử đạo tiêu, có khác nhân nguyệt, ngang trời xuất thế. Về phần Chu Mật bảo cho Xa Nguyệt hỗ trợ tìm kiếm Lưu tài, thật ra chỉ là việc bổ sung.
+Khương Thượng Chân đối phó nữ tử thế gian luôn thật thật giả giả như vậy, cuối cùng có thể khiến tất cả lầm tưởng là thật.
 
-Nhưng vấn đề ở chỗ, Khương Thượng Chân ám chỉ cho Xa Nguyệt đại đạo liên lụy tới Trần Bình An, thì tuyệt đối là giả, là Khương Thượng Chân nói hưu nói vượn một cách hoàn toàn chính xác.
+Cho nên sau khi rời xa Xa Nguyệt, hắn sảng khoái cười to trong lòng: huynh đệ tốt, Chu Phì ta cũng chỉ có thể giúp ngươi đến đây. Coi như ta tìm cho ngươi một cô nương mặt tròn ở nơi đất khách, có thể cùng ngươi trò chuyện.
 
-Khương Thượng Chân đối phó với nữ tử thế gian, luôn luôn thật thật giả giả như vậy, giả giả thật thật, cuối cùng có thể khiến tất cả nữ tử đều lầm tưởng là thật.
+Còn Xa Nguyệt có được cơ duyên ấy, có thật sự bổ sung đại đạo hay không, Khương Thượng Chân chỉ cười nhạo: liên quan gì đến ta?
 
-Cho nên trên thực tế, sau khi Khương Thượng Chân rời xa Xa Nguyệt, trong lòng sảng khoái cười to, huynh đệ tốt, Chu Phì ta cũng chỉ có thể giúp ngươi tới nơi đây, xem như giúp ngươi tìm cô nương mặt tròn ở nơi khác quê nhà, có thể tâm sự.
+Lão tử tay chân nhỏ bé cũng đã làm đến mức này. Những kẻ đứng xa xem kịch, lão tử đều xắn tay áo chém hết!
 
-Còn về việc Xa Nguyệt có được cơ duyên này hay không, có thật là bổ sung đại đạo hay không, Khương Thượng Chân lại càng cười nhạo không thôi, liên quan gì đến ta.
+Hơn nữa, Thác Nguyệt Sơn của Man Hoang thiên hạ có thể giỏ trúc múc nước, làm áo cưới cho người khác hay không, tiểu cô nương mặt tròn có thể múc được ánh trăng trong nước hay không, đều chưa biết chừng.
 
-Lão tử tay nhỏ chân nhỏ như vậy, cũng đã làm đến mức này rồi, những kẻ đứng ngoài cuộc đứng từ xa xem kịch, đều bị lão tử cuốn cánh tay lên chém giết!
+Bởi lúc Tuân lão nhi còn sống đã từng thôi diễn, suy đoán lời tiên tri này có lẽ liên quan đôi chút đến Bạch Dã, người đắc ý nhất nhân gian.
 
-Hơn nữa, một tòa Man Hoang Thiên Hạ Thác Nguyệt Sơn, có thể giỏ trúc múc nước công dã tràng, làm áo cưới cho người khác hay không, tiểu cô nương mặt tròn, có thể giỏ trúc múc trăng nước hay không cũng không có, đều là nói không chừng.
+Xa Nguyệt đi tìm Bạch Dã? Hay là Chu Mật đi tìm Bạch Dã để cò kè mặc cả?
 
-Bởi vì lúc Tuân lão nhi còn sống, đã từng thôi diễn vài phần, suy đoán tiên tri này, có lẽ có chút quan hệ với Bạch Dã mà nhân gian đắc ý nhất.
+Khương Thượng Chân nghĩ thôi đã thấy thú vị.
 
-Xa Nguyệt đi tìm Bạch Dã?
+Dù tiểu cô nương không được đại đạo viên mãn, Khương Thượng Chân ta rộng lượng biết bao, còn tặng cho tiểu nương tử ngươi một bằng hữu tốt là Trần huynh đệ, vậy mà vẫn chưa hài lòng sao?
 
-Hay là Chu Mật đi tìm Bạch cũng cò kè mặc cả?
+Trần Bình An nào biết những khúc quanh co trong đó. Nếu Xa Nguyệt nhắc tới Khương Thượng Chân ở đây, dù chỉ một câu nửa câu, nói không chừng hắn có thể đoán ra vài phần.
 
-Khương Thượng Chân nghĩ một chút đã cảm thấy thú vị.
+Đáng tiếc nữ tử mặt tròn không thích chủ động nhắc đến tên Khương Thượng Chân luôn miệng gọi nàng là “đệ muội”, lời nói còn có chút khiến người ta buồn nôn.
 
-Dù sao cho dù tiểu cô nương không chiếm được đại đạo viên mãn, nhưng Khương Thượng Chân ta cũng đã rộng lượng cỡ nào, vậy còn tặng cho tiểu bà nương ngươi một người bạn tốt Trần huynh đệ, còn không hài lòng?!
+Trần Bình An dừng lại cách nàng mười bước, vẻ mặt khó xử hỏi:
 
-Trần Bình An nào biết đâu rằng bên này có sự cong cong quấn quanh.
+- Thật sự không nói rõ quy củ trước rồi mới động thủ sao? Lần đầu gặp mặt, không oán không thù, ra quyền nhẹ thì không có ý nghĩa, thuật pháp nặng lại dễ có kẻ tử thương.
 
-Nếu Xa Nguyệt nói đến Khương Thượng Chân ở chỗ này, cho dù chỉ có một câu nửa câu, Trần Bình An cũng nói không chừng có thể đoán ra vài phần.
+Xa Nguyệt tò mò:
 
-Đáng tiếc nữ tử mặt tròn không quá vui vẻ chủ động nhắc tới Khương Thượng Chân luôn miệng "Em dâu", nói chuyện cũng có chút ghê tởm.
+- Trước kia ngươi đánh nhau với người ta cũng thích nói dông dài như vậy sao?
 
-Trần Bình An lập tức vẻ mặt khó xử, dừng lại ở ngoài mười bước, lại hỏi: "Thực không nói trước quy củ rồi mới động thủ? Lần đầu gặp mặt, không oán không thù, ra quyền nhẹ không có ý nghĩa, thuật pháp nặng có tử thương."
+- Ta không thích, trước kia rất không thích.
 
-Ký Nguyệt tò mò hỏi: "Trước kia ngươi đánh nhau với người ta, đều thích nói dông dài như vậy?"
+Trần Bình An thu lại ý cười, hai tay cầm đao, mũi đao hướng về phía trước.
 
-"Ta không thích, trước kia rất không thích."
+Về chuyện này, khi liều mạng với Mã Khổ Huyền ở nơi đất khách quê người, hắn còn từng dạy đối phương nên làm người thế nào.
 
-Trần Bình An thu liễm ý cười, hai tay cầm đao, mũi đao hướng về phía trước.
+Hai tay áo pháp bào đỏ tươi của hắn như có tơ tự buộc thành dây, thắt chặt cổ tay áo. Người trẻ tuổi hơi khom lưng, ngước mắt lên:
 
-Về việc này, Trần Bình An từng ở một nơi tha hương quê hương, khi liều mạng với Mã Khổ Huyền, còn từng dạy đối phương làm người như thế nào.
+- Nhưng các ngươi cứ khiến ta không thích, ta có cách nào? Xa Nguyệt cô nương, không bằng ngươi dạy ta làm thế nào để được tùy ý làm việc đi?!
 
-Hai tay áo đỏ tươi pháp bào trên người Trần Bình An, như có sợi tơ tự hành trói buộc làm dây thừng, trói buộc cổ tay áo, người trẻ tuổi hơi khom lưng, thân hình còng xuống, ánh mắt hơi hơi nhấc lên vài phần, "Nhưng các ngươi vẫn khiến ta không thích, ta có biện pháp nào?! Xa Nguyệt cô nương, không bằng ngươi dạy ta làm việc tùy ý mình như thế nào?!"
+Nhìn sắc mặt và ánh mắt hắn, Xa Nguyệt nói:
 
-Xa Nguyệt nhìn sắc mặt cùng ánh mắt của người trẻ tuổi kia, "Bớt nói nhảm, một nén nhang, tới giết ta là được."
+- Bớt nói nhảm. Một nén hương, cứ tới giết ta là được.
 
-Xa Nguyệt giơ cổ tay lên, hai ngón tay khép lại, có ánh trăng ngưng tụ như đèn, nhẹ nhàng vung lên, ánh trăng tiêu tán ở Kiếm Khí Trường Thành, dùng cho rằng hai bên tính thời gian một nén nhang âm, bỗng nhiên, đầu tường ánh trăng, lại lấy tốc độ rõ ràng của hai bên chậm rãi tối tăm, tựa như ánh trăng dần dần rời khỏi nhân gian, phàm tục không hay biết, tiên nhân có thể đếm được.
+Nàng giơ cổ tay, khép hai ngón tay lại. Ánh trăng ngưng tụ như ngọn đèn, theo cái vung tay nhẹ nhàng của nàng tản ra khắp Kiếm Khí Trường Thành, dùng để tính thời gian một nén hương. Ánh trăng trên đầu tường bắt đầu tối dần với tốc độ hai người đều thấy rõ, tựa như trăng sáng dần rời khỏi nhân gian, phàm nhân không hay biết, tiên nhân lại có thể đếm được.
 
-Trần Bình An cười nheo mắt, nhưng đã một lần nữa thẳng lưng lên, "Khách nhân xa xôi có cầu, chủ nhân không dám không cho."
+Trần Bình An cười nheo mắt, một lần nữa đứng thẳng lưng:
 
-Cho dù Hận Nguyệt có tính tình tốt nhưng cũng có chút phiền phức. Rõ ràng đối phương đã vất vả ẩn giấu như vậy mà trong lòng vẫn có sát ý lớn như vậy. Trên người hắn có hung khí nặng như vậy, nhưng lại phải cười nói dịu dàng như thế. Nếu như cố nhân gặp lại, hắn sẽ cùng bằng hữu ôn chuyện.
+- Khách phương xa có lời cầu, chủ nhân không dám không đáp ứng.
 
-Cô lạnh lùng nói: "Có ý giết người, lại muốn lừa gạt ta lưu lực chém giết, ngươi là người không quan trọng."
+Dù tính tình tốt, Xa Nguyệt cũng hơi phiền lòng. Rõ ràng đối phương đã vất vả che giấu, nhưng sát ý trong lòng vẫn lớn như vậy. Trên người mang hung khí nặng nề, hắn lại cứ cười nói dịu dàng, tựa như cố nhân gặp lại đang ôn chuyện với bằng hữu.
 
-Trần Bình An khí thế đột nhiên biến đổi, nào còn có nửa điểm tức giận giận giận giận dữ, nhẹ nhàng gật đầu, vẻ mặt chấp nhận sâu sắc, còn hơi mang vài phần áy náy, ngoài miệng lại nói: "Ta đến từ ngõ Nhân Gian Lậu, ngươi đến từ trời trăng sáng. Xa Nguyệt cô nương là trích tiên nhân trên sách, cùng ta chú ý làm cái gì, đây không phải là Xa Nguyệt cô nương khi dễ người sao. Như vậy không tốt lắm, về sau sửa lại."
+Nàng lạnh lùng nói:
 
-Thì ra có thể nói chuyện với ai, chính là một chuyện vui sướng cả đời.
+- Có ý giết người mà còn muốn lừa ta giữ sức khi chém giết, ngươi không phải người quân tử[?].
 
-Thật sự là làm cho Ẩn Quan Đại Nhân từ đáy lòng thoải mái đến sắp rơi lệ.
+Khí thế Trần Bình An đột nhiên biến đổi, chẳng còn nửa điểm giận dữ. Hắn nhẹ nhàng gật đầu, vẻ mặt hết sức tán đồng, còn hơi áy náy, nhưng ngoài miệng lại nói:
 
-Nhớ kỹ trước kia ở trên sách, nhìn thấy có người thích uống rượu lại tỉnh một mình, có tiếng khóc cùng đường.
+- Ta đến từ ngõ nhỏ nơi nhân gian, ngươi đến từ vầng trăng sáng trên trời. Xa Nguyệt cô nương là trích tiên nhân trong sách, so đo với ta làm gì? Chẳng phải cô nương đang bắt nạt người sao? Như vậy không tốt lắm, về sau sửa đi.
 
-Lúc ấy chỉ cảm thấy cảnh giới Thánh Hiền quá cao, tầm mắt của mình quá thấp, cho nên không thể nào hiểu được vì sao lại khóc. Năm đó cảm thấy sau này đi xa một chút, đọc sách nhiều sẽ hiểu được.
+Hóa ra có người để nói chuyện là một chuyện vui sướng biết bao trong đời, khiến Ẩn Quan đại nhân thoải mái từ đáy lòng, gần như muốn rơi lệ.
 
-Đợi đến khi biết được vì sao cổ nhân lại khóc, mới biết hóa ra là không biết mới tốt.
+Hắn nhớ trước kia đọc sách, thấy có người thích uống rượu, lại có người tỉnh một mình, khóc khi đi đến đường cùng.
 
-Cổ nhân xe đi đường cùng, vẫn có thể theo đường cũ mà về.
+Khi ấy hắn chỉ cảm thấy cảnh giới thánh hiền quá cao, tầm mắt mình quá thấp, không hiểu được vì sao người ta khóc. Hắn nghĩ sau này đi xa hơn, đọc nhiều sách hơn sẽ hiểu.
 
-Cho nên Trần Bình An lấy thân đao song đao, học theo rằng cô gái kia vỗ nhẹ hai má.
+Đến khi biết vì sao cổ nhân khóc, hắn mới biết hóa ra không hiểu vẫn tốt hơn.
 
-Mỗi khi Xa Nguyệt tức giận, trước khi động thủ, sẽ theo thói quen nâng hai tay lên, vỗ mạnh hai má.
+Cổ nhân đi xe đến đường cùng vẫn có thể theo đường cũ trở về.
 
-Cùng người này lải nhải lâu như vậy, đến cuối cùng nửa điểm không cảm thấy cơ hội đại đạo ở đây, còn nói cho hắn nhiều ngôn ngữ âm dương quái khí như vậy, thật sự làm cho nàng phiền não.
+Trần Bình An lấy sống hai thanh đao, bắt chước cô nương kia vỗ nhẹ hai má.
 
-Lúc này còn dám học theo ta?!
+Mỗi khi tức giận, trước lúc động thủ, Xa Nguyệt có thói quen giơ hai tay vỗ mạnh hai má.
 
-Sau khi cho Xa Nguyệt dùng sức vỗ má, lập tức từ trên mặt nàng, có ánh sáng thanh huy tứ tán, hóa thành vô số tia sáng, ánh trăng bị nàng hái lấy luyện hóa như nước, tựa như dòng sông thời gian chảy xuôi, không nhìn cấm chế thiên địa riêng của Kiếm Khí Trường Thành cùng Giáp Tử Trướng, ánh trăng tinh tế vỡ vụn, ở khắp mọi nơi trong nửa tòa Kiếm Khí Trường Thành.
+Nói dông dài với người này lâu như vậy, cuối cùng vẫn không cảm nhận được chút cơ duyên đại đạo nào ở đây, lại còn nghe hắn nói bao lời âm dương quái khí, nàng thật sự phiền não.
 
-"Quy Nguyệt" đứng ở đầu tường bị song đao đâm trúng, một đao đứt cổ, một đao đâm trúng ngực.
+Lúc này hắn còn dám học theo nàng?!
 
-Đương nhiên chỉ là biểu hiện giả dối của Xa Nguyệt, đơn giản là dùng để kiểm tra tốc độ xuất đao của đối phương, cùng với trình độ sắc bén của lưỡi đao.
+Sau khi Xa Nguyệt dùng sức vỗ má, thanh huy lập tức tản ra từ gương mặt nàng, hóa thành vô số tia sáng. Ánh trăng nàng hái lấy luyện hóa chảy như nước, tựa dòng sông thời gian, không để ý đến cấm chế thiên địa của Kiếm Khí Trường Thành và Giáp Tử Trướng. Ánh trăng vụn vỡ ở khắp nơi trên nửa tòa Kiếm Khí Trường Thành.
 
-Bản mạng thần thông của Xa Nguyệt có thể khiến cho Khương Thượng Chân một vị kiếm tu Tiên Nhân cảnh tế ra phi kiếm bản mạng mới tìm được chân thân, cho dù Ẩn Quan Hợp Đạo Kiếm Khí Trường Thành này chung quy vẫn chỉ là Ngọc Phác cảnh.
+Một “Xa Nguyệt” đứng trên đầu tường bị hai thanh đao đâm trúng, một đao cắt đứt cổ, một đao xuyên qua ngực.
 
-Xa Nguyệt có thể tránh được, còn có thể như Ngọc Phác Kiếm Tiên đưa ra "phi kiếm", như tu sĩ tiên nhân tế ra trăm ngàn loại thuật pháp.
+Đương nhiên đó chỉ là ảo ảnh của nàng, dùng để thử tốc độ xuất đao và độ sắc bén của lưỡi đao đối phương.
 
-Nếu như Xa Nguyệt muốn học tập thuật pháp, mặc kệ ngươi có truyền thừa độc môn như thế nào, mật truyền ra sao, chỉ cần ở dưới ánh trăng chiếu rọi, chỉ cần cảnh giới không có chênh lệch quá xa, như vậy chỉ cần bị nàng "gặp qua" một lần, nàng liền đạt được chân ý trong đó ít nhất bảy tám phần.
+Bản mạng thần thông của Xa Nguyệt từng khiến kiếm tu Tiên Nhân cảnh như Khương Thượng Chân phải tế ra phi kiếm bản mạng mới tìm được chân thân. Còn Ẩn Quan này dù hợp đạo với Kiếm Khí Trường Thành, chung quy vẫn chỉ là Ngọc Phác cảnh.
 
-Thật không phải là Xa Nguyệt xem thường Ẩn Quan đại nhân nổi danh với thủ đoạn chồng chất.
+Xa Nguyệt có thể tránh né, cũng có thể như kiếm tiên Ngọc Phác cảnh xuất “phi kiếm”, như tu sĩ tiên nhân tế ra trăm ngàn thuật pháp.
 
-Man Hoang thiên hạ, luận thủ đoạn từng đôi chém giết nhiều vô số kể, trong bạn cùng lứa tuổi, đệ nhất ở nợ trăng, hoàn toàn xứng đáng.
+Nếu nàng muốn học một môn thuật pháp, mặc cho đối phương có truyền thừa độc môn, mật truyền thế nào, chỉ cần ở dưới ánh trăng và cảnh giới không chênh lệch quá xa, nàng “nhìn thấy” một lần là có thể nắm được ít nhất bảy tám phần chân ý.
 
-Cho nên trên bí lục Giáp Tử Trướng, cô nương mặt tròn áo bông này có mỹ danh là "Thiên hạ kho vũ khí".
+Không phải Xa Nguyệt xem thường vị Ẩn Quan đại nhân nổi danh thủ đoạn chồng chất.
 
-Phù triện, phi kiếm, pháp tướng kim thân, cơ quan khôi lỗi, chân thân Đại Yêu, bảo giáp Tiên gia, trọng khí công phạt...
+Ở Man Hoang thiên hạ, nếu luận số lượng thủ đoạn chém giết một chọi một, trong những người cùng lứa, Xa Nguyệt đứng đầu hoàn toàn xứng đáng.
 
-Lòng ta có suy nghĩ, liền hiển hóa mà thành, chất liệu đơn giản đều là ánh trăng của ta.
+Cho nên trong bí lục Giáp Tử Trướng, cô nương mặt tròn áo bông có mỹ danh là “Kho vũ khí thiên hạ”.
 
-Thậm chí ngay cả thể phách võ phu Sơn Điên cảnh tầm thường, muốn có như Ký Nguyệt là có thể có.
+Phù triện, phi kiếm, pháp tướng kim thân, cơ quan khôi lỗi, chân thân đại yêu, bảo giáp tiên gia, trọng khí công phạt...
 
-Chỉ tiếc cho cho nợ nguyệt bị giới hạn bởi đạo hạnh trước mắt, "Khí lực võ phu", hôm nay dừng bước ở trình độ cứng cỏi của cửu cảnh, hơn nữa xa trăng không quá thích thuật kỹ kích của võ phu cận thân, cái này tựa như ánh trăng ở nhân gian, trăng lại chỉ sẽ treo cao trên trời.
+Trong lòng nàng nghĩ tới thứ gì, thứ ấy liền hiện ra. Chất liệu chẳng qua đều là ánh trăng của nàng.
 
-Người đầu tiên trúng hai đoản đao "Quy Nguyệt", bởi vì Xa Nguyệt cố ý đắp nặn thành thể phách Viễn Du cảnh, cho nên cũng không có gì ngoài ý muốn, chỉ có một kết cục chết bất đắc kỳ tử ngay tại chỗ.
+Thậm chí thể phách của võ phu Sơn Điên cảnh tầm thường, chỉ cần muốn là nàng cũng có thể có.
 
-Cô gái trẻ tuổi áo bông giày vải dày mặt tròn, biểu hiện giả dối đó của nàng vỡ vụn, ánh trăng biến mất không dấu vết, không dấu vết có thể tìm ra.
+Chỉ tiếc đạo hạnh hiện tại hạn chế, “khí lực võ phu” của nàng dừng lại ở mức độ cứng cỏi của cửu cảnh. Hơn nữa Xa Nguyệt không thích thuật cận thân của võ phu, tựa như ánh trăng chiếu nhân gian, nhưng trăng chỉ treo cao trên trời.
 
-Trần Bình An tuy theo sau Xa Nguyệt khác, chợt lóe rồi biến mất, nhưng mà phụ cận đầu tường, ở trước khi hai tay hắn xuất đao, đã có lòng bàn tay, dị tượng lan tràn, bỗng dưng hiện ra một đạo pháp ấn trong suốt không tỳ vết, tạo hóa trong lòng bàn tay, sắc lệnh ngũ pháp lôi.
+“Xa Nguyệt” đầu tiên trúng hai đoản đao được nàng cố ý tạo thành thể phách Viễn Du cảnh, cho nên không có gì ngoài ý muốn, chỉ có một kết cục chết ngay tại chỗ.
 
-Đạo Ngũ Lôi Chính Pháp tùy tâm mà lên này, cũng không đánh chết biểu hiện giả dối của Xa Nguyệt, đối phó một đối thủ võ phu Viễn Du cảnh, nơi nào cần hưng sư động chúng như thế.
+Ảo ảnh cô nương trẻ tuổi mặt tròn, mặc áo bông đi giày vải dày kia vỡ vụn, ánh trăng biến mất không dấu vết.
 
-Chỉ là lôi quang đại chấn, trước khi song đao giết địch, cũng đã chiếu khắp trong vòng hơn mười trượng, chính là để sau khi điều tra dấu vết để lại tiêu tán ánh trăng, nếu hai người đánh giáp lá cà, cho dù chỉ có một chỗ va chạm rất nhỏ, như vậy Trần Bình An đủ để chiếm được một đường tiên cơ, một đường chính là vạn nhất, Trần Bình An có hy vọng biến nó thành một vạn chém giết bắt đôi dưới núi!
+Trần Bình An thoáng chốc đuổi theo một Xa Nguyệt khác. Nhưng trước khi hắn xuất đao gần đầu tường, trong lòng bàn tay đã xuất hiện một pháp ấn trong suốt không tỳ vết. Tạo hóa trong lòng bàn tay, sắc lệnh Ngũ Lôi pháp.
 
-Một vạn địch thủ, ta liền cho ngươi một vạn.
+Đạo Ngũ Lôi Chính Pháp tùy tâm mà sinh ấy không phải dùng để giết ảo ảnh Xa Nguyệt. Đối phó một võ phu Viễn Du cảnh, đâu cần hưng sư động chúng như vậy.
 
-Lấy thành đối đãi người, hậu lễ đãi khách.
+Lôi quang chấn động, trước khi song đao giết địch đã chiếu sáng phạm vi hơn mười trượng, chính là để tìm dấu vết ánh trăng tiêu tán. Nếu hai bên đánh giáp lá cà, cho dù chỉ một va chạm rất nhỏ, Trần Bình An cũng đủ giành được một đường tiên cơ. Một phần vạn cơ hội ấy, hắn có hy vọng biến thành một vạn phần thắng trong cuộc chém giết dưới núi[?]!
 
-Xưng ngươi tâm toạ ta nguyện.
+Ngươi cho ta một phần vạn, ta sẽ trả ngươi một vạn[?].
 
-Chỉ tiếc cho Xa Nguyệt cô nương quá khách khí, không để lại chút sơ hở này.
+Lấy thành đối đãi người, hậu lễ đãi khách, vừa ý ngươi cũng vừa lòng ta.
 
-Cũng tốt.
+Đáng tiếc Xa Nguyệt cô nương quá khách khí, không để lại chút sơ hở nào.
 
-Nếu không cái gọi là mười người trẻ tuổi thiên hạ, chẳng phải là làm cho người ta quá thất vọng sao.
+Cũng tốt. Nếu không, mười người trẻ tuổi thiên hạ chẳng phải sẽ khiến người ta quá thất vọng sao?
 
-Nếu không thì các ngươi có tư cách gì chen thân vào cùng hàng với nàng?!
+Bằng không các ngươi có tư cách gì đứng cùng hàng với nàng?!
 
-Trần Bình An ở chỗ màn trời tiểu thiên địa, song đao quấy nát một mảng lớn màu trăng, sau đó ngự phong huyền đình, quan sát đầu tường.
+Ở khoảng trời của tiểu thiên địa, Trần Bình An dùng song đao khuấy nát một mảng lớn ánh trăng, sau đó ngự gió đứng lơ lửng, nhìn xuống đầu tường.
 
-Thân hình của Xa Nguyệt kia từ một hóa ba, cách xa nhau cực xa.
+Thân hình Xa Nguyệt từ một hóa ba, cách nhau rất xa.
 
-Trần Bình An trừ hai thanh bản mạng phi kiếm thật sự thuộc về kiếm tu, chim trong lồng, Tỉnh Trung Nguyệt.
+Ngoài hai thanh bản mạng phi kiếm thật sự thuộc về kiếm tu là Chim Trong Lồng và Trăng Trong Giếng, Trần Bình An còn có hai phi kiếm đại luyện với thân phận luyện khí sĩ là Mùng Một, Mười Lăm, cùng hai thanh kiếm mô phỏng kiếm tiên Nộ Kiếm Sơn là Khụ Lôi và Tùng Châm.
 
-Còn có hai thanh phi kiếm đại luyện thân là Luyện Khí sĩ, Mùng Một và Mười Lăm, cộng thêm hai thanh kiếm tiên Nộ Kiếm Sơn mô phỏng kiếm, khụ lôi và tùng châm.
+Hắn khẽ động tâm niệm, Khụ Lôi và Tùng Châm nhanh như chớp lao về phía hai cô nương. Bản thân hắn thi triển súc địa sơn hà, thoáng cái xuất hiện ngoài mấy ngàn trượng, đối mặt với người còn lại, thấy nàng bày quyền giá nghênh địch.
 
-Trần Bình An tâm ý khẽ động, khụ lôi cùng tùng châm nhanh như điện chớp, thẳng đến hai cô nương trong đó mà đi.
-
-Còn bản thân Trần Bình An thì súc địa sơn hà, nháy mắt xuất hiện ở ngoài mấy ngàn trượng, đối phó với một trong hai người đối mặt mình, còn bày ra một cái quyền giá đối địch cho Xa Nguyệt.
-
-Thể phách Viễn Du cảnh lúc trước không chịu nổi một đòn, ngươi đã đổi thể phách Sơn Điên cảnh, để cân nhắc nắm đấm Sơn Điên cảnh của mình nặng bao nhiêu?
+Thể phách Viễn Du cảnh lúc trước không chịu nổi một đòn, bây giờ ngươi đổi sang thể phách Sơn Điên cảnh, muốn thử xem nắm đấm Sơn Điên cảnh của mình nặng bao nhiêu sao?
 
 Thật sự coi mình là Tiêu Ngọc ra quyền sao?!
 
-Chỉ nhìn Ký Nguyệt quyền thứ nhất đối địch, dù là Trần Bình An thích coi trọng đối thủ như vậy, người cẩn thận liếc mắt một cái lại cảm thấy quyền pháp của nàng ta quá thô, thần ý quá giả, nội tình quá kém.
+Chỉ nhìn quyền đầu tiên của Xa Nguyệt, ngay cả một người luôn coi trọng đối thủ như Trần Bình An cũng nhận ra quyền pháp của nàng quá thô, thần ý quá giả, nội tình quá kém.
 
-Có lẽ vị võ phu này mượn trăng, chỗ duy nhất có thể lấy, chính là tốc độ không chậm, có vài phần cảm giác năm đó khi Úc Phu hỏi quyền.
+Có lẽ điểm duy nhất đáng nói của vị võ phu do ánh trăng tạo thành này là tốc độ không chậm, có vài phần giống lúc Úc Phu hỏi quyền năm đó.
 
-Một bộ đỏ tươi, tay áo phiên diêu, cầm song đao, trằn trọc xê dịch, đom đóm không ngừng, truy đuổi kẻ địch, cắt trời đất.
+Một thân áo đỏ tươi, tay áo tung bay, hắn cầm song đao không ngừng xê dịch, đuổi theo kẻ địch, ánh đao cắt ngang trời đất.
 
-Võ phu xa vợ có khí lực Sơn Điên cảnh cùng quyền pháp sở học, lại chỉ có thể vừa lui vừa lui, chỉ có thể tránh né lại tránh né.
+Võ phu Xa Nguyệt có khí lực Sơn Điên cảnh và quyền pháp học được, vậy mà chỉ có thể liên tục lùi lại, không ngừng tránh né.
 
-Cho dù tốc độ di chuyển của nàng vẫn luôn hơn một bậc, nhưng Trần Bình An mấy lần "trùng hợp" xuất hiện ở chỗ nàng lui lại, cực kỳ nguy hiểm.
+Tuy tốc độ di chuyển của nàng vẫn nhanh hơn một bậc, Trần Bình An mấy lần “trùng hợp” xuất hiện ngay nơi nàng lui đến, khiến nàng gặp hiểm nguy.
 
-Nàng vốn định hỏi thăm thử xem trình độ cứng cỏi của đối phương, nhưng hai bên hỏi quyền như thế, nàng làm sao có thể thực hiện được.
+Nàng vốn định thử xem thể phách đối phương cứng cỏi đến mức nào, nhưng hai bên hỏi quyền như vậy, nàng làm sao thực hiện được?
 
-Cùng là Sơn Điên cảnh, võ phu thuần túy cùng cảnh, quả thật vẫn là chênh lệch quá lớn.
+Cùng là Sơn Điên cảnh, so với võ phu thuần túy cùng cảnh giới, chênh lệch quả thật quá lớn.
 
-Khi Nhất Đao sắp đâm thủng đầu vai đối phương, Trần Bình An thế mà vặn vẹo thân hình, đổi một khuỷu tay, nhẹ nhàng bâng quơ nện ở trên trán Xa Nguyệt.
+Khi một đao sắp đâm thủng đầu vai đối phương, Trần Bình An lại vặn người, đổi thành một cú thúc khuỷu tay, nhẹ nhàng nện lên trán Xa Nguyệt.
 
-Xa Nguyệt trượt ra ngoài hơn mười trượng, một đôi giày vải do ánh trăng ngưng tụ mà thành, nát vụn, nàng ngừng lui về phía sau, mới một lần nữa " xỏ vào" một đôi giày vải mới.
+Nàng trượt ra ngoài hơn mười trượng, đôi giày vải ngưng tụ từ ánh trăng vỡ vụn. Đợi ngừng lui, nàng mới một lần nữa “xỏ” đôi giày mới.
 
-Người trẻ tuổi kia, thân thể hơi nghiêng, lại ngửa ra sau, cứ như vậy mang lưng tặng cho một võ phu đỉnh phong trăng khuyết, cười nhìn về phía nàng, vẻ mặt lười biếng hỏi: "Có phải không vui chút nào hay không?"
+Người trẻ tuổi nghiêng người rồi ngả ra sau, cứ thế để lộ lưng trước mặt võ phu đỉnh phong Xa Nguyệt. Hắn cười nhìn nàng, lười biếng hỏi:
 
-Cô nương mặt tròn võ phu Xa Nguyệt mặt không biểu tình, mặc "Áo bông", trên người có thêm một pháp bào hoa mỹ tiên khí phiêu nhiên, mà ở bên ngoài pháp bào, lại có thêm một bộ binh gia bảo giáp, bảo quang lưu chuyển, bảy màu rực rỡ, rực rỡ đến cực điểm.
+- Có phải không vui chút nào không?
 
-Pháp bào không nhận ra, nhưng bảo giáp kia lại có chút đoán ra manh mối, Trần Bình An trừng to mắt, khôi phục vài phần bản sắc Bao Phục trai, tò mò hỏi: "Nủ Nguyệt cô nương, cái bảo giáp biến ảo trên người cô, là Cam Lộ giáp tên là "Thất Thải"? Đúng rồi đúng rồi, thiên hạ Man Hoang thực sự không tính là nhỏ, lịch sử lâu dài không thua nơi khác, cô lại đến từ trong trăng, là thần tiên chủng ta hâm mộ cũng không được, không lẽ trừ bảy màu, còn từng kiến thức "Vân Hải" hào quang" hai giáp?"
+Võ phu mặt tròn không chút biểu cảm. Bên ngoài “áo bông” của nàng xuất hiện thêm một pháp bào hoa mỹ, tiên khí phiêu nhiên; ngoài pháp bào lại thêm một bộ bảo giáp Binh gia, bảo quang lưu chuyển, bảy màu rực rỡ đến cực điểm.
 
-Bạn tốt Chung Khôi, đọc sách nhiều, học vấn lớn, năm đó liếc một cái liền nhận ra lai lịch giáp trụ trên người Ngụy Tiện.
+Trần Bình An không nhận ra pháp bào, nhưng lại đoán được chút lai lịch bảo giáp. Hắn mở to mắt, khôi phục mấy phần bản sắc Bao Phục trai, tò mò hỏi:
 
-Phật quốc, nụ hoa, sơn quỷ, thủy tiên, hào quang, Thải Y, biển mây, Tây Nhạc.
+- Xa Nguyệt cô nương, bộ bảo giáp biến ảo trên người cô nương là Cam Lộ giáp tên “Thất Thải” sao? Đúng rồi, Man Hoang thiên hạ thật sự không nhỏ, lịch sử lâu đời chẳng thua nơi khác. Cô nương lại đến từ trong trăng, là thần tiên chủng khiến ta hâm mộ cũng không được. Chẳng lẽ ngoài Thất Thải, cô nương còn từng thấy hai bộ giáp “Vân Hải” và “Hà Quang”?
 
-Tổng cộng bảy món "tương Lộ Giáp" sớm nhất của tổ tông, trừ món Tây Nhạc Trần Bình An đắc thủ chuyển cho Ngụy Tiện kia, dựa theo cách nói của Chung Khôi, hôm nay nghe nói chỉ còn lại có sơn quỷ cùng Thải Y, còn từng có ghi chép hiện thế, còn lại đều đã không còn trên đời.
+Bằng hữu tốt Chung Khôi đọc nhiều sách, học vấn uyên thâm, năm đó liếc mắt đã nhận ra lai lịch giáp trụ trên người Ngụy Tiện.
 
-Võ phu Xa Nguyệt không lên tiếng, lại khởi quyền giá, ngoắc ngón tay với người trẻ tuổi muốn ăn đòn kia.
+Phật Quốc, Nụ Hoa, Sơn Quỷ, Thủy Tiên, Hà Quang, Thải Y, Vân Hải, Tây Nhạc[?].
 
-Nắm đấm cứng rắn đến đâu, người và song đao, lại xuất quỷ nhập thần, ngươi thật sự có thể giết người sao?
+Trong bảy bộ Cam Lộ giáp tổ tông sớm nhất, ngoại trừ bộ Tây Nhạc Trần Bình An may mắn có được rồi chuyển cho Ngụy Tiện, theo lời Chung Khôi, ngày nay nghe nói chỉ có Sơn Quỷ và Thải Y từng được ghi chép xuất hiện, những bộ còn lại đều không còn trên đời.
 
-Ánh mắt nữ tử tựa như đang nói, có bản lãnh hoàn toàn đập nát thể phách võ phu này, nói không chừng sẽ nói đôi lời với ngươi.
+Võ phu Xa Nguyệt không lên tiếng, lại bày quyền giá, ngoắc ngón tay với người trẻ tuổi đáng ăn đòn kia.
 
-Trần Bình An nhớ tới món Tây Nhạc Cam Lộ Giáp may mắn có được kia, liền rất khó không nhớ tới một số người cùng chuyện.
+Nắm đấm dù cứng đến đâu, người và song đao dù xuất quỷ nhập thần, ngươi thật sự giết được người sao?
 
-Có những lúc không thể không thừa nhận, thấy càng nhiều, biết càng nhiều, cũng không thoải mái, không hoàn toàn là chuyện tốt.
+Ánh mắt nữ tử tựa như đang nói: có bản lĩnh thì hoàn toàn đập nát thể phách võ phu này, nói không chừng ta sẽ nói với ngươi đôi lời.
 
-Bởi vì dễ dàng nhận mệnh.
+Nhớ tới bộ Tây Nhạc Cam Lộ giáp may mắn có được, Trần Bình An khó tránh nhớ đến một số người và một số chuyện.
 
-Cũng may Trần Bình An cho tới bây giờ vẫn luôn nhận mệnh, chính là vì có thể ở một vài thời khắc nào đó không nhận mệnh.
+Có lúc không thể không thừa nhận, thấy càng nhiều, biết càng nhiều, cũng không thoải mái, không hoàn toàn là chuyện tốt. Bởi vì như vậy dễ nhận mệnh.
 
-Nếu không, một khi không cẩn thận vui buồn tương thông, ngược lại sẽ làm người quen cẩn thận nhất, đặc biệt khó có thể tiêu thụ.
+May mà Trần Bình An từ trước đến nay luôn nhận mệnh, chính là để vào một vài thời khắc có thể không nhận mệnh.
 
-Nếu như Xa Nguyệt cô nương tự mình tìm đánh, vậy mình sẽ lấy ra chút thành ý.
+Bằng không, một khi bất cẩn để vui buồn ảnh hưởng đến nhau, người vốn quen cẩn thận nhất ngược lại sẽ đặc biệt khó chịu đựng[?].
 
-Thân là võ phu thuần túy, quá so đo nam nữ thụ thụ bất thân, không đủ hào kiệt!
+Nếu Xa Nguyệt cô nương tự tìm đánh, vậy hắn sẽ lấy ra chút thành ý.
 
-Trần Bình An xoay người, lấy thần thông thượng ngũ cảnh của Tụ Trung Càn Khôn, thu hồi một đôi pháp đao thuận tay kia.
+Thân là võ phu thuần túy mà quá so đo nam nữ thụ thụ bất thân thì không đủ hào kiệt!
 
-Chuyện quyền quyền, cầu còn không được.
+Trần Bình An xoay người, dùng thần thông Tụ Lý Càn Khôn của thượng ngũ cảnh thu hồi đôi pháp đao thuận tay kia.
 
-Trần Bình An hận không thể đánh ra trăm ngàn quyền của nàng, lấy bộ quyền ý đỉnh phong thể phách võ phu Sơn Điên cảnh này của nàng, nện ở trên người mình.
+Chuyện hỏi quyền, hắn cầu còn không được. Trần Bình An hận không thể khiến nàng đánh ra trăm ngàn quyền, đem quyền ý và thể phách võ phu Sơn Điên cảnh đỉnh phong ấy nện lên người mình.
 
-Chỉ là khi Trần Bình An đặt Sơn Điên cảnh của mình ở chỗ thấp nhất trong nhất cảnh, cho dù tốc độ của võ phu Xa Nguyệt đủ nhanh, thế mà lại không có ý định chủ động ra quyền, nói rõ hoặc là chống lại một quyền của Trần Bình An, hoặc là lấy thể phách thêm pháp bào cộng thêm Cam Lộ giáp bảy màu, trúng một quyền.
+Chỉ là khi hắn áp chế Sơn Điên cảnh của mình xuống mức thấp nhất, cho dù võ phu Xa Nguyệt có tốc độ đủ nhanh, nàng vẫn không định chủ động ra quyền. Nàng nói rõ hoặc là đỡ một quyền của Trần Bình An, hoặc lấy thể phách cùng pháp bào và Thất Thải Cam Lộ giáp chịu một quyền.
 
-Nếu Trần Bình An qua loa cho xong, Xa Nguyệt lại không sao cả, dù sao chỉ có thời gian một nén nhang, thời gian vừa đến, nàng sẽ rời đi đúng giờ, rời khỏi Kiếm Khí Trường Thành.
+Nếu Trần Bình An qua loa cho xong, Xa Nguyệt cũng chẳng sao. Dù sao chỉ có thời gian một nén hương, đến lúc đó nàng sẽ rời khỏi Kiếm Khí Trường Thành đúng giờ.
 
-Cho nên Trần Bình An đành phải không hề tàng tư làm cho mình cũng cảm thấy băn khoăn, chẳng những ra quyền tăng thêm, cũng thoáng tăng nhanh thân hình vài phần, một quyền đập nát Cam Lộ Giáp thật giả hai có thể nói, lại một quyền đập nát kiện pháp bào không biết tên kia, một quyền cuối cùng đánh nổ đầu lâu võ phu Xa Nguyệt.
+Cho nên Trần Bình An đành không giấu nghề nữa, dù làm vậy cũng khiến hắn hơi áy náy. Hắn không những tăng thêm sức ra quyền, thân hình cũng nhanh hơn mấy phần. Một quyền đập nát bộ Cam Lộ giáp chẳng rõ thật giả, quyền thứ hai đánh nát pháp bào không biết tên, quyền cuối cùng đánh nổ đầu võ phu Xa Nguyệt.
 
 Tất cả đều hóa thành ánh trăng.
 
-Xa Nguyệt biết lấy cái này thăm dò cửu cảnh của Ẩn Quan trẻ tuổi, không có chút ý nghĩa nào, thân hình tiêu tán tại chỗ, thân hình từ một hóa mười, tán lạc ở các nơi của nửa tòa Kiếm Khí Trường Thành, bên vách đá cùng đầu tường kia, đã có hai vị.
+Xa Nguyệt biết dùng cách này thăm dò cửu cảnh của vị Ẩn Quan trẻ tuổi không có ý nghĩa, thân hình bèn tan đi tại chỗ, từ một hóa mười, rải rác khắp nửa tòa Kiếm Khí Trường Thành. Bên vách đá và trên đầu tường đã có hai người.
 
-Không còn cô nương mặt tròn dễ nói chuyện, dáng người khác nhau, có pháp tướng kim thân, có tiên nhân ngự kiếm, có chân thân yêu vật.
+Không còn là những cô nương mặt tròn dễ nói chuyện nữa. Các thân ảnh có dáng vẻ khác nhau: có pháp tướng kim thân, có tiên nhân ngự kiếm, có chân thân yêu vật.
 
-Cho dù hợp đạo với Kiếm Khí Trường Thành, Trần Bình An vẫn có chút không nắm chắc được chân thân của Xa Nguyệt, chín giả một thật? Có thể đều là thật, hay là giả hết.
+Dù hợp đạo với Kiếm Khí Trường Thành, Trần Bình An vẫn không nắm chắc chân thân của Xa Nguyệt ở đâu. Chín giả một thật? Cũng có thể đều là thật, hoặc tất cả đều là giả.
 
-Những tồn tại không biết thật giả này, trăm miệng một lời hỏi: "Vì sao ngươi không vận dụng những Kiếm Tiên bước ra từ bức họa? Chẳng phải là tiết kiệm thời gian công sức?"
+Những thân ảnh không rõ thật giả ấy đồng thanh hỏi:
 
-Trần Bình An cười nói: "Một nén hương quang âm, thật ra rất lâu rất lâu. Chẳng qua ta là không có việc gì làm được, cho nên cực kỳ quý trọng từng giọt."
+- Vì sao ngươi không dùng những kiếm tiên bước ra từ bức họa? Chẳng phải tiết kiệm thời gian công sức hơn sao?
 
-Trong lúc nói, Trần Bình An chân đạp một vật, thân hình chậm rãi bay lên không, bởi vì dưới chân hắn xuất hiện một kiến trúc khổng lồ phỏng theo Bạch Ngọc Kinh, như đá rơi xuống, hiện ra toàn cảnh từng chút một, cuối cùng đỉnh Bạch Ngọc Kinh không ngừng thăng thiên, thế cho nên gần như chạm đến đỉnh màn trời mới dừng lại.
+Trần Bình An cười nói:
 
-Ẩn quan trẻ tuổi mặc một bộ thiên y "Giáng tử" của Đạo môn, giống như một vị tiên nhân chân chân thật thật của Bạch Ngọc Kinh, đạo pháp thông thiên, cho nên có thể nhàn nhã dạo chơi ở đây.
+- Thời gian một nén hương thật ra rất dài. Chẳng qua ta không có việc gì làm, cho nên cực kỳ quý trọng từng chút một.
 
-Hắn hai chân từng bước một giẫm tại đỉnh Bạch Ngọc Kinh, cuối cùng đi tới một chỗ mái cong đấu đá nhất.
+Trong lúc nói, thân hình hắn chậm rãi bay lên. Một tòa kiến trúc khổng lồ phỏng theo Bạch Ngọc Kinh xuất hiện dưới chân hắn, từng chút một hiện ra toàn cảnh. Đỉnh Bạch Ngọc Kinh không ngừng dâng cao, gần như chạm đến màn trời mới dừng lại.
 
-Trần Bình An đưa tay chụp một cái, tay cầm một cây phướn gọi hồn kiếm tiên, gõ nhẹ chỗ hư không bên màn trời, từng vòng gợn sóng nhộn nhạo mà lên, tầng tầng vòng tròn vô cùng vô tận.
+Ẩn Quan trẻ tuổi mặc thiên y “Giáng Tử” của Đạo môn, giống như một vị tiên nhân chân chính của Bạch Ngọc Kinh, đạo pháp thông thiên, nhàn nhã dạo chơi nơi đây.
 
-Xa Nguyệt đột nhiên hỏi: "Ta không phải là Lưu Tài, hình như ngươi có chút... phẫn nộ? Ngươi có chút suy đoán với Lưu Tài kia? Bởi vì ta không phải Lưu Tài nên ấn chứng một vài suy nghĩ trong lòng ngươi?"
+Hắn từng bước đi trên đỉnh Bạch Ngọc Kinh, cuối cùng đến một mái cong cao nhất.
 
-Trần Bình An thần sắc như thường, thuận miệng cười nói: "Sao có thể. Xa Nguyệt cô nương đừng có nghi thần nghi quỷ như thế. Một kẻ có thể khiến cho Xa Nguyệt cô nương nhìn khắp sắc trăng thiên hạ, đi rách rất nhiều giày bông cũng tìm không ra, ta đoán như thế nào."
+Trần Bình An đưa tay nắm lấy một cây phướn gọi hồn kiếm tiên, khẽ gõ vào hư không bên màn trời. Từng vòng gợn sóng dập dờn lan ra, tầng tầng lớp lớp như vô cùng vô tận.
 
-Một nén nhang đã qua một nửa.
+Xa Nguyệt đột nhiên hỏi:
 
-Trần Bình An trong nháy mắt tĩnh tâm ngưng thần, như chìm vào đáy giếng cổ, tâm thần sâu kín, như tiêu dao du, tâm niệm đi theo Liên Y tản ra, mỉm cười nói: "Nhiếu Nguyệt cô nương, thân là tu sĩ Yêu tộc, về sau lấy tên, phải kiềm chế một chút. Bằng không dễ dàng tiết lộ căn nguyên đại đạo. Đây là điều tối kỵ khi hành tẩu giang hồ, nhớ kỹ. Xa Nguyệt thiếu Nguyệt quá mức rõ ràng. Chi bằng học Phỉ Nhiên, văn chương nổi bật, vừa nghe chỉ là thư sinh nhã nhặn. Sau khi nhận tổ quy tông họ Trần, thì càng tốt hơn."
+- Ta không phải Lưu Tài, hình như ngươi có chút... phẫn nộ? Ngươi có suy đoán gì về Lưu Tài kia sao? Bởi vì ta không phải Lưu Tài nên đã chứng thực vài suy nghĩ trong lòng ngươi?
 
-Mười tên Xa Nguyệt kia, tựa như có tâm tư tranh thắng "Ngươi cao một thước, ta liền ma cao một trượng", từ mười hóa trăm trăm hóa ngàn, trên đầu tường, khắp nơi đều là nàng.
+Trần Bình An thần sắc như thường, thuận miệng cười:
 
-Trong đó duy nhất có một vị " nợ nguyệt" lấy chân dung hiện thân ngửa đầu nhìn phía tòa kiến trúc nguy nga kia, cười nói: "Nhưng tên của ta cũng đã đặt xong rồi, thiên hạ đều biết, còn làm sao "sau này"? Huống chi ta lại không muốn đổi tên."
+- Sao có thể. Xa Nguyệt cô nương đừng nghi thần nghi quỷ như vậy. Một người khiến cô nương nhìn khắp ánh trăng thiên hạ, đi rách bao nhiêu giày bông vẫn không tìm được, ta đoán thế nào nổi?
 
-Trên trời cao có từng trận gió mát thổi qua, tay áo và thái dương của người trẻ tuổi cùng nhau phất phơ.
+Một nén hương đã qua một nửa.
 
-Hắn mỉm cười đưa ra đáp án, "Kiếp sau a."
+Trong nháy mắt Trần Bình An tĩnh tâm ngưng thần, như chìm vào đáy giếng cổ, tâm thần sâu lắng, tựa đang tiêu dao du. Tâm niệm hắn theo gợn sóng tản ra, miệng mỉm cười:
 
-Xa Nguyệt thật ra không quá mức kiêng kị thủ đoạn kế tiếp của Trần Bình An, nàng chỉ là nhịn không được nhíu nhíu mày.
+- Xa Nguyệt cô nương, thân là tu sĩ yêu tộc, sau này đặt tên phải kiềm chế một chút, bằng không rất dễ tiết lộ căn nguyên đại đạo. Đây là điều tối kỵ khi hành tẩu giang hồ, nhớ kỹ. Tên Xa Nguyệt thiếu trăng quá rõ ràng. Chi bằng học Phỉ Nhiên, văn chương nổi bật, vừa nghe đã biết là thư sinh nhã nhặn. Sau khi nhận tổ quy tông họ Trần thì càng tốt hơn.
 
-Hắn mới là thứ mười một?!
+Mười thân ảnh Xa Nguyệt như có ý tranh thắng, từ mười hóa trăm, từ trăm hóa ngàn, khắp đầu tường đều là nàng.
 
-Mà tên gia hỏa đứng ở chỗ cao nhất của Bạch Ngọc Kinh, tựa hồ liếc mắt một cái nhìn thấu tâm tư của Xa Nguyệt, nói: "Nếu không phải thân ở chỗ này, chiếm chút thiên thời địa lợi, ta nhất định ngay cả xếp hạng mười một cũng không xếp được."
+Trong đó chỉ một người hiện ra với gương mặt thật, ngẩng đầu nhìn tòa kiến trúc nguy nga, cười nói:
 
-Xa Nguyệt đột nhiên có chút muốn cùng hắn đánh thật, không còn chỉ là thử xem.
+- Nhưng tên ta đã đặt rồi, thiên hạ đều biết, còn nói gì đến “sau này”? Huống chi ta không muốn đổi tên.
 
-Trần Bình An không vẽ rắn thêm chân nói thêm gì, chỉ là hơi nhếch khóe miệng, thần sắc nghiền ngẫm chợt lóe rồi biến mất, lại vừa vặn để cho Ký Nguyệt nhìn một cái không sót gì.
+Trên trời cao từng trận gió mát thổi qua, tay áo và tóc mai người trẻ tuổi cùng phất phơ.
 
-Tựa hồ muốn nói, ta đánh chết ngươi khẳng định không quá ổn, ngươi đánh chết ta kỳ thực cũng không được, vậy hai ta đều nghiêm túc một chút, lại thử xem.
+Hắn mỉm cười đáp:
+
+- Kiếp sau.
+
+Thật ra Xa Nguyệt không quá kiêng kỵ thủ đoạn tiếp theo của Trần Bình An, nàng chỉ không nhịn được nhíu mày.
+
+Hắn mới xếp thứ mười một?!
+
+Người đứng ở chỗ cao nhất Bạch Ngọc Kinh tựa hồ liếc mắt đã nhìn thấu tâm tư của nàng, bèn nói:
+
+- Nếu không ở nơi này, chiếm chút thiên thời địa lợi, chắc chắn ta ngay cả hạng mười một cũng không được.
+
+Xa Nguyệt đột nhiên có chút muốn đánh thật với hắn, không còn chỉ là thử xem.
+
+Trần Bình An không nói thêm lời thừa, chỉ hơi nhếch khóe miệng. Thần sắc nghiền ngẫm thoáng qua rồi biến mất, vừa vặn để Xa Nguyệt nhìn thấy không sót chút nào.
+
+Tựa hồ hắn muốn nói: ta đánh chết ngươi chưa chắc đã ổn, ngươi đánh chết ta thật ra cũng không dễ. Vậy hai ta đều nghiêm túc một chút, thử lại xem.
