@@ -1,417 +1,471 @@
 # Chương 813: Trong mộng cầu thực
 
-Khương Thượng Chân nghiêng người về phía trước, tầm mắt vòng qua Trần Bình An ở giữa, cười hỏi: "Vị thư sinh này, từ thư viện Đại Phục tới? Danh hiệu quân tử có hay không?"
+Khương Thượng Chân hơi nghiêng người, nhìn qua Trần Bình An đang ngồi giữa hai người, cười hỏi:
 
-Thanh niên nho sam lập tức đứng lên, đi xuống mấy bậc thang, một mực cung kính chắp tay hành lễ nói: "Nho sinh Dương Phác của thư viện Đại Phục, bái kiến Khương lão tông chủ."
+- Vị thư sinh này đến từ thư viện Đại Phục? Đã có danh hiệu quân tử chưa?
 
-"Khách khí quá khách khí, ta cũng không phải người đọc sách."
+Thanh niên mặc nho sam lập tức đứng dậy, bước xuống mấy bậc thang rồi cung kính chắp tay:
 
-Khương Thượng Chân ngồi ôm quyền hoàn lễ, sau đó giật mình nói: "Dương Phác, có chút ấn tượng, là người có nắm, về sau ta coi như làm quen với ngươi rồi."
+- Nho sinh Dương Phác của thư viện Đại Phục, bái kiến Khương lão tông chủ.
 
-Trần Bình An không nhịn được trêu ghẹo: "Chu Phì huynh, hiện giờ thanh danh tốt nha, chẳng lẽ diễn bản trên núi đều bán đến thư viện?"
+- Khách khí quá, ta đâu phải người đọc sách.
 
-Khương Thượng Chân cười ha ha nói: "Mấy năm nay trên núi nhiều chuyện, làm lỡ không ít việc đứng đắn."
+Khương Thượng Chân ngồi tại chỗ ôm quyền đáp lễ, rồi như chợt nhớ ra:
 
-Trần Bình An hỏi: "Lão tông chủ?"
+- Dương Phác, ta có chút ấn tượng. Ngươi là người có bản lĩnh[?]. Hôm nay coi như chúng ta quen biết.
 
-Khương Thượng Chân gật đầu: "Ba năm làm đương gia chó còn thấy sợ, ta là người da mặt mỏng, mỗi ngày bị người ta chỉ thẳng mặt mắng, vậy thì nhường chỗ cho tiểu tử Vi Ly kia."
+Trần Bình An không nhịn được trêu:
 
-Trước lúc Khương Thượng Chân bế quan, đã ở Tổ Sư đường gần như tất cả đều là gương mặt mới, chính thức từ chức tông chủ, bây giờ tông chủ tân nhiệm của Ngọc Khuê Tông, là chủ nhân cũ của Cửu Dịch Phong, kiếm tu Tiên Nhân Cảnh, Vi Tránh. Vi Miểu thì thuận thế từ đi thân phận tông chủ Chân Cảnh Tông, nhường vị trí cho cung phụng thủ tịch hạ tông, tu sĩ Tiên Nhân Cảnh xuất thân dã tu Thư Giản Hồ, Lưu Lão Thành.
+- Chu Phì huynh, bây giờ thanh danh của ngươi tốt đến thế sao? Chẳng lẽ diễn bản trên núi đã bán tới cả thư viện?
 
-Cho nên thư viện Dương Phác mới có câu "Khương lão tông chủ" này.
+Khương Thượng Chân cười ha hả:
 
-Đương nhiên tuổi của Khương Thượng Chân cũng không tính là trẻ.
+- Mấy năm qua trên núi lắm chuyện, làm lỡ không ít việc đứng đắn.
 
-Dương Phác đứng thẳng người, vô cùng thẹn đỏ mặt: "Trị học còn nông, còn chưa hiền tài. Vãn bối lại càng không dám tự xưng là quen biết Khương lão tông chủ."
+Trần Bình An hỏi:
 
-Khương Thượng Chân trêu ghẹo nói: "Đều không phải hiền tài? Thư viện Đại Phục chôn không có nhân tài, muốn ta xem cho ngươi một quân tử là dư dả. Lát nữa ta giúp ngươi nói chuyện với Trình sơn trưởng. Nếu như mặt mũi của ta không đủ lớn, vậy kéo vị Trần sơn chủ bên cạnh ta này lên, hắn và Trình sơn trưởng các ngươi là bằng hữu, cũng đều là người đọc sách, nói chuyện khẳng định có tác dụng."
+- Lão tông chủ?
 
-Trần Bình An từ chối cho ý kiến.
+Khương Thượng Chân gật đầu:
 
-Dương Phác có chút bối rối, lại chắp tay nói: "Khương lão tông chủ, vãn bối Dương Phác thủ ở chỗ này, cũng không phải là mua danh chuộc tiếng, để mà nuôi dưỡng, huống chi ba năm nay, không có chút thành tích nào, khẩn cầu lão tông chủ đừng làm như thế. Bằng không Dương Phác cũng chỉ đành lập tức rời đi, khẩn cầu thư viện đổi người tới đây."
+- Làm chủ nhà ba năm, đến chó cũng thấy sợ[?]. Ta lại da mặt mỏng, ngày nào cũng bị người ta chỉ thẳng mặt mắng, đành nhường chỗ cho tiểu tử Vi Ly[?] kia.
 
-Khương Thượng Chân gật đầu nói: "Vậy ngươi cứ xem như nghe chuyện đùa, đừng coi là thật. Đổi lại người khác tới chỗ này, chưa chắc đã đối với ta. Tiểu tử ngươi ngốc thật, không biết lúc này vừa đi, với bản thân ngươi mà nói, liền phí công vô ích? Nếu như báo cáo nhà mình của Ngọc Khuê Tông không có sai, lúc thư viện không mở miệng, tiểu tử ngươi chủ động chạy tới Thái Bình sơn, vị trí Trình Sơn trưởng còn chưa ngồi vững, không thể không tự mình chạy tới, chống eo cho ngươi. Nếu lúc này ngươi rút khỏi sơn môn Thái Bình sơn, chẳng khác nào làm một tên ngốc vài năm, không chiếm chút lợi nào, còn rơi vào một thân tanh tưởi, chỉ nói ba tiên gia đại phái trên núi này, chắc chắn nhớ kỹ cái tên Dương Phác này, cho nên nghe ta khuyên một câu, thành thật chờ ở bên cạnh hai chúng ta, an tâm uống rượu xem kịch."
+Trước khi bế quan, Khương Thượng Chân đã chính thức từ chức tông chủ trước một tổ sư đường gần như toàn gương mặt mới. Tông chủ mới của Ngọc Khuê tông là chủ nhân cũ của Cửu Dịch phong, kiếm tu Tiên Nhân cảnh Vi Tránh. Vi Miểu[?] cũng thuận thế rời chức tông chủ Chân Cảnh tông, nhường vị trí cho cung phụng đứng đầu hạ tông, tu sĩ Tiên Nhân cảnh xuất thân dã tu Thư Giản hồ là Lưu Lão Thành.
 
-Dương Phác còn muốn nói chuyện.
+Vì thế Dương Phác mới gọi hắn là “Khương lão tông chủ”. Dĩ nhiên, tuổi tác của Khương Thượng Chân cũng chẳng còn trẻ.
 
-Trần Bình An uống một ngụm rượu, chậm rãi nói: "Thư viện bên kia, từ chính phó sơn trưởng đến con em nho gia, mọi người thật ra đều đang nhìn ngươi, Dương Phác có thể không để ý tiền đồ của mình, bởi vì không thẹn với lương tâm, nhưng mà rất nhiều người tự đáy lòng bội phục Dương Phác, sẽ thay ngươi bênh vực kẻ yếu, sẽ rất phẫn uất, sẽ cảm thấy người tốt quả nhiên không có báo đáp tốt. Đạo lý này, không ngại ngẫm nghĩ nhiều một chút, nghĩ rõ rồi quyết định tiếp, đến lúc đó đi hay ở, ít nhất ta cùng Khương Thượng Chân, vẫn như trước coi ngươi là một người đọc sách thật sự, hoan nghênh ngươi về sau đi Ngọc Khuê Tông hoặc là lạc... Chân Cảnh tông làm khách."
+Dương Phác đỏ mặt:
 
-Khương Thượng Chân cười nói: "Nếu sơn chủ vẫn có kiên nhẫn như vậy, ta an tâm không ít."
+- Việc học của vãn bối còn nông, chưa được phong hiền nhân. Vãn bối càng không dám nhận là quen biết Khương lão tông chủ.
 
-Ba trận chém giết, Khương Thượng Chân chỉ thấy được một trận cuối cùng, cho nên có chút khiếp đảm, không đơn giản là hôm nay kiếm thuật quyền pháp thần thông của Trần Bình An cao như thế nào, mà là lo lắng sơn chủ trẻ tuổi của Lạc Phách sơn, ước chừng hai mươi năm không gặp mặt, đã biến thành một người xa lạ từ đầu đến đuôi, ví dụ như biến thành loại người trên núi Khương Thượng Chân rất quen thuộc.
+Khương Thượng Chân lại trêu:
 
-Trần Bình An liếc nữ tu Ngọc Phác cảnh nằm trên mặt đất hóng mát cách đó không xa, hắn thần sắc đạm mạc, ánh mắt u tịch, "Có kiên nhẫn, phải phân người."
+- Chưa được phong hiền nhân? Thư viện Đại Phục chôn vùi nhân tài rồi. Theo ta, cho ngươi danh hiệu quân tử cũng dư sức. Lát nữa ta nói với Trình sơn trưởng. Nếu mặt mũi ta chưa đủ lớn, ta kéo cả vị Trần sơn chủ bên cạnh vào. Hắn với sơn trưởng các ngươi là bằng hữu, lại cùng là người đọc sách, nói chuyện nhất định có tác dụng.
 
-Khương Thượng Chân dùng tiếng lòng nói với Trần Bình An: "Sơn trưởng mới của thư viện Đại Phục, là vị phó sơn trưởng thư viện Phi Vân Sơn Lâm Lộc quê nhà ngươi, chẳng qua lần này bởi vì đảm nhiệm sơn trưởng bảy mươi hai thư viện, mới lần đầu dùng tên thật Yêu tộc Trình Long Chu. Trình Long Chu dù sao cũng xuất thân từ thủy duệ Giao Long, đảm nhiệm sơn trưởng thư viện nho gia, dẫn tới không ít dị nghị trên núi, hoàng đế Đại Ly Tống Hòa vì thế vận dụng không ít tình hương khói sơn thượng. Đây còn là kết quả văn miếu Trung Thổ phong cấm sơn thủy năm năm báo, bằng không tình thế lúc này, cũng chỉ còn lại có các lộ nhân mã cãi nhau, sẽ lãng phí vô ích rất nhiều thời cơ tốt, chậm trễ rất nhiều chính sự."
+Trần Bình An không tỏ ý kiến.
 
-Trần Bình An nghĩ nghĩ, rốt cuộc giải tỏa một nghi hoặc trong lòng, vì sao văn miếu sẽ lựa chọn cấm tiệt công báo năm năm.
+Dương Phác có phần luống cuống, lại chắp tay:
 
-Nho sinh Dương Phác tuy rằng không biết hai vị thần tiên đỉnh núi này đang nói chuyện gì, nhưng luôn cảm thấy cả người không được tự nhiên. Dù sao trước mắt mình, trên mặt đất kia còn nằm một vị đại tu sĩ Ngọc Phác Cảnh sinh tử chưa biết!
+- Khương lão tông chủ, vãn bối ở đây không phải để mua danh chuộc tiếng[?]. Huống hồ ba năm nay chưa làm nên thành tích gì. Xin lão tông chủ đừng làm thế, bằng không Dương Phác chỉ có thể lập tức rời đi, xin thư viện đổi người đến đây.
 
-Chuyện lớn như vậy, hai vị tiền bối các ngươi, lại thuật pháp thông thiên, địa vị siêu nhiên, thật không chút để tâm?
+Khương Thượng Chân gật đầu:
 
-Trần Bình An nâng cằm, chỉ chỉ nữ tử trên mặt đất kia, "Lai lịch gì?"
+- Cứ coi như ta nói đùa, đừng tưởng thật. Đổi người khác tới đây chưa chắc đã hợp ý ta[?]. Nhưng ngươi ngốc thật, không biết bỏ đi lúc này thì mấy năm qua đều uổng công sao? Nếu tin tức Ngọc Khuê tông ta nhận được không sai, lúc thư viện còn chưa lên tiếng, chính ngươi chủ động chạy tới Thái Bình sơn. Trình sơn trưởng khi ấy còn chưa ngồi vững ghế, vẫn phải đích thân tới chống lưng cho ngươi. Giờ ngươi rời sơn môn, mấy năm làm kẻ ngốc chẳng được lợi lộc gì, lại mang tiếng xấu. Chỉ ba đại phái tiên gia ở đây thôi cũng sẽ nhớ kỹ tên Dương Phác. Nghe ta khuyên, cứ ngồi bên cạnh chúng ta, yên tâm uống rượu xem kịch.
 
-Khương Thượng Chân có chút hả hê, nói: "Trước khi trả lời, cho phép ta hỏi trước vấn đề nhỏ, ngươi ra mấy thành khí lực? Đổi là ta nàng, giết nàng triệt để, nguyên thần câu diệt, chính là chuyện hai ba kiếm, nhưng phải ở trong thời gian ngắn như vậy, chẳng những đánh nàng ngất đi, càng mang hồn phách nàng ấy, âm thần đều nhất nhất giam giữ ở trong khí phủ, coi như bị ngươi phân binh ngăn chặn đại môn, nói thật, ta cũng chưa chắc làm được, thì càng đừng nói như ngọc thô, tiên nhân tu sĩ tầm thường khác. Ngươi phải biết rằng, đàn bà này, đánh nhau bản lãnh bình thường, năng lực chạy trốn cũng không nhỏ, một tay ngũ hành độn thuật, lô hỏa thuần thanh, chỉ cần không bị ngăn cách thiên địa, nàng tùy tiện trốn, cho dù là kiếm tu cùng cảnh, đừng hòng giết nàng, trọng thương cũng khó."
+Dương Phác còn định nói, Trần Bình An đã uống một ngụm rượu rồi chậm rãi lên tiếng:
 
-"Rất khó nói đến mấy thành."
+- Bên thư viện, từ hai vị chính phó sơn trưởng đến con em Nho gia, ai cũng đang nhìn ngươi. Ngươi có thể không màng tiền đồ vì không thẹn với lòng. Nhưng nhiều người thật lòng kính phục ngươi sẽ bất bình thay ngươi, sẽ thấy phẫn uất, sẽ cho rằng người tốt quả nhiên chẳng được báo đáp. Ngươi nên nghĩ thêm về chuyện ấy. Nghĩ rõ rồi hẵng quyết định đi hay ở. Dù thế nào, ta và Khương Thượng Chân vẫn xem ngươi là một người đọc sách chân chính. Sau này ngươi đến Ngọc Khuê tông hoặc... Chân Cảnh tông làm khách, chúng ta đều hoan nghênh.
 
-Trần Bình An nhếch khóe miệng, tiếp tục tiếng lòng, "Nhưng chiến trường vừa rồi, quả thật bị ta tạm thời ngăn cách ra một tòa tiểu thiên địa, lại lấy một chút thủ đoạn nhỏ, viết vài bức ở trên cửa chính mười sáu khí phủ của nàng... Phù lục câu đối xuân, chỉ cần dám tỉnh lại, chẳng khác nào là hỏi kiếm, võ phu hỏi quyền với ta, cho nên lúc này nàng không thể không tiếp tục giả chết, nhưng ở trước đó, ta tương đối giảng đạo lý, để nàng lấy bí thuật truyền tin tổ sư đường, đi tìm cứu binh đến Thái Bình Sơn hưng sư vấn tội với ta."
+Khương Thượng Chân cười nói:
 
-Trần Bình An cười đưa tay ra khỏi tay áo, lấy ngón cái cùng ngón trỏ để chống đỡ một cây san hô màu đỏ rực phát cuồng, "Đương nhiên, nàng khá đơn thuần, vô luận là hành tẩu dưới núi, hay là kinh nghiệm chém giết, đều rất... Trung ngũ cảnh, thật không biết nàng là như thế nào chen thân thượng ngũ cảnh, mệnh quá tốt?"
+- Sơn chủ vẫn còn kiên nhẫn như vậy, ta yên tâm hơn nhiều.
 
-Khương Thượng Chân đưa tay xoa xoa mi tâm: "Thương cảm cho vị Giáng Thụ tỷ tỷ này của chúng ta, rơi vào trong tay ngươi, trừ thủ thân như ngọc ra, không còn dư lại chút gì, xem chừng Giáng Thụ tỷ tỷ đến một bàn bạc cuối cùng, cảm thấy còn không bằng đừng thủ thân như ngọc."
+Ba trận chém giết vừa rồi, Khương Thượng Chân chỉ nhìn thấy trận cuối. Điều khiến hắn thấp thỏm không đơn thuần là kiếm thuật, quyền pháp và thần thông của Trần Bình An hôm nay cao đến đâu. Hai người chừng hai mươi năm không gặp, hắn sợ sơn chủ trẻ tuổi của núi Lạc Phách đã biến thành một người hoàn toàn xa lạ, thành hạng người trên núi mà hắn quá quen thuộc.
 
-Trần Bình An ngoảnh mặt làm ngơ, tiếp tục dùng luyện vật quyết, cẩn thận phá giải cấm chế sơn thủy của tín vật này, lúc khai sơn, đã biết vị nữ tu trên ngũ cảnh này ở tông môn, mấu chốt là có thể được biết chỗ dựa chân chính của nàng. Huống chi ngọc bích này là pháp bảo thượng đẳng chất liệu cực tốt, rất đáng tiền.
+Trần Bình An liếc nữ tu Ngọc Phác cảnh đang nằm trên đất cách đó không xa, nét mặt lạnh nhạt, ánh mắt sâu thẳm:
 
-Khương Thượng Chân nhịn nửa ngày, vẫn không nhịn được cười lên, không dùng tiếng lòng để nói chuyện nữa, "Nàng tên Hàn Giáng Thụ, tông môn khá cổ quái, tu sĩ bản thổ không hiển sơn không lộ thủy ở Đồng Diệp Châu, tu sĩ bản địa phúc địa tầm thường ngửa đầu nhìn trích tiên nhân rơi xuống đất khóc lóc om sòm, môn tu sĩ này của nàng, đã quen ra ngoài du lịch Hạo Nhiên Thiên Hạ, hoành hành không kiêng kỵ, làm mưa làm gió, gây họa tới phúc địa tránh né, thần không biết quỷ không hay."
+- Kiên nhẫn cũng phải xem là với ai.
 
-Trần Bình An cúi đầu nhìn san hô trâm cài tóc, trong lòng hiểu rõ, cười nói: "Nàng xuất thân từ phúc địa tam sơn Vạn Dao tông? Khó trách bản lãnh không lớn, tính tình không nhỏ, gan dạ sáng suốt càng làm người ta bội phục."
+Khương Thượng Chân dùng tiếng lòng nói với hắn:
 
-Trong hồ sơ hành cung nghỉ mát, trong đó có một tờ hoàng lịch cũ, từng ghi lại nơi đây, so với Đông Hải quan đạo quan càng thêm bí mật, Tam Sơn Phúc địa viên vạn dặm, tuy tên là Tam Sơn, trên thực tế chỉ có một hòn đảo trên biển, tương truyền là một trong viễn cổ tam thần sơn, có thượng vị thần linh tọa trấn, còn có một câu giống lời sấm ngôn, móng trâu đạp vỡ san hô. Trần Bình An đoán quá nửa là lão quan chủ "Ngưu mũi trâu" kia của tam sơn phúc địa nổi lên phân tranh, Vạn Dao tông không chiếm được lợi ích. Rất bình thường, vạn năm qua, nhân gian lại có mấy vị mười bốn cảnh? Nhất là năm tháng thái bình, chỉ có càng ít hơn, chỉ có loạn thế đến, như nước lũ mênh mông kích động, nước lên chìm xuống, nước xuống đá xuống, khả năng mới có thể có thêm mấy người như "Lục Pháp Ngôn", Văn Hải Chu Mật. Lại ví dụ như A Lương, Thôi Sàm.
+- Sơn trưởng mới của thư viện Đại Phục chính là vị phó sơn trưởng thư viện Lâm Lộc ở núi Phi Vân quê ngươi. Lần này nhậm chức sơn trưởng của một trong bảy mươi hai thư viện, hắn mới lần đầu dùng tên thật của Yêu tộc là Trình Long Chu. Dẫu sao hắn xuất thân thủy duệ giao long. Để hắn làm sơn trưởng thư viện Nho gia, trên núi có không ít lời dị nghị. Hoàng đế Đại Ly Tống Hòa đã phải dùng tới không ít tình hương hỏa. Đó còn là kết quả của lệnh Văn miếu Trung Thổ cấm công báo sơn thủy năm năm. Nếu không, các phe chỉ mải cãi nhau, lãng phí thời cơ làm chính sự.
 
-Khương Thượng Chân gật đầu nói: "Con đàn bà này ỷ vào là đích nữ của Hàn Ngọc Thụ Tiên Nhân cảnh, trong lịch sử Vạn Dao tông lại từng xuất hiện một vị khai sơn lão tổ Phi Thăng cảnh, đệ tử thế hệ sau, đại khái có thể đóng cửa lại, nằm ở trên sơn thủy gia điệp làm uy làm phúc, có tư cách ra ngoài du lịch, Hàn lão nhân hiểu được quan đạo quan Đồng Diệp Châu không dễ chọc, lo lắng bị vị lão quan chủ kia của chúng ta nhìn mà phiền lòng, Vạn Dao tông ước chừng mỗi trăm năm mới có hai ba người rời khỏi phúc địa, thường thường tu vi không kém, cho nên ngang ngược quen rồi. Giáng Thụ tỷ tỷ dù sao cũng là đích nữ, cho nên tương đối nuôi dưỡng ở khuê trung. Hơn nữa vị lão tổ sư kia trước khi binh giải trừ công đức đã tích góp từng có một ước định với văn miếu Trung Thổ, không được tiết lộ tin tức phúc địa cùng tông môn, cho nên Ngọc Khuê tông cùng Đồng Diệp tông đều bán cho bọn họ vài phần mặt mỏng."
+Trần Bình An nghĩ một lát, cuối cùng hiểu vì sao Văn miếu cấm công báo suốt năm năm.
 
-Trần Bình An hỏi: "Lần đại chiến này?"
+Dương Phác không biết hai vị cao nhân đang nói gì, chỉ cảm thấy cả người không thoải mái. Trước mắt hắn vẫn còn một đại tu sĩ Ngọc Phác cảnh nằm trên đất, sống chết chưa rõ. Chuyện lớn như vậy mà hai vị tiền bối này chẳng mấy để tâm sao?
 
-Khương Thượng Chân nói: "Vạn Dao tông trong giai đoạn thu quan, xuất lực không nhỏ, vàng thật bạc thật, gần như móc ra một nửa của cải đi, tu sĩ cũng không có tổn hại gì."
+Trần Bình An hất cằm về phía nữ tử:
 
-Trần Bình An mỉm cười nói: "Nhãn lực tốt, đại phách lực, khó trách dám có ý đồ với Thái Bình Sơn."
+- Lai lịch thế nào?
 
-Khương Thượng Chân uống rượu xong, đặt bầu rượu không ở một bên, hai tay ôm đầu, ngửa ra sau, nằm trên bậc thang, tiếp tục dùng tiếng lòng nói: "Không phải. Phần nhân tình này, đừng nói thư viện nhận, lúc trước Vạn Dao tông Hàn tiên nhân bái phỏng Thần Khuyết phong, Ngọc Khuê tông của ta, dù sao ta cũng trốn đi cầu thanh tịnh, Vi Tông phải cười hì hì nói lời cảm tạ với mọi người. Cho nên nói, Vạn Dao tông muốn ở ngoài phúc địa Tam Sơn, tới Đồng Diệp châu chiếm cứ một địa bàn, nhìn trúng Thái Bình sơn này, thư viện Đại Phục cho dù không đáp ứng, cũng sẽ không gây ra quan hệ quá căng thẳng với Vạn Dao tông."
+Khương Thượng Chân có chút hả hê:
 
-Trần Bình An không hề tâm tình nói chuyện, ngược lại tâm niệm vừa động, mở ra một nửa cấm chế "Xuân liên" của các đại quan trọng khí phủ của Hàn Giáng Thụ, lúc này mới cười lạnh nói: "May mà hôm nay cấm tuyệt sơn thủy đên báo, bằng không tùy tiện một phần công báo lưu truyền ra, Vạn Dao tông? Vạn Yêu tông mới đúng, nói không chừng là quân cờ Giáp Trướng Di Ở Đồng Diệp Châu, cho nên cực kỳ hận Thái Bình Sơn, một lòng một dạ muốn chiếm đoạt nơi đây, hoàn toàn đoạn tuyệt hương khói Thái Bình Sơn." Nói không chừng, Hàn tông chủ phân rõ phải trái với ai, ai nhận sai là được, ở dinh báo xin lỗi là được, chuyên môn làm sáng tỏ chuyện này, Vạn Dao tông tuyệt đối không có chút căn nguyên sâu xa nào với Man Hoang thiên hạ."
+- Trả lời sau, để ta hỏi một câu trước. Ngươi đã dùng mấy phần sức? Đổi là ta, muốn giết nàng đến thần hồn câu diệt chỉ cần hai ba kiếm. Nhưng trong thời gian ngắn như vậy, vừa đánh nàng ngất đi, vừa khóa từng phần hồn phách và âm thần trong các khí phủ, như chia binh chặn hết cửa, ta chưa chắc làm được. Tu sĩ Ngọc Phác, Tiên Nhân cảnh bình thường càng không thể. Bản lĩnh đánh nhau của nàng chỉ thường thôi, nhưng bản lĩnh chạy trốn thì lớn. Ngũ hành độn thuật đã luyện tới mức thuần thục, chỉ cần không bị ngăn cách thiên địa, ngay cả kiếm tu cùng cảnh cũng khó trọng thương, nói gì đến giết nàng.
 
-Những lời nói của Khương lão tông chủ và vị "Trần sơn chủ" này, nho sinh Dương Phác đều nghe được rõ ràng, nghe được những lời này, nghe được vị người đọc sách này trán chảy ra mồ hôi, không biết là uống rượu hay là sợ hãi.
+- Khó nói đã dùng mấy phần.
 
-Trần Bình An quay đầu cười hỏi: "Dương Phác, ngươi cho dù biết hành động này có thể làm được, có thể thoải mái bảo vệ một di chỉ Thái Bình sơn, có phải cũng sẽ không làm hay không?"
+Trần Bình An nhếch miệng, cũng dùng tiếng lòng đáp:
 
-Dương Phác cả gan trầm giọng nói: "Không phải hành vi của quân tử, vãn bối tuyệt đối sẽ không làm như thế."
+- Chiến trường vừa rồi quả thật bị ta tạm thời ngăn thành một tiểu thiên địa. Ta còn viết vài đôi “câu đối xuân” bằng phù lục lên cửa mười sáu khí phủ của nàng. Chỉ cần dám tỉnh lại, nàng sẽ phải nhận cả kiếm lẫn quyền của ta. Thành thử bây giờ nàng đành tiếp tục giả chết. Trước đó, ta đã cho nàng dùng bí thuật báo tin về tổ sư đường, mời cứu binh đến Thái Bình sơn hỏi tội. Ta vẫn khá biết nói lý mà.
 
-Cây san hô đỏ tươi giữa ngón tay Trần Bình An chợt lóe lên ánh sáng, rất nhanh đã bị Trần Bình An thu vào trong tay áo, quả nhiên, Hàn Giáng Thụ đã gọi nàng là cha.
+Hắn đưa tay ra khỏi tay áo, ngón cái và ngón trỏ kẹp một cây trâm san hô đỏ rực đang rung lên:
 
-Tiên nhân Hàn Ngọc Thụ? Nhớ kỹ.
+- Dĩ nhiên, nàng khá đơn thuần. Kinh nghiệm đi lại dưới núi và chém giết đều... chỉ ngang tu sĩ trung ngũ cảnh[?]. Chẳng biết nàng vào thượng ngũ cảnh bằng cách nào. Mệnh tốt chăng?
 
-Trần Bình An vỗ vỗ bả vai nho sĩ thư viện, búng tay cái, câu đối xuân " Xé bỏ một nửa kiếm khí để lại bên cửa khí phủ của nàng, nhìn phía nữ tu Hàn Giáng Thụ kia, "Nghe thấy chưa, các ngươi phải cảm tạ người đọc sách như vậy, rất nhiều chuyện, bị các ngươi được lợi còn khoe mẽ, không phải người khác không thông minh, chỉ là quân tử có chỗ không làm, có chỗ không làm. Có chỗ làm, làm các ngươi không muốn làm, có chỗ không làm, các ngươi vẫn cảm thấy ngốc, vụng trộm vui vẻ, vụng trộm vui vẻ thì vụng trộm vui vẻ, thật ra cũng được, tóm lại về sau đừng học hôm nay, cười lớn tiếng như vậy, cái này không phải đã gặp ta rồi sao? Nếu ta không phải lo đánh nhầm người, ngươi nơi này nên là một bức họa hình của tổ sư đường Vạn Dao Tông, hàng năm ăn thơm quá."
+Khương Thượng Chân day trán:
 
-Hàn Giáng Thụ lặng lẽ ngồi dậy, tầm mắt bà ta thu liễm, khiến người ta không thấy rõ thần sắc.
+- Tội nghiệp Giáng Thụ tỷ tỷ. Rơi vào tay ngươi, ngoại trừ tấm thân còn nguyên vẹn, chẳng còn thứ gì. Có khi nàng nghĩ thà không giữ được thứ ấy còn hơn[?].
 
-Nàng không có nói lời tàn nhẫn gì, cũng không có cùng gia hỏa tâm ngoan thủ lạt kia nhìn nhau, thậm chí không có ý đồ thoát đi nơi đây.
+Trần Bình An coi như không nghe thấy. Hắn tiếp tục dùng quyết luyện vật, cẩn thận gỡ cấm chế sơn thủy trên tín vật. Mở được nó, hắn sẽ biết vị nữ tu thượng ngũ cảnh này giữ địa vị gì trong tông môn, quan trọng hơn là biết chỗ dựa thật sự của nàng. Cây trâm san hô lại là món pháp bảo thượng đẳng, chất liệu rất tốt, đáng giá không ít tiền.
 
-Dương Phác nhìn nữ tiên thượng ngũ cảnh thảm hại kia, đây là tiền bối Trần Sơn Chủ, lo lắng đánh nhầm người?
+Khương Thượng Chân nhịn cười mãi không được, cuối cùng lên tiếng:
 
-Hàn Giáng Thụ này ở Đồng Diệp Châu mấy năm gần đây, danh tiếng đang thịnh, rất nhiều nghị sự đỉnh núi, ví dụ như ở một hồi ở thư viện Đại Phục, nàng liền có hiện thân. Mấy năm nay Dương Phác thủ sơn môn Thái Bình Sơn, dựa vào thân phận nho sinh của một thư viện, mới không chết bất đắc kỳ tử, trong lúc đó Hàn Giáng Thụ từng tới một lần, lên núi du lịch Thái Bình Sơn, nàng ở bên đống đổ nát của tổ sư đường nghỉ chân hồi lâu. Dương Phác đi theo nàng từ đầu tới cuối, hai bên không nói một câu.
+- Nàng tên Hàn Giáng Thụ. Tông môn của nàng khá lạ, ở Đồng Diệp châu không phô trương thanh thế. Tu sĩ bản địa phúc địa bình thường vừa thấy trích tiên nhân đã cuống quýt[?], còn người của tông môn nàng quen đi khắp Hạo Nhiên thiên hạ, hoành hành ngang ngược, gây họa rồi lại trốn về phúc địa, thần không biết quỷ không hay[?].
 
-Rất khó tưởng tượng, một vị nữ tiên mà Dương Phác từng cho rằng cao không với tới, sẽ để cho người ta một đường tóc, tiện tay vứt trên mặt đất.
+Trần Bình An nhìn cây trâm, lòng đã hiểu:
 
-Khó khăn lắm mới tỉnh táo lại, lại trúng một câu "Bảng sơ sơ đồ, ăn hương khói", Dương Phác biết cây Hàn Giáng kia căn bản không tới phiên mình đáng thương, nhưng ông ta chính là không nhịn được thương xót vị nữ tiên Ngọc Phác Cảnh này.
+- Nàng xuất thân từ Vạn Dao tông ở phúc địa Tam Sơn? Thảo nào bản lĩnh không lớn mà tính khí không nhỏ. Gan dạ ấy thật khiến người ta khâm phục.
 
-Đáng thương, ngoài việc có chút hả giận, chỉ cảm thấy những năm này tích góp từng chút một một một cơn tức giận, tưới rượu lên hơn phân nửa, cẩn thận từng li từng tí liếc nhìn Hàn Giáng Thụ, đáng đời.
+Trong hồ sơ của hành cung nghỉ mát có một trang tư liệu cũ ghi về nơi ấy. Phúc địa Tam Sơn bí ẩn hơn cả đạo quan ở Đông Hải, rộng vạn dặm. Tuy mang tên Tam Sơn, thật ra nơi đó chỉ có một hòn đảo giữa biển, tương truyền là một trong ba thần sơn thượng cổ, từng có thần linh cao vị trấn giữ. Còn một câu tựa lời sấm về móng trâu giẫm vỡ san hô[?]. Trần Bình An đoán hơn nửa vị lão quan chủ “mũi trâu” kia từng tranh chấp với Vạn Dao tông, mà tông môn ấy không chiếm được phần lợi. Điều đó cũng bình thường. Suốt vạn năm, nhân gian có được mấy người cảnh giới mười bốn? Những năm thái bình càng ít. Chỉ thời loạn như nước lũ cuồn cuộn, nước lên rồi rút, mới có thể xuất hiện thêm những nhân vật như Lục Pháp Ngôn[?], Văn Hải Chu Mật, A Lương hay Thôi Sàm.
 
-Nghĩ như vậy, hình như không quá đúng, nhưng Dương Phác vẫn không nhịn được.
+Khương Thượng Chân gật đầu:
 
-Vị tiền bối họ Trần này, cũng quá... biết nói chuyện chút. Lúc trước ở bên cạnh mình tiểu nhân vật như vậy, tiền bối cũng rất không kiêu ngạo, hòa hòa khí khí, còn mời uống rượu.
+- Nàng là đích nữ của Tiên Nhân cảnh Hàn Ngọc Thụ. Vạn Dao tông từng có lão tổ khai sơn Phi Thăng cảnh. Hậu bối chỉ việc dựa vào gia phả sơn thủy cũng đủ làm mưa làm gió. Người được ra ngoài du lịch thì tu vi đều khá. Hàn lão nhân biết đạo quan ở Đồng Diệp châu khó chọc, sợ lão quan chủ chướng mắt, nên Vạn Dao tông mỗi trăm năm chỉ cho hai ba người rời phúc địa. Ai nấy đều quen ngang ngược. Giáng Thụ tỷ tỷ là con gái chính thất, xem như được nuôi trong khuê phòng[?]. Hơn nữa, trước khi binh giải, vị lão tổ từng lập ước với Văn miếu Trung Thổ, không tiết lộ tin tức phúc địa và tông môn. Vì vậy Ngọc Khuê tông, Đồng Diệp tông đều nể họ vài phần.
 
-Chỉ là không hiểu sao, nho sinh Dương Phác lại có chút an tâm.
+Trần Bình An hỏi:
 
-Tựa như lật sách cầu học ở thư viện.
+- Trong đại chiến vừa rồi, họ làm gì?
 
-Trần Bình An từ trong tay áo vươn ra hai tay, huyền đình áp giải hai phần hồn phách tu sĩ ngưng tụ thành một đoàn, hai bộ túi da lưu lại tại chỗ, lúc trước bị dán một tấm phù lục con rối, lúc này bắt đầu tự mình ngự phong đi về phía bên này sơn môn, sau đó thần sắc chất phác, tựa như hai cái xác không hồn, một trái một phải làm môn thần ở cửa sơn môn, Trần Bình An tùy tay tung ra hai luồng hồn phách, nhưng không để cho hồn phách dung nhập vào thân thể tu sĩ, mà là treo ở đỉnh đầu bọn họ, hơi theo gió phiêu đãng, lại từ trong tay áo lấy ra hai tấm phù lục, trong lúc điện quang hỏa thạch, dán ở phía trên hồn phách, chấn động không thôi, chỉ là hai tiếng k** r*n đau đớn nội tâm, đúng là nửa điểm cũng chưa thể truyền tới trong tai Dương Phác.
+- Vạn Dao tông ra sức không nhỏ vào giai đoạn thu quan, bỏ ra gần một nửa của cải thật, nhưng tu sĩ chẳng tổn thất bao nhiêu.
 
-Hàn Giáng Thụ căn bản làm như không thấy chuyện này.
+- Nhìn xa, lại dám quyết đoán. Khó trách họ nhắm vào Thái Bình sơn.
 
-Tâm tư của cô toàn bộ đặt ở trên người đạo nhân trẻ tuổi giấu đầu giấu đuôi kia.
+Khương Thượng Chân uống cạn bầu rượu, đặt sang một bên rồi nằm ngửa trên bậc thang, hai tay gối đầu. Hắn tiếp tục dùng tiếng lòng:
 
-Gia hỏa này, nhất định là một vị tu sĩ Tiên Nhân cảnh!
+- Không hẳn. Phần nhân tình ấy, thư viện phải nhận. Trước đây Hàn tiên nhân đến Thần Khuyết phong bái phỏng, ta đã trốn đi tìm thanh tịnh, còn Vi tông chủ[?] phải cười nói cảm tạ người ta. Vạn Dao tông muốn ra khỏi phúc địa Tam Sơn, chiếm một địa bàn tại Đồng Diệp châu. Dù thư viện Đại Phục không đồng ý trao Thái Bình sơn, họ cũng khó trở mặt quá gay gắt.
 
-Một tiên nhân có thể tùy ý giam giữ mái tóc san hô của nàng, tạm thời nhịn hắn một chút. Lên núi tu hành, chịu thiệt thòi một chút, luôn có một ngày tìm lại mặt mũi. Cây Hàn Giáng nàng ta, cũng không phải sơn trạch dã tu không rễ như bèo trôi! Vạn Dao tông nhà mình, lại có công lớn với tông môn Đồng Diệp Châu! Nàng ta không tin người này thật sự dám hạ sát thủ. Đã như vậy, cúi đầu nhất thời thì có làm sao.
+Trần Bình An hết hứng trò chuyện. Trong lòng khẽ động, hắn mở một nửa cấm chế “câu đối xuân” ở các khí phủ trọng yếu của Hàn Giáng Thụ, cười lạnh:
 
-Hôm nay xem như lật thuyền trong mương, tên kia hảo tâm cơ thủ đoạn tốt, lúc trước vừa ra tay liền đồng thời thi triển hai tầng chướng nhãn pháp, một tầng là ngụy trang kiếm tiên, tế ra rất có thể là tiên kiếm giống như Hận Kiếm Sơn, hơn nữa còn là hai thanh trước sau!
+- May mà bây giờ công báo sơn thủy bị cấm. Bằng không chỉ cần một tờ công báo đồn ra, người ta có thể nói Vạn Dao tông thực ra là Vạn Yêu tông, là quân cờ Giáp trướng[?] cắm ở Đồng Diệp châu. Vì thế họ hận Thái Bình sơn, muốn chiếm nơi này để dứt hẳn hương hỏa của núi. Đến lúc đó Hàn tông chủ sẽ tìm ai phân trần? Xin lỗi trên công báo, thanh minh Vạn Dao tông không dính dáng gì tới Man Hoang thiên hạ là xong sao?
 
-Tầng một là lấy trận pháp ngăn cách thiên địa, ngụy trang thành một vị khí tượng thánh nhân tọa trấn tiểu thiên địa, mới khiến cho đạo tâm nàng thất thủ trong nháy mắt, kết quả thì ra là đạo môn Cao Chân kiêm tu phù lục, trận pháp hai phái trên ngũ cảnh, khó trách cố ý ngay cả đạo quan cũng không đội, đạo bào cũng không mặc, thẳng đến sau khi tế ra phù lục trận pháp, bị nàng lấy một đạo bản mạng thuật pháp va chạm, mới bị ép thể hiện ra một món đạo bào pháp y tuyệt không phải ngụy trang, khí tượng to lớn, một liên hoa quan một trong ba mạch Bạch Ngọc Kinh, đạo ý mờ mịt, tuyệt đối không thể làm giả, chút nhãn lực đó của nàng vẫn là có.
+Dương Phác nghe rõ cuộc đối thoại ấy, mồ hôi lấm tấm trên trán. Chẳng biết vì uống rượu hay vì sợ.
 
-Nhất là những phù lục kiếm khí áp chế mấu chốt khí phủ của nàng, là khó giải quyết nhất, khiến cho một vị tu sĩ Ngọc Phác cảnh, lúc trước cũng chỉ có thể ngoan ngoãn ngã xuống đất không dậy nổi, thậm chí nằm ở cửa sơn môn, nàng cũng không dám liếc mắt nhìn nhiều một câu.
+Trần Bình An quay sang hỏi:
 
-Chuyện duy nhất còn nghi vấn, chính là đạo quan kia, lúc trước động tác người nọ cực nhanh, đưa tay đỡ, mới đánh tan một chút huyễn tượng giống như ngư vĩ quan, vô cùng có khả năng là chân thân đạo quan, cũng không phải là tín vật nhất mạch của Bạch Ngọc Kinh Lục chưởng giáo, là lo lắng sau đó bị tông môn mình theo dấu vết để lại trả thù? Cho nên mới giả mượn Liên Hoa Quan làm chỗ dựa? Đồng thời lại che giấu đạo mạch chân thật của người này?
+- Dương Phác, dù biết cách này có thể dễ dàng giữ lại di chỉ Thái Bình sơn, ngươi vẫn sẽ không làm, đúng không?
 
-Không đúng! Lấy tâm tính của người này, tuyệt đối sẽ không lộ ra dấu vết trước mặt mình, ngư vĩ quan là tín vật của nhất mạch lão Nhị Bạch Ngọc Kinh đạo, cũng là thủ đoạn để đối phương lấy để chấn nhiếp lòng người! Đạo sĩ nguyện ý vì Thái Bình sơn đánh nhau to như thế, đúng rồi, khẳng định là người ngoại hương Đồng Diệp châu cùng xuất thân đại chưởng giáo Bạch Ngọc Kinh của Thái Bình sơn, đến từ thủ mạch Bạch Ngọc Kinh nào đó của Hạo Nhiên Thiên Hạ? Bởi vì nàng nghe phụ thân nói, đại chưởng giáo Bạch Ngọc Kinh biến mất đã lâu, dẫn tới ngay cả Thái Bình sơn tễ thân Thiên Quân, cũng chưa từng hiện thân, cho nên nói "đạo sĩ trẻ tuổi" giấu đầu giấu đuôi này, thật không phải tâm tư thường thay đổi, lòng dạ thâm trầm!
+Dương Phác lấy hết can đảm, trầm giọng đáp:
 
-Nếu hai bên đã kết thù kết oán sâu đậm, người này trước khi rời khỏi Đồng Diệp Châu, cho dù có thể sống, nhất định phải lưu lại nửa cái mạng! Hàn Giáng Thụ nàng và Vạn Dao Tông, tuyệt đối không có lý do để bị nhục nhã như vậy!
+- Đó không phải việc quân tử nên làm. Vãn bối tuyệt đối không làm.
 
-Khương Thượng Chân nhìn Hàn Giáng Thụ, tuy không rõ lúc trước Trần Bình An cùng cô ta "Luận bàn đạo pháp" như thế nào, nhưng hắn chỉ xác định một chuyện, Giáng Thụ tỷ tỷ này đã không biết bị người tốt huynh lừa gạt đi nơi nào.
+Cây trâm san hô giữa hai ngón tay Trần Bình An chợt lóe sáng rồi biến mất trong tay áo. Quả nhiên, Hàn Giáng Thụ đã gọi cha đến.
 
-Khương Thượng Chân ngồi dậy, lắc lư bầu rượu, thấy sơn chủ đại nhân bên cạnh không có động tĩnh, đành phải làm bộ ngửa đầu, giơ cánh tay lên, lắc mạnh bầu rượu, người tốt huynh bên cạnh vẫn không có động tĩnh, Khương Thượng Chân đành phải thả bầu rượu lại bên chân.
+Tiên Nhân cảnh Hàn Ngọc Thụ. Hắn đã nhớ kỹ.
 
-Khương Thượng Chân đương nhiên nhận ra vị Giáng Thụ tỷ tỷ này, nhưng Hàn Giáng Thụ lại không nhận ra hắn, rất bình thường, trước kia du lịch phúc địa Tam Sơn, Khương Thượng Chân đổi tên và khuôn mặt, bởi vì một chút hiểu lầm nhỏ như vậy, còn bị bà ta truy sát không tha. Sau đó Hàn Giáng Thụ cùng cha của Tiên Nhân cảnh đến thăm Ngọc Khuê Tông, Khương Thượng Chân đã không còn là tông chủ, lại "Bế quan" trốn tránh thanh tĩnh, hai bên cũng không đối mặt. Mà tất cả công chúa Đồng Diệp Châu báo cáo trước kia, ai cũng không dám tùy tiện lấy Khương Thượng Chân ra nói chuyện, dù sao Khương Thượng Chân sẽ đích thân đến nhà cảm tạ một phen.
+Trần Bình An vỗ vai nho sinh, búng ngón tay, xé bỏ một nửa “câu đối xuân” bằng kiếm khí dán ở cửa khí phủ của nàng. Hắn nhìn Hàn Giáng Thụ:
 
-Trên núi tứ đại quỷ khó chơi, bình thường là nói kiếm tu, pháp gia tu sĩ, sư đao phòng đạo sĩ cùng Xa Đao Nhân.
+- Nghe thấy chưa? Các ngươi phải cảm tạ những người đọc sách như vậy. Được họ nhường phần lợi còn khoe mình khôn ngoan. Chẳng phải người ta không nghĩ ra, chỉ là quân tử có điều làm, có điều không làm. Những việc họ làm là việc các ngươi không muốn làm. Những việc họ không làm, các ngươi lại tưởng họ ngốc. Lén vui thì cứ lén vui, nhưng sau này đừng cười lớn như hôm nay. Chẳng phải lần này đã gặp ta sao? Nếu không sợ đánh nhầm người, có lẽ ngươi đã thành một bức chân dung trong tổ sư đường Vạn Dao tông, năm nào cũng được hưởng hương khói rồi.
 
-Nhưng cũng có bốn con quỷ khó chơi, báo cáo danh tiếng muôn dặm ở sơn thủy các châu, một con chó thích ngự phong ngâm thơ.
+Hàn Giáng Thụ lặng lẽ ngồi dậy, thu lại ánh mắt, khiến người ta chẳng nhìn ra tâm tư. Nàng không buông lời độc địa, cũng không nhìn kẻ ra tay tàn nhẫn kia, càng không tính chạy trốn.
 
-Lão hán chèo thuyền chống đỡ thuyền cho Tam chưởng giáo Lục Trầm, mắng chửi không có địch thủ.
+Dương Phác nhìn nữ tiên thượng ngũ cảnh chật vật. Đây là dáng vẻ của người mà vị Trần sơn chủ kia nói mình “sợ đánh nhầm” sao?
 
-Trong tường nở hoa hương ngoài tường, Khương Thượng Chân tác yêu như mây ở Bắc Câu Lô Châu, cũng không chết, trốn chạy vô địch, ghê tởm nhất vô địch.
+Mấy năm qua ở Đồng Diệp châu, Hàn Giáng Thụ danh tiếng rất lớn. Nàng từng dự nhiều cuộc nghị sự trên đỉnh núi, có lần hiện thân ngay tại thư viện Đại Phục. Dương Phác canh sơn môn Thái Bình sơn nhờ thân phận nho sinh của thư viện mới tránh được họa sát thân. Hàn Giáng Thụ cũng từng lên đây, đứng rất lâu cạnh phế tích tổ sư đường. Khi ấy Dương Phác đi theo từ đầu đến cuối, hai bên không nói câu nào.
 
-Còn có một vị nữ tu Bạch Đế thành bình thường tính tình cực kém, lại có rất nhiều thủ đoạn bàng môn, ngẫu nhiên vô cùng kiên nhẫn.
+Một nữ tiên từng cao không với tới trong mắt hắn, hôm nay lại bị người ta nắm tóc ném xuống đất[?]. Nghe câu đùa về việc trở thành chân dung để hưởng hương khói, hắn vừa thấy nàng đáng thương, vừa thấy hả dạ. Uất khí tích góp mấy năm như được cơn rượu tưới tan quá nửa. Nghĩ mình không nên vui trước cảnh ấy, hắn vẫn không nhịn được lén nhìn nàng, thầm nói: Đáng đời.
 
-Nghe nói vị nữ tu kia hiện nay, đối với một người không họ, chỉ là một người trẻ tuổi tên là "Độc nhiên", một người mới vào Bạch Đế thành sư điệt, mười phần sủng nịch, vi sư điệt không tiếc cùng một tòa tông môn trung thổ, còn đánh nhau một trận lớn, nàng lấy rất nhiều thủ đoạn không thể tưởng tượng, cùng sư điệt liên thủ, tốn thời gian năm năm, hai người một mình đấu một tông môn, thế cho nên Trịnh Cư Trung cũng không thể không phi kiếm truyền tin Bạch Đế thành, về phần nội dung mật tín, có lời nói mọi người, có người nói khuyên can, thấy tốt thì nhận, có người nói là răn dạy nàng hộ đạo bất lợi, thuật pháp quá kém, càng có cách nói, là Trịnh Cư Trung Thiên Phá Thiên Hoang tự mình chỉ điểm quan môn đệ tử, nên ra tay như thế nào, mới có thể dựng sào thấy bóng... Dù sao toàn bộ Hạo Nhiên Thiên Hạ, cũng không có mấy người có thể đoán được tâm tư của Trịnh Cư.
+Vị tiền bối họ Trần này thật biết nói chuyện. Vừa rồi với một kẻ nhỏ bé như hắn, tiền bối chẳng hề kiêu căng, còn mời hắn uống rượu. Không hiểu sao Dương Phác lại thấy yên lòng, tựa như đang mở sách cầu học trong thư viện.
 
-Khương Thượng Chân mở miệng cười nói: "Hai đại Địa tiên, một Kim Đan một Nguyên Anh, cao nhân Kim Đan không nhận ra, đại lão Nguyên Anh này, ta ngược lại may mắn gặp qua một lần, xuất thân dã tu, trở thành khách khanh của tiểu long quay. Không có cách nào khác, hôm nay thần tiên trên núi quá ít, mặt hàng gì cũng có thể chạy lên núi, lắc mình biến hóa, chính là trụ cột vững vàng sơn hà một châu của chúng ta."
+Trần Bình An đưa hai tay ra khỏi tay áo. Trong tay hắn là hai phần hồn phách bị ép tụ lại. Hai thân xác tu sĩ đã dán phù lục con rối bỗng tự ngự gió tới sơn môn, đứng đờ đẫn hai bên như hai vị môn thần. Hắn thả hai luồng hồn phách ra, nhưng không cho trở vào thân xác mà treo lơ lửng trên đầu họ. Hắn lại lấy hai lá phù lục, trong chớp mắt dán lên hồn phách đang run rẩy. Hai tiếng rên đau đớn[?] không thể lọt tới tai Dương Phác.
 
-Trần Bình An liếc xéo vị "đại lão Nguyên Anh" kia, hồn phách k** r*n không thôi ở "đỉnh đầu mình", giống như nhận thấy một ánh mắt lạnh như băng, chịu đựng đau đớn róc xương róc xương, lập tức yên tĩnh. Không hổ là xuất thân dã tu, so với tiên sư gia phả, càng chịu được khổ.
+Hàn Giáng Thụ làm như không thấy. Toàn bộ tâm trí nàng đặt vào đạo nhân trẻ tuổi giấu đầu giấu mặt kia.
 
-Tiểu Long Nghiêu, là hạ tông của Trung Thổ Thần Châu Đại Long Nghiêu, tu sĩ phần nhiều là tiên gia kính công, bảo cảnh Đại Long Nghiêu đúc, cực nổi tiếng, chỉ nói thiên hạ này chiếu yêu kính lục mạch, trong đó thuỷ long kính chuyên môn áp thắng thuỷ duệ tinh quái, chính là bị Đại Long Miểu Kính công lũng đoạn. Về phần tu sĩ Tiểu Long Miểu Đồng Diệp Châu, năm đó dọn nhà tương đối nhanh, về sau về nhà cũng không chậm. Địa bàn bọn họ nhìn trúng Thái Bình sơn, lại càng không kỳ quái, bởi vì một trong các trọng bảo đầu mối trọng bảo trong trận pháp hộ sơn của Thái Bình sơn, chính là lão thiên quân năm đó tìm kiếm đại yêu cầm cổ kính, hiển nhiên lớn nhỏ Long Miểu đều mong được mượn dùng đạo vận còn sót lại của cổ kính, lấy cái này thôi diễn nguyên tố..., Cuối cùng đúc ra một cổ kính nhái Thái Bình sơn, sau đó, sau đó còn có thể như thế nào kiếm nhiều tiền. Hôm nay lại hùng hổ đuổi giết dư nghiệt Yêu tộc bốn châu không ra gì, nhất là nhóm gia phả tiên sư Lưu Hà châu và Ngai Ngai châu, một người so với người khác khởi kình, không ngại cực khổ vượt châu ngàn vạn dặm. Như khách khanh Lưu thị, kiếm tiên "Từ Quân" Khu Sơn độ kia, đều coi như phúc hậu, cộng thêm còn là kiếm tu từng đánh nhau liều mạng ở trên chiến trường Kim Giáp châu lúc đầu, tỷ như Hoàn Nhan lão cảnh lúc ấy phát điên, chính là Từ Sàm mai danh ẩn tích, kiên quyết đứng ra, quyết đoán đưa kiếm, giúp Kim Giáp châu chặn lại tổn thất không nhỏ. Khương Thượng Chân cũng chỉ nhắm một mắt mở một mắt với hắn.
+Kẻ này nhất định là tu sĩ Tiên Nhân cảnh!
 
-Cuối cùng Hàn Giáng Thụ cũng ngẩng đầu lên, ngồi xếp bằng. Nàng giơ tay lên lau vết máu trên khóe miệng, rồi đưa tay vuốt vuốt sợi tóc trên đầu, thần sắc bình tĩnh khiến nho sinh Dương Phác cảm thấy rợn người.
+Một tiên nhân có thể tùy tay đoạt trâm san hô của nàng, trước mắt đành phải nhịn. Người lên núi tu hành chịu chút thiệt thòi, sau này còn có ngày lấy lại thể diện. Hàn Giáng Thụ đâu phải dã tu không chỗ dựa, Vạn Dao tông lại từng có công với Đồng Diệp châu. Nàng không tin hắn dám giết mình. Cúi đầu một lúc thì sao?
 
-Dương Phác lại không để ý đến chuyện bên ngoài, cũng biết rõ loại tu sĩ trên núi này càng khiến người ta kiêng kỵ.
+Hôm nay nàng lật thuyền trong mương. Đối phương vừa ra tay đã bày hai tầng chướng nhãn pháp. Một tầng ngụy trang thành kiếm tiên, liên tiếp tế ra hai thanh kiếm trông tựa tiên kiếm ở Hận Kiếm sơn[?]. Tầng kia dùng trận pháp ngăn cách thiên địa, giả khí tượng của thánh nhân tọa trấn tiểu thiên địa, khiến đạo tâm nàng thất thủ. Sau đó nàng mới nhận ra hắn là đạo môn cao chân thượng ngũ cảnh, kiêm tu phù lục và trận pháp. Thảo nào ban đầu hắn không đội đạo quan, không mặc đạo bào. Đến khi nàng dùng bản mệnh thuật pháp va chạm, hắn mới lộ ra pháp y đạo bào thật, khí tượng lớn lao cùng chiếc liên hoa quan của một trong ba mạch Bạch Ngọc Kinh. Đạo ý ấy không thể làm giả, nàng tự tin mình còn chút nhãn lực.
 
-Mà bên cạnh vị nữ tu Ngọc Phác cảnh này, còn có thanh đao hẹp ra khỏi vỏ kia.
+Đáng sợ nhất là những lá phù lục kiếm khí đè chặt các khí phủ trọng yếu. Một tu sĩ Ngọc Phác cảnh như nàng chỉ có thể ngoan ngoãn nằm đất, ngay cả nhìn thêm về sơn môn cũng không dám.
 
-Trần Bình An hai tay che trong ống tay áo, làm bộ đứng dậy, cười tủm tỉm nói: "Giáng thụ tỷ tỷ, thật sự là một bộ xương cứng, bội phục bội phục, ngưỡng mộ."
+Điều nàng còn nghi hoặc là chiếc đạo quan. Lúc ấy đối phương đưa tay đỡ quá nhanh, làm tan một thoáng huyễn tượng trông tựa ngư vĩ quan. Có khi đó mới là đạo quan thật, tín vật của mạch Lục chưởng giáo Bạch Ngọc Kinh[?]. Hắn giả mượn liên hoa quan làm chỗ dựa để giấu đạo mạch của mình, đề phòng Vạn Dao tông lần theo tung tích báo thù chăng?
 
-Hàn Giáng Thụ kia vô thức đứng lên, như lâm đại địch, trên người mặc một pháp bào màu đỏ thẫm, tỏa sáng rực rỡ, bảo quang như tầng tầng vầng trăng, cầu vồng trùng điệp, nổi bật lên nàng tựa như một vị thần nữ đi ra từ Nguyệt Cung.
+Không đúng. Với tâm tính của hắn, tuyệt đối không thể vô ý lộ dấu vết trước mặt nàng. Ngư vĩ quan cũng có thể là thứ hắn cố tình cho nàng thấy để dọa người. Đạo sĩ chịu ra tay vì Thái Bình sơn đến mức này, hẳn có liên hệ với đại chưởng giáo Bạch Ngọc Kinh và đạo mạch Thái Bình sơn[?]. Nàng nghe cha nói đại chưởng giáo đã mất tích từ lâu, đến lúc Thái Bình sơn gặp nạn vẫn chưa hiện thân. Kẻ gọi là đạo sĩ trẻ tuổi này quả thật lòng dạ sâu kín, tâm tư đổi thay khó lường.
 
-Không ngờ Trần Bình An đã ngồi xuống lần nữa, sau đó hơi ngẩng đầu, chỉ là nhìn thẳng vào Hàn Giáng Thụ như vậy, cũng không nói gì, trầm mặc hồi lâu mới nói: "Nhìn thấy mà mắt ta đau, cổ mỏi."
+Hai bên đã kết thù sâu như vậy, trước khi hắn rời Đồng Diệp châu, nàng nhất định khiến hắn phải bỏ lại nửa mạng. Nàng và Vạn Dao tông không có lý do chịu nhục vô ích.
 
-Hàn Giáng Thụ vừa định thu hồi dị tượng pháp bào, trong lòng căng thẳng, trong khoảnh khắc, Hàn Giáng Thụ liền muốn vận chuyển một vật bản mạng, đất Ngũ Hành, là ngọn núi cũ mà phụ thân đã dời từ Đồng Diệp Châu đến phúc địa Tam Sơn, cho nên phương pháp độn thổ của Hàn Giáng Thụ cực kỳ huyền diệu, khi Hàn Giáng Thụ vừa mới độn thổ ẩn nấp, sau một khắc cả người đã bị "đè" ra khỏi mặt đất, bị trận sư tinh thông phù triện một tay nắm lấy đầu, dùng sức ấn xuống, sau lưng nàng đụng nát một tấm mạng nhện lớn, lực đạo của đối phương vừa đúng lúc áp chế khí phủ mấu chốt của Hàn Giáng Thụ, lại không đến mức khiến nàng rơi vào trong hố to.
+Khương Thượng Chân nhìn nàng. Hắn không rõ Trần Bình An đã “luận bàn đạo pháp” với nàng ra sao, chỉ chắc một điều: Giáng Thụ tỷ tỷ đã bị người tốt huynh dắt đi xa lắm rồi.
 
-Dương Phác ngơ ngác ngồi trên bậc thang, căn bản không nhìn thấy tiền bối họ Trần ra tay, ngược lại thấy được bộ áo xanh kia, một cước đạp mạnh xuống, vừa vặn giẫm lên khuôn mặt nữ tử.
+Khương Thượng Chân ngồi dậy lắc bầu rượu, làm bộ ngửa đầu dốc nốt mấy giọt. Hắn còn giơ cao tay lắc mạnh, nhưng sơn chủ bên cạnh chẳng động đậy. Đành đặt bầu rượu rỗng xuống cạnh chân.
 
-Một cước giẫm lên mặt Hàn Giáng Thụ, "Con mẹ nó ngươi còn có mặt mũi coi ta là mặt mũi, liếc mắt nhìn Thái Bình Sơn một cái?!"
+Hắn nhận ra Hàn Giáng Thụ, nàng lại không nhận ra hắn. Trước kia khi du lịch phúc địa Tam Sơn, hắn đổi cả tên lẫn gương mặt. Sau một hiểu lầm nhỏ, nàng còn truy sát hắn rất lâu. Về sau nàng theo cha tới Ngọc Khuê tông, hắn đã rời chức tông chủ, lại “bế quan” tìm thanh tịnh nên hai người không gặp. Công báo trên núi Đồng Diệp châu cũng chẳng ai dám tùy tiện kể chuyện Khương Thượng Chân. Kể xong, có khi chính hắn sẽ tới cửa “cảm tạ”.
 
-Một cước lại một cước, cả cái đầu của một vị nữ tu Ngọc Phác cảnh đều đã lõm xuống, vị tiền bối được Khương lão tông chủ gọi là "Sơn chủ" kia vừa dậm chân, vừa cả giận nói: "Nhìn đi! Nhìn cho kỹ! Trừng to mắt cho lão tử!"
+Trên núi thường nói có bốn hạng khó chọc: kiếm tu, tu sĩ Pháp gia, đạo sĩ cầm sư đao[?] và người mang đao bói toán[?]. Nhưng còn bốn “con quỷ” tiếng xấu vang khắp công báo sơn thủy các châu: một con chó thích ngự gió ngâm thơ[?], một lão lái đò cho Lục Trầm không ai mắng thắng, một Khương Thượng Chân gây chuyện ở Bắc Câu Lô châu mà vẫn chạy thoát, cùng một nữ tu Bạch Đế thành tính tình khó ở, thủ đoạn bàng môn nhiều vô kể.
 
-Khương Thượng Chân không cảm thấy có gì không đúng, thần sắc tự nhiên, giống như đang thưởng thức cảnh đẹp. Đáng tiếc trong tay không có rượu, duy nhất không đủ đẹp.
+Nghe nói nữ tu ấy rất cưng chiều một sư điệt trẻ tuổi mới vào Bạch Đế thành, tên là Độc Nhiên[?], đến mức cùng hắn đối đầu một tông môn Trung Thổ suốt năm năm. Hai người dùng đủ thứ thủ đoạn lạ lùng, cuối cùng Trịnh Cư Trung phải phi kiếm gửi thư. Nội dung thư thì lời đồn mỗi người một khác. Có người nói hắn khuyên thấy tốt thì dừng, có người bảo hắn trách nàng hộ đạo không tốt, thuật pháp quá kém, cũng có người đoán hắn chỉ cách giúp quan môn đệ tử ra tay cho hiệu quả hơn. Tâm tư Trịnh Cư Trung, cả Hạo Nhiên thiên hạ có mấy ai đoán được.
 
-Trần huynh đệ không hổ là Sơn Điên cảnh... võ phu bình cảnh, hoàn toàn có thể đối đãi như võ phu mười cảnh Đồng Diệp châu.
+Khương Thượng Chân cười nói:
 
-Khương Thượng Chân liếc nho sinh thư viện đứng bên trợn mắt há hốc mồm, cười cười, vẫn là quá trẻ tuổi. "thương hương tiếc ngọc thực dữ thừa án" vị đại danh Bảo Bình châu kia, hẳn là biết chứ? Chính là vị sơn chủ trẻ tuổi trước mắt Dương Phác ngươi. Có phải rất danh xứng với thực hay không?
+- Hai vị Địa Tiên, một Kim Đan, một Nguyên Anh. Vị Kim Đan ta không nhận ra. Còn “đại lão” Nguyên Anh kia, ta từng gặp. Hắn xuất thân dã tu, sau thành khách khanh của Tiểu Long Diêu[?]. Hôm nay thần tiên trên núi hiếm quá, hạng nào cũng chạy tới đây, lắc mình thành trụ cột sơn hà một châu.
 
-Khương Thượng Chân nhẹ nhàng ho khan vài tiếng, nắm tay che miệng, cười híp mắt lại.
+Trần Bình An liếc kẻ “đại lão Nguyên Anh”. Hồn phách treo trên đầu thân xác đang rên vì đau bỗng cảm thấy một ánh mắt lạnh buốt, lập tức im bặt. Dã tu quả thật chịu khổ giỏi hơn tiên sư gia phả.
 
-Trong năm tháng nghĩ lại mà kinh, mỗi ngày đều sinh tử trong những năm này, thỉnh thoảng sẽ có mấy chuyện khiến Khương Thượng vui vẻ.
+Tiểu Long Diêu[?] là hạ tông của Đại Long Diêu[?] ở Trung Thổ Thần Châu. Tu sĩ nơi ấy nhiều người làm nghề chế kính tiên gia. Bảo kính của Đại Long Diêu nổi tiếng, trong đó có thủy long kính chuyên áp chế thủy duệ tinh quái[?]. Người của Tiểu Long Diêu ở Đồng Diệp châu năm xưa dọn đi nhanh, về sau trở về cũng chẳng chậm. Họ nhắm Thái Bình sơn là có nguyên do. Trong đại trận hộ sơn từng có một cổ kính mà lão thiên quân lấy được từ đại yêu. Hai tông môn muốn mượn đạo vận còn lại trên kính để suy diễn pháp môn chế tạo[?], đúc ra một bản phỏng theo cổ kính rồi kiếm tiền.
 
-Ví dụ như gặp được một cô nương áo bông mặt tròn, hai bên tán gẫu tương đối hợp ý. Lại ví dụ như trong Yêu tộc, có cách nói Nam Thụ Thần Bắc Ẩn Quan truyền lưu rộng rãi, thế cho nên sống sót trên núi dưới núi Đồng Diệp Châu, dù có dùng biện pháp gì sống sót cũng đều nghe nói cách nói rất nặng này, hơn nữa bảng danh sách mười người trẻ tuổi trong mấy tòa thiên hạ, xếp hạng thứ mười một, chính là "Ẩn Quan". Cho nên Đồng Diệp Châu hôm nay đỉnh núi, đều rất tiếc hận vị kiếm tu thiên tài Kiếm Khí Trường Thành này., Năm đó còn chưa tới bốn mươi tuổi, tuổi còn trẻ đã ở vị trí cao, đáng tiếc đi theo tòa "Thành Phi Thăng" kia, đi tòa thiên hạ thứ năm, bằng không nếu ở lại Hạo Nhiên Thiên Hạ, chỉ cần gặp gỡ bất cứ một người nào của Tề Đình Tể và Lục Chi, hoặc là dứt khoát tự lập môn hộ, như vậy Hạo Nhiên Thiên Hạ nhà mình, liền nhất định sẽ có thêm một tông chủ kiếm tiên trẻ tuổi ngang trời xuất thế, quật khởi cực nhanh, quan trọng nhất, là người này trẻ tuổi, rất trẻ tuổi!
+Nay các thế lực còn hăng hái vượt châu truy sát tàn dư Yêu tộc. Tiên sư gia phả Lưu Hà châu và Ngai Ngai châu càng hăng hơn người khác. Khách khanh họ Lưu, kiếm tiên Từ Quân ở Khu Sơn độ, xem ra còn phúc hậu. Hắn từng liều mạng trên chiến trường Kim Giáp châu. Khi Hoàn Nhan lão cảnh[?] phát điên, chính Từ Quân[?] đang ẩn danh đứng ra xuất kiếm, giảm bớt tổn thất cho cả châu. Vì thế Khương Thượng Chân nhắm một mắt mở một mắt với hắn.
 
-Về phần tu sĩ Đồng Diệp Châu giữa sườn núi, hầu như không có hiểu biết gì đối với Kiếm Khí Trường Thành, theo thói quen trực tiếp coi "Bắc Ẩn quan" kia là tu sĩ Yêu tộc trong Man Hoang thiên hạ.
+Cuối cùng Hàn Giáng Thụ ngẩng đầu, ngồi xếp bằng, lau máu nơi khóe miệng rồi vuốt lại tóc. Vẻ bình tĩnh ấy khiến Dương Phác thấy lạnh gáy. Dù ít hiểu chuyện trên núi, hắn cũng biết tu sĩ như vậy đáng kiêng dè hơn cả. Bên cạnh nàng còn có thanh đao hẹp đã tuốt vỏ.
 
-Nếu nói một kiếm tu thiên tài tuổi còn trẻ, còn có quá nhiều bất ngờ, có thể chết non ở nửa đường lên núi. Nhưng mà một Ẩn Quan Kiếm Khí Trường Thành, một người thân mang khí vận mười người trẻ tuổi, tuyệt đối sẽ không tùy tùy tiện tiện thân tử đạo tiêu, bởi vì không ít người hữu tâm đã phát hiện, mặc kệ là mười người trẻ tuổi hay là dự khuyết mười người, tạm thời không ai rõ ràng chết ở trên chiến trường, nhiều nhất là mất tích. Ví dụ như đứng đầu Bách Kiếm Tiên của Man Hoang Thiên Hạ Thác Nguyệt Sơn, Phỉ Nhiên, còn có tre trúc tỏa sáng rực rỡ trên chiến trường Nam Bà Sa, cùng với Mã Khổ Huyền đánh sống đánh chết ở Bảo Bình Châu, có Hứa Bạch "Thiếu niên Khương thái công" mỹ dự, cùng thuần thanh đến từ Thanh Thần sơn, đều còn sống, hơn nữa ai cũng là đại đạo hoàn toàn xứng đáng.
+Trần Bình An giấu hai tay trong tay áo, làm bộ muốn đứng lên, cười:
 
-Về phần Tào Từ, tu sĩ cùng võ phu Hạo Nhiên Thiên Hạ kia, đều theo bản năng đều không coi hắn là một trong mười người trẻ tuổi.
+- Giáng Thụ tỷ tỷ thật cứng cỏi, bội phục.
 
-Ở trước khi báo cáo sơn thủy bị cấm tiệt, có tin tức tiểu đạo không liên quan đến đại thế thiên hạ, có thể trổ hết tài năng ở trong phần đông bí văn công báo, làm người ta nói chuyện say sưa, chính là vì Tào Từ ra quyền. Một nữ tử võ phu tên là Trịnh Tiền, giống như có chút sâu xa với Ngai Ngai châu Lôi Công miếu, nhưng lại không phải đệ tử đích truyền của Bái A Hương, trong lúc nàng du lịch Trung Thổ Thần Châu, ở trên đầu tường kinh thành vương triều Đại Đoan, trước sau hướng Tào Từ hỏi quyền bốn trận, đều thua. Nhân chứng không nhiều lắm, trừ quốc sư vương triều Đại Đoan, nữ tử võ thần Bùi Bôi, cũng chỉ có Lưu Tụ Bảo Ngai Châu, Lưu U Châu đôi tài thần gia phụ tử này.
+Hàn Giáng Thụ lập tức đứng phắt dậy như gặp đại địch. Pháp bào đỏ sẫm trên người nàng tỏa hào quang, từng vòng sáng như trăng, cầu vồng chồng lớp, khiến nàng tựa thần nữ bước khỏi nguyệt cung.
 
-Chỉ là chuyện cao hứng vẫn còn quá ít, cách người khác quá nhiều, Khương Thượng Chân không phải là người đa sầu đa cảm, vẫn có rất nhiều chuyện khó mà tiêu tan.
+Trần Bình An lại ngồi xuống, ngước lên nhìn nàng hồi lâu mới nói:
 
-Hôm nay thật vất vả liên tiếp gặp ba chuyện đáng để thoải mái, đáng giá uống rượu sảng khoái.
+- Ngẩng đầu nhìn ngươi làm ta mỏi cổ, đau mắt.
 
-Gặp lại bạn tốt Trần Bình An, hai người đều còn sống thật tốt.
+Hàn Giáng Thụ vừa định thu dị tượng pháp bào, lòng chợt căng thẳng. Nàng vận chuyển một vật bản mệnh thuộc thổ trong ngũ hành. Đó là ngọn núi cũ cha nàng dời từ Đồng Diệp châu vào phúc địa Tam Sơn, nhờ vậy độn thổ của nàng cực kỳ tinh diệu. Nhưng mới trốn xuống đất, nàng đã bị ép bật ra. Trần Bình An nắm đầu nàng ấn mạnh xuống, lưng nàng đập vỡ một tấm mạng nhện lớn[?]. Sức hắn vừa khéo áp chế các khí phủ trọng yếu, song chưa để nàng chìm hẳn vào hố.
 
-Nhìn thấy sơn chủ trẻ tuổi của Lạc Phách Sơn động thủ, tận mắt thấy người trẻ tuổi này, không giảng đạo lý như vậy nữa.
+Dương Phác ngồi ngây trên bậc thang, không kịp nhìn động tác ra tay. Hắn chỉ thấy người áo xanh giẫm một chân lên mặt nữ tử.
 
-Cùng với Ẩn Quan Đại Nhân Kiếm Khí Trường Thành, thật sự... rất biết đánh.
+- Ngươi còn mặt mũi nhìn Thái Bình sơn ư?!
 
-Chỉ là có một số việc, hình như Khương Thượng Chân hắn không thể nói, vẫn phải để Trần Bình An tự mình đi xem nghe, tự mình biết.
+Trần Bình An giẫm tiếp, vừa giận dữ quát:
 
-Khương Thượng Chân một tay nắm lại đặt trên đầu gối, một tay vỗ nhẹ lên đầu gối, nhẹ giọng nói.
+- Nhìn đi! Nhìn cho kỹ! Trợn mắt lên mà nhìn!
 
-Luyện lấy hiệp tâm thành cổ kính, thanh quang xuyên thấu thẳng qua Thái Hư Minh, đại phóng quang minh, giang sơn vạn dặm kỳ cục, nhất thời bao nhiêu hào kiệt.
+Đầu nữ tu Ngọc Phác cảnh lún sâu xuống đất. Khương Thượng Chân vẫn thản nhiên như đang thưởng cảnh. Chỉ tiếc không còn rượu trong tay. Trần huynh đệ quả đúng là võ phu Sơn Điên cảnh ở ngưỡng bình cảnh[?], có thể xem như võ phu mười cảnh tại Đồng Diệp châu.
 
-Nhìn thấy cổ kính vô cùng gầy, sách cùng nhau kiểm điểm mai, nhai kỹ hoa mai, phong lưu thiên cổ như mộng, một tôn còn 《 Giang Nguyệt 》.
+Hắn liếc Dương Phác đang trố mắt, thầm cười nho sinh còn trẻ quá. Chẳng lẽ chưa nghe danh sơn chủ trẻ tuổi Bảo Bình châu “thương hương tiếc ngọc”[?] sao? Danh bất hư truyền còn gì.
 
-Trần Bình An dừng động tác, quay đầu cười nói: "Vu Vận Luật không hợp, Bình Huyên càng là một lời khó nói hết, làm cho người ta nghe mà lo lắng."
+Khương Thượng Chân ho khẽ, đưa nắm tay che miệng, mắt híp lại. Trong những năm tháng sinh tử khó quên ấy, cũng có vài chuyện thỉnh thoảng khiến hắn vui.
 
-Khương Thượng Chân giơ tay nắm lại, nhẹ nhàng vung lên, cười nói: "Sau này ta đọc sách nhiều, không ngừng cố gắng."
+Chẳng hạn, hắn gặp một cô nương áo bông mặt tròn, hai người nói chuyện rất hợp. Lại có câu “Nam Thụ Thần, Bắc Ẩn Quan” lan rộng trong Yêu tộc[?]. Người sống sót trên núi dưới núi Đồng Diệp châu, bằng cách này hay cách khác, đều nghe được danh xưng nặng ký ấy. Danh sách những người trẻ tuổi của mấy thiên hạ còn xếp “Ẩn Quan” vào vị trí thứ mười một[?]. Vì thế nhiều người trên đỉnh núi Đồng Diệp châu tiếc cho thiên tài kiếm tu của Kiếm Khí Trường Thành. Năm xưa chưa tới bốn mươi tuổi đã giữ trọng trách, vậy mà theo thành Phi Thăng sang thiên hạ thứ năm. Nếu ở lại Hạo Nhiên, chỉ cần gặp Tề Đình Tể hoặc Lục Chi, hoặc tự lập môn hộ, chẳng mấy chốc sẽ có thêm một tông chủ kiếm tiên trẻ tuổi. Kẻ ấy thật sự còn rất trẻ.
 
-Trần Bình An lướt về phía sau một bước, ngồi trở lại trên bậc thang vị trí ban đầu, hỏi một vấn đề cổ quái: "Khương Thượng Chân?"
+Tu sĩ ở lưng chừng núi Đồng Diệp châu thì hầu như chẳng biết Kiếm Khí Trường Thành, thậm chí coi “Bắc Ẩn Quan” là tu sĩ Yêu tộc Man Hoang.
 
-Còn về Hàn Giáng Thụ kia, thật vất vả mới rút đầu ra khỏi lòng đất, lấy tay chống xuống đất, nôn ra máu không thôi.
+Một kiếm tu trẻ tuổi có thể chết yểu dọc đường tu hành. Nhưng một Ẩn Quan của Kiếm Khí Trường Thành, lại mang khí vận của danh sách mười người trẻ tuổi[?], sẽ không dễ dàng thân tử đạo tiêu. Người hữu tâm nhận ra trong mười người đứng đầu và những người dự khuyết, chưa ai xác nhận chết trận, nhiều nhất chỉ mất tích. Phỉ Nhiên đứng đầu Bách Kiếm Tiên ở Thác Nguyệt sơn[?], Trúc Tiêu[?] từng nổi bật trên chiến trường Nam Bà Sa, Hứa Bạch được gọi là “thiếu niên Khương Thái Công” từng đánh với Mã Khổ Huyền tại Bảo Bình châu, Thuần Thanh của Thanh Thần sơn, ai nấy còn sống và đều có đại đạo đáng gờm[?].
 
-Dương Phác thở dài một tiếng, như vậy, tiền bối thật sự muốn cùng Vạn Dao Tông không chết không thôi.
+Riêng Tào Từ, cả tu sĩ lẫn võ phu Hạo Nhiên thiên hạ dường như chẳng ai còn xem hắn chỉ là một trong mười người trẻ tuổi.
 
-Nếu không có người khác trông chừng, hôm nay Hàn Giáng Thụ gặp phải chuyện này, nói không chừng còn có một đường sống để quay lại.
+Trước khi công báo sơn thủy bị cấm, một tin nhỏ giữa vô vàn bí văn khiến người ta say sưa bàn tán: Tào Từ ra quyền. Nữ võ phu Trịnh Tiền có chút duyên với Lôi Công miếu Ngai Ngai châu, song không phải đích truyền của Bái A Hương, đã bốn lần hỏi quyền Tào Từ trên đầu thành kinh đô vương triều Đại Đoan khi du lịch Trung Thổ. Cả bốn lần nàng đều thua. Người chứng kiến không nhiều, ngoài quốc sư Đại Đoan, nữ võ thần Bùi Bôi, còn có cha con Lưu Tụ Bảo và Lưu U Châu, những vị thần tài Ngai Ngai châu.
 
-Khương lão tông chủ nhất quán chơi đùa nhân gian, là có tiếng bất cần đời, kết giao bằng hữu cũng chưa từng lấy cảnh giới cao thấp để định, cho nên Dương Phác chỉ coi như cung phụng Chu Phì, cái gì bái kiến sơn chủ, đều là trò đùa giữa bằng hữu, chẳng lẽ trên đời này thực sự có một ngọn núi, có thể làm Khương lão tông chủ cam tâm tình nguyện đảm nhiệm cung phụng? Nhưng nếu không phải nói đùa, ai lại có tư cách trêu chọc một câu "Khương Thượng thật sự là phế vật"? Khương lão tông chủ được công nhận là Đồng Diệp Châu đệ nhất nhân ngăn cơn sóng dữ, ngay cả đại thiên sư Long Hổ sơn kia cũng ở sau màn đại chiến, cố ý từ chỗ chiến trường di chỉ Giao Long Câu kia vượt biển trở về Thần Cáo phong một chuyến.
+Chuyện vui vẫn ít, lại cách hắn quá xa. Khương Thượng Chân không phải kẻ đa sầu đa cảm, nhưng nhiều điều hắn khó buông. Hôm nay thì khác. Hắn liên tiếp gặp ba chuyện đáng uống rượu mừng: gặp lại Trần Bình An, cả hai đều sống khỏe; tận mắt thấy sơn chủ núi Lạc Phách ra tay, lại thấy người trẻ tuổi ấy biết lúc nào chẳng cần giảng đạo lý; và thấy Ẩn Quan đại nhân của Kiếm Khí Trường Thành quả thật rất biết đánh.
 
-Khương Thượng Chân không hiểu ra sao, quay đầu nhìn phía Trần Bình An: "Không phải ta là ai? Có ý tứ gì?"
+Có vài chuyện hắn chưa thể nói. Trần Bình An phải tự nhìn, tự nghe, tự biết.
 
-Trần Bình An đột nhiên hỏi: "Năm nay là?"
+Khương Thượng Chân đặt một nắm tay lên gối, tay kia vỗ nhẹ đầu gối, khe khẽ ngâm mấy câu về tấm lòng hiệp nghĩa mài thành cổ kính, ánh sáng chiếu suốt cõi thái hư, giang sơn vạn dặm và hào kiệt một thời[?]. Rồi hắn ngâm tiếp vài câu về sách, hoa mai, mộng thiên cổ và chén rượu trong khúc “Giang Nguyệt”[?].
 
-Khương Thượng Chân càng thêm nghi hoặc khó hiểu: "Chuyện gì xảy ra?"
+Trần Bình An dừng chân, quay lại cười:
 
-Trần Bình An do dự một chút, lấy tiếng lòng đáp: "Luôn cảm thấy như là một hồi đại mộng, còn chưa tỉnh lại."
+- Vần chẳng hợp, ý còn khó nói. Nghe mà lo thay ngươi.
 
-Khương Thượng Chân suy nghĩ một phen, đưa ra một lời giải thích: "Bên Tùy Giá thành là niên hiệu thay đổi ở năm Thần Long thứ mười bảy, bây giờ là năm Nguyên Hi thứ chín."
+Khương Thượng Chân phẩy tay:
 
-Trần Bình An thoáng suy tính năm tháng lúc ấy du lịch Bắc Câu Lô Châu, nhíu mày không thôi, ba giấc mơ, mỗi một giấc mơ gần hai năm? Từ Lô Hoa Đảo tạo hóa quật đi ra khỏi đạo sơn thủy cấm chế kia, cũng chính là thông qua Kiếm Khí Trường Thành và Bảo Bình Châu sơn thủy điên đảo, ở đầu tường Thôi Sàm hiện thân, gặp mặt mình, lại đến nhập mộng cùng với tỉnh táo, thật ra Hạo Nhiên Thiên Hạ lại đã qua hơn năm năm? Thôi Sàm rốt cuộc muốn làm cái gì? Để cho mình bỏ lỡ nhiều hơn, về quê muộn hơn, rốt cuộc ý nghĩa ở đâu?
+- Sau này ta đọc thêm sách, cố gắng tiếp.
 
-Trần Bình An nhìn về phía Khương Thượng Chân, ánh mắt phức tạp. Người trước mắt, thật sự không phải một trong những tâm niệm của Thôi Sàm? Tầm nhìn của một người chung quy có hạn, đổi thành bản thân Trần Bình An, nếu có bản lãnh cảnh giới của Thôi Sàm, lại học thành một hai môn bí thuật đạo quyết tương quan, Trần Bình An cảm thấy mình cũng có thể thử xem một chút. Đứng cao nhìn xa, khi Trần Bình An quan sát nhân gian, núi sông vạn dặm dưới chân chỉ là một bức họa cuộn tròn màu trắng, vật chết, không cần Thôi Sàm quá mức phân tâm thi triển thủ thuật che mắt. Nhưng Trần Bình An nhìn gần, người không nhiều lắm., Ít ỏi không có mấy, Thôi Sàm có thể mang nhân vật bức họa cuộn tròn lần lượt vẽ màu, hoặc là dùng điểm tâm, điểm mắt cho nó, trông rất sống động. Cho dù Trần Bình An thân ở phố phường phố xá sầm uất, giống như độ thuyền Thải Y kia, hoặc là Khu Sơn Độ của Du Châu, rộn ràng nhốn nháo, người đến người đi, cùng lắm thì chính là Thôi Sàm cố ý để cho mình đặt mình vào một bộ phận tương tự như White Paper phúc địa. Mà Trần Bình An sở dĩ hoài nghi Khương Thượng Chân trước mắt, còn có nỗi lo ngầm lớn hơn nữa, năm đó ở lao ngục, hóa ngoại thiên ma sương hàng của Phi Thăng cảnh, chỉ là một lần du lịch tâm cảnh của Trần Bình An, đã có thể bằng nó diễn hóa ra trăm ngàn mạch lạc hợp tình hợp lý.
+Trần Bình An lướt về bậc thang, ngồi đúng chỗ cũ, chợt hỏi một câu kỳ lạ:
 
-Mà Thôi Sàm rõ ràng so với đạo hạnh sương hàng Phi Thăng cảnh càng sâu hơn, nói cách khác, chân tướng mỗi Trần Bình An biết, một cái khởi niệm, "Khương Thượng Chân" liền theo đó biết.
+- Khương Thượng Chân?
 
-Cho nên mộng chi chân giả, gần như khó giải.
+Hàn Giáng Thụ khó nhọc nhấc đầu khỏi đất, chống tay nôn máu. Dương Phác thở dài. Vị tiền bối này thật sự muốn kết tử thù với Vạn Dao tông rồi. Nếu không có người khác trông thấy, có khi Hàn Giáng Thụ còn đường quay về.
 
-Trước khi Khương Thượng Chân hiện thân, áp thắng tự nhiên Đồng Diệp châu cùng Trấn Yêu lâu đã khiến Trần Bình An yên lòng vài phần, giờ này khắc này ngược lại lại hoảng hốt vài phần. Bởi vì mới nhớ lại, tất cả cảm thụ, thậm chí ngay cả hồn phách chấn động, khí cơ gợn sóng, rơi ở trên tay Thôi Sàm sở trường quan sát lòng người, phân tích thần thức, tương tự có thể là hư vọng nào đó, giả tượng nào đó theo chân tướng. Điều này làm Trần Bình An bực bội vài phần, nhịn không được rót một ngụm rượu lớn, con mẹ nó sớm biết như vậy đã không nên nhận cái gì sư huynh đệ..., Nếu phủi sạch quan hệ, một ẩn quan, một Đại Ly quốc sư, Thôi Sàm đại khái sẽ không như thế... "Hộ đạo" chứ? Đều nói ngã một lần khôn hơn một chút, Thư Giản hồ vấn tâm cục còn nhớ như mới, rõ ràng trước mắt, bây giờ thì hay rồi, Thôi Sàm lại tới một trận càng thủ đoạn độc ác hơn? Ý đồ cái gì chứ, dựa vào cái gì, có Thôi Sàm ngươi làm sư huynh như vậy sao? Không lẽ thật muốn tự mình thẳng đến văn miếu Trung Thổ Thần Châu, gặp tiên sinh, gặp lễ thánh, gặp chí thánh tiên sư mới có thể giải mộng, khám nghiệm chân giả?
+Hắn vốn tưởng “Chu Phì” gọi sơn chủ chỉ là lời đùa. Khương lão tông chủ nổi danh chơi đùa nhân gian, kết bạn chẳng xét cảnh giới. Chẳng lẽ trên đời có ngọn núi khiến hắn cam lòng làm cung phụng? Nhưng nếu đây không phải trò đùa, ai có tư cách nói hắn “thật sự là phế vật”? Hắn từng được công nhận là người ngăn cơn sóng dữ cho Đồng Diệp châu. Đại thiên sư Long Hổ sơn sau chiến tranh còn cố từ di chỉ Giao Long câu vượt biển đến Thần Cáo phong một chuyến[?].
 
-Nhưng nếu là giấc mộng thứ tư, vì sao Thôi Sàm lại cố tình khiến mình nghi ngờ như thế? Hoặc là nói đây cũng nằm trong tính kế của Thôi Sàm sao?
+Khương Thượng Chân ngơ ngác quay sang:
 
-Từ lúc bắt đầu nhớ chuyện, Trần Bình An chưa từng mơ hồ như vậy. Không đọc sách, không biết chữ, nhưng cũng chưa bao giờ sống mà đần độn, học quyền, đọc sách, nhiều lần đi xa, càng cắn răng nhận định mấy đạo lý, cho nên mặc dù đi được lảo đảo vấp váp, không trôi chảy như vậy, cuối cùng thân ngoại thế sự lại mưa gió phiêu diêu, nhưng trong lòng vẫn luôn kiên định, hiện nay, giống như toàn bộ đạo lý tin chắc không nghi ngờ gì cả..., Trên sách chép lại, điều mình nghĩ đến còn có phi kiếm, quyền pháp, phù lục, đông đảo vật bản mạng cùng thiên địa hình người nhỏ bé, đều biến thành một tòa lầu các trên không chậm rãi rời khỏi mặt đất, tựa như ảo ảnh hải thị lúc trước ở độ thuyền gặp được, có lẽ ở trăm ngàn năm trước là thật, ngàn vạn lần là thật, nhưng mà điều Trần Bình An nhìn thấy trong mắt hành khách độ thuyền chính là giả, bởi vì mọi người đã ở nơi nào đó của bến đò ở hạ du dòng sông thời gian.
+- Không là ta thì là ai? Ý ngươi là gì?
 
-Khương Thượng Chân cảm thấy kỳ quái, hỏi: "Trần Bình An, rốt cục là chuyện gì xảy ra? Hình như... Ngay cả ta cũng không tin được?"
+Trần Bình An hỏi tiếp:
 
-Trần Bình An bất đắc dĩ nói: "Đều nói tai nghe là giả, mắt thấy mới là thật, tình cảnh hiện tại của ta tương đối xấu hổ, sợ là sợ nhất diệp chướng mục, tầm mắt có thể nhìn thấy, đều là có người cố tình làm."
+- Năm nay là năm nào?
 
-Ở bên phía Khương Thượng Chân, Trần Bình An vẫn nguyện ý xem hắn là Khương Thượng Chân, tựa như mặc kệ có phải là mộng cảnh hay không, nghe nói Thái Bình sơn có tao ngộ này, Trần Bình An không nói hai lời liền chạy tới.
+- Có chuyện gì vậy?
 
-Khương Thượng Chân lại càng bất đắc dĩ: "Chẳng lẽ lại gặp thành chủ Bạch Đế thành, ngươi đang hỏi Trịnh Cừu? Không đạo lý nha, gia hỏa này mấy năm nay ở Phù Diêu châu bên kia, rất phong sinh thủy khởi. Quả thực đùa giỡn Yêu tộc hai quân trướng một châu trong lòng bàn tay, hiện nay toàn bộ Yêu tộc Phù Diêu châu đều bị một mình hắn xúi giục phản loạn hơn phân nửa, huống chi Trịnh Cư Trung không có đạo lý cứng mà đánh với ngươi. Nói thật, ngươi chọc phải ai, mặc kệ có phải Phi Thăng cảnh hay không, ta đều có thể xuất lực, duy chỉ có dính líu Trịnh Cực, thật sự hữu tâm vô lực."
+Hắn do dự rồi dùng tiếng lòng đáp:
 
-Tu sĩ trên núi có thể khiến cho Khương Thượng Chân không dám trêu chọc dưới đáy lòng không nhiều. Trịnh Cửu ở Bạch Đế thành, chính là một trong số đó, hơn nữa thứ tự cực kỳ gần phía trước.
+- Ta luôn thấy mình đang ở trong một giấc mộng lớn, chưa tỉnh lại.
 
-Trần Bình An lắc đầu, "Không phải Trịnh Cư Trung."
+Khương Thượng Chân ngẫm nghĩ:
 
-Khương Thượng Chân cân nhắc một lát, trầm giọng nói: "Trần Bình An, nếu ngươi tin được ta, liền yên tâm một lát, tận lực giam giữ toàn bộ ý niệm làm một, sau đó ta viết chút chuyện xưa lên giấy, đến lúc đó xem xét, liền biết thật giả của ta. Chẳng qua trước tiên phải nói rõ, cảnh giới của ta bây giờ không ở đỉnh phong, một Hàn Ngọc Thụ không tính là gì, hai Hàn Ngọc Thụ đến, đủ cho ngươi ta ăn một bình rượu phạt."
+- Bên Tùy Giá thành[?] đã đổi niên hiệu vào năm Thần Long thứ mười bảy. Bây giờ là năm Nguyên Hi thứ chín.
 
-Trần Bình An lắc đầu, "Không phải không tin được ngươi, mà là không có ý nghĩa."
+Trần Bình An nhẩm lại thời gian du lịch Bắc Câu Lô châu, càng nhíu mày. Ba giấc mộng, mỗi giấc gần hai năm ư? Từ lúc rời cấm chế sơn thủy ở động Tạo Hóa trên đảo Lô Hoa, trải qua cảnh núi sông đảo lộn giữa Kiếm Khí Trường Thành và Bảo Bình châu, rồi gặp Thôi Sàm trên đầu thành, nhập mộng, tỉnh mộng, Hạo Nhiên thiên hạ đã trôi qua hơn năm năm? Thôi Sàm định làm gì? Vì sao khiến hắn bỏ lỡ thêm nhiều chuyện, về nhà càng muộn?
 
-Khương Thượng Chân thở dài: "Xem ra phiền toái quả thực không nhỏ."
+Hắn nhìn Khương Thượng Chân, ánh mắt phức tạp. Người trước mắt liệu có phải chỉ là một ý niệm của Thôi Sàm? Tầm nhìn con người vốn có giới hạn. Nếu đổi là hắn có cảnh giới của Thôi Sàm, lại biết đôi chút bí thuật, hắn cũng có thể thử. Từ trên cao nhìn xuống, núi sông vạn dặm như bức họa trắng, chẳng cần hao tâm bày chướng nhãn pháp. Đến khi hắn nhìn gần một số ít người, Thôi Sàm chỉ việc tô màu cho từng nhân vật trong tranh, điểm thêm đôi mắt, khiến họ sống động. Cả khi hắn ở phố chợ đông đúc, trên độ thuyền Thải Y hay tại Khu Sơn độ, có khi Thôi Sàm chỉ cần đặt hắn trong một phần phúc địa như tờ giấy trắng[?].
 
-Trần Bình An vẫn lắc đầu, "Cũng không hẳn là tất cả đều phiền toái, chỉ là trong lòng vắng vẻ, chung quy cũng không thể làm đến nơi đến chốn, loại cảm giác này, trước nay chưa từng có."
+Nỗi lo lớn hơn bắt nguồn từ hóa ngoại thiên ma Sương Hàng ở lao ngục năm ấy. Chỉ dạo qua tâm cảnh Trần Bình An một lần, một kẻ Phi Thăng cảnh đã dựng được trăm ngàn mạch chuyện hợp lý. Đạo hạnh Thôi Sàm còn sâu hơn. Mọi sự thật Trần Bình An biết, mỗi ý niệm hắn vừa nảy ra, “Khương Thượng Chân” kia đều có thể biết theo. Vậy thật giả trong mộng gần như không cách nào phân giải.
 
-Trần Bình An là đang sợ hãi, sợ hãi lúc còn trẻ, loại cảm giác dốc hết toàn lực đều là nhất định phí công vô ích đó.
+Trước khi Khương Thượng Chân xuất hiện, sự áp chế tự nhiên của Đồng Diệp châu và Trấn Yêu lâu từng khiến hắn yên lòng đôi chút. Bây giờ hắn lại hoang mang. Cảm giác, chấn động hồn phách, dao động khí cơ, dưới con mắt của Thôi Sàm, kẻ giỏi đọc lòng người và phân tích thần thức, đều có thể chỉ là giả tượng được dựng lên. Hắn bực bội uống một ngụm rượu lớn. Biết vậy đã chẳng nhận sư huynh đệ gì. Nếu chỉ là Ẩn Quan và quốc sư Đại Ly không liên hệ, có lẽ Thôi Sàm sẽ bớt “hộ đạo”. Ván vấn tâm ở Thư Giản hồ còn rành rành, bây giờ lại thêm một ván ác hơn. Vì sao chứ? Sư huynh nào làm vậy? Chẳng lẽ hắn phải tới tận Văn miếu Trung Thổ, gặp tiên sinh, Lễ Thánh và Chí Thánh tiên sư mới tìm được cách giải mộng, phân định chân giả?
 
-Sau khi luyện quyền, nhất là sau khi trở thành kiếm tu, Trần Bình An vốn cho rằng loại cảm giác đáng sợ làm người ta ngâm nước thở không thông này, đã càng đi càng xa với mình, thậm chí đời này cũng sẽ không mặt đối mặt với nó nữa.
+Nhưng nếu đây là giấc mộng thứ tư, sao Thôi Sàm lại cố ý cho hắn nghi ngờ? Hay chính nghi ngờ đó cũng nằm trong tính toán?
 
-Khương Thượng Chân nhắm mắt lại, trầm tư một lát, vươn ra khép lại hai ngón tay, nhẹ nhàng xoay tròn, cách bậc thang không xa, linh khí ngưng tụ, hiện lên một vật, như cối xay, lớn chừng miệng giếng, đứng im lơ lửng.
+Từ khi biết nhớ, Trần Bình An chưa bao giờ mờ mịt như lúc này. Thuở chưa đọc sách, chưa biết chữ, hắn cũng chưa từng sống hồ đồ. Luyện quyền, đọc sách, đi xa, hắn cắn răng giữ mấy đạo lý. Đường đời dù lảo đảo, ngoài thân dù mưa gió, lòng hắn vẫn có chỗ đứng. Nay mọi điều từng tin, từ chữ trên sách, ý nghĩ trong đầu, đến phi kiếm, quyền pháp, phù lục, các vật bản mệnh và tiểu thiên địa trong người, đều như lầu các lơ lửng rời khỏi mặt đất. Tựa hải thị hắn từng thấy từ độ thuyền: ngàn năm trước có thể thật, trước mắt khách qua sông thời gian lại chỉ còn là ảnh ảo.
 
-Khương Thượng Chân lại tùy ý xoay chuyển ngón tay, liền có thêm một thân hình mơ hồ, thân cao không quá tấc tấc cao, giống như bày ra một quyền, muốn tra hỏi quyền pháp.
+Khương Thượng Chân thấy lạ:
 
-Khương Thượng Chân lại lấy hai ngón tay ngưng tụ ra một cái cối xay, cuối cùng biến thành một quả cầu do trăm ngàn cái cối xay trùng điệp mà thành, cuối cùng hai ngón nhẹ nhàng vạch một cái, trong đó có thêm một người tí hon cũng cao hơn tấc tấc.
+- Trần Bình An, rốt cuộc đã xảy ra chuyện gì? Ngươi... ngay cả ta cũng không tin?
 
-Khương Thượng Chân búng tay một cái, cối xay thứ nhất bắt đầu chuyển động, chậm rãi di động, nghiền áp vị võ phu thuần túy kia, người sau liền lấy hai nắm đấm hỏi đại đạo.
+- Người ta nói tai nghe là giả, mắt thấy mới thật. Ta lại sợ thứ mình nhìn thấy đều do ai đó cố ý sắp đặt. Một chiếc lá che mắt là đủ.
 
-Một chỗ khác, Luyện Khí sĩ thân ở trong thiên địa đại ma bàn, thế mà lại theo đó mà động, cùng vô số sợi tơ tung hoành tạo thành tiểu thiên địa, cùng nhau xoay tròn.
+Dẫu thế, hắn vẫn muốn xem người bên cạnh là Khương Thượng Chân thật. Như khi nghe chuyện Thái Bình sơn, dù có phải mộng hay không, hắn vẫn lập tức chạy tới.
 
-Khương Thượng Chân chậm rãi nói: "Lấy ánh mắt của võ phu thuần túy nhìn thế giới, không giống với ánh mắt của người tu đạo nhìn thiên địa. Trần Bình An, tuy sau khi ngươi trùng kiến cầu trường sinh, tu tâm tu hành không có lời, nhưng trong mắt ta, ngươi càng xem mình là "Võ phu thuần túy", ngươi lại càng không cách nào xem mình là một người tu đạo thuần túy, bởi vì ngươi hình như cho tới bây giờ không có hy vọng xa vời chứng đạo trường sinh, cũng chưa bao giờ coi là một chuyện nhất định phải làm được? Không chỉ như thế, ngươi ngược lại luôn luôn cố ý vô ý ngược dòng mà lên. Hiểu rõ đạo lý này, thật thật giả giả, quay đầu nhìn lại, quan trọng không? Giấc mộng cũng tốt, tỉnh cũng tốt, thật sự sẽ khiến cho ngươi tâm không có chỗ nào để theo sao? Mơ lớn một giấc, sợ cái gì?"
+Khương Thượng Chân cũng bất đắc dĩ:
 
-Trần Bình An cẩn thận nghe từng chữ Khương Thượng Chân, đồng thời ngưng thần nhìn chằm chằm hai nơi kia, hồi lâu sau, như trút được gánh nặng, gật đầu nói: "Đã hiểu."
+- Ngươi gặp thành chủ Bạch Đế thành, bị Trịnh Cư Trung làm khó sao? Vô lý. Mấy năm nay hắn ở Phù Diêu châu, xoay hai quân trướng Yêu tộc như chong chóng, còn xúi hơn nửa Yêu tộc cả châu phản loạn. Hắn đâu có lý do cứng rắn đối đầu với ngươi. Nói thật, ngươi chọc ai khác, dù Phi Thăng cảnh, ta cũng giúp được chút sức. Riêng Trịnh Cư Trung thì ta chịu.
 
-Khương Thượng Chân giơ tay lên, nắm tay, ngón cái nhếch lên, chỉ chỉ Thái Bình sơn phía sau hai người, cười nói: "Quên nơi này là nơi nào rồi?"
+Trên núi chẳng nhiều người khiến Khương Thượng Chân kiêng dè tận đáy lòng. Thành chủ Bạch Đế thành nằm rất gần đầu danh sách ấy.
 
-Khương Thượng Chân đang nói một câu, Thái Bình sơn tu chân ta.
+- Không phải Trịnh Cư Trung.
 
-Trần Bình An đưa tay nắm chặt cánh tay Khương Thượng Chân, thần thái sáng láng, cười to nói: "Oan uổng Chu Phì huynh, Khương Thượng Chân không phải phế vật!"
+Khương Thượng Chân trầm ngâm:
 
-Khương Thượng Chân cười lúng túng: "Ta cảm ơn ngươi."
+- Nếu tin ta, ngươi cứ gom hết ý niệm, đừng nghĩ thêm một lát. Ta sẽ viết vài chuyện cũ lên giấy. Đến lúc ngươi đọc, có thể biết ta thật hay giả. Nhưng ta nói trước, cảnh giới ta chưa về đỉnh phong. Một Hàn Ngọc Thụ thì chẳng đáng gì, hai người như hắn cùng tới, chúng ta sẽ phải nếm khổ.
 
-Một người là lời hay của Trần đại sơn chủ thật sự không dễ nghe, một người nữa là vị Giáng Thụ tỷ tỷ kia cuối cùng cũng biết mình là ai, nhìn đôi mắt như thu thủy kia của nàng ta trừng lớn, đều sắp nhíu đến lông mày rồi, mẹ nó nhìn thấy Khương ca ca nhà ngươi, có cần vui vẻ như vậy không?
+Trần Bình An lắc đầu:
 
-"Hàn Ngọc Thụ đoán chừng đã trên đường đến đây, thủ đoạn hay lắm, hơn phân nửa tế xuất phát, bản thân chính là một loại truyền tin. Nếu không phong mật tín kia, không đến mức đơn giản rõ ràng bóp méo như vậy, ngay cả Khương lão tông chủ cũng không đề cập tới."
+- Chẳng phải ta không tin ngươi. Làm vậy cũng vô ích.
 
-Trần Bình An lấy ra một bầu rượu, đưa cho Khương Thượng Chân, liếc mắt nhìn cây Hàn Giáng kia, nói: "Ngươi thân là cung phụng, tốt xấu gì cũng phải xuất ra chút đảm đương. Đối phó với nữ tử, ngươi là người trong nghề, ta không được, tuyệt đối không được."
+- Xem ra phiền toái không nhỏ.
 
-Khương Thượng Chân nhận lấy rượu, ngoài miệng lúc này mới ai oán nói: "Không tốt đâu? Ngẩng đầu không thấy cúi đầu gặp, tổ sự thương hại thế nào cũng được, Hàn Ngọc Thụ là một vị cao nhân Tiên Nhân cảnh lão tử, ta nếu chỉ là cung phụng của nhà ngươi, đơn thương độc mã, đánh cũng đánh, dù sao đánh cho hắn gần chết, ta sẽ làm bộ như nửa chết. Nhưng ngươi vừa mới tiết lộ chi tiết của ta, chạy trốn được một Khương Thượng Chân, chạy không thoát được tổ sư đường Thần Cáo Phong... Cho nên không thể đánh không trận này, được hai bầu rượu, lại để cho ta làm cung phụng thủ tịch!"
+- Cũng không hẳn chỉ là phiền toái. Trong lòng ta trống rỗng, chân không chạm đất. Ta chưa từng có cảm giác ấy.
 
-Trần Bình An lại ném cho Khương Thượng Chân một bầu rượu, cười nói: "Có cái gì không tốt, không đánh không quen biết. Hàn Ngọc Thụ đã quen biết ngươi, thì ngồi ở đây uống rượu của ngươi."
+Hắn đang sợ, là nỗi sợ thời niên thiếu: dù dốc hết sức, mọi việc vẫn nhất định uổng công. Từ khi luyện quyền, nhất là thành kiếm tu, hắn tưởng nỗi sợ như chìm dưới nước không thở nổi ấy đã rời xa, đời này không còn phải đối mặt.
 
-Thì ra là Hàn Giáng Thụ giao cho Khương Thượng Chân, về phần Hàn Ngọc Thụ, thì để cho hắn tự mình "Không đánh không quen biết".
+Khương Thượng Chân nhắm mắt nghĩ một hồi. Hắn khép hai ngón tay, khẽ xoay. Linh khí cách bậc thang không xa tụ thành một cối xay lớn bằng miệng giếng, lơ lửng bất động. Hắn xoay ngón tay, thêm một bóng người cao chừng tấc, hai tay bày thế quyền. Rồi một cối xay khác xuất hiện, hóa thành quả cầu gồm hàng trăm hàng ngàn cối xay chồng nhau, bên trong có thêm một người tí hon.
 
-Ngôn ngữ dứt khoát, Trần Bình An đứng lên, vốn từ trong tay áo trượt ra một đôi Tào Tử chủy thủ, nhưng mà không biết vì sao, Trần Bình An thay đổi chủ ý, giống như từ bỏ thân phận "Tào Mạt".
+Hắn búng ngón tay. Cối xay thứ nhất chuyển động, tiến tới nghiền võ phu thuần túy. Người ấy dùng hai nắm đấm hỏi quyền với đại đạo. Bên kia, luyện khí sĩ đứng trong cối xay thiên địa chuyển động cùng vô số sợi tơ giăng dọc ngang, cả tiểu thiên địa xoay theo.
 
-Thu hồi chủy thủ vào tay áo, lại nhẹ nhàng cuốn lên hai tay áo, Trần Bình An duỗi cái lưng mỏi, núi sông thiên địa nhỏ của người ngàn vạn dặm, như có một chuỗi sấm mùa xuân nổ vang, chào cũ đón mới, thiên địa đón xuân.
+Khương Thượng Chân chậm rãi nói:
 
-Trong tâm hồ.
+- Võ phu thuần túy nhìn thế giới khác người tu đạo nhìn thiên địa. Sau khi nối lại trường sinh kiều, ngươi tu tâm tu hành không thể chê. Nhưng trong mắt ta, ngươi càng nhận mình là võ phu thuần túy, càng khó thật lòng xem mình là người tu đạo. Ngươi chưa từng khao khát chứng đạo trường sinh, càng chưa từng cho đó là việc nhất định phải làm. Trái lại, nhiều khi ngươi còn cố ý đi ngược dòng. Hiểu điều này rồi, quay lại xét mộng thật hay giả còn quan trọng đến vậy sao? Mộng cũng được, tỉnh cũng được, lẽ nào lòng ngươi vì thế chẳng còn nơi nương tựa? Một giấc mộng lớn có gì đáng sợ?
 
-Gợn sóng nổi lên, tựa như một phong thư.
+Trần Bình An lắng nghe từng chữ, mắt chăm chú nhìn hai cảnh tượng kia. Rất lâu sau, hắn nhẹ người, gật đầu:
 
-Quả nhiên như Thôi Sàm nói, đầu óc Trần Bình An không đủ tốt, cho nên lại tối dưới đèn.
+- Ta hiểu rồi.
 
-Mãi tới khi tới Thái Bình sơn, gặp được Khương Thượng Chân, mới có thể "Giải mộng".
+Khương Thượng Chân nắm tay, giơ ngón cái chỉ về Thái Bình sơn phía sau:
 
-Lá thư này, ở trong tâm hồ Trần Bình An hiện lên một lát, đã dần dần trôi đi.
+- Quên đây là đâu rồi sao?
 
-Cùng lúc đó, trong tâm cảnh nhật nguyệt tề thiên, giống như có thêm rất nhiều bức họa cuộn tròn thời gian, nhưng mà Trần Bình An thế mà không thể mở ra, thậm chí không thể chạm đến.
+Thái Bình sơn, tu chân ngã.
 
-Nhưng lá thư này, Trần Bình An cách xa nhau nhiều năm mới mở ra.
+Trần Bình An nắm cánh tay hắn, thần sắc sáng hẳn, cười lớn:
 
-"Không chỉ ta bị nhốt ở lầu các đọc sách, không chỉ là ngươi lẻ loi hiu quạnh ngõ Nê Bình, thật ra toàn bộ trẻ con, ở trên đường trưởng thành, đều đang dùng sức trừng to mắt, nhìn thế giới xa lạ bên ngoài, có lẽ sẽ dần dần quen thuộc, có lẽ sẽ vĩnh viễn xa lạ.
+- Oan cho Chu Phì huynh quá. Khương Thượng Chân đâu phải phế vật!
 
-Trần Bình An, ngươi xem quá lâu, lại nhìn quá cẩn thận, cho nên khó tránh khỏi sẽ mệt lòng mà không tự biết. Không ngại hồi tưởng lại một chút, đời này ngươi đến đây, ngủ say vài năm, giấc mộng có mấy lần? Là nên nhìn xem mình, để cho mình sống thoải mái chút ít. Chỉ là nhận ra bản tâm của mình, sao đủ, đạo lý tốt trên đời này, nếu chỉ làm cho người ta như con nít đeo một cái sọt lớn, lên núi hái thuốc, như thế nào được? Để cho người đọc sách chúng ta, siêng năng tìm kiếm đạo lý thánh hiền cả đời cùng thế gian tốt đẹp, há sẽ chỉ là vật làm cho người ta cảm thấy mỏi mệt?
+Khương Thượng Chân cười gượng:
 
-Trần Bình An, ngươi còn trẻ, đời này phải làm cuồng sĩ vài lần, hơn nữa nhất định phải sớm. Phải thừa dịp trẻ tuổi, nói vài câu ngông cuồng với phương thiên địa này, ném ra vài câu hung ác, làm vài hành động vĩ đại không cần cố ý che giấu nữa, hơn nữa khi nói chuyện làm việc, ra quyền xuất kiếm, phải ngẩng cao đầu, phải hăng hái, không ai bì nổi. Trị học, phải học Tề Tĩnh Xuân, ra tay phải học.
+- Ta cảm ơn ngươi.
 
-Phải kiên trì đối xử tử tế với thế giới này, cũng phải học cách đối xử tử tế với chính mình. Muốn cho con của ngươi đi theo phía sau, chẳng những học được cách đối xử tử tế với người khác, hòa hợp với thế giới này, còn phải để cho bọn họ thật sự hiểu được một đạo lý, làm người tốt, trừ chính mình an tâm, còn có thể có báo thật tốt.
+Lời hay của Trần đại sơn chủ quả thật khó nghe. Lại còn Giáng Thụ tỷ tỷ đã nhận ra hắn. Nhìn đôi mắt nàng mở to như thế, Khương Thượng Chân thầm nghĩ: Gặp Khương ca ca mà vui đến vậy sao?
 
-Đây mới là đại đạo chi hành ngươi nên đi.
+Trần Bình An nói:
 
-Đây mới thực sự là tam mộng đệ nhất mộng, cho nên lúc trước tam mộng, là để cho ngươi ở trong mộng thật ngộ được một chữ giả, giấc mộng này mới là cho ngươi ở trong mộng cầu được một chữ thật, là muốn trong mộng của ngươi thấy thật, nhận ra chân chính mình còn chưa đủ, còn cần phải nhận được chân thiên địa. Từ đó về sau vẫn còn có hai mộng, tiếp tục giải mộng. Sư huynh hộ đạo đến tận đây, đã hết sức, coi như là một hồi đại sư thụ nghiệp cuối cùng.
+- Hàn Ngọc Thụ chắc đang trên đường tới. Cây trâm kia hẳn vừa là tín vật vừa dùng báo tin. Bằng không bức mật tín chẳng đến nỗi méo mó đơn giản như thế[?], ngay cả Khương lão tông chủ cũng không nhắc tới.
 
-Hy vọng thế đạo tương lai, chung quy có một ngày, có chỗ cũ, có chỗ dùng, có chỗ mạnh khỏe, có chỗ dài. Có mời tiểu sư đệ, thay sư huynh nhìn thế đạo đó một chút. Hôm nay Thôi Sàm tâm niệm niệm, cho dù trăm năm ngàn năm sau có tiếng vang vọng nữa, Thôi Sàm cũng không thẹn không hối tiếc rồi, Văn Thánh nhất mạch, có Thôi Sàm ta, rất không được tốt lắm, có Trần Bình An ngươi, tốt lắm, không thể tốt hơn nữa, hảo hảo luyện kiếm, Tề Tĩnh Xuân vẫn là nghĩ cách không đủ, võ phu mười một cảnh tính là cái rắm, sư huynh chúc tiểu sư đệ có một ngày... Ồ? Đệ tử quan môn của Văn Thánh nhất mạch, con mẹ nó đều là kiếm tu mười lăm cảnh..."
+Hắn lấy một bầu rượu đưa cho Khương Thượng Chân, liếc Hàn Giáng Thụ:
 
-Trần Bình An nhẹ nhàng hít một hơi.
+- Ngươi là cung phụng, cũng nên gánh chút việc. Đối phó nữ tử, ngươi thành thạo hơn ta. Ta không được, thật sự không được.
 
-dở khóc dở cười.
+Khương Thượng Chân nhận rượu, ai oán:
 
-Tỉnh lại như mộng, trong mộng cầu chân.
+- Khó xử quá. Sau này còn phải gặp nhau, tổ sư đường bên nàng sẽ thương tâm[?]. Hàn Ngọc Thụ là Tiên Nhân cảnh. Nếu ta chỉ là cung phụng của ngươi, đánh hắn thì cứ đánh, ta sẽ đánh hắn gần chết rồi giả vờ mình cũng gần chết. Nhưng ngươi vừa để lộ thân phận ta. Khương Thượng Chân có thể trốn, tổ sư đường Thần Cáo phong[?] thì trốn sao được? Trận này không thể đánh không công. Hai bầu rượu, và cho ta làm cung phụng đứng đầu!
 
-Khó trách rời khỏi Lô Hoa đảo Tạo Hóa quật không bao lâu, sẽ có một độ thuyền Thải Y vừa vặn đi ngang qua sẽ đi trước xua núi vượt, mà không phải Phù Kê tông, sau đó chắc chắn Trần Bình An sẽ tìm Ngọc Khuê Tông Khương Thượng Chân trước, cuối cùng khẳng định sẽ tới Thái Bình sơn này, mặc kệ Khương Thượng Chân nói toạc ra hay không, Thôi Sàm cảm thấy Trần Bình An, đều có thể nghĩ đến một câu "Thái Bình sơn tu chân ngã", điều kiện tiên quyết đương nhiên là Trần Bình An sẽ không quá ngốc, dù sao ở trên đầu tường Kiếm Khí Trường Thành, Thôi Sàm từng tự mình giải tự "Phiêu Tình Lãng" cho Trần Bình An, bản thân chính là một loại nhắc nhở, đại khái ở trong mắt Tú Hổ, mình cũng ăn gian như thế, Trần Bình An nếu đến Thái Bình sơn, hay là mơ mơ màng màng màng, đại khái chính là thực ngu không thể chạm tới.
+Trần Bình An ném thêm một bầu:
 
-Chỉ là vì sao lại bỏ qua một lần?
+- Có gì khó? Không đánh không quen. Hàn Ngọc Thụ đã biết ngươi rồi, cứ ngồi đây uống rượu đi.
 
-Trần Bình An giống như ngủ mà không phải ngủ, tâm thần đắm chìm, mười cảnh khí thịnh, người và cảnh trong lòng, biến thành một bức tranh rực rỡ từ hoa văn trắng xóa biến thành màu sắc.
+Ý hắn là Hàn Giáng Thụ giao cho Khương Thượng Chân, còn Hàn Ngọc Thụ để chính hắn “không đánh không quen”.
 
-Quê nhà trấn nhỏ, Bảo Bình châu, Kiếm Khí Trường Thành, Đồng Diệp châu, Bắc Câu Lô Châu.
+Trần Bình An đứng dậy. Một đôi chủy thủ Tào Tử[?] vừa trượt khỏi tay áo, hắn đã đổi ý, tựa như bỏ lại thân phận “Tào Mạt”. Hắn thu chủy thủ, xắn hai tay áo, duỗi lưng. Tiểu thiên địa trong người như núi sông vạn dặm vang rền tiếng sấm xuân, tiễn cũ đón mới.
 
-Ở thời gian đầu xuân thiên hạ thái bình này, hai tòa thiên hạ nối tiếp nhau, từng đạo võ vận tới Đồng Diệp châu Thái Bình sơn.
+Trong tâm hồ, gợn sóng nổi lên như một phong thư.
 
-Một bộ thanh sam, hóa cầu vồng mà đi, võ vận hội tụ trong người, Trần Bình An đánh ra một quyền về hướng một vị tiên nhân.
+Thôi Sàm quả đã nói đúng, đầu óc Trần Bình An không đủ lanh, ngay trước mắt lại không nhận ra. Mãi tới Thái Bình sơn gặp Khương Thượng Chân, hắn mới “giải mộng”. Lá thư thoáng hiện trên tâm hồ rồi dần trôi đi. Cùng lúc, trong tâm cảnh nhật nguyệt cùng sáng xuất hiện thêm nhiều cuộn tranh ghi thời gian[?], nhưng hắn không sao mở hay chạm vào. Lá thư ấy cách nhiều năm cuối cùng mới được hắn đọc.
 
-Khương Thượng Chân nhìn một lát, thật sự bội phục da mặt sơn chủ nhà mình. Tư thế lúc nãy rõ ràng là đánh hai ba quyền đánh chết một vị tiên nhân, kết quả hai bên thật quá chiêu, cũng là võ vận của mẹ hắn rơi xuống trước mắt bao người, còn làm bộ mình là võ phu đỉnh phong cường đại nhất Viễn Du cảnh? Hóa ra là để tiên nhân kia hỗ trợ luyện quyền củng cố cảnh giới. Hàn Ngọc Thụ kia là khờ thật hay là sao, thật đúng là đã nghiện đánh người? Từng đạo thuật pháp thật sự là sáng lạn, một môn thần thông đồ sộ cỡ nào?, Hơn nữa trên đường tới phù lục càng xuất quỷ nhập thần, đăng phong tạo cực, khó trách hôm nay Đồng Diệp châu nịnh nọt vô số, nói ngươi là người đứng đầu phù lục dưới huyền, Hàn Ngọc Thụ ngươi không tin lắm chứ? Dù sao cái chuyện hiện nay đã là chuyện ván đã đóng thuyền, là Khương Thượng Chân ta sáng tạo, sau đó không cẩn thận liền truyền ra.
+“Không chỉ ta từng bị nhốt trong lầu đọc sách, không chỉ ngươi cô độc ở ngõ Nê Bình. Mọi đứa trẻ trên đường trưởng thành đều mở to mắt nhìn thế giới xa lạ ngoài kia. Có thể dần quen, cũng có thể suốt đời thấy xa lạ.
 
-Hàn tiên nhân kia xem chừng là cực ít khi ra tay nhẹ nhàng vui vẻ như thế, nguyên nhân lại đủ da dày thịt béo? A, là Khương mỗ khinh thường Hàn tiên nhân, nguyên lai là đang lặng lẽ bày trận cấu tạo tiểu thiên địa.
+Trần Bình An, ngươi nhìn quá lâu, lại nhìn quá kỹ, khó tránh lòng mỏi mệt mà chẳng hay. Thử nhớ lại đời mình, những năm ngủ say ấy ngươi đã mơ mấy lần? Đến lúc nhìn lại chính mình, để mình sống nhẹ nhõm hơn. Chỉ nhận ra bản tâm thôi chưa đủ. Nếu đạo lý tốt trên đời chỉ khiến người ta như đứa trẻ mang giỏ nặng lên núi hái thuốc, sao gọi là tốt? Người đọc sách chúng ta cả đời tìm đạo lý thánh hiền và điều đẹp đẽ nơi nhân gian, lẽ nào chỉ tìm được thứ làm mình kiệt sức?
 
-Hàn Giáng Thụ đưa mắt trông về phía xa, nàng thấy vậy lo lắng vạn phần, vừa định lặng lẽ truyền tin, để nói cho phụ thân biết, người nọ tâm tư sâu thẳm, âm hiểm đến cực điểm, ngoại trừ là Đại tông sư võ phu vừa mới tiết lộ thân phận ra, còn là một vị tiên nhân đạo môn cũng tinh thông trận pháp phù triện, nhất định không thể quá mức ỷ vào trận pháp bí lục Tam Sơn nhà mình, chỉ là không đợi nàng truyền lại mật tín, chỗ mi tâm của Hàn Giáng Thụ đã chảy ra một hạt châu máu tươi, một đoạn lá liễu, lơ lửng ở mi tâm nàng.
+Ngươi còn trẻ, phải làm kẻ cuồng sĩ vài lần, càng sớm càng tốt. Khi còn trẻ, hãy nói vài câu ngông với trời đất, làm vài việc lớn chẳng cần che giấu. Nói năng, ra quyền, xuất kiếm đều nên ngẩng đầu, hăng hái, chẳng sợ ai. Học vấn thì học Tề Tĩnh Xuân, ra tay thì học...[?]
 
-Khương Thượng Chân oán giận nói: "Giáng thụ tỷ tỷ thật sự là bạc tình quả nghĩa, chẳng lẽ lại quên nhặt được Khương đệ đệ của ngươi đeo giày thêu sao? Hảo ý, hai tay bưng giày thêu của ngươi, ngươi trái lại xấu hổ, không cho ta giải thích nửa câu, nhưng đợi đến lúc bốn bề vắng lặng, liền chấn nát một thân pháp bào của ta, Giáng Thụ tỷ tỷ có biết hay không, chịu uất ức cỡ này, chờ ta trở về Đồng Diệp tông, uống bao nhiêu bầu rượu sầu, chỉ là mỗi lần mở ra bầu rượu nê phong, mùi thơm kia..."
+Hãy tiếp tục đối xử tử tế với thế giới, cũng học cách tử tế với bản thân. Để những đứa trẻ đi theo ngươi không chỉ biết thiện đãi người khác, hòa thuận với thế giới, mà còn thật sự hiểu: làm người tốt, ngoài lòng mình được yên, vẫn có thể nhận báo đáp tốt.
 
-"Là ngươi?! Cẩu tặc câm miệng!"
+Đó mới là đại đạo ngươi nên đi.
 
-Hàn Giáng Thụ trợn tròn đôi mắt, "Ta đã phái người điều tra, toàn bộ thuật pháp ngươi thi triển lúc ấy, quả thực đều là độc môn bí thuật Đồng Diệp tông không phải đích không truyền..."
+Đó mới thật sự là giấc mộng thứ nhất trong ba giấc. Những giấc trước để ngươi hiểu một chữ giả trong mộng. Giấc này để ngươi cầu được một chữ thật: thấy chính mình là thật vẫn chưa đủ, còn phải thấy thiên địa thật. Sau này còn hai giấc mộng để ngươi tiếp tục giải. Sư huynh hộ đạo đến đây đã hết sức, coi như buổi truyền dạy cuối cùng.
 
-Nói tới đây, Hàn Giáng Thụ cũng tự biết nói một câu vô nghĩa, nàng cắn chặt môi, chảy ra máu cũng chưa từng phát hiện, nàng chỉ oán hận nói: "Khương Thượng Chân! Khương Thượng Chân!"
+Hy vọng thế đạo mai sau sẽ có chốn cũ, có chỗ dùng, có nơi bình an, có đường dài[?]. Xin tiểu sư đệ thay ta nhìn thế đạo đó. Điều Thôi Sàm ngày đêm nghĩ tới, dù trăm năm ngàn năm sau chẳng còn tiếng vọng, ta cũng không hối tiếc. Văn Thánh nhất mạch có Thôi Sàm ta, chẳng tốt đẹp gì, nhưng có Trần Bình An ngươi thì tốt lắm, không thể tốt hơn. Cứ chăm chỉ luyện kiếm. Tề Tĩnh Xuân nghĩ cách vẫn chưa đủ. Võ phu cảnh giới mười một tính là gì? Sư huynh chúc tiểu sư đệ một ngày kia... Ồ? Quan môn đệ tử Văn Thánh nhất mạch, mẹ nó đều là kiếm tu cảnh giới mười lăm...”
 
-Ánh mắt Khương Thượng Chân còn u oán hơn cả nàng ấy: "Luôn miệng nói hóa thành tro đều nhận ra ta, kết quả thì sao, quả nhiên ngôn ngữ của các tỷ tỷ xinh đẹp các ngươi đều không tin được."
+Trần Bình An khẽ hít vào, dở khóc dở cười.
 
-"Chuyện bí mật như vậy" người đọc sách Dương Phác ở bên cạnh nghe cũng không được, không nghe cũng không xong, đành phải tiếp tục uống rượu.
+Tỉnh như vừa thoát mộng, trong mộng cầu chân.
 
-Khương Thượng Chân một tay mang theo bầu rượu, một tay che mặt, sơn chủ đại nhân, ngươi làm vậy thật quá đáng.
+Bây giờ hắn mới hiểu vì sao sau khi rời động Tạo Hóa trên đảo Lô Hoa lại gặp đúng độ thuyền Thải Y đi ngang, trên đường vượt núi[?] chứ không phải thuyền Phù Kê tông. Thôi Sàm biết hắn sẽ tìm Khương Thượng Chân của Ngọc Khuê tông, rồi đến Thái Bình sơn. Dù Khương Thượng Chân có nói toạc ra hay không, Thôi Sàm tin hắn sẽ nghĩ đến câu “Thái Bình sơn tu chân ngã”. Điều kiện là hắn đừng quá ngốc. Năm ấy trên đầu thành Kiếm Khí Trường Thành, Thôi Sàm từng tự tay giải chữ “Phiêu Tình Lãng”[?] cho hắn, vốn đã là lời gợi. Nếu tới đây mà còn mơ hồ, có lẽ trong mắt Tú Hổ hắn đúng là ngu hết thuốc chữa.
 
-Chỉ thấy một bóng người thẳng tắp, nghiêng ngã xuống, ầm ầm đâm vào trên mặt đất cách sơn môn trăm trượng, tạo ra một cái hố không nhỏ.
+Chỉ là vì sao hắn đã bỏ lỡ một lần[?]?
 
-Khương Thượng Chân vội vàng nhìn về bụi đất bay lên, vẻ mặt lo lắng hỏi: "Đạo hữu bị thương sao?"
+Trần Bình An nửa như ngủ, nửa như thức. Tâm thần đắm chìm, cảnh giới mười khí thịnh trong lòng dần biến từ bức tranh trắng thành muôn màu. Trấn nhỏ quê nhà, Bảo Bình châu, Kiếm Khí Trường Thành, Đồng Diệp châu, Bắc Câu Lô châu, từng nơi hiện ra.
 
-Bộ thanh sam kia nhảy dựng lên, lấy quyền cương chấn đi một thân bụi đất, "Kẻ địch khó chơi!"
+Đầu xuân thiên hạ thái bình, võ vận từ hai tòa thiên hạ nối nhau đổ về Thái Bình sơn. Người áo xanh hóa cầu vồng, tụ võ vận vào thân, đánh một quyền về phía tiên nhân.
 
-Hàn Giáng Thụ sắc mặt xanh mét, nhưng một đoạn lá liễu đã ghim vào mi tâm của bà, không thể nói chuyện được.
+Khương Thượng Chân đứng nhìn, thật khâm phục da mặt sơn chủ nhà mình. Lúc nãy khí thế rõ ràng đủ hai ba quyền đánh chết một tiên nhân, đến khi giao thủ thật, võ vận lại rơi xuống trước mắt bao người, hắn còn giả làm võ phu Viễn Du cảnh đỉnh phong? Thì ra muốn nhờ tiên nhân luyện quyền, củng cố cảnh giới. Hàn Ngọc Thụ thật ngu hay đánh người đến nghiện? Thuật pháp của lão đủ màu rực rỡ, thần thông lớn lao. Phù lục lại xuất quỷ nhập thần, gần như đến mức đăng phong tạo cực. Khương Thượng Chân nghĩ bụng, Đồng Diệp châu khen lão là người đứng đầu phù lục dưới Vu Huyền[?], lão chắc không chịu nhận đâu. Danh xưng ấy dù sao cũng do chính hắn tung ra, rồi “vô ý” truyền khắp nơi.
 
-Trên trời, một người lơ lửng, một tay nắm một hồ lô rượu màu tím, nhẹ nhàng hà một hơi, chính là vô thượng thần thông tiên nhân thổi phồng tam muội chân hỏa, ngọn lửa màu vàng che khuất bầu trời như thác nước trút xuống, mênh mông cuồn cuộn hướng thanh sam kia. Vạn Dao tông tông chủ, tiên nhân Hàn Ngọc Thụ quan sát sơn môn Thái Bình sơn bên kia, cười lạnh nói: "Khương tông chủ, cùng bằng hữu kết nhóm chơi khỉ? Vừa mới tễ thân võ phu cửu cảnh không nói, còn có thể lấy ba ngàn sáu trăm tấm phù lục phá trận pháp của ta, Khương đại tông chủ, ngươi bằng hữu này, thật sự là khó lường, tuổi trẻ tài cao, xin hỏi đến cùng là vị cao nhân nào đạo môn Trung Thổ Thần Châu? Chẳng lẽ là đệ tử thân truyền Phù Lục Vu Huyền?"
+Hàn tiên nhân hẳn hiếm khi đánh thoải mái đến vậy. Có lẽ vì đối thủ da dày thịt chắc? Không, Khương Thượng Chân đã xem nhẹ lão. Hàn Ngọc Thụ đang âm thầm bày trận dựng tiểu thiên địa.
 
-Khương Thượng Chân buông bầu rượu xuống, chậm rãi đứng dậy, cợt nhả nói: "Nếu không phải nể tình ngươi thiếu chút nữa trở thành nhạc phụ ta, lúc này tổ sư đường ở phúc địa Tam Sơn của Vạn Dao tông sẽ treo tượng thắp hương bái lão tổ. Nhịn các ngươi thật lâu, thật tưởng Khương mỗ từ Phi Thăng cảnh ngã về Tiên Nhân cảnh, hai ta lại bình khởi bình tọa?"
+Hàn Giáng Thụ từ xa nhìn thấy, lo lắng định truyền tin cho cha. Người áo xanh tâm tư sâu kín, thủ đoạn hiểm. Hắn vừa là đại tông sư võ phu, vừa tựa tiên nhân Đạo môn tinh thông trận pháp và phù lục. Cha nàng không thể quá cậy vào bí lục trận pháp Tam Sơn. Nàng chưa kịp báo, mi tâm đã rịn một giọt máu. Một đoạn lá liễu lơ lửng ngay đó.
 
-Tên đệ tử thư viện đang ngơ ngác ngồi trên bậc thang, lại muốn theo bản năng đi uống rượu, mới phát hiện bầu rượu đã trống rỗng, ma xui quỷ khiến, Dương Phác theo Khương lão tông chủ cùng nhau đứng lên, dù sao hắn cảm thấy đã không còn gì để uống rượu để an ủi nữa, hôm nay những gì nhìn thấy nghe thấy, đã uống no nê, say khướt, so với việc đọc sách thánh hiền hiểu ý, không sai chút nào. Xem ra sau này quay về thư viện, thật sự có thể thử uống nhiều rượu. Đương nhiên điều kiện tiên quyết là trong trận thần tiên đánh nhau này, hắn một kẻ ngay cả hiền nhân cũng không phải, Địa Tiên lại càng không phải, có thể còn sống trở lại thư viện Đại Phục.
+Khương Thượng Chân oán trách:
 
-Hàn Ngọc Thụ vừa muốn để Khương Thượng Chân thả Hàn Giáng Thụ, khẽ nhíu mày, tầm mắt chếch đi, chỉ thấy một bộ áo xanh, lông tóc không tổn hao gì đứng tại chỗ, hai ngón tay kẹp lấy một tia lửa chập chờn, ngẩng đầu nhìn về phía Hàn Ngọc Thụ, đúng là ném Tam Muội Chân Hỏa giống như ngọn đèn kia vào trong miệng, nuốt xuống, sau đó rung cổ tay, cười tủm tỉm nói: "Hai lần đều là chỉ kém một chút, Hàn tiên nhân có thể đánh chết ta rồi."
+- Giáng Thụ tỷ tỷ bạc tình quá. Quên Khương đệ đệ từng nhặt giày thêu giúp tỷ sao? Ta hai tay dâng giày, tỷ lại thẹn quá chẳng cho ta giải thích. Đến lúc không ai thấy, tỷ đánh nát cả pháp bào ta. Có biết ta tủi thân thế nào, về Đồng Diệp tông phải uống bao nhiêu bầu rượu giải sầu? Chỉ là mỗi lần mở lớp bùn niêm bầu rượu, mùi thơm ấy...
 
-Khương Thượng Chân lập tức vô cùng lo lắng, dậm chân nói: "Người tốt huynh há có thể thẳng thắn thành khẩn như thế."
+- Là ngươi?! Tên chó chết, câm miệng!
 
-Hàn Ngọc Thụ vẫn giữa trời, không để ý tới hai người trên mặt đất đang xướng song xà, vị tông chủ Tiên Nhân cảnh này ống tay áo phiêu diêu, khí tượng mờ mịt, rất có tiên phong, Hàn Ngọc Thụ kì thực trong lòng chấn động không thôi, không ngờ lại khó chơi như thế? Chẳng lẽ thật sự phải dùng ra vài đòn sát thủ? Chẳng lẽ chỉ là vì một tòa Thái Bình sơn vốn đã rất khó thu vào trong túi, còn những người thích nhất là Khương Thượng Chân ghi thù, cũng có thể báo thù nhất cũng đã đủ phiền toái rồi, còn muốn thêm một võ phu không biết tên nào đó? Lão tổ truyền chi truyền của một đại tông môn Trung Thổ nào đó đã tận lực tài bồi? thuật, võ kiêm cả người tu đạo?, Vốn cũng không thường gặp, bởi vì đi một đường tắt tu hành, được xưng là cao nhân, lại càng ít ỏi, nhất là từ Kim Thân cảnh tễ thân "Phúc Địa" cảnh, rất khó, một khi đi con đường này, lòng tham không đủ, sẽ bị đại đạo áp thắng, nếu muốn đánh vỡ bình cảnh Nguyên Anh cảnh, khó như lên trời. Cho nên Hàn Ngọc Thụ trừ kiêng kị vài phần thể phách võ phu cùng thủ đoạn phù lục của đối phương, phiền lòng người trẻ tuổi này khó chơi, thật ra càng lo lắng bối cảnh của đối phương.
+Hàn Giáng Thụ trợn mắt:
 
-Người nọ hình như nhìn thấu tâm tư của Hàn Ngọc Thụ, đi thẳng vào vấn đề nói: "Không cần lo lắng ta có chỗ dựa vững chắc gì đó, đi không đổi tên ngồi không đổi họ, tại hạ Tào Mạt, là nhị đẳng khách khanh của Ngọc Khuê Tông, tiên nhân thông thái tọa trấn Vũ Long Tông, cùng Khu Sơn độ kiếm tiên Từ Quân, còn có quản sự độ thuyền Thải Y, Hoàng Lân đều có thể làm chứng cho ta."
+- Ta đã cho người tra. Thuật pháp ngươi dùng khi ấy rõ ràng đều là bí thuật Đồng Diệp tông, không truyền cho người ngoài...
 
-Hàn Ngọc Thụ cười khẩy nói: "Suốt ngày nói hươu nói vượn, chơi được sao? Người trẻ tuổi, ngươi thật sự cho rằng mình sẽ không chết?"
+Nói tới đó nàng tự biết mình vừa nói điều thừa. Nàng cắn chặt môi đến bật máu mà chẳng hay:
 
-Vị tiên nhân này tự mình lắc đầu, "Có tư cách nói mấy câu cho Thái Bình sơn, cùng lắm thì trăm năm sau mới có thể trở về Đồng Diệp châu nữ quan Hoàng Đình, còn ngươi, tính là cái thá gì?"
+- Khương Thượng Chân! Khương Thượng Chân!
 
-Khương Thượng Chân thở dài, đúng là muốn đánh thật. Lần này đến ngăn cũng không ngăn được. Đương nhiên, Khương Thượng Chân cũng không muốn ngăn cản. Lão tử thân là cung phụng thủ tịch tương lai của Lạc Phách Sơn, khuỷu tay có thể rẽ ra bên ngoài sao?
+Ánh mắt hắn còn ai oán hơn nàng:
 
-Trần Bình An nhìn tu sĩ Tiên Nhân cảnh của tam sơn phù lục nhất mạch này, nhổ cây trâm bạch ngọc còn cất giấu bọn nhỏ, thu vào trong một khiếu huyệt bản mạng, miễn cho đánh sống đánh chết, một người không thu tay, tiểu thiên địa lay động, liên lụy những đứa nhỏ kia luyện kiếm bất an, cho nên khi cây trâm vừa đi, Trần Bình An lập tức tóc tai bù xù, sau đó hắn đưa tay vòng qua đầu vai, hai tay nhẹ nhàng nắm tóc, lấy một vòng tròn màu vàng ngưng khí mà buộc tóc, hai đầu gối hơi khụy xuống, thân hình nháy mắt khom xuống vài phần, quyền ý chảy khắp toàn thân, một tay để sau lưng, một tay kẹp ra một tấm phù lục, động tác nước chảy mây trôi, hành văn lưu loát, cuối cùng cười nói: "Ta thích loại tiên nhân giấy dán lại cứng rắn như ngươi."
+- Miệng tỷ nói ta hóa tro cũng nhận ra, kết quả thì sao? Lời của các tỷ tỷ xinh đẹp quả chẳng thể tin.
+
+Dương Phác nghe chuyện riêng này, không nghe cũng dở mà nghe cũng dở, đành tiếp tục uống rượu.
+
+Khương Thượng Chân một tay cầm bầu, một tay che mặt. Sơn chủ đại nhân, ngươi làm thế cũng quá đáng rồi.
+
+Một bóng người áo xanh rơi thẳng từ trời xuống, đập vào đất cách sơn môn trăm trượng, tạo thành hố lớn. Khương Thượng Chân vội ngó về đám bụi, lo lắng hỏi:
+
+- Đạo hữu bị thương chăng?
+
+Người áo xanh bật lên, dùng quyền cương phủi sạch bụi:
+
+- Địch nhân khó chơi!
+
+Hàn Giáng Thụ xanh mặt. Đoạn lá liễu đã ghim vào mi tâm, nàng không sao mở miệng.
+
+Trên không, Hàn Ngọc Thụ lơ lửng, tay cầm hồ lô rượu tím. Lão nhẹ hà một hơi. Tam Muội Chân Hỏa vàng rực tựa thác lửa che trời, cuồn cuộn trút xuống người áo xanh. Tông chủ Vạn Dao tông nhìn về sơn môn Thái Bình sơn, lạnh giọng:
+
+- Khương tông chủ cùng bằng hữu diễn trò khỉ sao? Vừa vào võ phu cảnh giới chín, lại dùng ba ngàn sáu trăm lá phù lục phá đại trận của ta. Bằng hữu của ngươi trẻ tuổi mà ghê gớm thật. Xin hỏi là cao nhân Đạo môn nào ở Trung Thổ Thần Châu? Đệ tử chân truyền của Vu Huyền bên Phù Lục nhất mạch chăng?
+
+Khương Thượng Chân đặt bầu xuống, chậm rãi đứng lên, giọng còn đùa cợt:
+
+- Nếu không nể tình ngươi suýt thành nhạc phụ ta, giờ tổ sư đường ở phúc địa Tam Sơn của Vạn Dao tông đã phải treo chân dung ta mà thắp hương. Ta nhịn các ngươi lâu rồi. Ngươi tưởng Khương mỗ rơi từ Phi Thăng cảnh xuống Tiên Nhân cảnh thì ngươi có thể ngồi ngang hàng với ta?
+
+Dương Phác ngồi ngây trên bậc thang, đưa bầu lên miệng theo thói quen mới biết rượu đã cạn. Hắn cũng đứng dậy theo. Chuyện hôm nay thấy nghe đủ làm hắn say, chẳng kém một phen hiểu sách thánh hiền[?]. Về thư viện, có lẽ hắn nên học uống rượu. Nhưng trước hết một nho sinh chưa phải hiền nhân, càng chẳng phải Địa Tiên như hắn phải sống qua trận thần tiên đánh nhau này.
+
+Hàn Ngọc Thụ đang định bảo Khương Thượng Chân thả con gái, chợt nhíu mày. Người áo xanh đứng nguyên tại chỗ, không hề hấn gì, hai ngón tay kẹp một tia lửa. Hắn ngẩng lên, thả tia Tam Muội Chân Hỏa vào miệng nuốt xuống, phủi tay cười:
+
+- Hai lần nữa chỉ thiếu một chút thôi, Hàn tiên nhân đã đánh chết ta rồi.
+
+Khương Thượng Chân giậm chân, vẻ lo lắng:
+
+- Người tốt huynh, sao ngươi thật thà đến vậy?
+
+Hàn Ngọc Thụ lơ lửng giữa trời, không để ý màn kẻ tung người hứng dưới đất. Tay áo lão phất phơ, tiên phong đạo cốt, nhưng trong lòng chấn động. Kẻ này khó đối phó đến vậy sao? Có phải dùng sát chiêu? Chỉ vì một tòa Thái Bình sơn vốn đã khó chiếm, nay lại chọc thêm Khương Thượng Chân vừa thù dai vừa giỏi báo thù, còn phải gây thù với võ phu không rõ lai lịch? Lão nghi hắn là đệ tử được một đại tông môn Trung Thổ dốc sức bồi dưỡng. Người kiêm cả thuật pháp và võ đạo không hiếm, nhưng đi đường tắt ấy tới cảnh giới cao thì hiếm. Từ Kim Thân lên “Phúc Địa” cảnh[?] đã khó, ham cả hai con đường càng dễ bị đại đạo áp chế, phá bình cảnh Nguyên Anh khó như lên trời. Ngoài thể phách, phù lục của đối phương, điều lão ngại nhất chính là thế lực sau lưng hắn.
+
+Người áo xanh dường như nhìn thấu:
+
+- Khỏi lo ta có chỗ dựa. Đi không đổi tên, ngồi không đổi họ, ta là Tào Mạt, khách khanh hạng hai Ngọc Khuê tông. Vị tiên nhân tọa trấn Vũ Long tông[?], kiếm tiên Từ Quân ở Khu Sơn độ, quản sự Hoàng Lân trên độ thuyền Thải Y đều có thể làm chứng.
+
+Hàn Ngọc Thụ cười nhạt:
+
+- Suốt ngày nói hươu nói vượn, thú vị lắm sao? Người trẻ tuổi, ngươi nghĩ mình không chết được?
+
+Lão lắc đầu:
+
+- Hoàng Đình, nữ quan Thái Bình sơn, có tư cách nói mấy câu cho ngọn núi này. Cùng lắm trăm năm sau nàng còn quay lại Đồng Diệp châu. Còn ngươi, tính là thứ gì?
+
+Khương Thượng Chân thở dài. Trận này thật sự phải đánh. Hắn không ngăn nổi, mà cũng không muốn ngăn. Hắn là cung phụng đứng đầu tương lai của núi Lạc Phách, sao có thể khuỷu tay chống ra ngoài?
+
+Trần Bình An nhìn tu sĩ Tiên Nhân cảnh của mạch phù lục Tam Sơn, rút cây trâm bạch ngọc đang giấu bọn trẻ trong đó[?], thu vào khiếu huyệt bản mệnh. Hắn sợ hai bên đánh quá tay làm tiểu thiên địa rung chuyển, ảnh hưởng bọn trẻ luyện kiếm. Trâm vừa rời đi, tóc hắn xõa xuống. Hắn vòng hai tay qua vai, gom tóc lại, dùng một vòng sáng vàng ngưng từ khí buộc tóc. Hai đầu gối khẽ khuỵu, thân hình hạ thấp, quyền ý chảy khắp người. Một tay hắn đặt sau lưng, tay kia kẹp lá phù lục, mọi động tác liền mạch như nước chảy.
+
+Hắn cười:
+
+- Ta thích loại tiên nhân giấy dán mà lại cứng cỏi như ngươi.

@@ -1,319 +1,419 @@
 # Chương 821: Bạn cũ ngồi đầy bàn
 
-Tuổi trẻ như thế nào lâu năm, thiếu niên như thế nào trưởng thiếu.
+Tuổi trẻ làm sao giữ mãi, thiếu niên nào có thể mãi là thiếu niên. [?]
 
-Hán tử lôi thôi, Diêu Tiên Chi. Phụ nhân đeo đao, Diêu Lĩnh Chi.
+Hán tử lôi thôi kia là Diêu Tiên Chi. Phụ nhân đeo đao là Diêu Lĩnh Chi.
 
-Lần đầu gặp nhau, một người vẫn là thiếu niên tinh thần phấn chấn tươi cười sáng lạn, một người còn là thiếu nữ anh khí toàn thân sắc bén.
+Lần đầu gặp nhau, một người còn là thiếu niên tinh thần phấn chấn, nụ cười rạng rỡ; người kia là thiếu nữ đầy vẻ anh khí, sắc bén bức người.
 
-Diêu Tiên Chi giống như có chút ngại ngùng, môi khẽ nhúc nhích, nói không ra lời thích hợp, lời khách sáo không muốn nói, trong lòng muốn nói quá nhiều, lại không biết từ đâu nói lên, cuối cùng cứ trầm mặc như vậy.
+Diêu Tiên Chi có chút ngượng ngùng, môi mấp máy mà không tìm được lời thích hợp. Hắn không muốn nói những câu khách sáo, còn những điều muốn nói trong lòng lại quá nhiều, chẳng biết phải bắt đầu từ đâu. Cuối cùng hắn cứ im lặng như vậy.
 
-Diêu Lĩnh Chi, nữ nhi của Cửu Nương trấn Hồ Nhi trấn khách sạn, nàng vẫn tương đối hào sảng, giống như nhiều năm rèn luyện như vậy, cũng không thể mài đi tính cách góc cạnh, thoải mái nhìn về phía nam nhân kia, gật đầu cười nói: "Trần công tử, quả thật đã lâu không gặp."
+Diêu Lĩnh Chi là con gái của Cửu Nương ở khách điếm trấn Hồ Nhi. Nàng vẫn hào sảng như xưa, năm tháng dường như không mài mòn được góc cạnh trong tính tình. Nàng thoải mái nhìn nam tử trước mặt, gật đầu cười nói:
 
-Trần Bình An hỏi: "Có thể mang ta đi xem Diêu lão tướng quân một chút hay không?"
+- Trần công tử, quả thật đã lâu không gặp.
 
-Diêu Tiên Chi gật gật đầu.
+Trần Bình An hỏi:
 
-Diêu Lĩnh Chi nhận thấy sự khác thường xung quanh Diêu phủ, giống như Trần Bình An đến, gây ra động tĩnh không nhỏ. Rất bình thường, Diêu phủ hôm nay, cũng không còn là phủ đệ Thượng Thư năm đó nữa. Hoàng đế bệ hạ hôm nay lại không ở thành Thận Cảnh, có người tự tiện xông vào nơi đây.
+- Có thể dẫn ta đi thăm Diêu lão tướng quân không?
 
-Trần Bình An áy náy nói: "Tới gấp gáp, nhắm chừng còn cần các ngươi hỗ trợ giải thích một phen, nói có người làm khách Diêu phủ, để thành Thận Cảnh không cần khẩn trương. Về phần ta là ai, thì không cần nói."
+Diêu Tiên Chi gật đầu.
 
-Diêu Lĩnh Chi không có bất cứ do dự gì, tự mình đi làm việc này, để đệ đệ Diêu Tiên Chi dẫn Trần Bình An đi thăm gia gia bọn họ.
+Diêu Lĩnh Chi nhận thấy xung quanh Diêu phủ có gì khác thường. Dường như Trần Bình An đến đây đã gây ra động tĩnh không nhỏ. Chuyện này cũng bình thường, Diêu phủ hôm nay không còn là phủ Thượng Thư năm xưa, mà hoàng đế bệ hạ lại không ở thành Thận Cảnh, thế nhưng có người tự tiện xông vào nơi này.
 
-Diêu Tiên Chi đi khập khiễng, còn có một đoạn tay áo trống rỗng, nam nhân muốn che lấp vài phần, phí công mà thôi.
+Trần Bình An áy náy nói:
 
-Trần Bình An cười hỏi: "Vừa rồi hình như cãi nhau với tỷ tỷ ngươi? Ầm ĩ cái gì?"
+- Ta đến quá vội, e rằng còn phải nhờ các ngươi giải thích một phen, cứ nói có người đến Diêu phủ làm khách, bảo thành Thận Cảnh không cần căng thẳng. Còn ta là ai thì không cần nói.
 
-Diêu Tiên Chi nhẹ giọng nói: "Tỷ của ta càng lớn tuổi càng lải nhải, vẫn muốn ta tìm một thê tử, suốt ngày làm bà mối, kéo đông kéo tây, đã nghiện. Để những nữ tử kia khó xử, ta hôm nay đức hạnh ra sao, tỷ ấy cũng không phải không biết, cho dù thực sự có nữ tử gật đầu đáp ứng hôn sự này, đến cùng là muốn cái gì, ta lại không ngốc. Cũng không thể vì ta tuổi trẻ tài cao, tướng mạo đường đường đúng không? Trần tiên sinh, ngươi nói có phải đạo lý này hay không?"
+Diêu Lĩnh Chi không chút do dự, tự mình đi làm việc ấy, để đệ đệ dẫn Trần Bình An đi thăm gia gia.
 
-Trần Bình An gật đầu nói: "Đều là chuyện thường tình của con người, khuyên cũng bình thường, phiền cũng bình thường. Trừ phi ngày nào đó chính ngươi gặp gỡ cô nương mình thích, cưới vào cửa. Trước lúc đó, tiểu tử ngươi cứ thành thành thật thật phiền đi, khó giải."
+Diêu Tiên Chi bước đi khập khiễng, một bên tay áo trống không. Hắn muốn che giấu đôi chút, nhưng chỉ phí công.
 
-Diêu Tiên Chi cười cười: "Trần tiên sinh, bây giờ ta nhìn già hơn ngươi nhiều."
+Trần Bình An cười hỏi:
 
-Trần Bình An nhẹ nhàng vỗ một cái ở trên đầu Diêu Tiên Chi, "Trừ hiển lão, danh tiếng cũng lớn, tính tình còn không nhỏ, đều có thể đánh nhau với tiên sư gia phả Bạch Long động ở phố xá sầm uất."
+- Vừa rồi hình như ngươi cãi nhau với tỷ tỷ? Cãi chuyện gì thế?
 
-Diêu Tiên Chi ăn một cái tát, cười lên, không uống rượu sẽ cười, đối với "Diêu quận vương" bây giờ mà nói, là một chuyện rất hiếm lạ.
+Diêu Tiên Chi nhẹ giọng nói:
 
-Trong một toà viện yên tĩnh, trên cửa viện dán hai tấm môn thần vẽ màu cao ngang người, lập tức hiện ra kim thân, thủ hộ ở cửa ra vào.
+- Tỷ ấy càng lớn tuổi càng lải nhải, cứ muốn ta cưới vợ, suốt ngày làm mai, nói hết chuyện này đến chuyện khác, thành nghiện rồi. Làm vậy chỉ khiến các cô nương khó xử. Ta bây giờ ra sao, tỷ ấy đâu phải không biết. Cho dù thật sự có người bằng lòng gả cho ta, rốt cuộc là vì cái gì, ta đâu có ngốc. Chẳng lẽ lại vì ta tuổi trẻ tài cao, tướng mạo đường đường? Trần tiên sinh, ngươi nói có đúng không?
 
-Đây không phải là kiểu thủ bút "Hiển thánh" bình thường của sơn thủy, hai vị môn thần kim thân trước mắt, thân mang văn võ khí vận của một quốc gia Đại Tuyền, đại khái có thể xem như công nhân cứu ích của vị hoàng đế bệ hạ kia, chỉ là hành động này, hợp tình cũng hợp lý. Bởi vì người trợ giúp môn thần " mạ vàng", là thủ bút chế thức Khâm Thiên Giám một quốc gia cầm hoàng đế ban cho ngự bút, mỗi một nét vẽ đều ở trong quy củ. Mà người "điểm mắt" cho hai vị môn thần, Trần Bình An vừa thấy đã biết là tự bút của vị sơn trưởng thư viện nào đó, thuộc về thánh nhân nho gia chỉ điểm giang sơn. Rõ ràng dễ thấy, nho gia đối với Đại Tuyền Diêu thị, từ văn miếu đến thư viện một châu rất bắt mắt nhìn.
+Trần Bình An gật đầu:
 
-Sau đó hai vị môn thần này sẽ ở đại đạo viện môn hiển hóa, sẽ liên lụy cùng quốc vận Đại Tuyền, hưởng thụ hương khói nhân gian nhuộm đẫm trăm năm ngàn năm, là loại mạ vàng thường thấy nhất trên đường đi thần.
+- Đều là chuyện thường tình, khuyên cũng bình thường, thấy phiền cũng bình thường. Trừ phi ngày nào đó ngươi gặp được cô nương mình thích, cưới nàng về. Trước lúc ấy, tiểu tử ngươi cứ thành thật chịu phiền đi, không có cách nào khác.
 
-Lúc trước Trần Bình An thật ra đã phát hiện nơi đây khác thường, có thể kết luận lão tướng quân Diêu Trấn chính là ở đây tu dưỡng, sở dĩ không trực tiếp đáp ở chỗ này, thứ nhất là quá mức l* m*ng, lo lắng kiếm khí cùng quyền ý của bản thân còn chưa hoàn toàn thu liễm dư vị, quá mức "Khí thịnh", biết sơn thủy phạm kỵ, không cẩn thận va chạm mệnh lý khí số của lão tướng quân. Còn nữa Trần Bình An cũng muốn ở bên tỷ đệ bên kia, trước hoãn lại tâm cảnh bản thân một chút.
+Diêu Tiên Chi cười nói:
 
-Hai môn thần ngưng thần nhìn về phía thanh sam kia, sau đó hầu như đồng thời ôm quyền hành lễ, thần sắc cung kính, chủ động nhường đường cho Trần Bình An.
+- Trần tiên sinh, bây giờ trông ta già hơn ngươi nhiều rồi.
 
-Diêu Tiên Chi ngẩn người, ông vốn cho rằng mình còn phải giải thích thêm vài câu, mới có thể để Trần tiên sinh thông qua cấm môn này.
+Trần Bình An nhẹ nhàng vỗ đầu hắn:
 
-Trần Bình An ôm quyền hoàn lễ, đi theo Diêu Tiên Chi vào một gian phòng, trên bàn trong phòng đặt một cái lư hương tiên gia, tử khí bốc lên, mùi thơm ngát thoải mái.
+- Không chỉ trông già hơn, danh tiếng cũng lớn, tính tình lại chẳng nhỏ, có thể đánh nhau với tiên sư gia phả của Bạch Long động giữa phố xá đông người.
 
-Một lão nhân râu tóc trắng như tuyết nằm trên giường bệnh, hô hấp cực kỳ nhỏ.
+Bị đánh một cái, Diêu Tiên Chi lại cười. Với vị Diêu quận vương bây giờ, không uống rượu mà cười được là chuyện rất hiếm.
 
-Động tác Diêu Tiên Chi cực kỳ nhẹ nhàng, giúp Trần Bình An mang một cái ghế dựa ở bên giường, bản thân hắn thì ngồi ở xa xa.
+Trước cửa một viện nhỏ yên tĩnh dán hai bức môn thần vẽ màu cao ngang người. Hai vị môn thần lập tức hiện kim thân, trấn giữ cửa viện.
 
-Trần Bình An ngồi xuống trước, lấy ra mấy tấm phù lục màu vàng từ trong tay áo, dán lên cửa sổ cùng cửa sổ phòng, là vài loại phù lục thượng phẩm《Đan Thư Chân Tích》 ghi lại, trong đó một loại tên là "Khởi độ khẩu phù", có thể an ổn tâm thần hồn phách, giảm bớt ảnh hưởng của thời gian trường hà trôi qua, chỉ là loại phù lục này cực kỳ tiêu hao phù lục, mấu chốt luyện chế phù này, tiêu hao tâm thần tu sĩ, thật ra cũng nhiều hơn vẽ phù lục công phạt, trừ phù độ khẩu, trên cửa còn dán một tấm "Ngưu Mã tạm ngừng phù" hầu như đã thất truyền, ngăn không được ngưu mã đăng môn, nhưng có thể để cho Âm Minh quỷ sai xa xa nhìn thấy thần phù, tạm dừng một lát, làm một loại lễ kính cổ xưa huyền diệu khó giải thích, loại quy củ sơn thủy này, nhất định ở trên tiên gia thư tịch tông tự tàng bình thường đều không thấy ghi lại.
+Đây không phải thủ bút hiển thánh sơn thủy bình thường. Hai vị môn thần mang theo khí vận văn võ của Đại Tuyền, đại khái có thể xem là hoàng đế lấy của công làm việc riêng, nhưng hành động ấy hợp tình hợp lý. Người giúp môn thần “mạ vàng” là Khâm Thiên Giám, dùng ngự bút hoàng đế ban cho mà vẽ theo phép tắc, từng nét đều không vượt quy củ. Còn người “điểm mắt”, Trần Bình An vừa nhìn đã biết là thủ bút của một vị sơn trưởng thư viện, thuộc về thánh nhân Nho gia chỉ điểm giang sơn. Có thể thấy từ văn miếu đến thư viện một châu, Nho gia đều rất coi trọng Diêu thị Đại Tuyền.
 
-Âm dương dị lộ, đường ai đi đường nấy, đạo lý giống như chim có đạo chuột có đường chuột, người tu đạo, nếu là chưa mở thiên nhãn, hoặc là chưa từng tễ thân ngũ cảnh, gặp Thổ Địa công Thành Hoàng gia không kỳ quái, tu sĩ xuống núi như thần tiên hạ phàm hỏi thổ địa, thậm chí là quy củ bất thành văn của một quan trường sơn thủy. Nhưng mà muốn gặp được những quan lại âm minh hoàn toàn khác với đám ngày đêm du thần kia, lại cực kỳ không dễ, không khác gì phàm tục phu tử gặp được *m v*t hiếm có, hơn nữa một khi ngẫu nhiên gặp, Luyện khí sĩ cũng sẽ không xem là chuyện tốt gì.
+Hai vị môn thần sau này hiển hóa ở cửa viện, gắn liền với quốc vận Đại Tuyền, hưởng hương khói nhân gian qua trăm ngàn năm. Đó là cách mạ vàng thường thấy nhất trên con đường thần đạo.
 
-Dựa theo ghi chép tối nghĩa của hành cung tránh nóng, người, mặc kệ tu đạo hay không, thuộc về mỗi người hành tẩu ở hai bờ sông thời gian của một dòng sông thời gian, hai bên đều có thiên địa đại đạo, nước giếng không phạm nước sông, cho nên Trần Bình An đi xa rất nhiều, trừ nhờ phúc Chung Khôi, ở ngoài từ miếu Mai Hà tăng trưởng kiến thức, ngoài ra chưa từng gặp bất cứ một vị Phong Đô quỷ sai nào nữa, hơn nữa lần đó gặp nhau không hợp lễ chế, vẫn là Trần Bình An quen quan hệ thời gian trường hà đình trệ, mới có thể tận mắt thấy hình dáng hiếm thấy của tư lại Phong Đô, bằng không cho dù hai bên gần trong gang tấc, vẫn sẽ lướt qua bên vai mà qua.
+Trần Bình An đã sớm phát hiện nơi này khác thường, đoán chắc lão tướng quân Diêu Trấn đang dưỡng bệnh ở đây. Hắn không đáp thẳng xuống viện, một là sợ quá lỗ mãng, kiếm khí và quyền ý chưa hoàn toàn thu liễm, khí thế quá thịnh, phạm vào kiêng kỵ sơn thủy, vô tình va chạm khí số của lão tướng quân. Hai là hắn cũng muốn gặp tỷ đệ Diêu gia trước, để tâm cảnh mình bình ổn đôi chút.
 
-Nhiều năm du lịch, hoặc vẽ bùa hoặc tặng, Trần Bình An đã dùng hết toàn bộ lá bùa màu vàng mình cất giữ, mấy lá bùa quý hiếm này dùng để vẽ bùa, vẫn là lúc trước ở trên thuyền đò vân thuyền lâm thời mượn được Thôi Đông Sơn.
+Hai môn thần chăm chú nhìn người mặc thanh sam, sau đó gần như cùng lúc ôm quyền hành lễ, vẻ mặt cung kính, chủ động nhường đường.
 
-Vẽ Quang Âm Độ Khẩu phù, sẽ làm hao mòn tâm thần tu sĩ. Họa trâu ngựa tạm nghỉ phù, sẽ hao tổn âm đức.
+Diêu Tiên Chi ngẩn người. Hắn vốn tưởng mình phải giải thích vài câu mới có thể đưa Trần tiên sinh qua cấm môn này.
 
-kiêng kị này, bên trên《 Đan Thư Chân Tích》, thật ra đều rõ ràng viết không có sai sót, Lý Hi Thánh còn chuyên môn ở bên cạnh Ngưu Mã Phù phê duyệt bốn chữ: Thận trọng dùng bùa này.
+Trần Bình An ôm quyền đáp lễ, theo Diêu Tiên Chi vào phòng. Trên bàn đặt một lư hương tiên gia, khói tía bốc lên, mùi thơm thanh nhã dễ chịu.
 
-Diêu Tiên Chi ngồi ở trên ghế, chỉ nhìn Trần tiên sinh dán từng tấm phù lục màu vàng kia, tuy rằng lòng tràn đầy tò mò, nhưng không mở miệng hỏi.
+Một lão nhân râu tóc trắng như tuyết nằm trên giường bệnh, hơi thở cực kỳ yếu ớt.
 
-Ngoài tò mò, hán tử không khỏi có chút an tâm.
+Diêu Tiên Chi nhẹ tay nhẹ chân mang ghế đến bên giường cho Trần Bình An, còn mình ngồi ở phía xa.
 
-Hình như Trần tiên sinh này rốt cuộc đã tới, như vậy hắn là Đại Tuyền quận vương đã trở thành phế vật, không nói trong tay làm chuyện gì, cho dù là ở trên chuyện dụng tâm, cũng có thể lười biếng. Dù sao cái gì cũng để Trần tiên sinh lao tâm lao lực.
+Trần Bình An lấy mấy lá phù vàng trong tay áo ra dán lên cửa và cửa sổ. Đó là những loại phù thượng phẩm được ghi trong *Đan Thư Chân Tích*. Một loại gọi là phù Quang Âm Độ Khẩu [?], có thể an định tâm thần hồn phách, giảm ảnh hưởng của dòng sông thời gian trôi qua. Bùa này rất hao tốn phù chỉ [?], khi vẽ cũng tiêu hao tâm thần tu sĩ nhiều hơn cả phù công phạt.
 
-Tam Diêu trẻ tuổi biên quan Đại Tuyền năm xưa, vốn là người hắn ngưỡng mộ nhất vị thiếu niên kiếm tiên một thân phong phạm tông sư kia, thiếu niên năm đó, thật ra một lòng một dạ muốn bái sư học nghệ với Trần tiên sinh quyền pháp vô song, chỉ tiếc không thành, lúc ấy cảm thấy về sau cơ hội nhiều hơn, không nóng vội nhất thời, cho dù năm tháng trên núi không quan hệ nhiều với nhân gian nóng lạnh, như vậy ba năm năm năm không gặp được, mười năm luôn có thể gặp lại lần nữa, chưa từng nghĩ chớp mắt đã là hai mươi năm trôi qua, hơn nữa Diêu Tiên Chi hôm nay cũng không có tâm tư luyện quyền tập võ gì.
+Ngoài ra, trên cửa còn dán một lá “Ngưu Mã tạm nghỉ phù” gần như đã thất truyền. Bùa không ngăn được trâu ngựa tới cửa, nhưng quỷ sai âm minh từ xa nhìn thấy thần phù sẽ tạm dừng bước, làm một loại lễ kính cổ xưa huyền diệu khó giải thích. Quy củ sơn thủy này ngay cả sách vở cất trong tông môn tiên gia bình thường cũng không ghi chép.
 
-Diêu Tiên Chi không phải Luyện Khí Sĩ, lại nhìn ra được giá trị của mấy tấm phù lục màu vàng kia vô cùng lớn.
+Âm dương khác đường, ai đi đường nấy, giống như chim có đường chim, chuột có đường chuột. Tu sĩ nếu chưa mở thiên nhãn hoặc chưa bước vào thượng ngũ cảnh [?], gặp Thổ Địa công, Thành Hoàng gia cũng chẳng có gì lạ. Tu sĩ xuống núi như thần tiên hạ phàm hỏi thổ địa, thậm chí là quy củ bất thành văn của quan trường sơn thủy. Nhưng muốn gặp quan lại âm minh hoàn toàn khác với đám ngày đêm du thần kia lại cực kỳ khó khăn, chẳng khác nào phu tử phàm tục gặp được vật hiếm [?]. Luyện khí sĩ tình cờ gặp phải cũng không xem đó là chuyện tốt.
 
-Những tiên sư cung phụng triều đình Đại Tuyền, mỗi lần dốc sức vì nước, sử dụng loại lá bùa chất liệu này, thần sắc trên mặt đều giống như bị cắt thịt đau, dạy triều đình biết bọn họ dốc túi trả giá.
+Theo ghi chép khó hiểu ở hành cung tránh nóng, người sống dù tu đạo hay không và những quan lại kia đi ở hai bờ của dòng sông thời gian [?], mỗi bên đều có thiên địa đại đạo, nước giếng không phạm nước sông. Trần Bình An đi nhiều nơi, ngoại trừ nhờ Chung Khôi mà mở mang kiến thức ở từ miếu Mai Hà, chưa từng gặp một vị quỷ sai Phong Đô nào khác. Lần gặp ấy cũng không hợp lễ chế; nhờ dòng sông thời gian ngưng trệ [?], hắn mới tận mắt thấy được diện mạo hiếm gặp của tư lại Phong Đô. Bằng không, dù hai bên gần trong gang tấc, vẫn sẽ lướt qua nhau.
 
-Sau khi dán phù lục, Trần Bình An lặng yên không một tiếng động đi đến bên cạnh bàn, đưa bàn tay ra đối với lư hương kia, nhẹ nhàng phất một cái, ngửi ngửi mùi thơm ngát kia, gật gật đầu, không hổ là cao thủ bút, phân lượng vừa đúng.
+Nhiều năm du lịch, bùa vàng hắn cất giữ đều đã dùng hết để vẽ bùa hoặc tặng người khác. Mấy tờ phù chỉ quý hiếm này là hắn tạm mượn của Thôi Đông Sơn trên vân thuyền lúc trước.
 
-Làm xong những thứ này, Trần Bình An mới ngồi ở trên cái ghế gần giường bệnh.
+Vẽ phù Quang Âm Độ Khẩu hao mòn tâm thần tu sĩ, còn vẽ Ngưu Mã tạm nghỉ phù thì tổn hại âm đức. Những điều kiêng kỵ ấy đều được ghi rõ trong *Đan Thư Chân Tích*. Bên cạnh Ngưu Mã phù, Lý Hi Thánh còn đặc biệt phê bốn chữ: “Thận trọng dùng bùa”.
 
-Mấy tấm phù lục bên ngoài Độ Khẩu phù cùng Ngưu Mã Phù, tương đối bình thường, đều là dùng để giúp Diêu lão tướng quân an tâm ngưng khí, thoáng giảm bớt tiến trình tâm thần mỏi mệt cùng túi da mục nát, ví dụ như một tấm Cam Lộ giáp biên phù, chính là lấy từng tia khí vận thủy thổ, lặng yên hiện khí phách của lão nhân, trị ngọn không trị gốc, cũng chỉ có thể như thế. Hôm nay lão nhân, cho dù là Thôi Đông Sơn loại tiên nhân, bất kỳ thuật pháp thần thông huyền diệu nào, đều là một loại đại tác can qua được không bù mất.
+Diêu Tiên Chi ngồi trên ghế nhìn Trần tiên sinh dán từng lá phù vàng. Tuy đầy tò mò, hắn không mở miệng hỏi, ngoài ra còn thấy an tâm hơn đôi chút.
 
-Diêu Tiên Chi từ đầu tới đuôi, không có bất kỳ hoài nghi.
+Dường như cuối cùng Trần tiên sinh cũng đã đến. Vị quận vương Đại Tuyền đã thành phế nhân như hắn, từ chuyện ra tay làm đến chuyện phải nhọc lòng suy nghĩ, đều có thể lười biếng một chút. Dù sao đã có Trần tiên sinh lo liệu.
 
-Tin tưởng cho dù là hoàng đế bệ hạ ở chỗ này, cũng như thế.
+Trong ba người trẻ tuổi họ Diêu năm xưa ở biên quan Đại Tuyền, hắn là người ngưỡng mộ vị thiếu niên kiếm tiên có phong phạm tông sư ấy nhất. Hồi ấy hắn một lòng muốn bái Trần tiên sinh quyền pháp vô song làm thầy, tiếc rằng không thành. Hắn từng nghĩ sau này còn nhiều cơ hội, không cần vội nhất thời. Dù năm tháng trên núi khác với nhân gian, ba năm, năm năm không gặp thì mười năm hẳn có thể gặp lại. Nào ngờ chớp mắt đã hai mươi năm trôi qua, Diêu Tiên Chi bây giờ cũng không còn tâm tư luyện quyền tập võ.
 
-Diêu gia cực ít tín nhiệm một người ngoài như thế, trước kia là, hôm nay càng là, mà Trần Bình An là ngoại lệ duy nhất.
+Hắn không phải luyện khí sĩ, nhưng vẫn nhìn ra mấy lá phù vàng kia có giá trị cực lớn. Mỗi lần những tiên sư cung phụng triều đình Đại Tuyền ra sức vì nước, dùng phù chỉ như vậy, vẻ mặt ai nấy đều đau đớn như bị cắt thịt, để triều đình biết bọn họ đã bỏ ra bao nhiêu.
 
-Hán tử chỉ là im lặng nhìn Trần tiên sinh "Tới hơi muộn" này.
+Dán phù xong, Trần Bình An lặng lẽ đến bên bàn, đưa tay nhẹ phẩy khói từ lư hương, ngửi mùi thơm rồi gật đầu. Quả là thủ bút cao tay, phân lượng vừa vặn.
 
-Bởi vì gia gia hôm nay cố gắng chịu đựng, tuy ai cũng chưa chính tai nghe được vì sao, nhưng tam Diêu thế hệ trẻ tuổi, hoàng đế bệ hạ Diêu Cận Chi, võ học tông sư Diêu Lĩnh Chi, Diêu Tiên Chi, đều biết vì sao.
+Làm xong, hắn mới ngồi xuống bên giường bệnh.
 
-Ông nội hi vọng đời này của mình sẽ gặp lại thiếu niên ân công bạn vong niên kia.
+Ngoài Độ Khẩu phù và Ngưu Mã phù, những lá bùa còn lại tương đối bình thường, đều giúp Diêu lão tướng quân an tâm ngưng khí, làm chậm đôi chút sự mỏi mệt của tâm thần và suy tàn của thân thể. Chẳng hạn Cam Lộ giáp biên phù lấy từng tia khí vận thủy thổ lặng lẽ nuôi dưỡng khí phách lão nhân [?]. Đó là trị ngọn không trị gốc, nhưng cũng chỉ có thể làm vậy. Với tình trạng lão nhân hôm nay, dù tiên nhân như Thôi Đông Sơn thi triển bất cứ thuật pháp thần thông huyền diệu nào, cũng là làm lớn chuyện, được không bù mất.
 
-Ngoài ra gia gia kỳ thật không có chuyện gì khó có thể tiêu tan.
+Từ đầu đến cuối, Diêu Tiên Chi không hề nghi ngờ. Hắn tin rằng dù hoàng đế bệ hạ có mặt ở đây cũng sẽ như vậy.
 
-Đại Tuyền quốc tộ có thể bảo tồn, thậm chí ngay cả một tòa thành Thận Cảnh cũng hoàn hảo không tổn hao gì, hàng năm mùa đông tuyết lớn, kinh thành vẫn như cũ là cảnh đẹp Lưu Ly tiên cảnh.
+Diêu gia rất ít khi tin tưởng người ngoài đến thế, trước kia đã vậy, hôm nay càng vậy. Trần Bình An là ngoại lệ duy nhất.
 
-Một tòa Đồng Diệp châu núi sông lớn như vậy nghiền nát gió thổi phất phơ, chuyện may mắn như thế, Đại Tuyền độc nhất một phần.
+Hán tử chỉ im lặng nhìn Trần tiên sinh “đến hơi muộn” này.
 
-Sau khi Trần Bình An ngồi xuống, lòng bàn tay hai tay nhẹ nhàng chà xát, lúc này mới vươn một tay, nhẹ nhàng cầm một bàn tay khô héo của lão nhân.
+Gia gia vẫn luôn cố gắng chống đỡ. Tuy không ai nghe chính miệng lão nói vì sao, ba người trẻ tuổi Diêu gia là hoàng đế Diêu Cận Chi, võ học tông sư Diêu Lĩnh Chi và Diêu Tiên Chi đều biết.
 
-Xoa tay để lòng bàn tay ấm áp vài phần, một vị võ phu chỉ cảnh, thật ra không cần động tác dư thừa như vậy, có thể khống chế nhiệt độ hai tay rất nhỏ.
+Gia gia hy vọng đời này có thể gặp lại vị thiếu niên ân công, người bạn vong niên kia. Ngoài chuyện đó, lão thật ra không còn điều gì không buông xuống được.
 
-Chẳng qua đây là một động tác theo bản năng của Trần Bình An.
+Quốc tộ Đại Tuyền được bảo toàn, ngay cả thành Thận Cảnh cũng nguyên vẹn. Hằng năm vào mùa đông tuyết lớn, kinh thành vẫn đẹp như tiên cảnh lưu ly. Núi sông cả một Đồng Diệp Châu rộng lớn tan nát giữa mưa gió, mà có được may mắn ấy thì chỉ riêng Đại Tuyền.
 
-Sau một lát.
+Trần Bình An ngồi xuống, nhẹ nhàng xoa hai lòng bàn tay, rồi mới đưa một tay cầm bàn tay khô gầy của lão nhân.
 
-Lão nhân giật giật mí mắt, nhưng chưa mở ra, khàn khàn nói: "Tới rồi sao, thật sao? Không phải là nha đầu gần đó cố ý lừa gạt ta chứ? Ngươi rốt cuộc là ai?"
+Hắn xoa tay cho ấm. Một võ phu chỉ cảnh thật ra không cần động tác thừa ấy, có thể khống chế chính xác nhiệt độ hai bàn tay. Nhưng đó là động tác theo bản năng của hắn.
 
-"Là ta, Trần Bình An."
+Một lát sau, mí mắt lão nhân khẽ động, vẫn chưa mở ra, giọng khàn khàn:
 
-Trần Bình An nghiêng người về phía trước, hai tay bắt lấy bàn tay Diêu lão tướng quân, xoay người nhẹ nhàng nói: "Nhiều năm trôi qua như vậy, ta vẫn luôn nghĩ năm đó cùng Diêu gia gia cùng nhau đi ở bờ nước Mai Hà, đụng phải lão nông dân thi thể thỉnh thoảng làm nghề vớt xác, lão nhân nói con hắn vớt người không nên vớt, cho nên không qua mấy ngày, con hắn rất nhanh đã mất người, lão nhân cuối cùng nói một câu, "Nên ngăn cản". Ta nghĩ mãi không rõ, lão nhân rốt cuộc là vì thời gian trôi qua quá lâu rồi..., Nói chuyện này với chúng ta, mới không thương tâm như vậy, vẫn là có lý do gì khác, thuyết phục lão nhân, để lão nhân không cần thương tâm như vậy. Vẫn là nói dân chúng sống qua ngày, có chút chuyện thương tâm tê tâm liệt phế, ngã xuống trong hố thế đạo, người ngã xuống, còn phải bò lên tiếp tục đi về phía trước, chuyện thương tâm ngã xuống thì không đứng dậy nổi, thậm chí người chịu đựng qua được, chính là chuyện đã qua."
+- Đến rồi sao, thật sao? Không phải nha đầu Cận Chi cố ý lừa ta chứ? Ngươi rốt cuộc là ai?
 
-Dựa theo tập tục trấn nhỏ quê nhà Trần Bình An, cùng với lão nhân tuổi mấy lại không bệnh không tai, thật ra ngược lại không cần kiêng kị chuyện sinh tử.
+- Là ta, Trần Bình An.
 
-Lão nhân lẩm bẩm nói: "Quả nhiên là tiểu Bình An đến, không phải ngươi, nói không nên lời những chuyện xưa này, không phải ngươi, sẽ không nghĩ những thứ này."
+Hắn nghiêng người về phía trước, hai tay nắm bàn tay Diêu lão tướng quân, nhẹ giọng nói:
 
-Trần Bình An nhẹ nhàng nói: "Để Diêu gia gia chờ tốt, nhưng ta có thể đi đến đây, nói trong lòng, thật ra cũng không tính là quá dễ dàng. Có một số việc đến, sẽ không đợi ta chuẩn bị sẵn sàng, giống như không thương lượng đã lao đầu tới trước mắt, làm người ta chỉ có thể chịu đựng. Đồng thời có một số việc phải đi, lại ngăn thế nào cũng không ngăn được, giống nhau chỉ có thể khiến người ta chịu đựng, cũng không thể nói gì với người ta, không nói trong lòng nghẹn khuất, nói nhiều hơn về chuyện này, cho nên muốn tìm trưởng bối, tố khổ vài câu, vậy không phải ta từ Kim Hoàng phủ bên kia chạy tới gặp Diêu gia gia, nhất định phải nghe thêm vài câu sao. Năm đó một lòng một dạ nghĩ đi đường, đi vội, lần này có thể không vội về nhà."
+- Nhiều năm qua, ta vẫn nhớ năm đó cùng Diêu gia gia đi bên bờ Mai Hà, gặp một lão nông thỉnh thoảng làm nghề vớt xác. Lão nói con trai mình vớt người không nên vớt, chẳng bao lâu sau thì mất mạng. Cuối cùng lão nói một câu: “Đáng lẽ nên ngăn nó lại” [?]. Ta nghĩ mãi không hiểu, là vì chuyện đã qua quá lâu, khi kể lại với chúng ta lão mới không còn đau buồn đến thế, hay có lý do nào khác khiến lão tự thuyết phục mình? Hay là dân chúng sống trên đời, có chuyện đau lòng đến đứt ruột đứt gan, ngã xuống hố rồi vẫn phải bò dậy đi tiếp. Chuyện đau lòng khiến người ta ngã xuống không dậy nổi, đến khi chịu đựng qua được thì cũng đã qua rồi. [?]
 
-Lão nhân kiệt lực mở mắt, tầm mắt mơ hồ, mơ hồ có thể thấy được một nam tử không còn là thiếu niên, vẫn như cũ đầu cài ngọc trâm, sau khi ho khan vài tiếng, trên mặt lão nhân thế mà có thêm vài phần thần thái, "Đúng rồi, chân Phật chỉ nói lời bình thường, vẫn là Trần Bình An ta quen biết kia, chẳng qua lại lớn lên không ít, lúc tuổi còn nhỏ, chịu khổ, hoặc là dùng sức ồn ào, hận trên đời này tất cả mọi người đều nghe thấy, hoặc là thích cái gì cũng nghẹn ở trong bụng, luôn cảm thấy qua vài ngày nữa, qua vài năm nữa, sẽ không còn là chuyện gì nữa, thật ra nơi nào có chuyện tốt như vậy, bây giờ hiểu được cuộc đời còn trên đời không vừa ý chứ?"
+Theo tập tục trấn nhỏ quê nhà Trần Bình An, với lão nhân tuổi cao không bệnh không tai [?], ngược lại không cần kiêng kỵ chuyện sinh tử.
 
-Trần Bình An gật gật đầu.
+Lão nhân lẩm bẩm:
 
-Lão nhân nâng lên một tay, nhẹ nhàng vỗ vỗ mu bàn tay người trẻ tuổi, "Diêu gia hôm nay có chút khó xử, không phải thế đạo tốt xấu như thế nào, mà là đạo lý như thế nào, mới tương đối làm người ta khó xử. Ta, gần tới, đều là khúc mắc. Ngươi tới không tới, hôm nay có phải rất có thể giải quyết phiền toái hay không, cũng không sao. Ví dụ như đổi con đường, khiến Diêu Trấn gã đã rất lão bất tử này trở nên lão bất tử hơn, làm sơn thuỷ thần linh cái gì đó, là làm được, chỉ là không thể làm. Tiểu Bình An?"
+- Quả nhiên là tiểu Bình An đến rồi. Không phải ngươi thì sẽ không kể những chuyện cũ ấy, cũng sẽ không nghĩ những điều ấy.
 
-Trần Bình An gật đầu nói: "Có thể hiểu được."
+Trần Bình An nhẹ giọng nói:
 
-Đại Tuyền có thể nâng đỡ lên sơn quân Trịnh Tố Kim Hoàng phủ, cùng với thủy thần hồ Tùng Châm Liễu Ấu Dung. Thần vị Trịnh Tố chỉ đứng sau ngũ nhạc của Đại Tuyền, Liễu Ấu Dung cũng là chính thần nhị đẳng giang thủy, thần vị gần với thủy thần Mai Hà của Bích Du cung. Đây là cái gọi là một người đắc đạo gà chó thăng thiên.
+- Để Diêu gia gia đợi lâu rồi. Nhưng nói thật lòng, ta có thể đến đây cũng không dễ dàng. Có những chuyện muốn đến sẽ không đợi ta chuẩn bị, chẳng thương lượng gì mà ập tới trước mắt, chỉ có thể chịu đựng. Có những chuyện phải đi thì ngăn thế nào cũng không được, cũng chỉ có thể chịu đựng. Không biết nói với ai, không nói thì nghẹn trong lòng, nói nhiều lại càng buồn [?]. Cho nên ta muốn tìm trưởng bối kể khổ vài câu. Ta từ phủ Kim Hoàng chạy tới, Diêu gia gia nhất định phải nghe thêm vài câu đấy. Năm đó một lòng nghĩ đến việc đi đường, đi quá vội. Lần này ta có thể không vội về nhà.
 
-Mà người này, đương nhiên chính là Diêu Cận Chi, Nữ Đế Đại Tuyền.
+Lão nhân cố sức mở mắt, tầm nhìn mơ hồ thấy nam tử không còn là thiếu niên, trên đầu vẫn cài trâm ngọc. Ho vài tiếng, vẻ mặt lão có thêm vài phần thần thái:
 
-Như vậy Diêu lão tướng quân khiến công huân đủ phục chúng, lòng người quy về, đừng nói là thành hoàng gì đó của kinh thành, cho dù trở thành một vị Ngũ nhạc sơn quân của Đại Tuyền Diêu thị cũng không khó.
+- Đúng rồi, chân Phật chỉ nói lời bình thường. Vẫn là Trần Bình An ta quen biết, chẳng qua đã trưởng thành hơn nhiều. Lúc còn nhỏ, chịu khổ thì hoặc gắng sức kêu la, hận không thể cho tất cả mọi người trên đời nghe thấy; hoặc thích giấu cả trong bụng, cứ nghĩ qua vài ngày, vài năm sẽ chẳng còn là chuyện gì. Trên đời nào có chuyện tốt như vậy. Bây giờ đã hiểu đời người có nhiều chuyện không như ý rồi chứ?
 
-Chỉ là trong Hạo Nhiên Thiên Hạ này, nữ tử xưng đế không phải không có, nhưng có thể đếm được trên đầu ngón tay, hơn nữa thường thường quốc tộ không lâu dài.
+Trần Bình An gật đầu.
 
-Trong loạn thế, ai ngồi long ỷ mặc long bào là đảm đương, có thể ngồi vững long ỷ càng là bản lĩnh. Nhưng thái bình thịnh thế vừa tới, một nữ tử xưng đế đăng cơ, sao có thể thuận lợi.
+Lão nhân giơ tay khẽ vỗ mu bàn tay hắn:
 
-Đại Tuyền Lưu thị trừ hoàng đế tiền nhiệm mất lòng người, thật ra Đại Tuyền lập quốc hơn hai trăm năm, các đời hoàng đế còn lại đều tính là minh quân, hầu như không có một vị hôn quân nào, điều này có nghĩa Lưu thị vô luận là ở triều đình cùng sơn thượng, hay là ở giang hồ cùng dân gian, vẫn như cũ là quốc tính của Đại Tuyền.
+- Diêu gia hôm nay có chút khó xử. Không phải vì thế đạo tốt hay xấu, mà là đạo lý phải xử trí thế nào mới khiến người ta khó xử. Ta và Cận Chi đều có khúc mắc. Ngươi đến hay không, hôm nay có bản lĩnh giải quyết phiền toái hay không, cũng không quan trọng. Ví dụ đổi một con đường, khiến Diêu Trấn lão bất tử này sống lâu hơn nữa, làm một vị thần linh sơn thủy gì đó, là làm được, chỉ là không thể làm. Tiểu Bình An?
 
-Cho nên lựa chọn của Diêu lão tướng quân, có muốn trở thành sơn thủy thần linh tọa trấn một phương hay không, thật ra chính là lựa chọn trong lòng lão nhân, có nên sửa họ Đại Tuyền thành "Lưu" thành "Diêu". Hiển nhiên trong lòng lão nhân hy vọng trả lại Đại Tuyền cho Lưu thị hay không. Mà ở trên chuyện này, vô cùng có khả năng, lão tướng quân Diêu Trấn và cháu gái, đương kim hoàng đế bệ hạ Diêu Cận Chi, sẽ sinh ra sự khác biệt nào đó, thậm chí có thể nói ý tưởng của lão tướng quân, sẽ đi ngược lại với toàn bộ Diêu thị, nhất là mong ước của đệ cả đời trẻ tuổi nhất, đi ngược lại.
+Trần Bình An gật đầu:
 
-Diêu Tiên Chi không biết mình hẳn là nên vui vẻ, hay nên đau lòng.
+- Ta hiểu.
 
-Ông nội hôm nay tinh thần rất tốt, cực kỳ tốt, đến mức có sức có khí, nói rất nhiều lời, so với nửa năm trước cộng lại còn tốt hơn.
+Đại Tuyền có thể nâng đỡ sơn quân Trịnh Tố của phủ Kim Hoàng và thủy thần hồ Tùng Châm Liễu Ấu Dung. Thần vị của Trịnh Tố chỉ đứng sau ngũ nhạc Đại Tuyền; Liễu Ấu Dung cũng là chính thần sông nước nhị đẳng, thần vị gần với thủy thần Mai Hà của Bích Du cung. Đây chính là một người đắc đạo, gà chó thăng thiên.
 
-Trần Bình An đột nhiên quay đầu nói với Diêu Tiên Chi: "Đi gọi tỷ tỷ tỷ ngươi tới đây, hai tỷ tỷ đều đến."
+Người ấy đương nhiên là Diêu Cận Chi, nữ đế Đại Tuyền.
 
-Diêu Tiên Chi mặt có vẻ sầu khổ, "Hoàng đế bệ hạ hiện tại không ở thành Thận Cảnh, đã đi phủ cũ Diêu gia biên quan Nam cảnh."
+Diêu lão tướng quân công huân đủ khiến mọi người tâm phục, lòng người quy về. Đừng nói thành hoàng kinh thành, cho dù trở thành một vị sơn quân ngũ nhạc của Đại Tuyền Diêu thị cũng không khó.
 
-Trần Bình An sững sờ ngay tại chỗ.
+Chỉ là trong Hạo Nhiên Thiên Hạ, nữ tử xưng đế tuy không phải không có, nhưng đếm được trên đầu ngón tay, hơn nữa quốc tộ thường không lâu dài.
 
-Lão nhân được Trần Bình An nâng đỡ, chậm rãi ngồi dậy phía sau, thế mà có chút ý cười, trêu ghẹo nói: "Có phải cũng không thương lượng với ngươi hay không, đúng rồi, đây là nhân sinh."
+Trong loạn thế, ai ngồi long ỷ, mặc long bào là gánh vác trách nhiệm, ngồi vững được càng là bản lĩnh. Nhưng một khi thái bình thịnh thế đến, nữ tử đăng cơ xưng đế sao có thể thuận lợi?
 
-Chỉ là ngồi dậy, cũng đã khiến lão tướng quân thần sắc mỏi mệt, chỉ có thể khẽ nhúc ngón tay, coi như là khoát tay ý bảo Trần Bình An đừng suy nghĩ nhiều, "Chuyện sau này đã sớm giao phó xong. Con em Diêu gia, đều là nhìn quen sống chết, ai không cần già mồm cãi láo quá mức. Tuổi còn trẻ đã chết trận sa trường, mênh mông nhiều, không có đạo lý một người sống đến tuổi này của ta, muốn đi, ngược lại ô áp chen chúc một phòng lớn, lộn xộn, đến lúc đó khóc ta ngại, không khóc hình như không hiếu thuận, giống cái gì."
+Hơn hai trăm năm lập quốc, ngoài vị hoàng đế tiền nhiệm mất lòng người, các đời hoàng đế Lưu thị đều xem như minh quân, hầu như không có hôn quân. Điều này có nghĩa là dù ở triều đình, trên núi, ngoài giang hồ hay trong dân gian, họ Lưu vẫn là quốc tính của Đại Tuyền.
 
-Trần Bình An hỏi: "Ta có thể làm gì?"
+Bởi vậy, lão tướng quân có muốn trở thành thần linh sơn thủy trấn giữ một phương hay không, thật ra cũng là lựa chọn có muốn đổi quốc tính Đại Tuyền từ Lưu sang Diêu hay không; trong lòng lão có muốn trả Đại Tuyền lại cho Lưu thị hay không. Về chuyện này, rất có thể Diêu Trấn và cháu gái Diêu Cận Chi có suy nghĩ khác nhau, thậm chí ý lão đi ngược lại mong muốn của cả Diêu thị, nhất là thế hệ trẻ nhất.
 
-Lão nhân cười nói: "Không cần làm cái gì, chỉ cần đừng đi xa không có tin tức là được, cho dù cách một châu, vẫn là có thể phi kiếm truyền tin lui tới. Công việc Diêu gia, quốc sự Đại Tuyền, ngươi bớt xen vào. Thực cho rằng mình là con rể Diêu gia chúng ta? Năm đó sao phải đi sớm như vậy? Tiểu tử ngươi năm đó nếu là không cố ý giả ngu, nguyện ý đi thêm một hai bước, nói không chừng... Thôi, thôi."
+Diêu Tiên Chi không biết nên vui hay nên đau lòng. Hôm nay gia gia tinh thần rất tốt, có sức nói nhiều lời, còn hơn cả nửa năm trước cộng lại.
 
-Diêu Tiên Chi vụng trộm nhếch miệng cười.
+Trần Bình An đột nhiên quay đầu nói:
 
-Chuyện này, nếu truyền ra, có thể khiến triều dã cao thấp đánh máu gà đi hỏi tận gốc, những sách vở dân gian tự khắc không dứt kia, sách tạp lục, cung khuyết diễm bản tầng tầng lớp lớp, nhắm chừng càng thêm kiếm tiền. Mà những sách cực tổn thương căn bản triều đình này, danh dự Diêu thị, những người đọc sách ẩn dật ở dã ngoại kia, không thiếu trợ giúp từ chối. Tỷ tỷ Diêu Cận Chi ở trước khi xưng đế, những văn tự này nội dung không chịu nổi vào mắt đã sớm phong hóa triều dã, sau khi xưng đế, chỉ có thể nói là hơi có chút thu liễm, nhưng vẫn như gió xuân cỏ dại, quan phủ mỗi một gốc gác tuyệt đối lại mọc ra một gốc, hôm nay ngay cả không ít quan viên biên cương cùng quan viên địa phương đều sẽ lén cất giữ mấy quyển.
+- Đi gọi hai tỷ tỷ ngươi tới đây.
 
-Chỉ có điều Hoàng đế bệ hạ tạm thời không quan tâm đến loại chuyện này, quân quốc đại sự ngàn đầu vạn tự, đều cần chỉnh đốn một lần nữa, chỉ riêng cải cách quân chế, ở các lộ trong lãnh thổ một quốc gia thiết trí tổng cộng tám mươi sáu tướng, cũng đã là phong ba nổi lên bốn phía, chỉ trích nặng nề. Về phần bình chọn hai mươi bốn vị "Khai quốc" công huân, lại càng lực cản trùng trùng, chiến công đủ để lựa chọn văn võ quan viên, muốn tranh thứ tự cao thấp, nhưng chọn cũng không chọn, cần phải tranh một chỗ cắm dùi., Không đủ tư cách, khó tránh khỏi lòng mang oán hận, lại nghĩ hoàng đế bệ hạ có thể mang hai mươi bốn tướng đổi thành ba mươi sáu tướng, ngay cả mở rộng thành ba mươi sáu cũng không thể trúng tuyển, quan văn liền nghĩ triều đình có thể bố trí thêm vài vị quốc công, võ tướng tâm tư vừa chuyển, chuyển đi chọn phân nạm nạm đối với tám mươi sáu chi trú quân các lộ, mỗi người đều muốn làm tướng ở tuyến biên cảnh tiếp giáp với Bắc Tấn, Nam Tề hai nước, nắm giữ đại binh quyền, nắm càng nhiều binh mã hơn. Vô cùng có khả năng lại khởi chiến sự Nam cảnh Hồ Nhi Lộ Lục tướng biên quan, nhất định có thể kiêm quản ngũ tướng đường Mai Hà thủy vận, những thứ này đều là bánh trái thơm hạng nhất.
+Diêu Tiên Chi sầu khổ đáp:
 
-Hơn nữa hoàng đế bệ hạ giống như một mực do dự, có nên lấy thiết cổ tay thống trị những dã sử kia hay không, bởi vì một khi không cẩn thận, chính là tân đế cay nghiệt, tiếng xấu đại hưng văn tự ngục.
+- Hoàng đế bệ hạ không ở thành Thận Cảnh, đã đến phủ cũ Diêu gia ở biên quan phía nam rồi.
 
-Trần Bình An quả nhiên am hiểu giả ngu, chỉ nói: "Ta có tính ở Đồng Diệp Châu khai tông, khả năng lệch về phương Bắc một chút, nhưng về sau ở cùng một châu với Đại Tuyền Diêu thị, khẳng định sẽ thường xuyên tiếp xúc."
+Trần Bình An sững người.
 
-Lão nhân nghi hoặc nói: "Đều khai sơn lập phái rồi? Vì sao không chọn ở quê nhà Bảo Bình châu? Là ở bên kia lăn lộn không ra? Không đúng, đã là tông môn, không có lý do cần dời đến châu khác mới có thể cắm rễ. Không lẽ là đỉnh núi các ngươi chiến công đầy đủ, đáng tiếc quan hệ không tốt lắm với triều đình Đại Ly Tống thị?"
+Lão nhân được hắn nâng đỡ ngồi dậy, trên mặt lại có chút ý cười, trêu ghẹo:
 
-Theo lão tướng quân thấy, Trần Bình An tuổi còn trẻ, có thể sáng tạo một tòa tiên phủ chữ tông, đã là hành động vĩ đại đủ kinh thế hãi tục, không thua kém gì cháu gái mình gần đây thành công xưng đế, kém nửa điểm. Về phần hạ tông, lão tướng quân coi như là mắt mờ tai điếc, nghe lầm.
+- Có phải cũng không thương lượng với ngươi không? Đúng rồi, đời người là vậy.
 
-Trần Bình An bất đắc dĩ nói: "Diêu gia gia, là hạ tông chọn địa chỉ Đồng Diệp Châu, đỉnh núi quê nhà bên kia, sẽ là đỉnh núi thượng tông, không cần dời."
+Chỉ ngồi dậy thôi đã khiến lão tướng quân mệt mỏi. Lão khẽ nhúc nhích ngón tay, xem như khoát tay bảo Trần Bình An đừng nghĩ nhiều:
 
-Lão nhân thần thái sáng láng, quét sạch trạng thái suy sụp, trong lòng vui mừng vạn phần, ngoài miệng lại cố ý cười nói: "Tiểu tử thối, không muốn lớn tuổi, khẩu khí đi theo lớn hơn nữa. Sao, lấy lời nói vô liêm sỉ lừa gạt ta, thấy Cận Chi hôm nay là hoàng đế bệ hạ, tốt chặn đường? Diêu gia nữ tử năm đó xem thường một Thượng Thư phủ, hôm nay cuối cùng coi trọng được một vị nữ tử hoàng đế? Tốt tốt tốt, như thế cũng tốt, thật sự muốn như thế., Nhưng thật ra khiến ta bớt lo, gần mắt thì cao, tiểu tử ngươi là một trong số rất ít những người cùng tuổi có thể lọt vào pháp nhãn của nàng, nhưng mà bây giờ không giống ngày xưa, gần đây nha đầu kia tâm khí cao hơn trước kia, lại gặp nhiều kỳ nhân dị sĩ và Lục Địa Thần Tiên, phỏng chừng tiểu tử ngươi muốn đạt được, so với năm đó khó khăn hơn không ít. Chỉ nói cung phụng trẻ tuổi như kẹo vỏ trâu kia, sẽ không để cho ngươi dễ dàng thực hiện được, tiên chi, người nọ họ gì tên gì?"
+- Chuyện sau này ta đã sớm dặn dò xong. Con cháu Diêu gia đều quen nhìn sống chết, không cần làm bộ làm tịch. Người trẻ tuổi chết trận sa trường nhiều vô kể, không có lý nào ta sống đến tuổi này, lúc muốn đi lại có cả phòng người chen chúc. Đến lúc ấy khóc thì ta ngại, không khóc lại giống như bất hiếu, còn ra thể thống gì.
 
-"Kim Đỉnh Quan Thiệu Uyên Nhiên, Đồng Diệp Châu chúng ta có hi vọng chen thân nhất trong Địa tiên ngũ cảnh."
+Trần Bình An hỏi:
 
-Diêu Tiên Chi cười lớn tiếng đáp: "Chẳng qua theo ta thấy, không coi là kình địch gì của Trần tiên sinh."
+- Ta có thể làm gì?
 
-Trần Bình An đau cả đầu, dứt khoát ngậm miệng không nói.
+Lão nhân cười:
 
-Lão nhân hôm nay quả thật nói không ít lời, không thể không nhắm mắt dưỡng thần, trầm mặc hồi lâu, mới tiếp tục mở mắt, chậm rãi mở miệng nói: "Diêu gia chúng ta, thật ra vẫn không am hiểu giao tiếp cùng người đọc sách, nhất là người đọc sách trên quan trường, tâm địa cong cong quá nhiều, một người rõ ràng mang chính phản một câu nói, đều nói, thế mà còn có thể đều chiếm đạo lý, cho nên hội gần tương đối vất vả. Nếu không phải có Hứa Khinh Chu đám võ phu này, có thể bội đao thượng triều, hơn nữa có vị lão Thân quốc công kia, còn có thể giúp đỡ nói mấy câu, nói không chừng hôm nay bên ngoài Diêu phủ không phải môn thần, triều đình cung phụng hộ vệ, mà là giam lỏng."
+- Không cần làm gì cả, chỉ cần đừng đi xa bặt tin là được. Dù cách một châu vẫn có thể dùng phi kiếm đưa thư. Chuyện Diêu gia, quốc sự Đại Tuyền, ngươi bớt xen vào. Thật cho mình là con rể Diêu gia chúng ta à? Năm đó sao phải đi sớm như vậy? Nếu tiểu tử ngươi không cố ý giả ngu, chịu tiến thêm một hai bước, nói không chừng... Thôi, thôi.
 
-Toàn bộ quan viên cùng người đọc sách mất đi danh dự ở trong trận chiến kia, sau đó lại may mắn còn sống, năm đó bị bọn họ thành công trốn vào ranh giới kinh kỳ tị nạn, sau đó hôm nay lại chưa thể chen thân trung khu triều đình cùng quan trường quan tâm, những người này, tự nhiên đều sẽ cực lực phản đối chuyện Diêu thị chưởng quốc. Đều sẽ muốn chiếm cứ đạo đức đại nghĩa, mang họ nhà nước quay về Lưu thị. Phụ nhân chưởng quốc, còn ra thể thống gì.
+Diêu Tiên Chi lén nhếch miệng cười.
 
-Trần Bình An nói: "Hứa Khinh Chu?"
+Chuyện này nếu truyền ra ngoài, trên dưới triều dã e rằng sẽ hăng hái truy hỏi đến cùng. Đám sách tạp lục, diễm sử cung đình được dân gian khắc in không ngớt hẳn càng bán chạy. Những cuốn sách tổn hại đến căn bản triều đình và danh dự Diêu thị ấy còn được không ít người đọc sách ẩn cư giúp sức lưu truyền [?]. Trước khi Diêu Cận Chi xưng đế, nội dung khó coi đã lan khắp triều dã. Sau khi nàng đăng cơ, chúng chỉ hơi thu liễm đôi chút, vẫn như cỏ dại gặp gió xuân, quan phủ nhổ một gốc lại mọc ra một gốc. Ngay cả không ít quan viên biên cương, địa phương cũng lén cất vài quyển.
 
-Diêu Tiên Chi gật đầu nói: "Biết hắn và Trần tiên sinh ân oán sâu đậm, nhưng ta vẫn muốn nói cho hắn một câu công đạo, người này mấy năm nay ở triều đình, coi như có chút đảm đương."
+Hoàng đế bệ hạ tạm thời không rảnh để ý chuyện ấy. Quân quốc đại sự ngàn đầu vạn mối đều phải chỉnh đốn. Chỉ riêng cải cách quân chế, đặt tổng cộng tám mươi sáu tướng ở các lộ trong nước, đã dấy lên phong ba và vô số lời chỉ trích.
 
-Hứa Khinh Chu, lão tướng quân tuổi gần bảy mươi, bội đao "Đại Xảo". Hôm nay là đại tướng quân đầu chữ Chinh của Đại Tuyền, chiến công sặc sỡ, Hứa Khinh Chu năm đó dẫn dắt toàn bộ thân quân đích hệ, chủ động đi biên cảnh, luôn cùng tiến thối với thiết kỵ Diêu gia, một đường vừa đánh vừa lui, cuối cùng bảo vệ thành Thận Cảnh. Cược lớn thắng lớn, trở thành một trong những trụ cột quân Đại Tuyền kế sau Diêu lão tướng quân.
+Việc chọn hai mươi bốn vị công thần “khai quốc” càng gặp nhiều trở lực. Văn võ quan viên đủ chiến công tranh thứ tự cao thấp; người chưa được chọn thì tranh một vị trí, kẻ không đủ tư cách khó tránh oán hận, mong hoàng đế đổi hai mươi bốn tướng thành ba mươi sáu. Kẻ mở rộng đến ba mươi sáu vẫn không được chọn thì quan văn mong triều đình phong thêm quốc công, võ tướng lại chuyển sang tranh quyền chỉ huy quân đồn trú ở tám mươi sáu nơi [?]. Ai nấy đều muốn làm tướng vùng biên giới giáp Bắc Tấn, Nam Tề, nắm nhiều binh mã hơn. Sáu tướng ở biên quan Hồ Nhi lộ phía nam, nơi rất có thể lại xảy ra chiến sự, còn có thể kiêm quản năm tướng phụ trách thủy vận đường Mai Hà. Đó đều là những vị trí béo bở.
 
-Năm đó Hứa Khinh Chu còn chỉ là một vị tướng chủng trẻ tuổi toàn bộ đặt cược cho đại hoàng tử, cùng quân tử thư viện Vương Kỳ, Thảo Mộc am Từ Đồng, Thân quốc công Cao Thích Chân, đều tham dự trận săn bắn hung hiểm vây giết Trần Bình An trước kia. Chẳng qua lúc ấy Hứa Khinh Chu lựa chọn cực kỳ quyết đoán, không tiếc trở mặt cùng đại hoàng tử Lưu Tông, cũng phải quyết định thật nhanh, dứt khoát chủ động rời khỏi ván bài. Kết quả quả thật liên lụy tới ghế ghế quan trường nhiều năm của gia tộc.
+Hoàng đế bệ hạ cũng dường như vẫn do dự có nên mạnh tay xử lý dã sử hay không. Một khi sơ suất sẽ mang tiếng tân đế hà khắc, làm lớn văn tự ngục.
 
-Trần Bình An cười nói: "Ân oán là không nhỏ, nhưng ta đối với Hứa Khinh Chu cùng Thân quốc công, ấn tượng vẫn được."
+Trần Bình An quả nhiên giỏi giả ngốc, chỉ nói:
 
-Năm đó Trần Bình An và hai vị hoàng tử Đại Tuyền đều kết tử thù, đầu tiên là Tam hoàng tử Lưu Mậu, sau đó là đại hoàng tử Lưu Tông, Lưu Khám là thứ trưởng tử của Lưu Trăn lão hoàng đế Lưu thị Đại Tuyền. Trường ấu có khác, chi phân biệt chằng chịt. Cuối cùng hoàng đế Lưu Trăn vẫn lựa chọn kế vị con trai trưởng vô cùng có danh tiếng trong quan văn. Về phần Tam hoàng tử Lưu Mậu, đã sớm chuyển đi tu đạo cầu tiên. Lúc trước trong trận chiến đó cũng không lộ diện, chỉ là ở trong một tiểu đạo quan dốc lòng nghiên cứu thanh từ lục chương.
+- Ta định khai tông ở Đồng Diệp Châu, có lẽ hơi lệch về phương bắc. Nhưng sau này ở cùng một châu với Diêu thị Đại Tuyền, chắc chắn sẽ thường xuyên qua lại.
 
-Nhưng mà trong loạn cục có thể lâm thời giám quốc phiên vương Lưu Tông, cuối cùng lại không thể bảo trụ giang sơn Lưu thị, đợi đại chiến Đồng Diệp châu kết thúc, Lưu Tông ở đêm mưa phát động một hồi binh biến, ý đồ từ trên tay hoàng hậu Diêu Cận Chi tranh đoạt ngọc tỷ truyền quốc, lại bị một vị cung phụng bí mật tên hiệu Ma Đao Nhân, liên thủ lúc ấy một nữ tử thấp bé ngồi phía sau một cột hành lang đang ăn khuya, ngăn trở Lưu Tông, thất bại trong gang tấc.
+Lão nhân nghi hoặc:
 
-Nghe nói phiên vương tóc tai bù xù bị giáp sĩ kéo ra khỏi đại điện, cực kỳ thất hồn lạc phách, lại cười lớn mắng một câu quái dị đối với màn mưa, "Lão tử sớm biết vậy đã chờ tạnh mưa lại động thủ, không nhớ lâu, các ngươi cứ chờ đi, cẩn thận Đại Tuyền sau này họ Trần."
+- Đã khai sơn lập phái rồi? Sao không chọn quê nhà Bảo Bình Châu? Ở đó không làm nên chuyện à? Không đúng, đã là tông môn thì đâu cần dời sang châu khác mới có thể cắm rễ. Chẳng lẽ ngọn núi các ngươi có đủ chiến công, nhưng quan hệ với triều đình Đại Ly Tống thị không tốt lắm?
 
-Trần Bình An luôn cẩn thận quan sát khí mạch lão tướng quân lưu chuyển, tốt hơn so với trong tưởng tượng, lúc trước tuy là hồi quang phản chiếu, nhưng mà trong minh minh, giống như quốc tộ Đại Tuyền xuất hiện biến hóa vi diệu, Trần Bình An đại khái suy đoán ra, hoặc là trong hoàng cung có một ngọn tương tự bản mạng đèn tồn tại, hoặc là Khâm Thiên Giám bên kia bí mật tồn tại một ít thủ đoạn vụng trộm đi quá giới hạn quy củ văn miếu, có người ở bên kia vắt đèn thêm dầu, mà thêm dầu, bất cứ tiên sư cùng sơn thuỷ thần kỳ nào cũng không cầu được, bởi vì chính là quốc vận Đại Tuyền hư vô mờ mịt. Chẳng lẽ là Diêu gia cố địa Diêu Cận Chi ở biên quan, lại có cử động gì đủ để kéo dài quốc tộ? Ví dụ như nói lại thành công mở rộng biên cảnh cho Đại Tuyền, cùng Bắc Tấn cuối cùng thỏa đáng thông đồng hồ, đưa cả hồ tùng nạp vào núi sông Đại Tuyền.
+Theo lão tướng quân, Trần Bình An còn trẻ mà có thể sáng lập một tiên phủ chữ tông đã là việc kinh thế hãi tục, không hề thua kém cháu gái xưng đế. Còn hai chữ hạ tông, cứ coi như lão mắt mờ tai kém nghe nhầm.
 
-Phụ nhân bội đao nhẹ nhàng đẩy cửa ra.
+Trần Bình An bất đắc dĩ:
 
-Lão nhân nói: "Có chút mệt mỏi, ta ngủ một giấc trước, nhưng hình như còn có thể tỉnh lại, không giống dĩ vãng mỗi lần nhắm mắt, không có lòng tin mở mắt."
+- Diêu gia gia, là chọn địa điểm cho hạ tông ở Đồng Diệp Châu. Ngọn núi ở quê nhà sẽ là thượng tông, không cần dời đi.
 
-Diêu Lĩnh Chi cẩn thận đỡ gia gia, bảo lão nhân một lần nữa nằm xuống nghỉ ngơi.
+Lão nhân thần thái sáng láng, quét sạch vẻ suy sụp, trong lòng vui mừng khôn xiết, ngoài miệng lại cố ý cười nói:
 
-Trần Bình An không lập tức rời khỏi phòng, Diêu Tiên Chi ngược lại lôi kéo tỷ tỷ rời khỏi trước.
+- Tiểu tử thối, tuổi chưa lớn bao nhiêu mà khẩu khí càng ngày càng lớn. Sao, nói lời khoác lác lừa ta, thấy Cận Chi là hoàng đế bệ hạ nên muốn đi đường tắt? Năm đó nữ tử Diêu gia ở phủ Thượng Thư ngươi không coi trọng, bây giờ lại vừa mắt một vị nữ hoàng đế? Tốt, tốt, thế cũng tốt. Nếu thật vậy thì ta bớt lo. Cận Chi mắt cao, ngươi là một trong số ít người cùng tuổi lọt vào mắt nàng. Nhưng nay khác xưa, nha đầu ấy tâm khí cao hơn trước, lại gặp nhiều kỳ nhân dị sĩ và lục địa thần tiên, e rằng ngươi muốn đạt được ý nguyện còn khó hơn năm đó nhiều. Chỉ nói vị cung phụng trẻ tuổi cứ bám lấy nàng như kẹo da trâu kia đã không để ngươi dễ dàng được việc rồi. Tiên Chi, người nọ tên gì?
 
-Tỷ đệ hai người đứng ở hành lang bên ngoài thấp giọng nói, Diêu Lĩnh Chi nói: "Sư phụ rất kỳ quái, trực tiếp hỏi ta một câu, người đến có phải họ Trần hay không. Chẳng lẽ là quen biết cũ với Trần công tử?"
+Diêu Tiên Chi cười lớn đáp:
 
-Sư phụ võ đạo Diêu Lĩnh Chi, chính là Đại Tuyền thủ tịch cung phụng, Ma Đao Nhân Lưu Tông đến từ Ngẫu Hoa phúc địa. Chẳng qua vị Ma Đao Nhân này vẫn chưa tiết lộ thân phận gốc gác, ở chỗ đệ tử đích truyền Diêu Lĩnh Chi cũng chưa từng đề cập quê hương của hắn.
+- Thiệu Uyên Nhiên ở Kim Đỉnh Quan, người có hy vọng nhất trong số địa tiên Đồng Diệp Châu chúng ta bước vào thượng ngũ cảnh. Nhưng theo ta thấy, hắn không tính là kình địch của Trần tiên sinh.
 
-Diêu Tiên Chi có chút không yên lòng, đột nhiên hỏi một vấn đề: "Hoàng đế bệ hạ cũng không phải người tu đạo, vì sao nhiều năm dung mạo biến hóa nhỏ như vậy, Trần tiên sinh là kiếm tiên, biến hóa còn to lớn như thế."
+Trần Bình An đau đầu, dứt khoát ngậm miệng.
 
-Diêu Lĩnh Chi nén cơn tức, "Hoàng đế bệ hạ, hoàng đế bệ hạ! Ở nơi khác thì thôi, ở nhà mình, ngươi có thể đừng xa lạ như vậy hay không, ngươi có biết gần đây tỷ tỷ hay không, mỗi lần thấy ngươi cố ý tuân thủ nghiêm ngặt lễ quân thần như vậy, mở miệng nói bệ hạ, nàng đau lòng bao nhiêu hay không?!"
+Hôm nay lão nhân nói quá nhiều, không thể không nhắm mắt dưỡng thần. Im lặng hồi lâu, lão mới mở mắt, chậm rãi nói:
 
-Diêu Tiên Thần sắc mặt lạnh nhạt, "Đều đã làm hoàng đế, có chút thương tâm nho nhỏ tính là gì."
+- Diêu gia chúng ta thật ra không giỏi giao tiếp với người đọc sách, nhất là người đọc sách trên quan trường. Tâm tư bọn họ quanh co quá nhiều, cùng một câu nói, nói xuôi nói ngược đều chiếm lý. Cho nên Cận Chi khá vất vả. Nếu không có đám võ phu Hứa Khinh Chu được đeo đao lên triều, lại có lão Thân quốc công giúp nói vài câu, nói không chừng hôm nay bên ngoài Diêu phủ không phải môn thần và cung phụng triều đình hộ vệ, mà là người đến giam lỏng.
 
-Diêu Lĩnh Chi đè thấp giọng, vẻ giận dữ trên mặt lại càng nhiều hơn, thở phì phì nói: "Không phải là trận đánh nhau ngoài cửa cung năm đó sao, ngươi rốt cuộc còn phải oán giận tỷ tỷ bao lâu mới có thể tiêu tan?! Ngươi là con em Diêu gia, có thể thoáng băn khoăn một ít đại cục triều đình hay không? Ngươi có biết, cái gọi là một bát nước đoan bình, rốt cuộc khó khăn cỡ nào hay không. Tỷ tỷ thật muốn công đạo làm việc, lại không thiên vị, nhưng rơi vào trong mắt người khác, sẽ chỉ là nàng ở bất công Diêu gia, dẫn dắt phát động toàn thân, ngươi cho rằng hoàng đế là dễ làm như vậy hay không? Ngươi tin hay không?, Nếu gần đây chỉ là Hoàng Hậu nương nương, đừng nói là ngươi, cho dù là những đồng đội kia của ngươi, mỗi người đều sẽ bị triều đình cực kỳ thiên vị, huống chi gần đây ngầm ám chỉ với ngươi bao nhiêu lần, bảo ngươi kiên nhẫn chờ, trước chịu chút ủy khuất, bởi vì rất nhiều thiếu nợ trước mắt, đều sẽ từ đằng xa tìm về. Ngươi suy nghĩ kỹ một chút, cận chi cẩn thận cân bằng đỉnh núi quan trường, bao nhiêu công lao hiển hách của Diêu gia dòng chính cùng triều đình minh hữu, sẽ không được chọn giữa hai mươi bốn công huân đó? Không phải sẽ khiến Diêu Tiên Chi ngươi chịu ủy khuất?"
+Những quan viên và người đọc sách mất danh dự trong trận chiến năm đó, may mắn trốn được vào kinh kỳ tị nạn, đến nay lại không thể vào trung khu triều đình hay giữ vị trí quan trọng, tự nhiên đều cực lực phản đối Diêu thị chấp chưởng đất nước. Bọn họ muốn chiếm lấy đại nghĩa, đưa quốc tính trở về họ Lưu. Đàn bà chấp chưởng quốc gia còn ra thể thống gì?
 
-Diêu Tiên Chi khoanh hai tay trước ngực, "Thanh quan khó đoạn việc nhà, huống chi chúng ta đều là nhà đế vương, đạo lý ta hiểu. Nếu không băn khoăn đại cục, ta đã sớm ném gánh ra khỏi kinh thành, ánh mắt ai cũng không ngại, bằng không ngươi cho rằng ta hiếm lạ thân phận quận vương này, chức quan phủ doãn kinh thành gì chứ?"
+Trần Bình An hỏi:
 
-Theo luật Đại Tuyền, quận vương và quốc công đều là tòng nhất phẩm.
+- Hứa Khinh Chu?
 
-Hôm nay trừ Thân quốc công phủ từng một cành độc tú ở Đại Tuyền, đã có thêm tám vị quốc công gia, văn võ trọng thần đều có, đại tướng quân Hứa Khinh Chu chính là một trong số đó.
+Diêu Tiên Chi gật đầu:
 
-Diêu Tiên Chi buồn bực nện một quyền lên đầu vai đệ đệ: "Đệ chỉ là một tên ngốc chỉ lo tâm tình của mình, không nói đạo lý!"
+- Ta biết hắn có ân oán sâu với Trần tiên sinh, nhưng vẫn muốn nói một câu công bằng. Những năm qua ở triều đình, người này cũng có chút đảm đương.
 
-Diêu Tiên Chi bị một quyền đánh cho thân hình nhoáng lên một cái, một đoạn tay áo nhẹ nhàng bay lên theo, Diêu Lĩnh Chi nhìn mà hốc mắt đỏ lên, muốn nói vài câu mềm mỏng với đệ đệ, chỉ là lại sợ nói, Diêu Tiên Chi càng thêm tùy hứng, trong lúc nhất thời trăm mối cảm xúc ngổn ngang, phụ nhân từng không tiếc rút đao đối mặt với một vị phiên vương, thế mà chỉ có thể quay đầu đi, tự mình lau nước mắt.
+Hứa Khinh Chu là lão tướng gần bảy mươi tuổi, đeo đao “Đại Xảo”, nay là đại tướng quân mang danh hiệu có chữ Chinh của Đại Tuyền, chiến công hiển hách. Năm đó hắn dẫn toàn bộ thân quân chủ động ra biên cảnh, cùng tiến cùng lui với thiết kỵ Diêu gia, vừa đánh vừa lui, cuối cùng bảo vệ thành Thận Cảnh. Đánh cược lớn thắng lớn, hắn trở thành một trong những trụ cột quân đội Đại Tuyền sau Diêu lão tướng quân.
 
-Một bộ thanh sam, nhẹ nhàng mở cửa, nhẹ nhàng đóng cửa, tới trong hành lang.
+Năm xưa Hứa Khinh Chu còn là tướng trẻ, đặt cược vào đại hoàng tử, cùng quân tử thư viện Vương Kỳ, Từ Đồng của Thảo Mộc am và Thân quốc công Cao Thích Chân tham dự cuộc vây giết Trần Bình An hung hiểm. Khi đó hắn quyết đoán lựa chọn rời khỏi ván cờ, không tiếc trở mặt với đại hoàng tử Lưu Tông. Kết quả quả thật khiến đường quan trường của gia tộc bị liên lụy nhiều năm.
 
-Diêu Lĩnh Chi nhanh chóng thu thập cảm xúc, nói với Trần Bình An: "Trần công tử, kinh thành bên này, sẽ không có ai tìm tòi nghiên cứu thân phận của ngươi lung tung, hôm nay sẽ coi như chuyện gì cũng chưa xảy ra. Nhưng sẽ có người bí mật phi kiếm truyền tin đi hướng nam, cái này ta thật sự không có cách nào ngăn lại."
+Trần Bình An cười nói:
 
-Trần Bình An nói một tiếng cảm ơn với nàng, sau đó cười nói với Diêu Tiên Chi: "Tiểu tử ngươi nên cút đi biên quan uống gió tây bắc, quả thật không thích hợp làm phủ doãn kinh thành khéo léo cái gì đó."
+- Ân oán không nhỏ, nhưng ta vẫn có ấn tượng tốt với Hứa Khinh Chu và Thân quốc công.
 
-Ánh mắt Diêu Tiên Chi sáng lên: "Trần tiên sinh, ngươi nói với gia gia một câu? Lời nói của ngươi hữu dụng nhất. Cũng không cần làm võ tướng độc chưởng một quân, ta quả thật cũng không có bản lãnh đó, tùy tiện khen thưởng một đô úy thám báo, từ võ quan lục phẩm, đã đủ để đuổi ta đi rồi."
+Năm đó Trần Bình An kết tử thù với hai vị hoàng tử Đại Tuyền, trước là tam hoàng tử Lưu Mậu, sau là đại hoàng tử Lưu Tông. Lưu Khám là thứ trưởng tử của lão hoàng đế Lưu Trăn; thứ bậc trưởng ấu, đích thứ phân biệt phức tạp [?]. Cuối cùng Lưu Trăn chọn con trưởng rất có danh vọng trong hàng quan văn kế vị. Tam hoàng tử Lưu Mậu đã sớm chuyển sang tu đạo cầu tiên, trong trận chiến lúc trước không lộ diện, chỉ chuyên tâm nghiên cứu thanh từ lục chương ở một đạo quán nhỏ.
 
-Trần Bình An cười nói: "Không thành vấn đề, đương nhiên có thể hỗ trợ, nhưng điều kiện tiên quyết là tỷ tỷ ngươi vừa rồi nói đạo lý với ngươi, ngươi thật sự hiểu, mới có thể thả ngươi đi biên quan cho ngựa ăn. Bằng không về sau kinh thành tùy tiện gặp được chút chuyện, gió thổi cỏ lay, ngươi cũng chỉ biết hành động theo cảm tính. Ngươi cho rằng mình là Thám Báo đô úy, trong mắt người khác thì sao? Nhắm chừng vài câu bên tai thổi gió thổi lửa., Lại có anh em đồng chí nào ở quan trường chịu ủy khuất, nhắm chừng ngươi cũng dám suất lĩnh mấy trăm tinh kỵ một đường giết đến thành Thận Cảnh nhỉ? Đổi thành ta là hoàng đế bệ hạ, cho ngươi làm một Thái Bình quận vương đóng cửa lại là thoải mái nhất, quản ngươi còn có thể hay không bênh vực kẻ yếu cho các anh em đồng chí lui ra trên chiến trường, triều hội ngoài cửa cung hội ẩu đả? Đạp ngã mấy quan văn lão gia à? Nói nghe thử xem. Chậc chậc, hay cho rằng mình là võ phu chỉ cảnh vô địch dưới núi một châu, hay là tiên sư trên đỉnh núi thuật pháp thông thiên?"
+Phiên vương Lưu Tông từng tạm thời giám quốc giữa loạn cục, cuối cùng không thể giữ giang sơn Lưu thị. Sau đại chiến Đồng Diệp Châu, hắn phát động binh biến trong đêm mưa, định đoạt ngọc tỷ truyền quốc từ tay hoàng hậu Diêu Cận Chi. Một cung phụng bí mật hiệu Ma Đao Nhân liên thủ với nữ tử thấp bé đang ăn khuya sau cột hành lang ngăn hắn lại, khiến hắn thất bại trong gang tấc.
 
-"Tuổi nhỏ vô tri, xúc động, xúc động phải không? Đây không phải đều là học từ Trần tiên sinh, gặp chuyện bất bình, quản hắn có hay không, ra quyền trước rồi nói."
+Nghe nói phiên vương tóc tai rối bời bị giáp sĩ kéo ra khỏi đại điện, thất hồn lạc phách, rồi lại cười lớn mắng vào màn mưa một câu quái lạ:
 
-Diêu Tiên Chi vừa nghe vừa mất mát, nhưng càng nghe phía sau càng vui vẻ, cười hắc hắc nói: "Trần tiên sinh ngươi không thấy cảnh đó đâu, một đám quan văn trói gà không chặt, nếu không phải Hứa Khinh Chu lúc ấy ngăn cản, một mình ta đã có thể lật tung toàn bộ. Bây giờ không còn cơ hội như vậy nữa, đừng nói là thị lang, một Hộ bộ viên ngoại lang cũng không thể mắng không được, cực kỳ quý giá, sớm biết thế này ta đã thừa dịp trời tối đạp thêm mấy cái."
+- Lão tử sớm biết vậy đã đợi tạnh mưa rồi động thủ! Không nhớ lâu, các ngươi cứ chờ đó, coi chừng Đại Tuyền sau này đổi họ Trần!
 
-Diêu Lĩnh Chi nghe xong đành chịu, nhưng nhẹ nhàng thở ra.
+Trần Bình An luôn cẩn thận quan sát khí mạch lão tướng quân, thấy tình hình tốt hơn tưởng tượng. Trước đó tuy là hồi quang phản chiếu, nhưng trong sâu xa dường như quốc tộ Đại Tuyền đã có biến hóa vi diệu. Hắn đoán hoặc trong hoàng cung có ngọn đèn tương tự bản mạng đăng, hoặc Khâm Thiên Giám âm thầm dùng thủ đoạn vượt quá quy củ văn miếu, có người thêm dầu cho đèn. Thứ dầu ấy là quốc vận Đại Tuyền hư vô mờ mịt, bất cứ tiên sư hay thần linh sơn thủy nào cũng không cầu được.
 
-Tốt xấu gì cũng ở chỗ Trần công tử, đệ đệ này sẽ không nói những lời âm dương quái khí kia nữa, chỉ dạy cho người thân cận uất ức không thôi.
+Chẳng lẽ Diêu Cận Chi đến đất cũ Diêu gia ở biên quan, lại làm chuyện gì đủ để kéo dài quốc tộ? Chẳng hạn mở rộng biên giới, đạt được thỏa thuận với Bắc Tấn, đưa cả hồ Tùng Châm vào núi sông Đại Tuyền. [?]
 
-Trần Bình An vươn tay, rung rung ống tay áo trống rỗng của hán tử què, chẳng những không có lời an ủi, ngược lại trêu ghẹo: "May là làm phủ doãn đại nhân, không có đơn thương độc mã xông xáo giang hồ, bằng không đường đường đại tông sư võ học ngũ cảnh, một biệt hiệu cụt một tay thần quyền là chạy không thoát. Sao lại thế này, là bị đại yêu thượng ngũ cảnh chém? Nếu không phải, thì đừng lôi kéo với ta, không có gì để nói."
+Phụ nhân đeo đao nhẹ nhàng đẩy cửa vào.
 
-Diêu Lĩnh Chi thật cẩn thận liếc đệ đệ.
+Lão nhân nói:
 
-Nào ngờ Diêu Tiên Chi chẳng những không cảm thấy khó chịu, ngược lại vẻ mặt đắc ý nói: "Trên chiến trường, hiểm lại càng hiểm, là một đầu súc sinh Yêu tộc cảnh giới Địa Tiên, kiếm tu! Đông trốn tây tàng, hạ ám chiêu với ta, một đạo kiếm quang xẹt qua, khá lắm, mẹ nó, khởi điểm ta còn không cảm thấy đau."
+- Hơi mệt rồi, ta ngủ một giấc trước. Nhưng hình như vẫn có thể tỉnh lại, không giống trước kia, mỗi lần nhắm mắt đều không tin mình còn mở mắt được.
 
-Trần Bình An nhìn phụ nhân đeo bội đao.
+Diêu Lĩnh Chi cẩn thận đỡ gia gia nằm xuống nghỉ ngơi. Trần Bình An không rời phòng ngay, Diêu Tiên Chi kéo tỷ tỷ ra ngoài trước.
 
-Diêu Lĩnh Chi cười nói: "Nghe hắn thổi sáo, trong loạn quân, không biết như thế nào đã bị người ta chém đứt cánh tay, chẳng qua lúc ấy phụ cận tiên chi, quả thật có vị Yêu tộc kiếm tiên, xuất kiếm sắc bén, kiếm quang lui tới rất nhiều."
+Hai tỷ đệ đứng dưới hành lang thấp giọng nói chuyện. Diêu Lĩnh Chi nói:
 
-Trần Bình An gật đầu nói: "Vậy coi như là bị kiếm tiên chém đứt, bằng không trên bàn rượu dễ dàng không có da trâu để chém."
+- Sư phụ thật kỳ lạ, vừa gặp đã hỏi người đến có phải họ Trần không. Chẳng lẽ ông ấy quen Trần công tử?
 
-Diêu Tiên Chi vẻ mặt chờ mong, nhỏ giọng hỏi: "Trần tiên sinh, ở quê nhà ngươi bên kia, đánh trận ác hơn, cũng đánh thảm hơn, nghe nói từ Lão Long thành một đường đánh tới trung bộ Đại Ly, ngươi ở trên chiến trường, có gặp phải đại yêu hàng thật giá thật hay không?"
+Sư phụ võ đạo của nàng chính là thủ tịch cung phụng Đại Tuyền, Ma Đao Nhân Lưu Tông đến từ Ngẫu Hoa phúc địa. Chẳng qua ông chưa tiết lộ lai lịch, ngay cả với đệ tử đích truyền cũng chưa từng nhắc đến quê hương.
 
-Trần Bình An nghĩ nghĩ, cười đáp: "Từng đụng phải một ít, có vài lần giao thủ, có vài cái không gần không xa, chỉ có thể coi như hai bên miễn cưỡng đối mặt."
+Diêu Tiên Chi hơi thất thần, đột nhiên hỏi:
 
-Diêu Tiên Chi tiếp tục nói: "Trần tiên sinh, ta nói là đại yêu, loại lên ngũ cảnh kia! Có mấy con? Một tay có hay không? Nếu không có, bội phục đối với Trần tiên sinh, ta đã thiếu đi một nửa."
+- Hoàng đế bệ hạ không phải tu sĩ, sao dung mạo bao năm qua thay đổi ít như vậy? Trần tiên sinh là kiếm tiên mà thay đổi còn nhiều hơn.
 
-Trần Bình An đưa tay vỗ vỗ bả vai hán tử, mỉm cười nói: "Về sau đừng nói chuyện phiếm với người ta như vậy nữa."
+Diêu Lĩnh Chi nén giận:
 
-Hán tử mặt râu quai nón cười ha ha.
+- Hoàng đế bệ hạ, hoàng đế bệ hạ! Ở nơi khác thì thôi, về nhà rồi ngươi không thể bớt xa lạ một chút sao? Ngươi có biết mỗi lần thấy ngươi cố ý giữ nghiêm lễ quân thần, mở miệng là bệ hạ, Cận Chi tỷ tỷ đau lòng thế nào không?
 
-Diêu Tiên Chi bất tri bất giác, bắt đầu què chân bước đi, không che giấu nữa, một tay áo phiêu đãng theo nó đi.
+Diêu Tiên Chi lạnh nhạt nói:
 
-Diêu Lĩnh Chi cười lên theo, từ đánh trận cho tới bây giờ, nàng đã rất nhiều năm chưa thấy đệ đệ tươi cười sáng lạn như vậy.
+- Đã làm hoàng đế rồi, chút đau lòng ấy tính là gì.
 
-Có chút đạo lý, thật ra Diêu Tiên Chi là thật hiểu, chỉ bất quá đã hiểu, không nguyện ý hiểu. Giống như không hiểu chuyện, tốt xấu còn có thể làm chút gì đó. Hiểu chuyện, liền cái gì cũng không làm được.
+Diêu Lĩnh Chi hạ thấp giọng, vẻ giận dữ càng rõ:
 
-Cho nên vô luận là Diêu Cận Chi đã là hoàng đế bệ hạ, nói với hắn cái gì, hay vẫn là Diêu Lĩnh Chi vẫn coi là tỷ tỷ, nói với hắn vài câu, Diêu Tiên Chi đều nghe không lọt, bằng không trong lòng sẽ chỉ càng thêm khó chịu.
+- Chẳng phải chỉ vì trận đánh nhau ngoài cửa cung năm đó sao? Rốt cuộc ngươi còn oán tỷ tỷ đến bao giờ? Ngươi là con cháu Diêu gia, không thể nghĩ đến đại cục triều đình một chút sao? Ngươi có biết muốn đối xử công bằng với mọi người khó đến thế nào không? Tỷ tỷ muốn làm việc công đạo, không thiên vị, nhưng trong mắt người khác sẽ chỉ là nàng thiên vị Diêu gia. Một chuyện kéo theo bao chuyện, ngươi cho rằng làm hoàng đế dễ lắm sao?
 
-Ba người rời khỏi tòa viện tử này, một lần nữa trở lại chỗ ở của Diêu Tiên Chi.
+- Ngươi có tin nếu Cận Chi chỉ là hoàng hậu, đừng nói ngươi, ngay cả những đồng đội của ngươi cũng sẽ được triều đình ưu ái? Huống chi tỷ ấy đã bao lần ngầm bảo ngươi kiên nhẫn chờ, chịu ủy khuất trước mắt, những gì còn thiếu sau này đều sẽ bù lại. Ngươi nghĩ kỹ xem, Cận Chi phải cẩn thận cân bằng các phe trên quan trường, nếu không thì bao nhiêu người Diêu gia và minh hữu triều đình có công lao hiển hách lại không được chọn vào hai mươi bốn công thần? Sao lại để Diêu Tiên Chi ngươi chịu ủy khuất?
 
-Diêu Lĩnh Chi do dự một chút, nói với Trần Bình An: "Trần công tử, ta bái sư phụ, làm cung phụng nhiều năm ở kinh thành Đại Tuyền chúng ta, là vị tông sư võ học, lúc trước hắn giống như nhìn thấy bóng người ngươi, liền lập tức chạy tới, hỏi khách nhân Diêu phủ có phải họ Trần hay không, ta không trả lời, nhưng khả năng sư phụ lão nhân gia đã nhìn ra cái gì, cho nên bảo ta chuyển lời, nói hắn quen biết Chủng phu tử, năm đó hắn còn từng cùng vị Chủng phu tử kia cùng nhau đối phó kiếm tiên họ Du."
+Diêu Tiên Chi khoanh tay trước ngực:
 
-Trần Bình An gật đầu nói: "Sư phụ của ta cùng Diêu cô nương, quả thật là người quen cũ, nếu trong phủ bên này không có kiêng kị gì, ta liền kiêu căng một chút, có thể để cho hắn đi thêm một chuyến, đến Diêu phủ bên này ôn chuyện."
+- Thanh quan khó xử việc nhà, huống chi nhà chúng ta là nhà đế vương. Đạo lý ta đều hiểu. Nếu không nghĩ đến đại cục, ta đã sớm bỏ gánh rời kinh thành, khỏi để ai nhìn thấy mà chướng mắt. Chẳng lẽ tỷ cho rằng ta ham cái thân phận quận vương, chức phủ doãn kinh thành này sao?
 
-Diêu Lĩnh Chi nói: "Vậy ta đi gọi sư phụ tới."
+Theo luật Đại Tuyền, quận vương và quốc công đều là tòng nhất phẩm. Hôm nay ngoài Thân quốc công phủ từng một mình nổi bật, đã có thêm tám vị quốc công, gồm cả trọng thần văn võ, đại tướng quân Hứa Khinh Chu là một trong số đó.
 
-Trần Bình An hỏi: "Vị thủy thần nương nương Mai Hà kia, hôm nay nàng là ở Bích Du cung?"
+Diêu Lĩnh Chi tức giận đấm lên vai đệ đệ:
 
-Diêu Tiên Chi cười nói: "Không đâu, vị thuỷ thần nương nương này của chúng ta đã nát hơn phân nửa kim thân, nói mình không có mặt mũi coi là thuỷ thần kia, lại không đi Bích Du cung, mỗi ngày ở ngay trong kiếm phòng Khâm Thiên Giám, nơi nào cũng không đi, trông mong chờ một phong thư hồi âm của văn miếu bên kia, nói nàng nhận ra Văn Thánh lão gia, ngay cả Tả đại kiếm tiên kia, còn có một vị tiểu đệ tử của Văn Thánh lão gia, đều từng gặp, đều nhận ra. Cho nên nàng muốn thử xem gửi phong thư cho người đức cao vọng trọng, học cứu thiên nhân kia, lại bình dị gần gũi, hòa ái dễ gần như người thân như Văn Thánh lão gia, xem có thể giúp nàng giúp việc hay không, cùng thần tiên trên núi vì Diêu lão tướng quân đòi một viên thủy đan cứu mạng tốt hơn. Bởi vì nàng biết đan dược bên thủy phủ Bích Du cung nhà mình, không giúp được việc, không giúp được hoàng đế bệ hạ và gia gia ta."
+- Đệ là đồ ngốc chỉ nghĩ đến tâm tình của mình, không chịu nói lý!
 
-Diêu Tiên Chi vội vàng nói: "Đối với những từ ngữ lan mỹ kia của Văn Thánh, cũng không phải là ta nói, là ta sau khi uống rượu với nàng, thuỷ thần nương nương bẻ ngón tay, nấc một hơi rượu, một câu nói, nói ra vẻ mặt vô cùng nghiêm túc, chẳng qua ta là không quá tin, ba vị kia của Văn Thánh nhất mạch, ta nhắm chừng một người cũng chưa từng thấy, uống cao rồi bốc phét với ta. Tuy nói Tả đại kiếm tiên từng quả thực đang ở Đồng Diệp Châu, nhưng sao lại chủ động đi Bích Du Cung làm khách, gặp mặt với vị thuỷ thần nương nương kia của chúng ta, không có đạo lý như vậy chứ."
+Diêu Tiên Chi bị đấm lảo đảo, ống tay áo trống không nhẹ nhàng bay lên. Diêu Lĩnh Chi nhìn thấy, vành mắt đỏ hoe. Nàng muốn nói vài câu mềm mỏng, lại sợ đệ đệ càng thêm tùy hứng. Trong lúc trăm mối cảm xúc ngổn ngang, phụ nhân từng không tiếc rút đao đối mặt phiên vương chỉ có thể quay đi, tự lau nước mắt.
 
-Trần Bình An đứng dậy nói với Diêu Lĩnh Chi chưa đi được bao xa: "Làm phiền Diêu cô nương cùng thuỷ thần nương nương cũng lên tiếng chào hỏi, nói thẳng ta Trần Bình An là được."
+Người mặc thanh sam nhẹ nhàng mở cửa, lại nhẹ nhàng đóng cửa, bước ra hành lang.
 
-Diêu Lĩnh Chi rời đi giúp mang thư.
+Diêu Lĩnh Chi nhanh chóng thu lại cảm xúc:
 
-Trần Bình An hỏi Diêu Tiên Chi một ít chi tiết chiến sự Đại Tuyền năm đó.
+- Trần công tử, bên kinh thành sẽ không ai tùy tiện tìm hiểu thân phận của ngươi, hôm nay cứ xem như chưa có chuyện gì xảy ra. Nhưng sẽ có người bí mật dùng phi kiếm truyền tin về phương nam, chuyện ấy ta thật sự không ngăn được.
 
-Lưu Tông rất nhanh đã đến nhà, lão nhân hẳn là căn bản không rời Diêu phủ quá xa.
+Trần Bình An cảm ơn nàng, rồi cười nói với Diêu Tiên Chi:
 
-Trần Bình An đứng dậy ôm quyền, "Lưu tiền bối."
+- Tiểu tử ngươi nên cút ra biên quan uống gió tây bắc, quả thật không thích hợp làm phủ doãn kinh thành khéo léo gì đó.
 
-Diêu Tiên Chi thì đứng dậy nắm tay nhẹ nhàng gõ ngực, "Gặp qua Lưu cung phụng."
+Mắt Diêu Tiên Chi sáng lên:
 
-Ma Đao Nhân Lưu Tông gật gật đầu với hán tử lôi thôi, sau đó xoa xoa cằm, nhìn chằm chằm Trần Bình An, cảm thán nói: "Trần công tử càng anh tuấn trích tiên nhân, rất dễ dàng khiến ta nghĩ tới mình năm đó."
+- Trần tiên sinh, ngươi nói với gia gia một tiếng được không? Lời ngươi nói có tác dụng nhất. Ta không cần làm võ tướng một mình nắm quân, thật sự cũng không có bản lĩnh ấy. Tùy tiện ban cho ta chức đô úy thám báo, võ quan tòng lục phẩm, là có thể đuổi ta đi rồi.
 
-Diêu Tiên Chi một trong những người không hiểu gì. Nghe thấy quan hệ giữa Trần tiên sinh và Lưu cung phụng vô cùng tốt?
+Trần Bình An cười:
 
-Ba người ngồi xuống.
+- Không thành vấn đề, ta có thể giúp. Nhưng trước hết ngươi phải thật sự hiểu đạo lý tỷ tỷ vừa nói, mới thả ngươi ra biên quan cho ngựa ăn được. Nếu không, sau này kinh thành có chút gió thổi cỏ lay, ngươi lại hành động theo cảm tính. Ngươi cho mình là đô úy thám báo, nhưng trong mắt người khác thì sao? Chỉ cần có kẻ nói vài câu bên tai, hoặc có huynh đệ đồng đội chịu ủy khuất trên quan trường, e rằng ngươi dám dẫn mấy trăm tinh kỵ giết thẳng đến thành Thận Cảnh nhỉ?
 
-Không tán gẫu được mấy câu, một vị nữ tử dáng người thấp bé vội vã ngự phong tới, bay xuống trong sân, trừng to mắt, sau khi xác định thân phận Trần Bình An, nàng dậm chân một cái, "Rượu Thủy Hoa và mỳ lươn cũng không còn, làm sao?!"
+- Nếu ta là hoàng đế bệ hạ, cứ cho ngươi làm Thái Bình quận vương, đóng cửa ở nhà là thoải mái nhất. Mặc ngươi có thể bênh vực những huynh đệ rời chiến trường hay không, có thể đánh nhau ngoài cửa cung sau buổi triều hội, đạp ngã mấy vị quan văn lão gia hay không. Nói nghe thử xem. Hay ngươi cho mình là võ phu chỉ cảnh vô địch dưới núi một châu, hoặc tiên sư trên núi có thuật pháp thông thiên?
+
+- Tuổi trẻ vô tri, xúc động, xúc động phải không? Đó chẳng phải đều học từ Trần tiên sinh, gặp chuyện bất bình, bất kể thế nào cứ ra quyền trước rồi nói sao?
+
+Diêu Tiên Chi nghe đầu tiên còn mất mát, càng nghe về sau càng vui, cười hắc hắc:
+
+- Trần tiên sinh không thấy cảnh ấy đâu. Một đám quan văn trói gà không chặt, nếu Hứa Khinh Chu không ngăn, một mình ta đã có thể đánh ngã tất cả. Bây giờ không còn cơ hội nữa, đừng nói thị lang, ngay cả một viên ngoại lang Hộ bộ cũng không được mắng, quý giá lắm. Sớm biết thế ta đã nhân lúc trời tối đạp thêm mấy cái.
+
+Diêu Lĩnh Chi nghe mà bất đắc dĩ, nhưng cũng nhẹ nhõm. Ít ra trước mặt Trần công tử, đệ đệ sẽ không nói những lời âm dương quái khí khiến người thân đau lòng nữa.
+
+Trần Bình An đưa tay lay ống tay áo trống không của hán tử, chẳng những không an ủi mà còn trêu:
+
+- May mà làm phủ doãn đại nhân, không một mình xông xáo giang hồ. Bằng không đường đường đại tông sư võ học ngũ cảnh, chắc chắn không thoát được biệt hiệu “độc thủ thần quyền”. Sao thế, bị đại yêu thượng ngũ cảnh chém à? Nếu không phải thì đừng kể với ta, không có gì để nói.
+
+Diêu Lĩnh Chi cẩn thận liếc đệ đệ.
+
+Nào ngờ Diêu Tiên Chi không thấy khó chịu, trái lại đắc ý nói:
+
+- Trên chiến trường hung hiểm vô cùng, là một tên súc sinh Yêu tộc cảnh giới Địa Tiên, còn là kiếm tu! Hắn trốn đông trốn tây, giở trò đánh lén ta. Một đạo kiếm quang xẹt qua, khá lắm, mẹ nó, ban đầu ta còn không thấy đau.
+
+Trần Bình An nhìn phụ nhân đeo đao.
+
+Diêu Lĩnh Chi cười:
+
+- Nghe hắn khoác lác đi. Giữa loạn quân, không biết thế nào đã bị chém đứt tay. Chẳng qua lúc ấy gần Tiên Chi quả thật có một kiếm tiên Yêu tộc, xuất kiếm sắc bén, kiếm quang bay qua bay lại rất nhiều.
+
+Trần Bình An gật đầu:
+
+- Vậy cứ xem là bị kiếm tiên chém đứt đi, bằng không lên bàn rượu không có chuyện để khoác lác.
+
+Diêu Tiên Chi mong đợi hỏi nhỏ:
+
+- Trần tiên sinh, chiến sự bên quê nhà ngươi còn ác liệt, thảm khốc hơn. Nghe nói đánh từ Lão Long thành đến tận trung bộ Đại Ly. Trên chiến trường ngươi có gặp đại yêu hàng thật giá thật không?
+
+Trần Bình An nghĩ một chút, cười đáp:
+
+- Từng gặp một ít, có vài lần giao thủ, có mấy lần không gần không xa, chỉ có thể xem như miễn cưỡng chạm mặt.
+
+- Trần tiên sinh, ta nói đại yêu thượng ngũ cảnh ấy! Có mấy con? Đủ một bàn tay không? Nếu không đủ, lòng bội phục của ta đối với tiên sinh sẽ giảm đi một nửa.
+
+Trần Bình An vỗ vai hắn, mỉm cười:
+
+- Sau này đừng nói chuyện phiếm với người khác như vậy nữa.
+
+Hán tử râu quai nón cười ha ha.
+
+Diêu Tiên Chi bất giác bước đi khập khiễng, không che giấu nữa, một bên tay áo theo bước chân nhẹ bay. Diêu Lĩnh Chi cũng cười. Từ sau chiến tranh đến nay, đã nhiều năm nàng không thấy đệ đệ cười rạng rỡ như vậy.
+
+Có những đạo lý Diêu Tiên Chi thật ra hiểu, chỉ là hiểu rồi lại không muốn hiểu. Dường như không hiểu chuyện thì ít ra còn làm được gì đó; hiểu chuyện rồi lại chẳng làm được gì.
+
+Cho nên bất kể hoàng đế Diêu Cận Chi hay tỷ tỷ Diêu Lĩnh Chi nói gì, hắn đều không nghe lọt, bằng không trong lòng chỉ càng khó chịu.
+
+Ba người rời viện, trở lại chỗ ở của Diêu Tiên Chi. Diêu Lĩnh Chi do dự một chút rồi nói:
+
+- Trần công tử, sư phụ ta là một vị võ học tông sư, đã làm cung phụng nhiều năm ở kinh thành Đại Tuyền. Lúc trước hình như ông ấy thấy bóng ngươi, lập tức tới hỏi khách Diêu phủ có phải họ Trần không. Ta không trả lời, nhưng có lẽ sư phụ đã nhìn ra điều gì, nên bảo ta chuyển lời rằng ông quen Chủng phu tử, năm đó còn cùng vị phu tử ấy đối phó kiếm tiên họ Du.
+
+Trần Bình An gật đầu:
+
+- Sư phụ Diêu cô nương quả thật là người quen cũ của ta. Nếu trong phủ không có điều gì kiêng kỵ, ta xin làm cao một chút, phiền ông ấy đến Diêu phủ một chuyến ôn chuyện.
+
+- Vậy ta đi gọi sư phụ tới.
+
+Trần Bình An hỏi:
+
+- Vị thủy thần nương nương Mai Hà hôm nay ở Bích Du cung sao?
+
+Diêu Tiên Chi cười đáp:
+
+- Không. Vị thủy thần nương nương của chúng ta đã vỡ hơn nửa kim thân, nói mình không còn mặt mũi làm thủy thần, không về Bích Du cung nữa. Ngày nào nàng cũng ở trong phòng của Khâm Thiên Giám [?], không đi đâu, ngóng thư hồi âm từ văn miếu. Nàng nói mình quen Văn Thánh lão gia, cả Tả đại kiếm tiên và một vị tiểu đệ tử của Văn Thánh cũng từng gặp, đều quen biết.
+
+- Nàng muốn thử gửi thư cho Văn Thánh lão gia đức cao vọng trọng, học vấn thông thiên, lại bình dị gần gũi, hòa ái như người thân, xem có thể nhờ ngài giúp xin thần tiên trên núi một viên thủy đan tốt hơn để cứu mạng Diêu lão tướng quân không. Nàng biết đan dược ở thủy phủ Bích Du cung nhà mình không giúp được hoàng đế bệ hạ và gia gia ta.
+
+Diêu Tiên Chi vội nói thêm:
+
+- Những lời ca tụng Văn Thánh ấy không phải ta nói. Hôm ta uống rượu với nàng, thủy thần nương nương bẻ ngón tay, vừa nấc rượu vừa kể từng câu, vẻ mặt rất nghiêm túc. Chẳng qua ta không tin lắm, đoán rằng cả ba vị của Văn Thánh nhất mạch nàng đều chưa gặp, uống say rồi khoác lác với ta. Tuy Tả đại kiếm tiên quả thật từng ở Đồng Diệp Châu, nhưng sao lại chủ động đến Bích Du cung làm khách, gặp thủy thần nương nương của chúng ta? Không có đạo lý ấy.
+
+Trần Bình An đứng dậy, nói với Diêu Lĩnh Chi còn chưa đi xa:
+
+- Phiền Diêu cô nương nhắn với thủy thần nương nương một tiếng, cứ nói thẳng là Trần Bình An ta.
+
+Diêu Lĩnh Chi đi đưa lời nhắn. Trần Bình An hỏi Diêu Tiên Chi một số chi tiết về chiến sự Đại Tuyền năm đó.
+
+Lưu Tông rất nhanh đã tới, hẳn lão nhân vốn không rời Diêu phủ quá xa.
+
+Trần Bình An đứng dậy ôm quyền:
+
+- Lưu tiền bối.
+
+Diêu Tiên Chi cũng đứng dậy, nắm tay khẽ gõ ngực:
+
+- Gặp qua Lưu cung phụng.
+
+Ma Đao Nhân Lưu Tông gật đầu với hán tử lôi thôi, rồi xoa cằm nhìn chằm chằm Trần Bình An, cảm thán:
+
+- Trần công tử càng lúc càng anh tuấn như trích tiên nhân, dễ khiến ta nhớ đến mình năm đó.
+
+Diêu Tiên Chi nghe mà không hiểu gì. Quan hệ giữa Trần tiên sinh và Lưu cung phụng tốt đến thế sao?
+
+Ba người ngồi xuống, chưa nói được mấy câu đã có một nữ tử vóc người thấp bé vội vàng ngự gió tới, đáp xuống sân. Nàng mở to mắt, xác nhận thân phận Trần Bình An rồi giậm chân:
+
+- Rượu Thủy Hoa và mì lươn đều hết rồi, làm sao đây?!

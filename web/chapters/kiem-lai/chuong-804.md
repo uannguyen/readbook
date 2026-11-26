@@ -1,189 +1,265 @@
 # Chương 804: Thư
 
-Trong lương đình Thái Chi sơn, Thôi Đông Sơn uống qua hai bầu rượu Thuần Thanh cô nương, có chút băn khoăn, lắc lắc đầu vai, mông quét một cái, trượt đến một đầu lan can chỗ Thuần Thanh, từ trong tay áo giũ ra một hộp đựng trúc, đưa tay quét một cái, hơi nước trong núi ngưng tụ thành mây trắng gây án, mở ra hộp đựng ba món, lần lượt đặt ở trước mắt hai bên, đã có các loại bánh ngọt của cửa hàng Áp Tuế ngõ Kỵ Long, cũng có vài chỗ ăn, Thuần Thanh chọn lựa một miếng bánh Hạnh Hoa, một tay kẹp lấy, một tay hư thác, ăn đến mức nheo mắt lại, cực kỳ vui vẻ.
+Trong đình nghỉ chân trên núi Thải Chi, Thôi Đông Sơn đã uống hết hai bầu rượu của Thuần Thanh, trong lòng hơi áy náy. Hắn nhích vai, xoay người trượt dọc lan can đến bên nàng, giũ từ tay áo ra một hộp trúc. Hắn phất tay, hơi nước trong núi tụ thành một chiếc bàn mây trắng. Mở hộp ra, hắn lần lượt bày ba loại điểm tâm lên bàn. Có bánh của cửa hàng Áp Tuế ở ngõ Kỵ Long, cũng có mấy món mua từ nơi khác.
 
-Thôi Đông Sơn ở bên cạnh hai tay cầm thức ăn, nghiêng đầu gặm, tựa như gặm một đoạn mía nhỏ, ăn rất giòn, màu sắc vàng óng, Thôi Đông Sơn ăn cũng gây ra động tĩnh không nhỏ.
+Thuần Thanh chọn một miếng bánh hoa hạnh, một tay cầm bánh, tay kia đỡ bên dưới. Ăn được một miếng, nàng nheo cả mắt vì thích thú.
 
-Thuần Thanh hỏi: "Là do trong sách kia nói "Cửa vào lập tức vỡ vụn như tuyết lăng", hươu bào nổ tung?"
+Thôi Đông Sơn cũng cầm một món điểm tâm vàng óng bằng hai tay, nghiêng đầu cắn rôm rốp, trông như đang gặm một đoạn mía nhỏ.
 
-Thôi Đông Sơn chỉ chỉ trước người khẽ giật mình, mơ hồ không rõ nói: "Lai lịch đều là một lai lịch, hai tháng hai cắn đuôi bọ cạp, nhưng vẫn có chút khác với Tác-ta ngươi nói, ở Bảo Bình châu chúng ta gọi là Ma Hoa, bột ngó sen rẻ chút, Thập Cẩm kẹp nhân đắt nhất, là ta đặc biệt mua được từ một nơi tên là Hoàng Ly sơn Quế Hoa phố, tiên sinh ta ở trên núi một mình, thích ăn cái này, ta sẽ theo đó thích."
+Thuần Thanh hỏi:
 
-Không thể tưởng tượng được, một đứa bé nghe ông lão kể chuyện xưa, có một ngày cũng sẽ biến thành ông lão kể chuyện cho đứa nhỏ nghe.
+- Đây có phải thứ trong sách tả là vừa cho vào miệng đã giòn tan như tuyết lăng [?], hươu bào nổ tung [?] không?
 
-Năm đó dưới tàng cây hòe già, có một đứa trẻ khiến người ta chán ghét, lẻ loi trơ trọi ngồi xổm ở nơi hơi xa xôi, vểnh tai nghe những câu chuyện xưa kia, nhưng lại nghe không rõ lắm. Một người nhảy nhót nhót trên đường về nhà, nhưng cũng sẽ bước chân nhẹ nhàng. Từ bé không sợ đi đường đêm, chưa từng cảm thấy cô độc, cũng không biết cái gì gọi là cô độc, chỉ cảm thấy chỉ là một người, bằng hữu ít một chút mà thôi. Nhưng không biết, thật ra đó chỉ là cô độc, chứ không phải cô đơn.
+Thôi Đông Sơn chỉ món ăn trước mặt, vừa nhai vừa đáp, giọng lúng búng:
 
-Không đơn thuần là tiên sinh thuở thiếu thời như thế, kỳ thật tuyệt đại đa số nhân sinh, đều là tâm nguyện không toại nguyện như vậy, sống dựa vào sự chịu đựng.
+- Cùng một gốc cả đấy. Mùng hai tháng hai ăn đuôi bọ cạp [?], nhưng thứ này hơi khác món ngươi nói. Ở Bảo Bình Châu chúng ta gọi là ma hoa [?]. Loại vị ngó sen rẻ hơn, loại thập cẩm có nhân thì đắt nhất. Ta đặc biệt mua ở phố Quế Hoa trên núi Hoàng Ly. Tiên sinh ta hồi ở một mình trên núi thích ăn món này, nên ta cũng thích theo.
 
-Thôi Đông Sơn vỗ vỗ bàn tay, hai tay khẽ đặt trên đầu gối, rất nhanh đã nói sang chuyện khác, cợt nhả nói: "Cao bánh Hạnh Hoa Thuần Thanh cô nương ăn, là tay nghề của đầu bếp cũ ở Lạc Phách Sơn chúng ta, ăn ngon đi, đi ngõ Kỵ Long, ăn thoải mái, không tiêu tiền, có thể ghi hết vào sổ sách của ta."
+Không ngờ đứa trẻ từng ngồi nghe ông lão kể chuyện, đến một ngày cũng sẽ thành người kể chuyện cho trẻ nhỏ.
 
-Thôi Đông Sơn đột nhiên trầm mặc, cúi đầu.
+Năm ấy dưới gốc hòe già, có một đứa trẻ chẳng được người ta ưa, cứ ngồi xổm một mình ở chỗ xa xa, vểnh tai nghe kể chuyện mà vẫn chẳng nghe rõ. Trên đường về nhà, nó thường nhảy chân sáo, nhưng bước chân lại rất khẽ. Từ nhỏ nó không sợ đi đường đêm, cũng chưa từng thấy mình cô độc. Nó chỉ nghĩ mình quen ít bằng hữu, phải đi một mình mà thôi. Chẳng biết rằng cảm giác ấy chính là cô độc [?].
 
-Thuần Thanh chỉ sau một lát mới quay đầu, phát hiện một vị văn sĩ áo xanh chẳng biết từ lúc nào đã đứng sau lưng hai người, bóng cây trong đình xanh cùng ánh sáng vàng nhạt cùng nhau xuyên qua thân hình người nọ, lúc này người này, danh xứng với thực "Như vào chỗ không người".
+Không riêng gì tiên sinh thuở nhỏ. Đời người có bao nhiêu điều mong mà chẳng được, cuối cùng vẫn phải sống bằng cách gắng gượng qua ngày.
 
-Thuần Thanh muốn nhảy xuống lan can, rơi vào đình nghỉ mát hành lễ chào quý ngài này, Tề Tĩnh Xuân cười khoát tay, ý bảo tiểu cô nương ngồi là được.
+Thôi Đông Sơn vỗ tay cho sạch vụn bánh, đặt hai tay lên đầu gối, rồi mau chóng đổi sang giọng cười đùa:
 
-Thôi Đông Sơn chưa quay đầu, rầu rĩ hỏi: "Bị các ngươi trêu chọc như thế, Chu Mật khẳng định tức giận không nhẹ, Thôi Sàm chạy thoát được sao?"
+- Bánh hoa hạnh Thuần Thanh cô nương vừa ăn là do đầu bếp cũ của núi Lạc Phách làm. Ngon chứ? Sau này đến ngõ Kỵ Long, ngươi cứ ăn thỏa thích, khỏi trả tiền. Cứ ghi hết vào sổ của ta.
 
-Tề Tĩnh Xuân gật đầu nói: "Việc đã đến nước này, Chu Mật chỉ biết xem xét thời thế, tướng quyền hai bên lấy ít mà hưởng, tạm thời còn luyến tiếc cá chết lưới rách với Thôi Sàm, một khi ở Đồng Diệp Châu xa xa đánh giết Tề Tĩnh Xuân, Thôi Sàm chỉ là hạ cảnh vi mười ba cảnh, quay về Bảo Bình châu, chút đường lui ấy vẫn phải sớm chuẩn bị. Chu Mật lại mất đi tu vi thập tứ cảnh đỉnh phong đã cực kỳ củng cố, hắn chưa chắc sẽ ngã cảnh, nhưng một thập tứ cảnh tầm thường, không chống đỡ nổi dã tâm chu đáo, mưu tính mấy ngàn năm dài lâu, toàn bộ tâm huyết sắp thất bại trong gang tấc, Chu Mật tự nhiên không nỡ bỏ. Chuyện ta thật sự lo lắng, thật ra ngươi rất rõ ràng."
+Nói xong, hắn chợt im lặng, cúi đầu xuống.
 
-Thôi Đông Sơn nói: "Ta cũng không phải Thôi Sàm, ngươi nói gì với ta cũng vô ích. Tề Tĩnh Xuân, ngươi đừng suy nghĩ nhiều, giữ lại chút tâm niệm, có thể đi gặp Bùi Tiền, nàng là tiên sinh của ta, sư đệ ngươi khai sơn đại đệ tử, hôm nay ngay tại Thải Chi sơn, ngươi còn có thể đi Nam Nhạc từ miếu, tâm sự với Tống Tập Tân đã thay đổi rất nhiều, trở về bồi đô bên kia, vẫn có thể chỉ điểm Lâm Thủ Nhất tu đạo, duy chỉ có không cần lãng phí thời gian cùng đạo hạnh ở bên ta, về phần ta nên làm gì thì không nên làm, Thôi Đông Sơn trong lòng biết rõ."
+Một lát sau Thuần Thanh mới quay lại. Chẳng biết từ bao giờ, phía sau hai người đã có một văn sĩ áo xanh đứng đó. Bóng cây xanh và nắng vàng nhạt cùng xuyên qua thân hình người ấy. Quả thật tựa như người đi vào chốn không người.
 
-Tề Tĩnh Xuân cười nói: "Ta chính là đang lo lắng sư điệt Thôi Đông Sơn a."
+Thuần Thanh định nhảy xuống lan can hành lễ, nhưng Tề Tĩnh Xuân chỉ mỉm cười xua tay, ra hiệu nàng cứ ngồi.
 
-Mắng Thôi Đông Sơn không có địch thủ, phá lệ nhất thời nghẹn lời.
+Thôi Đông Sơn vẫn không quay đầu, buồn bực hỏi:
 
-Tề Tĩnh x**n th** chung đứng ở phía sau thiếu niên thiếu nữ, Thôi Đông Sơn lẩm bẩm: "Cảnh sắc nhân gian luôn nhìn không đủ."
+- Bị hai người trêu chọc một phen như thế, Chu Mật hẳn giận lắm. Thôi Sàm thoát được chứ?
 
-Thôi Đông Sơn bỗng giận dữ nói: "Học vấn lớn như vậy, kỳ thuật cao như vậy, vậy ngươi thật ra tùy tiện tìm một biện pháp sống sót! Có bản lãnh lén lút chen thân cảnh giới thứ mười bốn, sao không có bản lãnh kéo dài hơi tàn?"
+Tề Tĩnh Xuân gật đầu:
 
-Tề Tĩnh Xuân lắc đầu không nói gì.
+- Đã đến nước này, Chu Mật sẽ cân nhắc lợi hại, tạm thời chưa nỡ liều đến cá chết lưới rách với Thôi Sàm. Dẫu hắn đánh tan “Tề Tĩnh Xuân” ở Đồng Diệp Châu xa xôi, Thôi Sàm vẫn chỉ là tu sĩ cảnh giới thứ mười ba [?]. Đường trở về Bảo Bình Châu cũng phải chuẩn bị từ trước. Còn Chu Mật đã mất tu vi đỉnh phong cảnh giới thứ mười bốn vừa củng cố. Có thể hắn chưa rơi cảnh, nhưng cảnh giới thứ mười bốn thông thường đâu gánh nổi dã tâm cùng mưu tính suốt mấy nghìn năm của hắn. Mắt thấy tâm huyết sắp đổ xuống sông, hắn đương nhiên không cam lòng. Chuyện ta thật sự lo, ngươi hiểu rõ mà.
 
-Bất tri bất giác, nho sĩ trung niên vốn chỉ là tóc mai đã bạc, giờ phút này tóc đã bạc qua ống tay áo thiếu niên, là một loại khô héo không còn sinh cơ.
+Thôi Đông Sơn nói:
 
-Thôi Đông Sơn lẩm bẩm nói: "Tiên sinh nếu biết chuyện hôm nay, cho dù hắn năm nào về quê, cũng sẽ đau lòng mà chết. Tiên sinh ở trên đường đời, đi cẩn thận bao nhiêu, ngươi không biết ai biết? Tiên sinh rất ít phạm sai lầm, nhưng người và việc hắn để ý, lại phải bỏ lỡ lần nữa."
+- Ta đâu phải Thôi Sàm. Ngươi nói với ta cũng vô ích. Tề Tĩnh Xuân, đừng nghĩ nhiều nữa. Giữ lại chút tâm niệm mà đi gặp Bùi Tiền. Nàng là đại đệ tử khai sơn của tiểu sư đệ ngươi, cũng là tiên sinh ta, hôm nay đang ở núi Thải Chi. Ngươi còn có thể đến từ miếu Nam Nhạc trò chuyện với Tống Tập Tân, hắn đã thay đổi nhiều rồi. Trở về bồi đô, ngươi vẫn có thể chỉ điểm Lâm Thủ Nhất tu đạo. Chỉ cần đừng phí thời gian và đạo hạnh ở chỗ ta. Thôi Đông Sơn nên làm gì, không nên làm gì, trong lòng tự biết.
 
-Thôi Đông Sơn nhận thấy được phía sau Tề Tĩnh Xuân khí cơ dị tượng, ngẩng đầu, lại vẫn không muốn quay đầu, "Bên kia vẫn là động thủ?"
+Tề Tĩnh Xuân cười:
 
-Tề Tĩnh Xuân gật đầu nói: "Đại Ly nhất quốc chi sư, Man Hoang thiên hạ chi sư, hai bên đã gặp mặt, ai cũng không có khả năng quá khách khí. Yên tâm đi, Tả Hữu, Quân Thiến, Long Hổ Sơn đại thiên sư, đều sẽ động thủ. Đây là Thôi Sàm đối với việc Phù Diêu châu vây giết Bạch Dã, đưa cho Chu Mật đáp lễ."
+- Ta đang lo cho sư điệt Thôi Đông Sơn đấy.
 
-Thôi Đông Sơn nhíu mày hỏi: "Tiêu Tiêu thế mà nguyện ý không đi dây dưa với Tả ngốc tử?"
+Thôi Đông Sơn xưa nay mắng người chẳng có đối thủ, lần này hiếm hoi nghẹn lời.
 
-Tề Tĩnh Xuân giải thích: "Tiêu Sàm không quen nhìn Hạo Nhiên Thiên Hạ, cũng không quen nhìn Man hoang thiên hạ, không ai quản được nàng tùy tâm sở dục. Tả sư huynh hẳn là đã đáp ứng nàng, chỉ cần từ Đồng Diệp châu trở về, sẽ cùng nàng chém giết sinh tử lưu loát dứt khoát một hồi. Đến lúc đó nếu ngươi có lá gan, thì đi khuyên nhủ Tả sư huynh một chút. Không dám thì thôi."
+Tề Tĩnh Xuân vẫn đứng sau lưng hai người. Thôi Đông Sơn lẩm bẩm:
 
-Thôi Đông Sơn từ chối cho ý kiến, chỉ là nhẹ nhàng thở ra, "Hình như đem ba trăm vạn quyển sách cất giữ, biến thành câu đối xuân dán trên cửa, dùng để từ cũ nghênh tân. Cũng chỉ có ngươi nghĩ ra được, làm ra được."
+- Cảnh sắc nhân gian, ngắm mãi vẫn không đủ.
 
-Tề Tĩnh Xuân lắc đầu nói: "Là Thôi Sàm một ý tưởng lâm thời nảy lòng tham, dựa theo ý nguyện ban đầu của ta, vốn không nên làm như thế. Ta lúc ban đầu là muốn làm cái môn thần lâm thời... Thôi, nhiều lời vô ích. Có lẽ lựa chọn của Thôi Sàm sẽ tốt hơn. Có lẽ, hy vọng là như vậy."
+Rồi hắn bỗng nổi giận:
 
-Thôi Đông Sơn nói: "Cho nên ngươi đến cuối cùng, vẫn là lựa chọn tin tưởng Thôi Sàm."
+- Học vấn lớn đến thế, thuật pháp cao đến thế, ngươi tùy tiện tìm lấy một cách sống tiếp không được sao? Có bản lĩnh âm thầm bước vào cảnh giới thứ mười bốn, sao lại không có bản lĩnh kéo dài thêm hơi tàn?
 
-Tề Tĩnh Xuân đột nhiên nói: "Đã là như thế, lại không chỉ như thế, ta thấy tương đối... Xa."
+Tề Tĩnh Xuân lắc đầu, không đáp.
 
-Thôi Đông Sơn nói: "Một người nhìn xa đến mấy, chung quy không bằng đi được xa."
+Chẳng biết tự lúc nào, mái tóc của nho sĩ trung niên vốn chỉ bạc ở hai bên mai đã trắng đến độ phủ qua tay áo thiếu niên [?], mang vẻ khô héo, chẳng còn sinh khí.
 
-Tề Tĩnh Xuân cười nói: "Không còn các ngươi nữa."
+Thôi Đông Sơn thấp giọng:
 
-Bên ngoài tổ sư đường Kỳ Sắc phong Lạc Phách Sơn đã có nhiều cái ghế như vậy.
+- Nếu tiên sinh biết chuyện hôm nay, ngày nào đó trở về quê cũ, hắn sẽ đau lòng đến chết. Tiên sinh đi trên đường đời cẩn thận đến mức nào, còn ai hiểu rõ hơn ngươi? Hắn rất ít khi phạm sai lầm, vậy mà hết lần này đến lần khác phải bỏ lỡ người và chuyện mình để tâm.
 
-Đã như vậy, phu phục hà ngôn.
+Cảm thấy khí cơ sau lưng Tề Tĩnh Xuân đổi khác, Thôi Đông Sơn ngẩng đầu nhưng vẫn không chịu quay lại:
 
-Văn sĩ áo sam xanh hiện thân từ miếu Đại Độc, vốn chính là Thôi Sàm cùng Tề Tĩnh Xuân tạm mượn tu vi cảnh giới thứ mười bốn, mà không phải bản thân Tề Tĩnh Xuân thật sự, vì chính là đại đạo bổ toàn tính kế chu đáo chặt chẽ, tức là âm mưu, càng là dương mưu, tính chuẩn Hạo Nhiên Giả Sinh, sẽ không tiếc lấy ra ba trăm vạn quyển tàng thư, chủ động để cho "Tề Tĩnh Xuân" củng cố cảnh giới, khiến cho người sau có thể nói là học cứu thiên nhân, nghiên cứu học vấn tam giáo cực sâu., Đại đạo hiển hóa trong đại thiên địa thân người ở Chu Mật, cuối cùng làm cho Chu Mật nghĩ lầm có thể mượn cái này hợp đạo, mượn dùng thủ đoạn thần thông tọa trấn thiên địa, lấy thiên địa đại đạo bản thân nghiền ép một mình Tề Tĩnh Xuân, cuối cùng ăn hết học vấn căn bản của tam giáo Tề Tĩnh Xuân thành công tễ thân thập tứ cảnh, khiến cho thiên đạo tuần hoàn chu vi càng thêm gắn chặt chẽ, không có một sơ hở nào. Một khi thành sự, Chu Mật liền thật sự thành tổ sư tam giáo không thể đánh giết, trở thành "Nhất" lớn nhất mấy tòa thiên hạ kia.
+- Bên kia đã ra tay rồi?
 
-Mà muốn lừa bịp Văn Hải Chu mật, đương nhiên cũng không thoải mái, Tề Tĩnh Xuân phải đem một thân tu vi, đều giao cho Đại Ly Tú Hổ ân oán sâu đậm. Trừ cái đó ra, mấu chốt chân chính, vẫn là khí tượng mười bốn cảnh thuộc về Tề Tĩnh Xuân. Cái khó ngụy trang nhất này, đạo lý rất đơn giản, cũng là đại tu sĩ cảnh giới thứ mười bốn, Tề Tĩnh Xuân, Bạch Dã, lão mù lòa Man Hoang thiên hạ, Kê Thang hòa thượng, lão quan đạo quán Đông Hải, đều là đại đạo sai lệch cực lớn, mà Chu Mật cũng là cảnh giới thứ mười bốn, ánh mắt độc ác cỡ nào, nào có dễ dàng lừa gạt như vậy.
+Tề Tĩnh Xuân gật đầu:
 
-Nhưng mà Văn Thánh nhất mạch, Tú Hổ từng thay thầy truyền nghề, đạo lý thánh hiền trên sách, cầm kỳ thư họa, Thôi Sàm đều dạy, hơn nữa dạy đều cực tốt. Đối với học vấn Tam giáo cùng Chư Tử bách gia, bản thân Thôi Sàm liền nghiên cứu cực sâu.
+- Quốc sư Đại Ly gặp quân sư Man Hoang Thiên Hạ [?], hai bên khó mà khách sáo. Yên tâm, Tả Hữu, Quân Thiến, Đại thiên sư Long Hổ Sơn đều sẽ ra tay. Đây là món đáp lễ Thôi Sàm gửi Chu Mật vì trận vây giết Bạch Dã ở Phù Diêu Châu.
 
-Hơn nữa Thôi Sàm là người duy nhất trong đệ tử đích truyền của Văn Thánh nhất mạch, từng tham gia hai trận tranh luận với lão tú tài ba giáo, vẫn luôn dự thính, hơn nữa thân là thủ đồ, Thôi Sàm an vị ở bên cạnh Văn Thánh.
+Thôi Đông Sơn nhíu mày:
 
-Cho nên trấn áp vị thần linh địa vị cao viễn cổ ý đồ vượt biển lên bờ kia, Thôi Sàm mới có thể cố ý "tiết lộ thân phận", lấy tác phong làm việc của Tề Tĩnh Xuân lúc trẻ tuổi, mấy lần chân đạp thần linh, lại lấy ba giáo học vấn Tề Tĩnh Xuân bế quan sáu mươi năm, quét sạch chiến trường.
+- Tiêu Tiêu [?] chịu thôi dây dưa với tên ngốc Tả Hữu ấy sao?
 
-Mà một bộ phận tâm niệm của Tề Tĩnh Xuân, cũng quả thật cùng tồn tại với Thôi Sàm, lấy ba chữ bản mạng ngưng tụ mà thành "Người vô cảnh", làm một tòa học vấn đạo tràng.
+Tề Tĩnh Xuân giải thích:
 
-Chẳng qua tính kế chu mật như thế, trả giá chính là cần tiêu hao tâm niệm cùng đạo hạnh của Tề Tĩnh Xuân mãi, lấy cái này để đổi lấy Thôi Sàm lấy một loại "con đường tắt" không thể tưởng tượng, chen thân cảnh giới thứ mười bốn, vừa mượn dùng học vấn đại đạo của Tề Tĩnh Xuân, lại đánh cắp biển sách chu đáo, bị Thôi Sàm lấy ra dùng để tu sửa, khuyến khích học vấn của bản thân, cho nên chỗ độc ác lớn nhất của Thôi Sàm, chính là ở chỗ chẳng những không chọn chiến trường ở địa chỉ cũ Lão Long thành, mà là trực tiếp mạo hiểm làm việc, đi hướng thuyền nhỏ lá đào của Đồng Diệp Châu, mặt đối mặt với chu đáo chặt chẽ.
+- Tiêu Tiêu chẳng ưa Hạo Nhiên Thiên Hạ, cũng chẳng ưa Man Hoang Thiên Hạ. Nàng muốn làm gì, không ai quản nổi. Chắc Tả sư huynh đã hứa với nàng rằng sau khi từ Đồng Diệp Châu trở về, sẽ đánh một trận sống chết thật dứt khoát. Đến lúc ấy, nếu có gan thì ngươi đi khuyên Tả sư huynh. Không dám thì thôi.
 
-Đương nhiên không phải Thôi Sàm hành động theo cảm tình.
+Thôi Đông Sơn không tỏ thái độ, chỉ thở phào. Hắn nói:
 
-Kết quả tốt nhất, chính là tình cảnh hiện nay, Tề Tĩnh Xuân còn có chút tâm niệm còn sót lại tồn thế, vẫn có thể xuất hiện ở đình nghỉ mát này, đến gặp Thôi Đông Sơn không biết nên nói là sư huynh hay là sư điệt. Cùng lúc đó, Đại Độc từ miếu có thể vì Thôi Sàm trở về Trung bộ Bảo Bình châu, trải ra một đường lui.
+- Đem ba trăm vạn quyển sách biến thành câu đối xuân dán lên cửa, để tiễn cũ đón mới. Có lẽ chỉ mình ngươi nghĩ ra và làm được chuyện ấy.
 
-Kết quả tệ nhất, chính là chu đáo nhìn thấu chân tướng, như vậy Thôi Sàm mười ba cảnh đỉnh phong, sẽ kéo Tề Tĩnh Xuân mười bốn cảnh đỉnh phong thời gian có hạn, hai người cùng nhau đánh một trận với Chu Hải Tử, trong một nén nhang phân thắng bại, lấy tính tình Thôi Sàm, đương nhiên là đánh cho toàn bộ Đồng Diệp Châu chìm xuống biển, đều không tiếc. Bảo Bình châu mất đi một Tú Hổ, Man Hoang thiên hạ lưu lại một Văn Hải Chu Mật bản thân đại thiên địa tan vỡ không chịu nổi.
+Tề Tĩnh Xuân lắc đầu:
 
-Dù sao hai cái, Thôi Sàm đều có thể tiếp nhận.
+- Thôi Sàm nhất thời nảy ý thôi. Ban đầu ta chẳng định làm vậy. Ta chỉ muốn tạm làm một vị môn thần... Thôi, nói nữa cũng vô ích. Có lẽ lựa chọn của Thôi Sàm tốt hơn. Mong là thế.
 
-Giờ phút này trong lương đình, văn sĩ áo xanh cùng thiếu niên áo trắng, ai cũng không có ngăn cách thiên địa, thậm chí đều không có dùng tiếng lòng nói.
+Thôi Đông Sơn nói:
 
-Thuần Thanh xấu hổ đến cực điểm, ăn bánh ngọt đi, quá không tôn kính hai vị người đọc sách kia, cũng không ăn bánh ngọt đi, lại khó tránh khỏi hiềm nghi dựng thẳng tai nghe lén, cho nên nàng nhịn không được mở miệng hỏi: "Tề tiên sinh, Thôi tiểu tiên sinh, không bằng ta rời khỏi chỗ này? Ta là người ngoài, nghe đã đủ nhiều, lúc này trong lòng không ngừng bồn chồn, rất hoảng hốt."
+- Rốt cuộc ngươi vẫn chọn tin Thôi Sàm.
 
-Thôi Đông Sơn như giận dỗi nói: "Thuần Thanh cô nương không cần rời khỏi, quang minh chính đại nghe là được, vị Tề sơn trưởng thư viện Sơn Nhai chúng ta, quân tử nhất, cũng không nói nửa câu ngôn ngữ người ngoài nghe không được."
+Tề Tĩnh Xuân bỗng bảo:
 
-Thân hình Tề Tĩnh Xuân chợt lóe, thế mà ngồi ở trên lan can bên cạnh Thôi Đông Sơn, quay đầu nhìn phía thiếu niên áo trắng thật ra cũng không xa lạ này.
+- Đúng, nhưng không chỉ có thế. Ta nhìn... xa hơn một chút.
 
-Thôi Đông Sơn nhìn không chớp mắt, chỉ là trông về phía xa, hai tay nhẹ nhàng vỗ đầu gối, nào ngờ Tề Tĩnh Xuân kia giống như đầu óc có vấn đề, xem chùy mà xem, còn xem đủ sao, Thôi Đông Sơn nhìn mà cả người không được tự nhiên, vừa muốn đưa tay đi bắt lấy một cây Hoàng Ly sơn chơi đùa, nào ngờ bị Tề Tĩnh Xuân nhanh chân đến trước, cầm đi, bắt đầu ăn. Thôi Đông Sơn nhỏ giọng nói thầm, trừ ăn sách còn có chút nhai, hôm nay ăn cái gì cũng không có mùi vị, lãng phí đồng tiền mà không phải sao.
+- Một người nhìn xa đến đâu, chung quy vẫn chẳng bằng người đi được xa.
 
-Tề Tĩnh Xuân nói: "Mới vừa rồi ở trong lòng Chu Mật, giúp Thôi Sàm ăn chút sách, mới biết được năm đó lão phu tử thư viện nhân gian kia cảm khái, thật có đạo lý."
+Tề Tĩnh Xuân cười:
 
-Thôi Đông Sơn biết Tề Tĩnh Xuân đang nói cái gì.
+- Chẳng phải còn các ngươi sao [?].
 
-Thì ra trên đời có nhiều sách ta không muốn xem như vậy.
+Bên ngoài tổ sư đường trên đỉnh Kỳ Sắc của núi Lạc Phách đã có nhiều ghế đến vậy.
 
-Thôi Đông Sơn nhẹ giọng nói: "Thật ra cũng có người từng nói."
+Đã thế, còn gì phải nói thêm?
 
-Tề Tĩnh Xuân cũng biết Thôi Đông Sơn muốn nói cái gì.
+Văn sĩ áo xanh xuất hiện từ từ miếu Đại Độc vốn không phải Tề Tĩnh Xuân thật sự. Đó là hình bóng do Thôi Sàm tạm mượn tu vi cảnh giới thứ mười bốn và tâm niệm Tề Tĩnh Xuân dựng nên [?]. Kế sách của họ nhằm tính cả những toan tính của Chu Mật, vừa là âm mưu, vừa là dương mưu. Họ biết vị “Giả Sinh” Hạo Nhiên ấy [?] sẽ sẵn lòng lấy ba trăm vạn quyển sách ra cho “Tề Tĩnh Xuân” củng cố cảnh giới, để người này có học vấn ba giáo sâu đến mức kinh người.
+
+Khi đạo của “Tề Tĩnh Xuân” hiện ra trong trời đất nơi thân thể Chu Mật, Chu Mật sẽ tưởng mình có thể nhân đó hợp đạo [?]. Hắn định dùng thần thông của kẻ làm chủ thế giới ấy, lấy đại đạo trời đất của chính mình nghiền ép Tề Tĩnh Xuân, rồi nuốt luôn căn bản học vấn ba giáo mà đối phương đã dùng để bước vào cảnh giới thứ mười bốn. Nếu thành công, đại đạo trong hắn sẽ vận hành khép kín, chẳng còn chút sơ hở. Bấy giờ Chu Mật thật sự có thể trở thành tổ sư ba giáo không ai giết được, thành cái “Một” lớn nhất giữa mấy tòa thiên hạ [?].
+
+Nhưng lừa được Văn Hải Chu Mật đâu phải chuyện dễ. Tề Tĩnh Xuân phải giao cả tu vi của mình cho Tú Hổ Đại Ly, người có ân oán sâu nặng với hắn. Điều quan trọng hơn là làm sao tái hiện khí tượng cảnh giới thứ mười bốn của Tề Tĩnh Xuân. Cùng ở cảnh giới ấy, đại đạo của Tề Tĩnh Xuân, Bạch Dã, lão mù ở Man Hoang, hòa thượng Kê Thang và lão đạo sĩ đạo quán Đông Hải đều khác nhau một trời một vực. Chu Mật cũng là tu sĩ cảnh giới thứ mười bốn, nhãn lực sắc bén như vậy, đâu dễ gì mắc lừa.
+
+May mà Thôi Sàm từng thay thầy dạy các sư đệ trong Văn Thánh nhất mạch. Đạo lý thánh hiền trong sách, cầm kỳ thư họa, hắn đều dạy rất giỏi. Học vấn ba giáo cùng chư tử bách gia, hắn cũng nghiên cứu rất sâu.
+
+Trong số đệ tử đích truyền của Văn Thánh, chỉ Thôi Sàm từng hai lần theo thầy dự cuộc biện luận giữa ba giáo [?]. Hắn ngồi ngay bên Văn Thánh, nghe từ đầu đến cuối.
+
+Bởi thế, khi trấn áp vị thần linh viễn cổ địa vị cao đang định vượt biển lên bờ, Thôi Sàm mới cố ý “để lộ thân phận”. Hắn bắt chước lối hành sự của Tề Tĩnh Xuân thuở trẻ, mấy lần giẫm chân lên thần linh, rồi vận dụng học vấn ba giáo mà Tề Tĩnh Xuân đã nghiền ngẫm trong sáu mươi năm bế quan để quét sạch chiến trường.
+
+Một phần tâm niệm thật của Tề Tĩnh Xuân quả cũng tồn tại cùng Thôi Sàm. Tâm niệm ấy lấy ba chữ bản mệnh ngưng thành “Người vô cảnh” [?], dựng nên một đạo tràng học vấn.
+
+Đổi lại, kế sách kín kẽ này phải liên tục hao tổn tâm niệm và đạo hạnh Tề Tĩnh Xuân. Nhờ đó, Thôi Sàm đi một con đường tắt khó tưởng tượng để bước vào cảnh giới thứ mười bốn. Hắn vừa mượn đại đạo học vấn của Tề Tĩnh Xuân, vừa đánh cắp biển sách Chu Mật, lấy đó bồi đắp học vấn chính mình. Chỗ hiểm nhất của Thôi Sàm là hắn chẳng chọn di chỉ Lão Long Thành làm chiến trường. Hắn liều mình tìm tới chiếc thuyền lá đào ở Đồng Diệp Châu, đối mặt trực tiếp với Chu Mật.
+
+Thôi Sàm làm thế dĩ nhiên không phải vì nóng giận.
+
+Kết quả tốt nhất chính là lúc này. Tề Tĩnh Xuân còn sót chút tâm niệm, có thể đến đình gặp Thôi Đông Sơn, người chẳng biết nên gọi là sư huynh hay sư điệt. Từ miếu Đại Độc cũng trải sẵn đường lui để Thôi Sàm trở về miền trung Bảo Bình Châu [?].
+
+Kết quả xấu nhất là Chu Mật nhìn thấu chân tướng. Khi ấy, Thôi Sàm ở đỉnh phong cảnh giới thứ mười ba sẽ cùng Tề Tĩnh Xuân, người chỉ có thể giữ đỉnh phong cảnh giới thứ mười bốn trong chốc lát, hợp sức đánh Chu Mật. Một nén nhang định thắng bại. Với tính Thôi Sàm, dẫu phải đánh chìm cả Đồng Diệp Châu xuống biển, hắn cũng chẳng ngại. Bảo Bình Châu mất Tú Hổ, Man Hoang Thiên Hạ phải giữ một Văn Hải Chu Mật có thế giới trong thân thể đã tan nát.
+
+Cả hai kết cục, Thôi Sàm đều có thể chấp nhận.
+
+Trong đình lúc này, văn sĩ áo xanh và thiếu niên áo trắng chẳng ai ngăn cách trời đất, cũng không dùng tiếng lòng. Thuần Thanh bối rối. Ăn bánh thì có vẻ bất kính với hai vị người đọc sách. Ngừng ăn lại giống đang dỏng tai nghe lén. Nàng đành hỏi:
+
+- Tề tiên sinh, Thôi tiểu tiên sinh, hay ta rời khỏi đây? Ta là người ngoài, đã nghe nhiều quá rồi, trong lòng cứ thấp thỏm mãi.
+
+Thôi Đông Sơn hờn dỗi đáp:
+
+- Thuần Thanh cô nương cứ ở lại, đường đường chính chính mà nghe. Vị sơn trưởng thư viện Sơn Nhai của chúng ta là quân tử bậc nhất, đâu nói lời nào mà người ngoài không được nghe.
+
+Tề Tĩnh Xuân thoắt cái đã ngồi lên lan can cạnh Thôi Đông Sơn, quay sang nhìn thiếu niên áo trắng mà mình vốn chẳng hề xa lạ.
+
+Thôi Đông Sơn chỉ nhìn về phía xa, hai tay vỗ nhẹ lên đầu gối. Bị Tề Tĩnh Xuân nhìn mãi, hắn thấy mất tự nhiên. Nhìn cái gì mà nhìn, chưa đủ hay sao? Hắn định lấy một chiếc bánh mua ở núi Hoàng Ly [?] để nhấm nháp, ai ngờ Tề Tĩnh Xuân nhanh tay cầm trước rồi ăn. Thôi Đông Sơn lẩm bẩm, vừa ăn sách xong mà còn muốn nhai nữa, hôm nay ăn gì cũng chẳng thấy ngon, phí cả tiền.
+
+Tề Tĩnh Xuân nói:
+
+- Vừa rồi trong lòng Chu Mật, ta giúp Thôi Sàm ăn ít sách. Bấy giờ mới biết câu cảm khái năm ấy của vị lão phu tử thư viện nhân gian kia thật có lý [?].
+
+Thôi Đông Sơn hiểu hắn nói gì.
+
+Thì ra trên đời có nhiều sách ta không muốn đọc đến thế.
+
+Thôi Đông Sơn khẽ nói:
+
+- Thật ra cũng có người từng nói một câu.
+
+Tề Tĩnh Xuân cũng hiểu câu ấy.
 
 Ta không muốn nói thêm gì với thế giới này.
 
-Cho nên thiếu niên Thôi Đông Sơn nhiều năm qua như vậy, nói mấy cái sọt lớn lời nói đùa bỡn, duy chỉ có lời thật lòng nói không nhiều, đại khái chỉ có thể nói với mấy người, có thể đếm được trên đầu ngón tay.
+Bởi thế, bao năm qua Thôi Đông Sơn nói không biết bao nhiêu lời đùa cợt, nhưng lời thật lòng lại hiếm. Có lẽ hắn chỉ nói với vài người, đếm trên đầu ngón tay đã hết. Ngoài tiên sinh Trần Bình An, hình như chỉ còn Tiểu Bảo Bình, đại sư tỷ Bùi Tiền, tiểu nhân hoa sen và Hạt Gạo.
 
-Trừ tiên sinh Trần Bình An, hình như cũng chỉ có Tiểu Bảo Bình, đại sư tỷ Bùi Tiền, tiểu nhân hoa sen, hạt gạo.
+Tề Tĩnh Xuân mỉm cười dời mắt.
 
-Tề Tĩnh Xuân cười thu hồi tầm mắt.
+Thôi Sàm thuở thiếu niên thật ra rất tuấn tú. Thảo nào về sau hắn vướng nhiều duyên nợ, còn hơn cả sư huynh. Năm ấy, người phụ nữ bán rượu gần trường tư hễ thấy Thôi Sàm đến mua là bán rẻ hơn. Từ các nữ khách khanh thỉnh thoảng giảng bài ở học cung, thư viện, đến những tiên tử của các tông môn lớn [?], người ta đều tìm cách xin một bức thư của hắn. Có người cố ý gửi thư cho Văn Thánh, lấy cớ hỏi chuyện học vấn. Lão tiên sinh hiểu ý, lần nào cũng để học trò hồi âm thay. Các nàng nhận được thư thì cẩn thận bồi thành thư pháp, cất giữ nâng niu.
 
-Thật ra Thôi Sàm lúc thiếu niên, bộ dạng còn rất đẹp, khó trách trong những năm tháng tương lai, nợ tình nhân duyên vô số, thật ra so với sư huynh còn nhiều hơn. Phụ nhân mua rượu phụ nhân phụ cận trường tư tiên sinh năm đó, chỉ cần Thôi Sàm đi mua rượu, giá sẽ rẻ hơn rất nhiều. Đến thư viện học cung bên trong ngẫu nhiên giảng bài cho nữ tử khách khanh của nho gia đệ tử, lại đến rất nhiều tiên tử đầu chữ tông, đều sẽ thay đổi biện pháp cầu được một bức thư từ với hắn, hoặc là cố ý gửi thư cho Văn Thánh lão tiên sinh., Mỹ kỳ danh là thỉnh giáo học vấn, tiên sinh liền ngầm hiểu, mỗi lần đều để đồ đệ thay bút hồi âm, sau khi các nữ tử nhận được thư, thật cẩn thận trang phiếu làm thiếp chữ mẫu, cất kỹ hẳn lên. Lại đến A Lương lần lượt cùng hắn du lịch trở về, đều khóc lóc kể lể mình thế mà trở thành lục diệp, thiên địa lương tâm, hồn các cô nương, đều bị Thôi Sàm câu đi, thế mà cũng không vừa nhìn A Lương ca ca.
+A Lương mỗi lần cùng hắn du ngoạn trở về đều khóc lóc than mình đã thành kẻ làm nền [?]. Trời đất chứng giám, hồn các cô nương đều bị Thôi Sàm câu mất, chẳng ai thèm nhìn A Lương ca ca một cái.
 
-Thuần Thanh nhỏ giọng nhắc nhở: "Tề tiên sinh."
+Thuần Thanh khẽ nhắc:
 
-Tâm niệm Tề tiên sinh nhiều hơn, đạo hạnh tổn hại liền nhiều.
+- Tề tiên sinh.
 
-Tề Tĩnh Xuân quay đầu, đưa tay đè lại đầu Thôi Đông Sơn, di chuyển về phía sau, để cho vị sư điệt này đừng vướng bận, sau đó cười nói với nàng: "Thuần Thanh cô nương, thật ra nếu có thời gian, thực có thể đi dạo Lạc Phách Sơn một chút, nơi đó là địa phương tốt, non xanh nước biếc, địa linh nhân kiệt."
+Tâm niệm Tề tiên sinh càng hoạt động, đạo hạnh càng hao tổn.
 
-Thuần Thanh gật gật đầu, "Được! Nghe theo Tề tiên sinh."
+Tề Tĩnh Xuân quay lại, đặt tay lên đầu Thôi Đông Sơn đẩy hắn ra sau để khỏi vướng, rồi cười với nàng:
 
-Thôi Đông Sơn vẻ mặt bi phẫn nói: "Thuần thanh, ngươi bị làm sao vậy, ta tốn sức chín trâu hai hổ, cũng chưa thể lừa ngươi đi Lạc Phách Sơn, sao họ Tề thuận miệng nói, ngươi đã sảng khoái đồng ý rồi?!"
+- Thuần Thanh cô nương, khi nào rảnh, ngươi nên đến núi Lạc Phách chơi. Nơi ấy núi xanh nước biếc, con người cũng tốt.
 
-Thuần Thanh chớp chớp mắt, có gì nói nấy, thành thật nói: "Ngươi người này không thật, nhưng Tề tiên sinh là quân tử mà."
+Thuần Thanh gật đầu ngay:
 
-Tề Tĩnh Xuân nhìn phía Đồng Diệp Châu bên kia, cười nói: "Không thể không thừa nhận, hành sự chu đáo nghiêm túc nghịch ngợm, nhưng một mình hướng lên trên, quả thật kinh hãi tai mắt trong thiên hạ."
+- Được! Ta nghe Tề tiên sinh.
 
-Thôi Đông Sơn đột nhiên tâm thần chấn động, nghĩ tới một chuyện, hắn nhìn phía Tề Tĩnh Xuân khí tượng suy yếu kia, nói: "Phù Diêu châu cùng Đồng Diệp châu đều là bản đồ Man Hoang thiên hạ. Chẳng lẽ vừa rồi?"
+Thôi Đông Sơn tỏ vẻ đau lòng:
 
-Tề Tĩnh Xuân gật gật đầu, xác nhận suy đoán của Thôi Đông Sơn.
+- Thuần Thanh, ngươi sao thế? Ta tốn bao công sức vẫn chưa dụ được ngươi tới núi Lạc Phách. Họ Tề chỉ thuận miệng nói một câu, ngươi đã nhận lời ngay?
 
-Thôi Đông Sơn thở dài, Chu Mật am hiểu khống chế dòng sông thời gian, đây là chỗ mấu chốt vây giết Bạch Dã.
+Thuần Thanh chớp mắt, thành thật đáp:
 
-Xem ra là đã bái cổ tay, Tề Tĩnh Xuân cuối cùng không để Chu Mật thực hiện được.
+- Ngươi chẳng đáng tin, còn Tề tiên sinh là quân tử mà.
 
-Lão khốn Thôi Sàm này cho dù chen thân cảnh giới thứ mười bốn, cũng nhất định không có thủ đoạn này, càng nhiều là gia tăng mấy đạo thần thông sát phạt trù tính đã lâu kia.
+Tề Tĩnh Xuân nhìn về Đồng Diệp Châu, cười nói:
 
-Tề Tĩnh Xuân đứng lên, muốn đi gặp khai sơn đại đệ tử tiểu sư đệ thu nhận, hình như vẫn là tiên sinh hỗ trợ chọn lựa, tiểu sư đệ tất nhiên rất mệt mỏi.
+- Phải công nhận Chu Mật hành sự hiểm hóc [?], nhưng một mình hắn đi đến mức ấy, quả thật khiến cả thiên hạ phải kinh ngạc.
 
-Thôi Đông Sơn muốn nói lại thôi.
+Thôi Đông Sơn bỗng chấn động. Nhìn khí tượng ngày một suy yếu của Tề Tĩnh Xuân, hắn hỏi:
 
-Tề Tĩnh Xuân đưa tay đè bả vai Thôi Sàm, "Về sau nếu tiểu sư đệ vẫn còn áy náy, lại cảm thấy mình làm quá ít, đến lúc đó, ngươi giúp ta cùng tiểu sư đệ nói một chuyện, nói về vị tiểu nhân hương khói màu vàng kia, cơ hội từ đâu mà đến."
+- Phù Diêu Châu và Đồng Diệp Châu đều đã thành địa bàn của Man Hoang Thiên Hạ. Chẳng lẽ vừa rồi ngươi...?
 
-Thôi Đông Sơn ừ một tiếng, ốm yếu không nhấc lên nổi tinh thần khí gì.
+Tề Tĩnh Xuân gật đầu, xác nhận suy đoán ấy.
 
-Tề Tĩnh Xuân đột nhiên dùng sức vỗ một cái ở trên đầu hắn, đánh cho Thôi Đông Sơn thiếu chút nữa ngã xuống trong đình nghỉ mát, Tề Tĩnh Xuân cười nói: "Đã sớm muốn làm như vậy. Năm đó theo tiên sinh đi học, bản lãnh châm ngòi thổi gió là lớn nhất, ta cùng Tả Hữu đánh hơn chín mươi trận, ít nhất có tám mươi trận là ngươi chắp lửa mà lên. Tiên sinh về sau dưỡng thành rất nhiều tật xấu xấu, công lao của ngươi cũng lớn lắm."
+Thôi Đông Sơn thở dài. Chu Mật rất giỏi khống chế dòng sông thời gian. Đó cũng là mấu chốt trong trận vây giết Bạch Dã. Xem chừng hai người vừa âm thầm so tài, và Tề Tĩnh Xuân đã chặn được Chu Mật [?]. Lão khốn Thôi Sàm dù bước vào cảnh giới thứ mười bốn cũng không có thủ đoạn ấy, hắn chỉ thêm được mấy môn thần thông sát phạt đã sớm tính toán [?].
 
-Thôi Đông Sơn cả giận nói: "Cáo trạng đâu? Thích sổ sách? Những thói quen này của tiên sinh ta cùng đại sư tỷ, đều là học ai?"
+Tề Tĩnh Xuân đứng dậy, định đi gặp đại đệ tử khai sơn của tiểu sư đệ. Hình như đứa trẻ ấy còn do tiên sinh giúp chọn. Tiểu sư đệ hẳn đã rất mệt mỏi.
 
-Tề Tĩnh Xuân hiểu ý cười, cười đều là xuân phong, thân hình tiêu tán, như nhân gian xuân phong qua lại vô tung.
+Thôi Đông Sơn muốn nói gì đó rồi thôi.
 
-Thôi Đông Sơn lẩm bẩm nói: "Sao không tán gẫu thêm một lát."
+Tề Tĩnh Xuân đặt tay lên vai hắn:
 
-Thuần Thanh yên lặng ăn xong một đĩa điểm tâm, cuối cùng không nhịn được nhỏ giọng nhắc nhở: "Vị lão thần tiên Quan Hải quán Đình Vân làm sao đây? Cứ như vậy bị nhốt trong tay áo ngươi?"
+- Sau này nếu tiểu sư đệ vẫn tự trách, cho rằng mình làm quá ít, ngươi hãy thay ta nói với hắn một chuyện. Kể cho hắn biết cơ duyên của tiểu nhân hương khói màu vàng kia từ đâu mà có.
 
-Thôi Đông Sơn xem thường nói: "Ngươi đang nói cái búa, không có ai kêu như vậy, không có chuyện như vậy!"
+Thôi Đông Sơn “ừ” một tiếng, trông ỉu xìu.
 
-Cô nàng này thật không phúc hậu, sớm biết như vậy đã không lấy ra điểm tâm đãi khách.
+Tề Tĩnh Xuân bỗng vỗ mạnh lên đầu hắn, suýt khiến Thôi Đông Sơn ngã khỏi lan can. Hắn cười:
 
-Thuần Thanh nói: "Đến Lạc Phách Sơn các ngươi, đi cửa hàng ngõ Kỵ Long trước?"
+- Ta muốn làm thế từ lâu rồi. Năm ấy đi học cùng tiên sinh, ngươi giỏi nhất trò châm ngòi. Ta và Tả Hữu đánh nhau hơn chín mươi trận, ít nhất tám mươi trận do ngươi thêm dầu vào lửa. Về sau tiên sinh nhiễm bao nhiêu thói xấu, công ngươi cũng lớn lắm.
 
-Thôi Đông Sơn lập tức nịnh nọt nói: "Cần thiết."
+Thôi Đông Sơn nổi giận:
 
-Thuần Thanh đột nhiên khéo hiểu lòng người: "Còn muốn uống rượu hay không?"
+- Còn thói mách lẻo, thích ghi sổ thì sao? Tiên sinh ta và đại sư tỷ học mấy thói ấy từ ai?
 
-Thôi Đông Sơn im lặng, lắc đầu.
+Tề Tĩnh Xuân hiểu ý, mỉm cười. Nụ cười như gió xuân. Thân hình hắn dần tan đi, như gió xuân qua cõi người chẳng để lại dấu vết.
 
-Ở đỉnh Thái Chi Sơn, bạch y lão viên một mình đi xuống thần đạo.
+Thôi Đông Sơn lẩm bẩm:
 
-Luôn cảm thấy không thích hợp, vị cung phụng hộ sơn Chính Dương sơn này nhanh chóng nhìn quanh bốn phía, lại không có nửa điểm khác thường, kỳ quái.
+- Sao không nói chuyện thêm một lát?
 
-Bùi Tiền trợn to mắt, vị văn sĩ áo sam xanh kia cười lắc đầu, ý bảo nó đừng lên tiếng, lấy tiếng lòng hỏi nó có khúc mắc gì, có thể nói một tiếng với sư bá hay không.
+Thuần Thanh lặng lẽ ăn hết một đĩa điểm tâm, cuối cùng khẽ nhắc:
 
-Ngoài từ miếu Nam Nhạc sơn quân, Tống Tập Tân ngồi một mình trong một thư phòng lâm thời dựng lên, xoa mi tâm, vị Đại Ly phiên vương quyền cao chức trọng này đột nhiên đứng lên, hướng tiên sinh chắp tay.
+- Vị lão thần tiên Đình Vân ở Quan Hải quán thì sao? Ngươi cứ nhốt ông ấy trong tay áo à?
 
-Trong Tề Độ từ miếu bên ngoài Đại Ly bồi đều, Lâm Thủ Nhất vừa muốn thu hồi《 Vân Thượng Lang Lang Thư 》 quyển hạ, văn sĩ áo sam xanh cười ngồi xuống, bảo Lâm Thủ Nhất mang tới giấy bút, hắn tới làm chú thích văn tự.
+Thôi Đông Sơn thản nhiên đáp:
 
-Trong một tòa Đại Độc Thủy phủ gần đó, Vương Chu đã trở thành Chân Long duy nhất nhân gian, nhìn vị khách không mời mà đến kia, nàng vẻ mặt quật cường, ngẩng cao đầu.
+- Ngươi nói bậy gì thế? Chẳng có ai tên ấy, cũng chẳng có chuyện ấy!
 
-Lò rèn bên bờ Long Tu Hà, Lưu Tiện Dương đang ngủ gật, tâm thần đang đi xa du lịch một hồi cổ chiến trường kinh thế hãi tục, cũng không biết trên chiếc ghế trúc nhỏ bên cạnh, có một vị Tề tiên sinh cũng nhắm mắt dưỡng thần, đang hộ đạo một đoạn đường cho hắn.
+Cô nương này thật chẳng biết điều. Biết thế hắn đã chẳng mang điểm tâm ra đãi khách.
 
-Bên trường tư trấn nhỏ, văn sĩ áo sam xanh đứng ở trong học đường, thân hình dần dần tiêu tán, Tề Tĩnh Xuân nhìn ra ngoài cửa, giống như ngay sau đó sẽ có thiếu niên giầy rơm ngượng ngùng ngại ngùng, trước khi cả gan mở miệng nói chuyện, sẽ vụng trộm nâng tay lên trước, trong lòng bàn tay cọ cọ tay áo sạch sẽ cũ kỹ, lại dùng một đôi mắt sạch sẽ trong suốt nhìn phía trong trường tư, nhẹ giọng nói, Tề tiên sinh, có thư của ngươi.
+Thuần Thanh hỏi:
+
+- Khi đến núi Lạc Phách, ta ghé cửa hàng ở ngõ Kỵ Long trước nhé?
+
+Thôi Đông Sơn lập tức niềm nở:
+
+- Tất nhiên rồi.
+
+Nàng lại hỏi, giọng đầy ý tứ:
+
+- Còn muốn uống rượu không?
+
+Thôi Đông Sơn im lặng lắc đầu.
+
+Trên đỉnh núi Thải Chi, lão vượn áo trắng một mình đi xuống thần đạo. Vị hộ sơn cung phụng của Chính Dương sơn cứ thấy có gì không ổn, vội đảo mắt nhìn quanh, nhưng chẳng phát hiện điều gì khác lạ.
+
+Bùi Tiền mở to mắt. Văn sĩ áo xanh mỉm cười lắc đầu, ra hiệu nàng đừng lên tiếng. Hắn dùng tiếng lòng hỏi nàng có điều gì vướng mắc trong lòng, có thể kể cho sư bá nghe chăng.
+
+Bên ngoài từ miếu của sơn quân Nam Nhạc, Tống Tập Tân ngồi một mình trong thư phòng tạm, tay xoa mi tâm. Vị phiên vương quyền cao của Đại Ly bỗng đứng bật dậy, chắp tay với tiên sinh.
+
+Trong từ miếu Tề Độ ngoài bồi đô Đại Ly, Lâm Thủ Nhất vừa định cất quyển hạ của “Vân Thượng Lang Lang Thư” [?]. Văn sĩ áo xanh mỉm cười ngồi xuống, bảo hắn mang giấy bút tới để mình viết lời chú giải.
+
+Ở một thủy phủ Đại Độc gần đó, Vương Chu, vị chân long duy nhất còn lại ở nhân gian, bướng bỉnh ngẩng cao đầu nhìn khách không mời.
+
+Tại lò rèn bên sông Long Tu, Lưu Tiện Dương đang ngủ gà ngủ gật, thần hồn đi xa qua một chiến trường cổ kinh thiên động địa. Hắn đâu biết trên chiếc ghế trúc nhỏ bên cạnh còn có Tề tiên sinh nhắm mắt ngồi đó, hộ đạo cho mình một đoạn.
+
+Trong trường tư của trấn nhỏ, văn sĩ áo xanh đứng giữa lớp học, thân hình chậm rãi tan đi. Tề Tĩnh Xuân nhìn ra cửa, tựa hồ ngay sau đó sẽ có một thiếu niên đi giày rơm rụt rè xuất hiện. Trước khi lấy can đảm cất tiếng, thiếu niên sẽ lén chùi lòng bàn tay vào ống tay áo cũ nhưng sạch, rồi nhìn vào trong bằng đôi mắt trong veo:
+
+- Tề tiên sinh, có thư của tiên sinh.

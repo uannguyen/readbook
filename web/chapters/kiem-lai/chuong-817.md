@@ -1,721 +1,473 @@
-# Chương 817: Khó khăn nhất là...
+# Chương 817: Khó nhất là hôm nay vô sự
 
-Thôi Đông Sơn và Khương Thượng Chân liếc nhau.
+Thôi Đông Sơn và Khương Thượng Chân liếc nhìn nhau. Người này bảo Khương đạo hữu là chủ nhà, nên đứng ra thu xếp. Người kia lại nói Thôi đạo hữu đừng bỏ gánh, trên Hoàng Hạc Ki còn chờ bài văn để đời của hắn.
 
-Một người nói Khương đạo hữu ngươi là địa chủ, nên do ngươi phụ trách kết thúc, một người nói Thôi đạo hữu ngươi đừng bỏ gánh, Hoàng Hạc Ki chưa khắc thiên cổ hùng văn kia của ngươi, không thể nói là không còn nữa.
+Hai võ phu Chỉ cảnh mà thật sự buông tay hỏi quyền, lại quyết đứng tại chỗ phân cao thấp bằng quyền cước, một quyền có thể hất đình nghỉ mát xuống sông, một cước đủ đạp nát cả dãy lan can bạch ngọc. Hoàng Hạc Ki, chiếc chậu gom tiền của Khương thị, còn giữ được nửa tòa hay không cũng khó nói.
 
-Một khi hai vị võ phu chỉ cảnh hoàn toàn buông tay buông chân vấn quyền lẫn nhau, lại không muốn di chuyển một chỗ so đấu công phu quyền cước, một quyền một tòa đình nghỉ mát lật tung nước sông rơi, một cước một mảng lớn bạch ngọc lan khô nát, một tòa Tụ Bảo Bồn Hoàng Hạc Cơ có thể lưu lại nửa tòa hay không, thật đúng là khó mà nói.
+May thay, Trần Bình An lên tiếng trước:
 
-May mà Trần Bình An nói với Khương Thượng Chân: "Chúng ta về Vân Cấp phong trước."
+- Chúng ta về Vân Cấp phong.
 
-Sau đó Trần Bình An lại hướng hoàng y vân ôm quyền, "Vãn bối Tào Mạt, lát nữa sẽ thỉnh giáo tiền bối quyền lý."
+Hắn lại ôm quyền với Diệp Vân Vân:
 
-Diệp Vân Vân chỉ cảm thấy giống như sức nặng thiên địa bỗng nhiên nhẹ đi, nàng ôm quyền hoàn lễ.
+- Vãn bối Tào Mạt. Lát nữa sẽ đến thỉnh giáo tiền bối về quyền lý.
 
-Khương Thượng Chân lập tức chắp tay tạ lỗi với sơn chủ trẻ tuổi, thật ra hôm nay hắn tự tiện mang Diệp Vân Vân từ Lão Quân Sơn đến Hoàng Hạc Cơ, vốn là có vài phần tư tâm, thật sự muốn đánh cho Vân Quật thập bát cảnh biến thành thập thất cảnh, Khương Thượng Chân chỉ có thể nhắm mắt chấp nhận, dù sao phúc địa còn có bảy tám chỗ dự khuyết điểm, chẳng qua là đệ tử Khương thị cùng khách khanh cung phụng phụ trách công việc Hoàng Hạc Ki, sau đó không tránh được phải khóc lóc om sòm ở từ đường Khương thị bên kia.
+Diệp Vân Vân cảm thấy sức nặng đè lên trời đất quanh mình chợt tan đi, bèn ôm quyền đáp lễ. Khương Thượng Chân cũng chắp tay tạ lỗi với Trần Bình An. Hắn tự tiện đưa nàng từ Lão Quân sơn đến đây, trong lòng vốn có tính toán riêng. Nếu hai người thật sự đánh đến mức mười tám thắng cảnh Vân Quật phúc địa chỉ còn mười bảy, hắn đành cắn răng chịu. Dù vẫn có bảy tám nơi dự khuyết, đám đệ tử, khách khanh và cung phụng trông coi Hoàng Hạc Ki thể nào cũng đến từ đường Khương thị khóc lóc kể khổ.
 
-Bùi Tiền ôm quyền theo, nói với Diệp Vân Vân: "Vãn bối Trịnh Tiễn, hôm nay có nhiều đắc tội, tương lai chỉ cần có cơ hội, thì đi Vân Thảo Đường bái phỏng Diệp tiền bối."
+Bùi Tiền cũng ôm quyền:
 
-Diệp Vân Vân gật gật đầu.
+- Vãn bối Trịnh Tiễn, hôm nay đã đắc tội. Sau này có dịp, vãn bối sẽ đến Vân Thảo Đường bái phỏng Diệp tiền bối.
 
-Trần Bình An dẫn theo Bùi Tiền và Thôi Đông Sơn rời khỏi Hoàng Hạc Cơ, tiên sinh sư phụ, đệ tử học sinh, không khéo không thành sách, ba người thế mà tề tụ nơi đất khách quê người.
+Diệp Vân Vân gật đầu.
 
-Sư phụ hình như đang suy nghĩ chuyện gì đó, Bùi Tiền liền một đường đi theo, không nói chuyện, Thôi Đông Sơn thì ở bên kia một mình bẻ ngón tay, không biết lẩm bẩm cái gì.
+Trần Bình An dẫn Bùi Tiền và Thôi Đông Sơn rời Hoàng Hạc Ki. Sư phụ, học trò, sư tỷ, sư đệ, ba người lại hội tụ ở đất khách quê người. Trần Bình An dường như đang nghĩ chuyện gì. Bùi Tiền lặng lẽ theo sau, còn Thôi Đông Sơn vừa đi vừa bấm ngón tay tính toán, miệng lẩm bẩm không ngừng.
 
-Trần Bình An đi xuống khỏi Hoàng Hạc Ki, dừng bước ở cửa ra bờ sông, đột nhiên nói: "Ta đã nghĩ kỹ rồi, hạ tông Lạc Phách Sơn, nên chọn chỉ ở Đồng Diệp Châu này, chỉ là vị trí cụ thể, ta còn cần đi một chuyến Sơn Hà đồ của Lão Quân Sơn."
+Đến lối xuống bến sông, Trần Bình An dừng lại:
 
-Thôi Đông Sơn nâng tay áo, vung cánh tay hô to, "Tiên sinh anh minh, mưu tính sâu xa, nhìn xa trông rộng, công cái thiên thu..."
+- Ta đã nghĩ kỹ. Hạ tông của núi Lạc Phách nên đặt tại Đồng Diệp Châu. Vị trí cụ thể phải chờ ta xem Sơn Hà đồ ở Lão Quân sơn.
 
-Lạc Phách Sơn chẳng những phải từ đỉnh núi Tiên gia thăng lên làm tông môn, còn phải làm hạ tông!
+Thôi Đông Sơn lập tức vung tay áo, hô lớn:
 
-Điều này có nghĩa là tiên sinh đã hạ quyết tâm, chờ hắn quay về quê nhà, sẽ không cố ý che giấu nội tình Lạc Phách Sơn nữa. Không chỉ như thế, còn muốn thuận thế một hơi sáng lập hạ tông, khiến cho ba châu đông tuyến Hạo Nhiên Thiên Hạ, bắc Câu Lô Châu, Bảo Bình Châu cùng Đồng Diệp Châu, toàn bộ bị dọa nhảy dựng.
+- Tiên sinh anh minh, nhìn xa trông rộng, công ở thiên thu...
 
-Trần Bình An bất đắc dĩ nói: "Ngươi có thể dẹp đi, yên tĩnh chút cho ta."
+Núi Lạc Phách còn chưa lên hàng tông môn, tiên sinh đã quyết lập cả hạ tông! Điều đó có nghĩa là khi trở về quê, hắn sẽ thôi giấu thực lực của núi, rồi nhân đà dựng thêm một hạ tông, khiến cả Bắc Câu Lô Châu, Bảo Bình Châu lẫn Đồng Diệp Châu đều kinh ngạc.
 
-Bộ đức hạnh này của Thôi Đông Sơn bây giờ, rất giống với Phi Thăng cảnh hóa Ngoại Thiên Ma bên trong lao ngục của Kiếm Khí Trường Thành.
+Trần Bình An bất đắc dĩ:
 
-Sơn chủ trẻ tuổi năm đó ở xa xa quê, đảm nhiệm ẩn quan trẻ tuổi, lúc ấy là cảm thấy hóa ngoại thiên ma sương giáng rất giống học sinh Thôi Đông Sơn.
+- Được rồi, ngươi yên lặng chút.
 
-Có lẽ đây là sự khác biệt lớn nhất giữa một du khách xa xôi có về quê hay không.
+Dáng vẻ này của Thôi Đông Sơn làm hắn nhớ tới Sương Giáng, con hóa ngoại thiên ma Phi Thăng cảnh trong lao ngục Kiếm Khí Trường Thành. Ngày còn xa nhà làm Ẩn Quan, hắn từng thấy Sương Giáng giống học trò mình. Có lẽ cảm giác ấy khác đi chỉ vì hôm nay người lữ khách đã có đường về.
 
-Thôi Đông Sơn lập tức câm miệng.
+Thôi Đông Sơn lập tức im miệng.
 
-Lạc Phách Sơn hôm nay cũng không phải tông môn, ở Bảo Bình châu cũng không có danh tiếng gì, mà vị sơn chủ trẻ tuổi vừa mới chưa thật sự về quê này, đã nghĩ sáng lập hạ tông.
+Lập một tông môn ở Hạo Nhiên Thiên Hạ vốn đã khó như lên trời. Lập thêm hạ tông ở châu khác lại càng gian nan. Ngoài việc phải được Văn Miếu Trung Thổ chấp thuận và dùng công đức tông môn đổi lấy tư cách, kẻ đến từ phương xa còn phải đối mặt với khí hậu, nhân tình và thế lực sở tại. Tuân Uyên nhờ Khương Thượng Chân nhắn lời cho Trần Bình An, rồi để chính Khương Thượng Chân làm tông chủ đời đầu Chân Cảnh tông ở hồ Thư Giản, đều có nguyên do.
 
-Hạo Nhiên Thiên Hạ bất cứ một ngọn núi nào trở thành đầu chữ tông, tuyệt đối không phải một chuyện thoải mái, muốn kiến tạo lại tông môn, đã là khó lên trời, nhất là hạ tông các địa chỉ vượt châu, tự nhiên là khó hơn lên trời, một là khó có thể đạt được sự gật đầu cho phép của văn miếu trung thổ, cần tiêu hao công đức tông môn, hơn nữa nhập gia tùy tục, khí hậu không phục, Ngọc Khuê Tông Tuân lão tiền bối vì sao phải nhờ Khương Thượng Chân chuyển câu nói kia cho mình? Lại vì sao là Khương Thượng Chân đảm nhiệm tông chủ đầu tiên của Thư Giản Hồ Chân Cảnh tông?
+Phi Ma tông của Bãi Hài cốt cũng từng nhiều lần dời chỗ tại Bắc Câu Lô Châu. Sau cùng họ đi mãi về cực nam, vừa chống chọi với thành Kinh Quan ở Quỷ Lâu Cốc vừa tìm được chỗ đứng. Thượng tông sớm đã ngắm tới thần nữ đồ của thành Bích Họa, nhưng những lần đặt chân trước đó vẫn khiến bậc trưởng bối Phi Ma tông nếm đủ cách "đãi khách" của tu sĩ bản châu.
 
-Cũng là hạ tông, bãi hài cốt Phi Ma Tông đặt chân ở Bắc Câu Lô Châu, cũng trải qua gập ghềnh khó khăn, không thể không mấy lần thay đổi địa điểm, một đường nam dời đến tận cùng phía nam một châu, cuối cùng vẫn dựa vào chém giết giằng co với Quỷ Lâu Cốc Kinh Quan thành, mới thật vất vả đứng vững gót chân. Tuy nói tất cả những thứ này, đều nằm trong tính toán của Phi Ma Tông thượng tông, thật ra ngay từ đầu chính là chạy tới bức tranh thần nữ thành Bích Họa. Nhưng mà Phi Ma Tông mấy lần trước dừng chân, đạo đãi khách của tu sĩ Bắc Câu Lô Châu, quả thật khiến tu sĩ thế hệ trước Phi Ma Tông khổ không thể tả.
+Người xuất thân hào môn đi làm quan ở địa phương cũng vậy. Ngoài mặt ai nấy hòa thuận, trong tối đâu đâu cũng có trở ngại. Ngô Diên từng là huyện lệnh đầu tiên của động thiên Ly Châu. Hắn là đệ tử quốc sư, con rể thế gia, vậy mà vẫn bị các đại tộc ở phố Phúc Lộc và ngõ Đào Diệp chèn ép đến khốn đốn. Một quan viên hàn môn không chỗ dựa chưa chắc đã bị làm khó đến thế. Những ân oán giữa các thế gia và Tống thị Đại Ly khiến Ngô Diên thăng tiến chậm, cuối cùng rời Long Châu đến vùng đất cũ của vương triều Chu Huỳnh, làm quận thủ dưới chân Trung Nhạc. Về sau Viên Chính Định và Tào Canh Tâm, hai con em dòng họ thượng trụ quốc, lại đi đường quan trường tại Long Châu thuận lợi hơn nhiều. Người trước trồng cây, người sau hưởng bóng mát.
 
-Cái này giống như con em quan lại xuất thân thế tộc hào phiệt, ở địa phương làm quan, cũng sẽ tìm mọi cách không thuận, ngoài mặt hòa hợp êm thấm, trong tối lực cản trùng trùng điệp điệp, khắp nơi mang giày nhỏ, năm đó Huyện lệnh Ngô Diên đầu tiên trong lịch sử Ly Châu Động Thiên, làm đệ tử quốc sư, con rể hào phiệt, còn không phải bị các gia tộc lớn phố Phúc Lộc cùng ngõ Đào Diệp liên thủ chèn ép đến mức mặt xám mày tro., Đổi thành quan viên hàn tộc bình thường không có chỗ dựa vững chắc, nói không chừng ngược lại không đến mức khó xử như thế. Nơi này vừa đề cập đến quá nhiều đạo lí đối nhân xử thế cùng sóng gió hoạn hải, đề cập đến tứ đại thế gia của mười đại tộc lớn đấu đá với Đại Ly Tống thị, cho nên lại ví dụ như Ngô Diên chịu đủ xa lánh, lên chức chậm chạp, cuối cùng ảm đạm rời khỏi, điều đi xa chân núi của vương triều Chu Huỳnh cũ ở trung nhạc sơn đảm nhiệm quận thủ, mà sau đó Viên Chính Định cùng Tào Canh Tâm, hai vị con em dòng họ thượng trụ quốc, con đường làm quan ở Long Châu ngược lại sẽ thông thuận hơn rất nhiều, cái này lại là tiền nhân trồng cây trên quan trường hưởng mát hậu nhân.
+Bùi Tiền thì mắt sáng ngời. Sư phụ nói gì, nàng tin nấy. Chỉ cần người ở bên, nàng không còn sợ mình làm sai, cũng không cần băn khoăn mỗi quyền đánh ra là đúng hay sai. Nàng vô thức đưa tay muốn níu lấy tay áo sư phụ, rồi lại lặng lẽ thu về.
 
-Bùi Tiền thần thái sáng láng, dù sao sư phụ nói cái gì chính là cái đó.
+Trần Bình An hỏi:
 
-Chỉ cần sư phụ ở bên cạnh mình, nàng không cần lo lắng phạm sai lầm, không cần lo lắng ra quyền đúng sai, không cần nghĩ nhiều như vậy.
+- Giả sử núi Lạc Phách chưa có tu sĩ Thượng ngũ cảnh, chỉ bằng công đức ghi ở triều đình Đại Ly cùng hai thư viện Sơn Nhai, Quan Hồ, liệu có đủ để được đặc cách lên hàng tông môn không?
 
-Sư phụ ở đây, nàng sẽ rất an tâm, không sợ trời không sợ đất.
+Thôi Đông Sơn ngập ngừng. Trần Bình An nói thêm:
 
-Bùi Tiền theo bản năng muốn vươn tay, đi nắm lấy tay áo sư phụ. Chỉ là Bùi Tiền lập tức ngừng tay, rụt tay về.
+- Không tính hai chúng ta.
 
-Trần Bình An hỏi: "Lạc Phách sơn chúng ta, nếu giả thiết không có bất cứ một vị tu sĩ thượng ngũ cảnh nào, chỉ bằng vào công đức ghi lại ở triều đình Đại Ly Tống thị, cùng với hai đại thư viện Sơn Nhai, Quan Hồ, có đủ đặc biệt thăng làm tông môn hay không?"
+Nếu không thể tự mình một kiếm mở trời, đi đến thiên hạ thứ năm, hắn sẽ theo quy củ, lấy công đức đổi quan điệp. Triệu Diêu có thể nhờ đó trở về Hạo Nhiên Thiên Hạ, hắn cũng có thể đến thiên hạ mới. Chuyện có phải tự tay chém ra đường đi hay không, giờ đã chẳng còn quan trọng. Nếu gặp lại Tả sư huynh, sau khi ôn chuyện, hắn sẵn lòng mặt dày xin sư huynh cầm kiếm mở đường. Tả sư huynh không chịu, hắn còn có thể mời tiên sinh ra mặt.
 
-Thôi Đông Sơn có chút do dự.
+Thôi Đông Sơn đáp:
 
-Trần Bình An bổ sung một câu, "Hơn nữa hai chúng ta, không tính toán ở bên trong."
+- Từ xưa, muốn lập tông môn phải có một tu sĩ Thượng ngũ cảnh thuộc dòng chính. Khách khanh hay cung phụng đều không tính. Đó gần như là thiết luật của Hạo Nhiên Thiên Hạ. Nhưng tình thế hôm nay đã khác. Bốn châu núi sông tan nát, Văn Miếu muốn mau chóng ổn định khí vận, nên việc đặc cách cho vài tiên phủ có tư cách dự khuyết vẫn có thể bàn. Chỉ là công đức núi Lạc Phách công khai tích được hơi thiếu, khó khiến mọi người tâm phục. Nếu tính cả phần ba bên đều biết mà chưa bày lên mặt bàn thì đủ, rất đủ.
 
-Nếu không thể một kiếm mở màn trời ra, đi tới tòa thiên hạ thứ năm.
+Hắn gãi cằm, tiếp lời:
 
-Vậy thì đành phải dựa theo quy củ làm việc, cần lấy công đức đổi lấy quan điệp.
+- Tiên sinh cần biết kết quả ấy là được. Giờ chưa phải lúc phô trương. Chuyện lên tông môn và chọn đất lập hạ tông nên tiến hành cùng nhau. Ta đoán đến khi địa điểm ở Đồng Diệp Châu sẵn sàng, mười năm, nhiều nhất là mười năm, chúng ta mới cần thưa chuyện với hoàng đế Đại Ly và hai thư viện. Núi Lạc Phách đâu phải người kể chuyện dưới gầm cầu, cứ dăm hôm lại dọa thiên hạ một lần.
 
-Nếu Triệu Diêu có thể bằng cái này trở về Hạo Nhiên Thiên Hạ, vậy Trần Bình An hắn cũng có thể đi tới thiên hạ mới tinh.
+Trần Bình An gật đầu rồi hỏi:
 
-Về phần có phải mình một kiếm công thành hay không, cũng không quan trọng, Trần Bình An hôm nay, nếu có thể cùng Tả sư huynh gặp lại, khẳng định không nói hai lời, chỉ là sư huynh đệ tán gẫu xong, liền mặt dạn mày dày xin sư huynh hỗ trợ cầm kiếm mở đường. Nếu sư huynh không chịu xuất kiếm, vậy hắn sẽ chuyển ra tiên sinh.
+- Ngươi bảo tính kín thì đủ, là tính những gì?
 
-"Một tiên phủ đỉnh núi, có thể thăng làm tông môn hay không, có tu sĩ vô thượng ngũ cảnh, thậm chí cũng không thể là cung phụng, khách khanh, phải là dòng dõi đích truyền của nhà mình, từ xưa đã là một thiết luật sơn thủy của Hạo Nhiên Thiên Hạ, nhưng hôm nay tình thế thiên hạ có biến, nhất là bốn châu sơn hà rách nát không chịu nổi, quả thật vẫn có thể thương lượng, văn miếu Trung Thổ vì nhanh chóng củng cố khí vận núi sông, một ít đỉnh núi dự khuyết từng là tông môn, như tiên sinh nói, "Phá cách" thăng nhiệm tông môn, quả thật là có hi vọng."
+Thôi Đông Sơn đếm trên đầu ngón tay:
 
-Thôi Đông Sơn nâng lên tay áo trắng như tuyết, vươn móng vuốt nhẹ nhàng gãi cằm, đáp: "Nhưng công đức Lạc Phách Sơn tích góp được, bên ngoài vẫn là hơi không đủ, khó có thể phục chúng. Nhưng nếu ba phe ở dưới mặt bàn tính toán rõ ràng, thật ra đủ tư cách, rất đủ."
+- Mễ Dụ Ngọc Phác cảnh, Thôi Sàm Nguyên Anh cảnh [?], hai vị kiếm tiên từng giết địch lập công, chỉ là thân phận trước nay nương vào núi Phi Vân. Phu tử Chủng Thu vừa ra quyền giết địch ở Tây Nhạc, vừa giúp bày mưu, còn gây dựng giao tình cho núi Lạc Phách với miếu Phong Tuyết và sơn quân Tây Nhạc. Tùy Hữu Biên chưa lên Nguyên Anh, nhưng chiến công vẫn nằm trong sổ Đại Ly. Nàng về lại sơn môn thì phần ấy cũng có thể tính. Lưu Lão Thành, tông chủ đời thứ ba của Chân Cảnh tông, vốn là bằng hữu cũ của tiên sinh, sẽ không so đo việc nhỏ ấy. Lô Bạch Tượng và Ngụy Tiện tạm chưa cần công bố thân phận. Còn đại sư tỷ thì khỏi phải nói, nàng giết địch vô số tại Kim Giáp Châu và Bảo Bình Châu, công lao còn hơn hai kiếm tiên. Lão võ phu Vương Phó Bạt [?] từ Bắc Câu Lô Châu thèm tư chất nàng đến mức suýt quỳ xuống xin nhận làm đồ đệ...
 
-"Điều cần chính là kết quả này, Lạc Phách sơn tạm thời còn không cần rêu rao quá mức, tương lai thăng nhiệm tông môn cùng địa điểm hạ tông cần đồng thời tiến hành, thậm chí vô cùng có khả năng, khi lựa chọn địa điểm Đồng Diệp châu mọi sự đều có sẵn, mười năm, nhiều nhất mười năm, đến lúc đó lại đến mở miệng với hoàng đế Đại Ly cùng thư viện hai châu, dù sao Lạc Phách sơn cũng không phải tiên sinh kể chuyện xưa ở dưới cầu trời, phải khiến người ta cách vài bữa sẽ cả kinh cùng sợ."
+Bùi Tiền khẽ ho một tiếng. Thôi Đông Sơn đổi lời ngay:
 
-Trần Bình An nhẹ nhàng gật đầu, lập tức nghi hoặc nói: "Về phần cái ngươi gọi là "Thực đủ"? Nói như thế nào?"
+- Còn có Trường Mệnh đạo hữu từ Kiếm Khí Trường Thành đến, trên người mang một phần công đức núi sông rất lớn. Tống thị Đại Ly biết rõ chuyện này.
 
-Thôi Đông Sơn bắt đầu đếm ngón tay, "Ngọc Phác cảnh Mễ Dụ, Nguyên Anh cảnh Thôi Sàm, hai vị lão kiếm tiên, đại kiếm tiên chúng ta, chiến công thật ra cũng không nhỏ, nhưng lúc trước thân phận đều dựa vào Phi Vân sơn bên kia, không hiển sơn không lộ thủy, chỉ chờ tiên sinh trở về Lạc Phách sơn lại định đoạt. Phu tử Chủng Thu ở đỉnh núi Tây Nhạc, vừa ra quyền giết địch, cũng hỗ trợ bày mưu nghĩ kế, rất không tệ, còn giúp đỡ Lạc Phách sơn cùng Phong Tuyết miếu cùng Tây Nhạc sơn quân bên kia tích góp một phần tình hương khói không nhỏ. Tùy Hữu Biên tuy chậm chạp chưa thể chen thân kiếm tu Nguyên Anh, nhưng mà trên sổ công lao Đại Ly vẫn còn có chút..., Chỉ cần nàng nhận tổ quy tông, lại là một phần chiến công không nhỏ có thể quy về Lạc Phách Sơn. Dù sao tông chủ đời thứ ba Chân Cảnh tông, là Lưu lão thành, là lão bằng hữu với tiên sinh, ở trên việc nhỏ này sẽ không tính toán chi li quá mức. Về phần Lô Bạch Tượng và Ngụy Tiện, tạm thời còn chưa cần phải bày tỏ thân phận. Về phần đại sư tỷ, lại càng khó lường, ở trên chiến trường Kim Giáp châu cùng Bảo Bình châu, giết địch vô số, chiến công kiếm được so với hai vị kiếm tiên còn lớn hơn, một võ phu Vương Chỉ Cảnh lớn tuổi nhất Bắc Câu Lô Châu Vương đến Nguyễn Cung, thèm thuồng tư chất tập võ của đại sư tỷ, lão mãng phu thối tha không biết xấu hổ kia đã đào được tường cước đến Lạc Phách sơn chúng ta, thiếu chút nữa chưa quỳ xuống đất cầu đại sư tỷ làm đồ đệ..."
+Trần Bình An sửa:
 
-Bùi Tiền nhẹ nhàng ho khan một tiếng.
+- Nàng không phải tiện đường ghé qua. Ta đã thành tâm mời nàng làm cung phụng núi Lạc Phách.
 
-Thôi Đông Sơn lập tức ngoan ngoãn nói sang chuyện khác, "Ngoài ra còn có vị đạo hữu trường mệnh tiên sinh từ Kiếm Khí Trường Thành rẽ tới kia, cũng có một công đức sơn thủy to lớn trong người, Đại Ly Tống thị trong lòng biết rõ."
+- Tiên sinh, Trường Mệnh đạo hữu hiện là chưởng luật của chúng ta.
 
-Trần Bình An sửa lại: "Cái gì rẽ, là ta thành tâm thành ý mời cung phụng cho Lạc Phách Sơn."
+Trần Bình An ngạc nhiên:
 
-Thôi Đông Sơn nhỏ giọng nói: "Tiên sinh, hôm nay Trường Mệnh đạo hữu đảm nhiệm chưởng luật Lạc Phách Sơn."
+- Không phải nàng cùng Vi Văn Long trông coi phòng thu chi sao?
 
-Trần Bình An sửng sốt một phen, "Không phải Trường Mệnh tọa trấn phòng thu chi cùng với Vi Văn Long sao?"
+Trường Mệnh là hóa thân của tổ tiền Kim Tinh, hợp với việc làm thần tài của núi hơn ai hết. Một người giữ phần hư, một người giữ phần thực, nàng và Vi Văn Long cùng quản sổ sách vốn là sắp xếp Trần Bình An ưng ý. Chưởng luật thì khác. Người ngồi ghế ấy phải có tu vi đủ cao và bản lĩnh đủ cứng để giữ phép tắc, lại phải chịu đứng riêng một mình, chịu tiếng làm kẻ ác. Trường Mệnh trong ấn tượng của hắn luôn ôn hòa tươi cười. Hắn lo nàng không thể đứng vững ở vị trí ấy.
 
-Bởi vì trong suy nghĩ ban đầu của Trần Bình An, trường mệnh làm tổ tiền đại đạo của thế gian đồng tiền Kim Tinh hiển hóa mà sinh, thần tài thích hợp nhất đảm nhiệm một ngọn núi nhất, cùng Vi Văn Long nhất hư nhất thực, thích hợp nhất. Mà bất cứ tiên sư nào của một ngọn núi nào trong Hạo Nhiên Thiên Hạ, muốn đảm nhiệm chưởng luật tổ sư có thể phục chúng, cần hai điều kiện, một là rất có thể đánh, thuật pháp đủ cao nắm tay đủ cứng, có tư cách làm ác nhân, một là cô thần nguyện ý làm không có đỉnh núi, làm "Độc – phu" chịu đủ dị nghị. Ở trong ấn tượng của Trần Bình An, trường mệnh mỗi ngày đều ý cười thản nhiên, dịu dàng hiền thục thục., Tính tình vô cùng tốt, Trần Bình An đương nhiên lo lắng nàng ở trên Lạc Phách Sơn khó có thể đứng vững gót chân, quan trọng nhất, là ở sâu trong nội tâm Trần Bình An, đối với chưởng luật tổ sư Lạc Phách Sơn trong cảm nhận của mình, còn có một yêu cầu quan trọng nhất, đó chính là đối phương có thể có lá gan, có quyết đoán cùng mình đỉnh châm, so tài, có thể đối với vị sơn chủ thường xuyên không nhà này ở trên một số việc lớn nào đó, nói chữ không, hơn nữa còn lập được mấy đạo lý, có thể khiến cho mình cho dù kiên trì cũng phải ngoan ngoãn nhận sai đối phương.
+Điều hắn đòi hỏi hơn cả ở chưởng luật là dám nói "không" với chính sơn chủ. Vào việc lớn, người ấy phải đủ can đảm và đủ lý lẽ để phản bác hắn, khiến hắn dù cố chấp cũng phải nhận sai. Bởi vậy hắn từng định nâng phu tử Chủng Thu từ cung phụng lên chức chưởng luật. Dù sắp đặt ban đầu đã đổi, Trần Bình An không tỏ vẻ gì, chỉ lặng lẽ cân nhắc.
 
-Cho nên chức vị chưởng luật Lạc Phách Sơn, là một vị trí mấu chốt nhất trong cảm nhận của Trần Bình An.
+Bùi Tiền nói:
 
-Vốn dựa theo ý tưởng ban đầu của Trần Bình An, là giao cho phu tử Chủng Thu từ cung phụng thăng lên làm chưởng luật núi một.
+- Sư phụ, con nghe lão đầu bếp kể, tiểu sư huynh đã hết sức đề cử Trường Mệnh.
 
-Tuy đã làm rối loạn sắp xếp của mình, Trần Bình An lại không toát ra chút thần sắc nào, chỉ là chậm rãi cân nhắc, cẩn thận châm chước.
+Trần Bình An mỉm cười hỏi nàng nghĩ sao. Bùi Tiền đáp thật:
 
-Bùi Tiền đột nhiên nói: "Sư phụ, chuyện Trường Mệnh đảm nhiệm chưởng luật, nghe lão đầu bếp nói, là tiểu sư huynh hết sức tiến cử."
+- Con ít nói chuyện với nàng, nhưng nàng hẳn là chưởng luật tốt. Nàng sống lâu, đã nhận lẽ nào thì giữ rất chặt, đến người nhà cũng không nể. Nàng vẫn nói chuyện có lý, chẳng cần nổi giận cãi cọ. Chỉ một hai câu nhẹ nhàng đã đủ đánh trúng chỗ yếu của người khác. Ban đầu thấy nàng gặp ai cũng cười, rất dễ gần. Nhìn lâu rồi lại hơi đáng sợ.
 
-Trần Bình An cười lên, "Vậy ngươi cảm thấy nếu đảm nhiệm chưởng luật trường mệnh, hiệu quả như thế nào?"
+Trần Bình An thở phào:
 
-Bùi Tiền gật gật đầu, thành thật nói: "Sư phụ, có gì nói nấy, con dù sao cũng không tán gẫu được với cô ấy, nhưng cô ấy hẳn là một chưởng luật không tệ, sống lâu thích nhận tử lý, lục thân bất nhận, nhưng cô ấy giảng đạo lý, lại sẽ không bày ra loại tư thế cãi nhau với người ta, có thể đánh rắn bảy tấc, một hai câu nói mềm nhẹ nhàng, có thể khiến người ta kiêng kị. Trường mệnh mỗi ngày gặp ai cũng cười tủm tỉm, ngay từ đầu cảm thấy rất hòa ái dễ gần, nhưng nhìn lâu, thật ra rất dọa người."
+- Vậy thì tốt.
 
-Trần Bình An nhẹ nhàng thở ra, "Vậy thì tốt."
+Hắn lại nói, một tông môn sớm muộn cũng cần tu sĩ Thượng ngũ cảnh thuộc chính mạch, thường xuyên ra mặt. Không thể mãi dựa vào khách khanh, cung phụng. Nếu thật sự thiếu người, đành mượn từ núi Phi Vân.
 
-Trần Bình An nheo mắt nói: "Đã là tông môn, Lạc Phách sơn chúng ta, sớm hay muộn vẫn cần một vị tu sĩ thượng ngũ cảnh có thể thường xuyên xuất đầu lộ diện, lại không thể là khách khanh cung phụng, có chút phiền toái. Thật sự không được, đành phải mượn người từ Phi Vân sơn."
+Thôi Đông Sơn cười:
 
-Thôi Đông Sơn cười hì hì nói: "Có thể a, vừa vặn để cho Mễ Dụ kia tới chứ sao? Dù sao ngay từ đầu hắn đã cảm thấy làm cung phụng quá khách khí, lại sớm có trải đường, từ Phi Vân sơn khách khanh đảm nhiệm dòng chính pháp mạch đạo thống Lạc Phách Sơn, tương đối nước chảy thành sông, người ngoài đều sẽ theo thói quen lầm tưởng lầm là vẻ đẹp của đại sơn quân Phi Vân sơn Ngụy. Mễ Dụ thân ở Thải Tước phủ bắc Câu Lô châu nhiều năm, cách mấy tháng phải phi kiếm truyền tin Phi Vân sơn, hỏi tiên sinh về chưa, về nhà sao. Nhắm chừng không có tin tức sơn chủ, Mễ Kiếm Tiên sẽ an tâm ở bên kia khai chi tán diệp."
+- Mễ Dụ là người thích hợp. Hắn vốn thấy làm cung phụng còn quá khách khí. Từ khách khanh núi Phi Vân chuyển sang chính mạch núi Lạc Phách, người ngoài cũng dễ nghĩ ấy là ý tốt của sơn quân Ngụy. Hắn ở phủ Thải Tước Bắc Câu Lô Châu mấy năm nay, cứ cách ít tháng lại gửi phi kiếm đến núi Phi Vân hỏi tiên sinh đã về chưa. Chắc chỉ khi biết sơn chủ chưa về, Mễ kiếm tiên mới yên lòng ở đó khai chi tán diệp.
 
-Trần Bình An lắc đầu, "Tốt nhất đừng là kiếm tu gì đó, quá dọa người."
+Trần Bình An lắc đầu:
 
-Thôi Đông Sơn nhỏ giọng nói: "Chính Dương sơn cùng Thanh Phong thành hôm nay đều là tông môn, Chính Dương sơn thậm chí đã có hạ tông, ngay tại trung nhạc địa giới có nhiều phôi tử kiếm tu nhất, mấy năm nay mở rộng khắp nơi, phong sinh thủy thật sự nổi lên, Thanh Phong thành Hứa thị cũng hy vọng có thể ở phía nam chọn địa chỉ hạ tông, hôm nay đang thông qua Thượng Trụ quốc Viên thị thân là thông gia, hỗ trợ ở kinh thành Đại Ly bên kia chuẩn bị môn lộ."
+- Tốt nhất đừng là kiếm tu. Dọa người quá.
 
-Trần Bình An cười hỏi: "Chính Dương sơn rốt cuộc có một vị kiếm tiên thượng ngũ cảnh? Là vị tổ sư từng thông qua bế quan trốn tránh kiếm Lý Đoàn Cảnh?"
+Thôi Đông Sơn bèn nhắc Chính Dương sơn và thành Thanh Phong nay đều đã là tông môn. Chính Dương sơn còn lập hạ tông ở khu vực Trung Nhạc, nơi có nhiều kiếm tu trẻ. Thành Thanh Phong của Hứa thị cũng đang nhờ thông gia Viên thị, một dòng họ thượng trụ quốc, lo đường đi ở kinh thành Đại Ly để chọn đất phía nam lập hạ tông.
 
-Thôi Đông Sơn vươn ngón tay cái, "Tiên sinh diệu toán vô cùng!"
+- Chính Dương sơn rốt cuộc đã có kiếm tiên Thượng ngũ cảnh? - Trần Bình An hỏi. - Có phải vị tổ sư từng bế quan tránh kiếm Lý Đoàn Cảnh?
 
-Trần Bình An nghĩ nghĩ, gật đầu nói: "Một khi đã như vậy, Lạc Phách sơn chúng ta cũng chỉ đành giả bộ mập mạp, kiên trì đẩy ra một vị Ngọc Phác cảnh kiếm tiên thuê mà đến. Bằng không Chính Dương sơn cùng Thanh Phong thành ngược lại dễ dàng suốt ngày miên man suy nghĩ, ngủ không ngon giấc."
+Thôi Đông Sơn giơ ngón cái, tán thưởng tiên sinh tính như thần. Trần Bình An nghĩ một lát rồi nói:
 
-Trần Bình An trầm mặc một lát, đột nhiên nói: "Sau khi đến Bảo Bình châu, trên đường quay về quê nhà, chúng ta nhớ lách qua Chính Dương sơn cùng Thanh Phong thành, bằng không lo lắng không nhịn được, ta sẽ đi tổ sư đường làm khách."
+- Vậy núi Lạc Phách đành gắng đẩy ra một kiếm tiên Ngọc Phác cảnh mời từ ngoài đến. Bằng không Chính Dương sơn với thành Thanh Phong cứ ngày đêm nghĩ ngợi, e chẳng ngủ yên.
 
-Thôi Đông Sơn nói: "Học sinh nhớ kỹ, trên đường sẽ nhắc nhở tiên sinh mở một mắt nhắm một mắt."
+Im lặng một chốc, hắn dặn:
 
-Cuối cùng Trần Bình An nói: "Bây giờ ta nghĩ như thế nào, không có nghĩa là chúng ta về nhà rồi thì nhất định sẽ làm như thế đó, đi một bước xem một bước đi. Đến Kỳ Sắc phong, chúng ta cùng nhau thương nghị."
+- Đến Bảo Bình Châu, trên đường về quê nhớ tránh Chính Dương sơn và thành Thanh Phong. Ta sợ không nhịn được lại đến tổ sư đường họ làm khách.
 
-Thôi Đông Sơn nhẹ nhàng gật đầu.
+- Học sinh nhớ, sẽ nhắc tiên sinh mở một mắt nhắm một mắt.
 
-Trần Bình An mặc niệm một câu trong lòng.
+Sau cùng Trần Bình An nói mọi điều vừa bàn chỉ là dự định. Về nhà còn phải xem tình hình, đến Kỳ Sắc phong sẽ cùng mọi người thương nghị. Hắn thầm nhắc mình, lúc nào cũng ở trong pháp, khắp nơi chẳng có gì ngăn ngại.
 
-Lúc nào cũng ở trong pháp, khắp nơi không có gì đáng ngại.
+Thôi Đông Sơn ghé miệng, thì thầm:
 
-Thôi Đông Sơn đưa tay che ở bên miệng, nhỏ giọng nói thầm: "Tiên sinh, đại sư tỷ vừa rồi muốn nắm tay áo ngươi đó."
+- Tiên sinh, lúc nãy đại sư tỷ muốn nắm tay áo người.
 
-Bùi Tiền mặt đỏ lên, cả giận nói: " ngan trắng!"
+Bùi Tiền đỏ mặt:
 
-Trần Bình An vẻ mặt ý cười, nâng cánh tay lên, run run tay áo, "Chỉ cần cầm lấy."
+- Ngỗng trắng lớn!
 
-Bùi Tiền nào có ý tứ gì, thẹn quá hóa giận, một khuỷu tay đánh vào đầu vai Thôi Đông Sơn, con ngỗng trắng lập tức kêu lên một tiếng đau đớn, bay ngang ra ngoài, không trung xoay tròn vô số vòng, rơi xuống đất quay cuồng lại có bảy tám vòng, nằm thẳng tắp trên mặt đất.
+Trần Bình An mỉm cười, nâng tay giũ nhẹ ống áo:
 
-Trần Bình An hỏi: "Hành động này của Khương Thượng Chân?"
+- Muốn nắm thì cứ nắm.
 
-Thôi Đông Sơn đứng bật dậy, gật đầu nói: "Vân Thảo đường là một khe núi thanh lưu khó có được của Đồng Diệp châu hiện nay, Khương Thượng Chân đại khái là hy vọng Diệp tỷ tỷ của hắn, nhanh chóng lăn lộn quen mặt với Lạc Phách sơn chúng ta, thuận tiện sau này qua lại nhiều hơn. Dù sao đợi đến khi nước chảy đá mòn, chúng ta công khai chọn địa chỉ hạ tông, lấy tính tình thanh cao của Hoàng Y Vân, chưa chắc nguyện ý chủ động dựa vào. Đợi chúng ta ở bên này khai tông lập phái, lúc ấy Bồ Sơn xấp xỉ cũng đã cãi cọ với Kim Đỉnh quan và Bạch Long động, Vân Thảo đường kết minh với chúng ta, hỏa hậu vừa vặn. Khương Thượng Chân khẳng định đoán ra ý tưởng của tiên sinh, bằng không sẽ không vẽ vời thêm chuyện. Chu huynh đệ làm cung phụng, cúi đầu tận tụy, không cần nói."
+Nàng càng ngượng, huých một khuỷu tay vào vai Thôi Đông Sơn. Hắn kêu đau, bay ngang rồi xoay mấy vòng trên không, rơi xuống còn lăn thêm bảy tám vòng, nằm thẳng cẳng.
 
-Bến đò bên này, một chiếc độ thuyền còn đang phiêu đãng ở giữa sông, trừ ba người bọn họ ra không còn người ngoài. Cái này phải quy công cho Khương Thượng Chân vung tiền như rác, đến nay Vân Cấp phong cùng Lão Quân Sơn không ít du khách còn bị chặn ở cửa, không được thông qua Hoàng Hạc Cơ đi tới cảnh điểm khác. Trừ phi có lá gan, có thực lực học Bùi Tiền kia, phá vỡ cấm chế sơn thủy.
+Trần Bình An nhìn hắn:
 
-Kỳ thật trên sông có một cái cầu mây, lúc trước Trình Triêu Lộ có qua lại, chính là qua sông, nếu là tu sĩ tầm thường ở bên Hoàng Hạc Cơ quan sát sông lớn, lại nhìn không rõ ràng, miễn cho gây trở ngại cảnh sắc.
+- Hôm nay Khương Thượng Chân đưa Diệp Vân Vân đến, ngươi nghĩ sao?
 
-Trần Bình An dừng bước ở cửa ra, hiển nhiên là có tính toán đi thuyền qua sông.
+Thôi Đông Sơn bật dậy:
 
-Lúc trước mình và Bùi Tiền, thầy trò hai người trước sau vượt sông, động tĩnh cũng không nhỏ, nước sông cuồn cuộn, làm hại một chiếc thuyền con phập phồng bất định, lão nạp sư chèo thuyền nói nhỏ, quá nửa là ở đó hùng hùng hổ hổ.
+- Vân Thảo Đường là một chỗ thanh sạch hiếm thấy ở Đồng Diệp Châu. Khương Thượng Chân muốn Diệp tỷ tỷ của hắn sớm quen mặt với chúng ta. Đợi hạ tông công bố địa điểm, người thanh cao như Hoàng Y Vân chưa chắc chịu chủ động tìm đến. Đến khi chúng ta lập tông tại đây, Bồ Sơn cũng vừa lúc xích mích với Kim Đỉnh quan và Bạch Long động. Hai bên kết minh là vừa. Khương Thượng Chân hẳn đã đoán được ý tiên sinh nên mới sắp đặt cuộc gặp. Chu huynh đệ làm cung phụng đúng là tận tâm.
 
-Cho nên Trần Bình An muốn chính miệng nói một tiếng xin lỗi. Cái này cùng với lão hán chèo thuyền kiếm tiền ở đây, cảnh giới gì, có thể là cao nhân ẩn sĩ thích làm ngư dân ngâm hay không, không có quan hệ.
+Trên sông vẫn có chiếc thuyền con đưa khách. Nhờ Khương Thượng Chân vung tiền, nhiều du khách ở Vân Cấp phong và Lão Quân sơn còn bị chặn ngoài cửa, chưa được qua Hoàng Hạc Ki. Muốn tự vượt cấm chế như Bùi Tiền phải có bản lĩnh và gan dạ. Sông thật ra có một cây cầu mây, Trình Triêu Lộ từng qua đó, nhưng từ chỗ ngắm cảnh người ta khó nhìn thấy nó, để khỏi làm hỏng cảnh sắc.
 
-Trần Bình An đang chờ đợi thời điểm độ thuyền tới gần, nói với Bùi Tiền đang yên lặng đứng bên cạnh: "Trước kia bảo ngươi không nóng nảy trưởng thành, là sư phụ có đủ loại sầu lo của mình, nhưng đã trưởng thành, hơn nữa còn chịu không ít đau khổ, lớn lên như vậy, thật ra chính là trưởng thành, ngươi không cần suy nghĩ nhiều cái gì, bởi vì sư phụ chính là một đường đi tới như vậy. Huống chi ở trong mắt sư phụ, ngươi đại khái vĩnh viễn cũng chỉ là đứa nhỏ."
+Trần Bình An dừng ở bến, chờ thuyền. Khi hắn và Bùi Tiền lần lượt vượt sông, sóng nổi dữ dội làm chiếc thuyền nhỏ chao đảo. Ông lão chèo thuyền khi ấy có lẽ đã mắng thầm. Hắn muốn chính miệng xin lỗi. Ông lão có phải cao nhân ẩn cư, cảnh giới cao thấp ra sao, đều chẳng liên quan đến lời xin lỗi ấy.
 
-Bùi Tiền ừ một tiếng, nhỏ giọng nói: "Sư phụ có mặt, thì đều tốt, sẽ không sợ nữa."
+Trong lúc chờ, hắn nói với Bùi Tiền:
 
-Trần Bình An xoay người, đưa bàn tay ra dấu hai cái, một là chiều cao của Bùi Tiền năm đó thầy trò ly biệt, một là vóc dáng Bùi Tiền trong lòng Trần Bình An cho rằng khi gặp lại, còn chưa tới đầu vai Bùi Tiền hôm nay, cười nói: "Nói đi nói lại, thật ra biên giới trong lòng sư phụ vẫn rất mất mát, lập tức lao nhanh như vậy, sư phụ luôn cảm thấy chưa chiếu cố tốt cho ngươi, về sau đều phải bổ sung, đúng rồi, mấy năm nay chép sách chưa rơi xuống nhỉ?"
+- Trước kia sư phụ bảo con đừng vội lớn, là vì ta có những nỗi lo riêng. Bây giờ con đã trưởng thành, đã chịu nhiều cực khổ. Trưởng thành như thế cũng là trưởng thành, con đừng nghĩ nhiều. Sư phụ cũng đi qua con đường ấy. Dẫu sao trong mắt ta, con có lẽ vẫn luôn là đứa nhỏ.
 
-Bùi Tiền nhoẻn miệng cười nói: "Không đâu."
+Bùi Tiền khẽ đáp:
 
-Trần Bình An nghĩ nghĩ, "Về phần áp cảnh cho quyền, thì thôi đi. Sư phụ lúc trước phá cảnh không bao lâu, đã trúng một quyền rất mạnh, bị thương không nhẹ, ngươi xem Hoàng Y Vân và sư phụ hỏi quyền, cũng không dám đáp ứng đúng không?"
+- Có sư phụ ở đây, chuyện gì cũng ổn. Con không sợ nữa.
 
-Vẻ mặt Bùi Tiền đau khổ, nhưng trong mắt lại cố nén cười.
+Trần Bình An giơ tay ước lượng độ cao của nàng lúc hai thầy trò chia tay, rồi lại ước lượng vóc dáng hắn từng tưởng khi gặp lại. Cả hai đều thấp hơn nàng bây giờ. Hắn cười, giọng có chút tiếc nuối:
 
-Trần Bình An vươn ngón tay cái, lau đi nước mắt nơi khóe mắt không biết của Bùi Tiền, nhẹ giọng nói: "Còn thích khóc nhè, thật ra giống như lúc còn nhỏ."
+- Con cao nhanh quá. Ta cứ thấy mình chưa chăm sóc con đủ, sau này phải bù lại. À, mấy năm qua con có bỏ chép sách không?
 
-Thôi Đông Sơn ở một bên ai oán nói: "Tiên sinh, học sinh thật ra cũng có nhiều nước mắt chua xót, cũng có thể chân thành chiếu ánh trăng trong lòng bàn tay."
+- Không ạ.
 
-"Cút."
+- Còn chuyện đè cảnh giới hỏi quyền thì thôi. Sư phụ mới phá cảnh đã ăn một quyền rất nặng, thương tích chẳng nhẹ. Con thấy Hoàng Y Vân đến hỏi quyền mà sư phụ cũng đâu dám đáp ứng.
 
-"Được rồi."
+Bùi Tiền làm vẻ khổ sở nhưng khóe mắt cố giấu ý cười. Trần Bình An đưa ngón tay lau giọt nước nơi khóe mắt nàng:
 
-Độ thuyền cũng chưa thật sự cập bờ, lão hán chèo thuyền lấy trúc liễn trong tay chống đỡ cửa ra, để độ thuyền cách bến đò một khoảng, tức giận nói: "Đi thuyền qua sông, mỗi người một đồng Tuyết Hoa tiền, khách quan không nỡ móc ra tiền oan uổng này sao?"
+- Vẫn hay khóc nhè, giống hệt hồi nhỏ.
 
-Trần Bình An ôm quyền nói: "Lúc trước hành động vô lễ, xin lỗi lão tiên sinh. Ngôn ngữ thành ý không đủ, vậy thì tiêu tiền quyền coi như bồi tội."
+Thôi Đông Sơn ở bên cạnh than:
 
-Bùi Tiền đi theo sư phụ ôm quyền tạ lỗi, chỉ là nó xa xa không bằng tiên sinh biết nói chuyện, chưa mở miệng.
+- Tiên sinh, học sinh cũng có nhiều nước mắt chua xót. Có thể soi cả vầng trăng trong lòng bàn tay đấy.
 
-Lão hán chèo thuyền lập tức tươi cười rạng rỡ, nhanh chóng buông trúc liễn ra, thuyền nhẹ nhàng đụng vào cửa ra, "Con đường kiếm tiền của Khương thị quá đen tối, đã có cầu mây trên sông, còn không có lương tâm để cho ta đưa đò chèo thuyền, nếu không phải ăn nhờ ở đậu, có quy củ, bằng không hôm nay qua sông, sẽ không để khách quan xuất tiền túi."
+- Cút.
 
-Trần Bình An cho ba đồng Tuyết Hoa tiền, lão hán thu vào trong tay áo, xoay đầu thuyền, nghiêng người cập bờ, lão nhân đứng ở đầu thuyền nhỏ bên kia.
+- Vâng.
 
-Ba người lên thuyền, Trần Bình An ngồi ở đầu thuyền bên kia, Bùi Tiền và sư phụ đứng song song, hai tay nắm tay nhẹ đặt lên đầu gối, Thôi Đông Sơn một mình ngồi ở giữa thuyền nhỏ, vứt một tay áo vào nước, giống như đang dùng tay áo câu cá.
+Thuyền còn chưa cập bến, ông lão chèo thuyền đã chống sào tre giữ thuyền cách bờ một đoạn, bực dọc hỏi:
 
-Thuyền nhỏ chậm rãi tới giữa sông.
+- Đi thuyền qua sông, mỗi người một đồng tiền tuyết hoa. Các vị không nỡ bỏ khoản tiền oan này sao?
 
-Lão nạp sư đột nhiên quay đầu nói: "Khách nhân nhìn giống như là một vị người đọc sách bụng đầy thi thư, thứ cho ta mạo muội, xin hỏi cái gì gọi là tham thiền?"
+Trần Bình An ôm quyền:
 
-Trần Bình An cười nói: "Hỏi cái phật tâm là cái gì, không biết tức là tham thiền."
+- Lúc trước chúng ta vô ý gây sóng, thất lễ với lão tiên sinh. Xin nhận lời tạ lỗi. Chỉ nói suông chưa đủ thành ý, nên lần này chúng ta trả tiền qua sông.
 
-Lão nạp sư cẩn thận nhấm nuốt một phen, gật đầu tán thưởng nói: "Phu tử đã học vấn đại học như vậy, lời này có chân ý. Lão đầu nhi ta ở đây chèo thuyền nhiều năm, hỏi nhiều người đọc sách, cũng không đưa ra được đáp án dễ dàng như vậy của phu tử."
+Bùi Tiền cũng ôm quyền. Ông lão liền đổi sang tươi cười, đưa thuyền cập bờ. Ông than nhà Khương kiếm tiền thật đen. Có cầu mây mà còn bắt ông đưa đò thu phí. Nếu chẳng phải ăn nhờ ở đậu, phải theo quy củ, chuyến này ông chẳng thu tiền.
 
-Có câu hỏi này, là tâm động ý niệm, bởi vậy muốn đi là tu hành, tự giác không biết là tâm định, nếu có thể lấy nó để tay lên ngực hỏi không ngừng, đó là dần dần đi tu Phật đi Linh Sơn, cuối cùng lòng có linh sơn cầu không xa, không cầu ngoài.
+Trần Bình An trả ba đồng tiền tuyết hoa. Ông lão cất vào tay áo, xoay thuyền cho ba người lên. Trần Bình An ngồi đầu thuyền, Bùi Tiền ngồi cạnh sư phụ, hai tay đặt lên gối. Thôi Đông Sơn ngồi riêng giữa thuyền, thả một ống tay áo xuống nước như đang câu cá.
 
-Trần Bình An bồi thêm một câu, "Là đáp án ta cùng thánh hiền trên sách mượn đến."
+Ông lão đứng ở đầu thuyền bên kia, tay cầm sào tre. Được tiền rồi, ông thong thả chống thuyền qua sông.
 
-Thôi Đông Sơn vội ngẩng đầu, làm sáng tỏ: "Đừng đừng đừng đừng, từ cổ thư không có câu này, rõ ràng là suy nghĩ trong lòng tiên sinh ta. Tiên sinh cần gì khiêm nhường."
+Đến giữa sông, ông lão bất chợt quay đầu:
 
-Lão nạp sư gật đầu nói: "Ta tin tưởng là đáp án phu tử tự mình suy nghĩ ra, trong lòng sớm có đáp án này, chỉ chờ tối nay hỏi câu này."
+- Khách quan trông như người đọc nhiều sách. Cho lão mạo muội hỏi, thế nào là tham thiền?
 
-Trần Bình An cười nói: "Ta tên Tào Mạt, lão tiền bối trực tiếp gọi tên ta là được."
+Trần Bình An cười:
 
-Lão nạp sư lắc đầu nói: "Học không lớn nhỏ, người giỏi làm tiên, phu tử quả thật không cần khiêm nhường như thế. Nhưng mà phu tử có một cái tên hay, nổi danh nhất thế gian "Tào Mạt", vốn là người đầu tiên được liệt vào hàng thích khách, mấu chốt là có thể trước thua sau thắng, tính dẻo dai mười phần. Phu tử nếu cùng tên trùng họ với người này, tin tưởng thành tựu sau này, chỉ cao không thấp."
+- Hỏi Phật tâm là gì. Biết mình chưa hiểu, ấy là tham thiền.
 
-Trần Bình An vội vàng ngoài miệng nói không dám nghĩ không dám nghĩ, vụng trộm liếc Thôi Đông Sơn, Thôi Đông Sơn lập tức trả lại ánh mắt, ý bảo tiên sinh nghĩ nhiều.
+Ông lão ngẫm một hồi, gật đầu khen câu ấy có chân ý. Ông chèo đò ở đây nhiều năm, cũng đã hỏi không ít người đọc sách, ít ai đáp vừa giản dị vừa sáng rõ như vậy. Có câu hỏi trong lòng là khởi niệm. Muốn tìm đáp án là bước vào tu hành. Tự biết mình chưa hiểu là định được tâm. Cứ thế hỏi lòng mình mãi, đường đến Linh Sơn không còn xa, cũng chẳng phải tìm bên ngoài.
 
-Trần Bình An nhẹ nhàng thở ra, thiếu chút nữa lầm tưởng lão hán chèo thuyền trước mắt chính là Tào Mạt kia, chẳng phải xấu hổ.
+Trần Bình An nói thêm:
 
-"Có người từ quan về quê cũ, có người đi khoa trường ban đêm. Nhân sinh bận rộn không ngừng nghỉ, tội gì phải thế."
+- Ta mượn ý của thánh hiền trong sách thôi.
 
-Lão nạp sư tự mình cảm khái một phen, nhịn không được lại quay đầu hỏi, "Phu tử có biết cuộc đời mười sáu phần tâm sự của Tô tiên không?"
+Thôi Đông Sơn ngẩng phắt đầu:
 
-Trần Bình An gật đầu nói: "Đêm trăng dắt bạn đi thuyền dưới vách núi, gió mát thổi nhẹ, sóng nước không nổi, là chuyện vui cảnh đẹp nhất của Tô Tử."
+- Không đúng, trong cổ thư không có câu ấy. Rõ ràng là điều tiên sinh tự nghĩ ra, cần gì khiêm nhường?
 
-Lão nạp sư dùng sức khởi động một cây trâm, một chiếc thuyền con ở trong nước thế đi hơi nhanh, "Tô tiên phóng khoáng, ta trái lại cảm thấy mười sáu chuyện Lương thần cảnh đẹp, cũng so ra kém cái "Hôm nay vô sự"."
+Ông lão cũng tin câu trả lời đã có sẵn trong lòng Trần Bình An, chỉ chờ có người đặt câu hỏi. Trần Bình An giới thiệu mình tên Tào Mạt, bảo ông cứ gọi bằng tên. Ông lão lại lắc đầu:
 
-Trần Bình An cười nói: "Lão tiên sinh nói rất đúng, chẳng qua đạo ở mái ngói, bận rộn là tu hành, nghỉ ngơi là tu tâm, một ngày có tiến cảnh một ngày. Nói đi cũng phải nói lại, nếu có thể để cho hôm nay lúc bận rộn biến thành hôm nay không có việc gì, thì là trong đạo tâm đều tu đạo, ta chính là một chân nhân trên mặt đất."
+- Học không kể già trẻ, người giỏi thì làm thầy. Phu tử khỏi khiêm nhường. Tên ngươi cũng hay. Tào Mạt xưa kia được xếp đầu hàng thích khách, đã thua vẫn giành lại được phần thắng. Người cùng tên họ với ông ta hẳn sau này cũng chẳng kém.
 
-Lão nạp sư nhẹ nhàng chống liễn chèo thuyền, gợn sóng từng trận, thuyền nhỏ phiêu diêu, "Lời này của phu tử thật tuyệt diệu. Toàn bộ Kim Đan khách cùng lục địa thần tiên, đều nên nghe một chút lời này của phu tử, trong nhân tâm nóng bức nóng bức, có thể được một liều mát mẻ."
+Trần Bình An vội xua tay, lén nhìn Thôi Đông Sơn. Học trò đưa mắt bảo hắn đừng nghĩ nhiều. Hắn mới nhẹ nhõm, vừa rồi còn sợ người chèo thuyền chính là Tào Mạt trong chuyện xưa, nếu thế thật quá xấu hổ.
 
-Trần Bình An chắp tay cười nói: "Lão tiên sinh quá lời rồi."
+Ông lão ngâm rằng có người từ quan về quê, có người đêm xuống đi ứng thí, đời người cứ bận mãi làm gì. Rồi ông hỏi thêm trong mười sáu chuyện tâm đắc của Tô tiên [?], Trần Bình An thích chuyện nào. Hắn nhắc đêm trăng cùng bằng hữu chèo thuyền dưới vách đá, gió mát, sóng yên. Ông lão lại cho rằng cả mười sáu cảnh đẹp ấy cũng chẳng bằng bốn chữ "hôm nay vô sự".
 
-Bùi Tiền chỉ không nói một lời, nó ngồi ở bên cạnh sư phụ, gió mát thổi vào mặt, trăng sáng trên trời lấp lánh, Bùi Tiền nghe tiên sinh nói chuyện với người ngoài, nó tâm cảnh tường hòa, thần ý trong vắt, cả người đều dần dần thả lỏng. Bảo Bình châu, Bắc Câu Lô châu, Ngai Ngai châu, Trung Thổ Thần Châu, Kim Giáp Châu, Đồng Diệp Châu. Cô gái trẻ tuổi đã một mình đi qua sáu châu sơn hà võ phu, khẽ nhắm mắt, như ngủ mà không ngủ, tựa như rốt cuộc có thể an tâm nghỉ ngơi một lát, quyền ý lặng lẽ hợp với thiên địa.
+Ông chống sào mạnh hơn, thuyền lao nhanh một đoạn. Những chuyện Tô tiên xem là cảnh đẹp trong đời, ông đều không sánh bằng một ngày "hôm nay vô sự".
 
-Đến bến bờ bên kia, Trần Bình An cùng Bùi Tiền rời thuyền lên bờ, Thôi Đông Sơn lại nói chưa đã ghiền, lại đi tới đi lui một chuyến độ thuyền, bảo tiên sinh chờ hắn một lát.
+Trần Bình An đáp:
 
-Trần Bình An và Bùi Tiền tản bộ bờ sông.
+- Lão tiên sinh nói phải. Đạo ở ngay dưới mái ngói. Bận là tu hành, nghỉ là tu tâm, mỗi ngày tiến thêm một chút. Nếu đang bận mà lòng vẫn được như hôm nay vô sự, thì tu đạo và tu tâm cùng đi. Khi ấy ta cũng xem như một chân nhân giữa nhân gian.
 
-Lão khoa sư kia cười ha ha tiếp nhận hai đồng Tuyết Hoa tiền, Thôi Đông Sơn đứng ở một bên đầu thuyền, cợt nhả nói: "Thường đi bờ sông, cẩn thận tiền phỏng tay."
+Ông lão nhẹ chống sào, thuyền dập dềnh giữa sóng nhỏ. Ông khen lời ấy đủ làm mát lòng khách Kim Đan lẫn thần tiên trên đất. Trần Bình An chắp tay, nói ông quá khen.
 
-Lão nạp sư giống như chưa nghe hiểu thiếu niên áo trắng nói những lời khó nghe, chỉ để ý chèo thuyền kiếm tiền, đi hướng bến đò Hoàng Hạc Cơ bên kia.
+Bùi Tiền im lặng ngồi cạnh sư phụ, để gió mát lướt qua mặt, nghe hắn trò chuyện với người ngoài dưới trăng. Nàng đã một mình đi qua núi sông sáu châu, từ Bảo Bình đến Bắc Câu Lô, Ngai Ngai, Trung Thổ, Kim Giáp rồi Đồng Diệp. Lúc này tâm nàng bỗng yên, quyền ý lặng lẽ hòa vào trời đất. Nàng khép mắt, tựa ngủ mà không ngủ, cuối cùng có thể an tâm nghỉ một lát.
 
-Thôi Đông Sơn nhảy bắn một cái, nhẹ nhàng giẫm ở trên lan can thuyền, hai tay chắp sau, chậm rãi đi, "Năm đó trên ngôi sao tên Cao, hôm nay thân đọa xuống trong chướng khí hải. Thanh Ngưu một mình yết kiến ngọc liễn, lại giữ lại hoàng hạc thủ kim đan."
+Thuyền cập bờ. Trần Bình An cùng Bùi Tiền lên bến. Thôi Đông Sơn bảo hai người đợi mình, còn muốn đi thêm một chuyến khứ hồi. Ông lão vui vẻ nhận thêm hai đồng tiền tuyết hoa. Thôi Đông Sơn đứng ở đầu thuyền, cười nhắc:
 
-Lão triện sư ngoảnh mặt làm ngơ.
+- Thường đi ven sông, coi chừng tiền cầm trong tay cũng nóng.
 
-Thôi Đông Sơn lại cười nói: "Thường thì cưỡi ngựa gỗ trong bắc đấu tinh, đông sơn lại lên nước chống thuyền."
+Ông lão như chẳng nghe hiểu, chỉ cúi đầu chèo về Hoàng Hạc Ki. Thôi Đông Sơn nhảy lên lan can thuyền, vừa thong thả bước vừa ngâm mấy câu về sao Bắc Đẩu, biển chướng khí, thanh ngưu và hoàng hạc. Ông lão vẫn làm ngơ. Hắn lại ngâm câu cưỡi ngựa gỗ trong Bắc Đẩu, Đông Sơn lên nước chống thuyền [?]. Ông lão bèn đáp lại một câu về tinh quân mời rượu lão long [?].
 
-Lão nạp sư liếc mắt nhìn thiếu niên tuấn mỹ kia, cười nói: "Tinh quân uống rượu ngon, khuyên Long nhất nhất ngẩn."
+Hai người đã nói toạc chút gốc gác của nhau, nhưng vẫn chừa đường lui. Ông lão dùng tên giả Nghê Nguyên Trâm [?], có duyên sâu với Quan Đạo Quan tại Đông Hải. Thân phận của ông liên quan đến tiên hạc từng đến sao Bắc Đẩu, rồi để lại một viên kim đan nơi nhân gian. Ông thì nhìn ra thân xác Thôi Đông Sơn mang lai lịch lão long nước Thục, từng được Bắc Đẩu tiên quân mời rượu. Cả hai chỉ đang nói về lớp thân xác cổ xưa, vậy mà nếu tính từ thượng cổ, có lẽ cũng xem như nửa bằng hữu cũ.
 
-Từng người nói toạc ra nền móng của đối phương, chỉ là đều chừa lại đường lui, chỉ nói một phần căn bản của đại đạo.
+Thôi Đông Sơn cười lạnh:
 
-Thôi Đông Sơn nói vị lão hán chèo thuyền dùng tên giả Nghê Nguyên trâm ở Vân Quật Phúc Địa này, có quan hệ sâu xa với Đông Hải Quan đạo quan, là tiên gia hoàng hạc năm đó từng đi xa bắc đấu tinh thần, cuối cùng lưu thủ nhân gian một viên Kim Đan.
+- Ngươi có biết Ngẫu Hoa phúc địa từng có một nữ tử tên Tùy Hữu Biên, cả đời muốn theo phu tử lên thiên đài, cùng tiên nhân quét hoa rơi không? Nếu nàng biết tiên sinh mình từng có kiếm thuật chỉ thiếu nửa bước là phi thăng khỏi phúc địa, giờ lại khoác áo hạc chèo đò kiếm vài đồng tiền, còn phải gọi khách là phu tử, nàng sẽ đau lòng đến mức nào? Nàng đã rời phúc địa, từng tu hành ở Thần Khuyết phong Ngọc Khuê tông nhiều năm. Hai người vẫn chưa gặp nhau? Hay lão quan chủ bảo ngươi ở đây chờ nàng kết đan?
 
-Mà lão hán chèo thuyền thì một câu nói toạc ra xuất xứ của túi da Thôi Đông Sơn này, từng là một lão long của Thục quốc năm đó, có thể phi thăng tinh hà, may mắn được Bắc Đấu tiên quân mời rượu.
+Ông lão thở dài:
 
-Chỉ là lời nói đến, chỉ là mỗi người đều có một bộ túi da, đều rất năm tháng lâu đời, thời đại viễn cổ, đoán chừng còn có thể tính là nửa "Bạn cũ đạo hữu".
+- Biết rồi thà chẳng biết.
 
-Thôi Đông Sơn cười khẩy nói: "Vậy ngươi có biết hay không, Ngẫu Hoa phúc địa từng có một nữ tử tên là Tùy Hữu Biên, tâm nguyện cả đời, là nguyện theo phu tử lên thiên đài, nhàn nhã quét hoa rơi cùng tiên nhân? Nếu bị nàng biết, tiên sinh nhà mình từng có kiếm thuật thần thông kia, chỉ thiếu nửa bước là có thể trở thành người đầu tiên trong phúc địa phi thăng, hôm nay lại phải mặc một chiếc vũ y hạc kêu to buồn cười, khi người khác mỗi ngày đưa đò kiếm mấy đồng Tuyết Hoa tiền, còn phải xưng hô người khác một tiếng phu tử, sẽ để cho đệ tử như nàng tổn thương tâm can? Vậy ngươi có biết, thật ra Tùy Hữu Biên cũng rời khỏi phúc địa, thậm chí còn làm tu sĩ Thần Khuyết phong Ngọc Khuê Tông nhiều năm? Hai người các ngươi còn chưa gặp mặt? Chẳng lẽ lão quan chủ không phải bảo ngươi ở chỗ này chờ nàng kết đan?"
+Ông từng để lại tích "Giang Hoài trảm muỗi". Con muỗi ấy thật ra là yêu vật Ngọc Phác cảnh, chuyên âm thầm ăn trộm linh khí trời đất, gần như không để lại dấu vết. Khương Thượng Chân khi ấy đã là Ngọc Phác mà phải mất bao công mới tìm thấy. Hai lần hắn đều không giết được nó, hệt như người đứng bờ muốn ném đá trúng con muỗi trong kẽ nước. Ông lão chưa hẳn có cảnh giới hay kiếm thuật cao hơn Khương Thượng Chân, nhưng thần thông riêng của ông khắc chế yêu vật ấy. Dẫu vậy, một kiếm chém muỗi trên sông vẫn là việc kiếm tiên Ngọc Phác bình thường khó làm.
 
-Lão hán chèo thuyền than thở một tiếng, "Biết rồi không bằng không biết."
+Lúc ấy Khương Thượng Chân vừa lên Ngọc Phác, chưa có thanh danh "nhành liễu cũng chém được tiên nhân" [?] về sau. Hắn đã dốc sức truy tìm loài thiên địa liêm tặc [?] ấy mà hai lần không thành. Ông lão nắm một đạo thần thông vừa đúng khắc chế nó, nhưng tìm được cơ hội rồi ra nổi một kiếm giết nó vẫn là bản lĩnh thực sự. Bởi vậy, tích xưa không chỉ nhằm kể chuyện một kiếm tiên có vận may gặp đối thủ hợp tay.
 
-Lưu lại một sự tích tiên nhân "Giang Hoài trảm muỗi", chính là người chống đỡ cơn giận lúc này.
+Nếu ông không phải người từ Quan Đạo Quan trong Ngẫu Hoa phúc địa, lại không phải vị tiên sinh mà Tùy Hữu Biên nhớ mãi, Thôi Đông Sơn cũng mặc ông giấu tên ở đây chèo đò thêm vạn năm. Nhưng ông vừa dùng lời thử Trần Bình An, hắn không thể bỏ qua. Chuyện từ quan về quê, chuyện thích khách Tào Mạt, nghe như nói chơi mà đều chứa mũi nhọn. Tiên sinh rộng lượng, gặp rồi tan là được. Hắn làm học trò lại chẳng muốn để một lão mưu sĩ thử tới thử lui.
 
-Trảm ruồi muỗi tự nhiên không phải vật tầm thường, mà là một yêu vật Ngọc Phác cảnh có thể lặng lẽ ăn vụng thiên địa linh khí, con thiên địa liêm tặc này hầu như không có dấu vết để tìm, đã từng thiếu chút nữa khiến Khương Thượng Chân sứt đầu mẻ trán, chỉ là tìm kiếm tung tích, đã mất sức lực chín trâu hai hổ, lúc ấy Khương Thượng Chân tuy nói đã tễ thân Ngọc Phác cảnh, nhưng vẫn chưa thắng được một mảnh danh dự "nh liễu, có thể trảm tiên nhân", Khương Thượng Chân hai lần đều không thể chém giết con " muỗi" kia, độ khó to lớn, tựa như phàm phu tục tử đứng ở trên bờ, lấy cục đá trong tay đập ruồi muỗi bên trong khe nước.
+Viên kim đan lão quan chủ để ông giữ cũng đâu phải vật tầm thường. Nó là di vật của tổ tiên tiên hạc viễn cổ, cất trong vách đá Hoàng Hạc Ki. Thôi Đông Sơn cười nhạo:
 
-Mà lão hán chèo thuyền này, lúc ấy cũng không phải cảnh giới, kiếm thuật cao hơn Khương Thượng Chân, chỉ có điều một đạo thần thông độc môn phối hợp với kiếm thuật, vừa vặn khắc chế yêu vật Ngọc Phác cảnh đến vô ảnh đi vô tung kia.
+- Sao Bắc Đẩu trên cao, tiên sinh ta đêm mang đao [?]. Cẩn thận người chém ngươi gần chết.
 
-Nhưng cuối cùng có thể một kiếm chém muỗi trên sông, vẫn không phải là hành động vĩ đại Ngọc Phác Cảnh Kiếm Tiên tầm thường có thể làm được.
+Ông lão chỉ cười:
 
-Nếu không phải người này xuất thân từ Quan Đạo Quan Ngẫu Hoa phúc địa, lại là vị phu tử tiên sinh Tùy Hữu Biên nhớ mãi không quên kia, Thôi Đông Sơn mới mặc kệ, mai danh ẩn tích ở đây, bừa bãi vô danh chèo thuyền vạn năm đều theo hắn đi. Hơn nữa vừa rồi người này lại cố ý lấy lời nói thử tiên sinh nhà mình, Thôi Đông Sơn càng không nhịn được. Cái gì từ quan về quê, cái gì thích khách hàng ngũ, trên thực tế, tất cả đều là đấu cơ ngầm chứa huyền cơ. Tiên sinh rộng lượng, có thể hoàn toàn không thèm để ý, gặp nhau là duyên, gặp nhau rồi tan, nhưng làm học sinh, sao có thể dễ dàng tha thứ một lão mưu sư nói hươu nói vượn ở bên kia.
+- Không thù không oán. Vị phu tử ấy đâu phải ngươi, sẽ không vô cớ đả thương người.
 
-Mấu chốt là vị lão quan chủ kia lưu lại Kim Đan "bảo vệ Kim Đan" của người này, cũng không phải là vật tầm thường, đang giấu ở vách đá của Hoàng Hạc Ki Lân, là một Kim Đan còn sót lại của một lão tổ tông Tiên Hạc viễn cổ.
+Thôi Đông Sơn xòe bàn tay:
 
-Thôi Đông Sơn cười nhạo nói: "Bắc đẩu thất tinh cao, tiên sinh nhà ta đêm mang đao, cẩn thận chém chết ngươi gần chết."
+- Đừng vòng vo nữa. Đưa kim đan đây, ta chuyển cho đệ tử của ngươi chưa lên Nguyên Anh.
 
-Lão hán chèo thuyền dùng tên giả Nghê Nguyên trâm cười nói: "Không oán không cừu, vị phu tử kia cũng không phải ngươi, sẽ không vô duyên vô cớ ra tay đả thương người."
+- Lão quan chủ bảo ta chờ người hữu duyên. Tùy Hữu Biên gặp ta, ta sẽ thuận thế trao đan. Gần trong gang tấc mà vẫn không gặp thì chỉ có duyên, không có phận. Ngươi đừng ép ta. Đánh thắng thì sao? Ta không trao, ngươi thật sự lấy được à? Một vị Tiên Nhân cảnh đâu đã có thủ đoạn Phi Thăng cảnh. Giết ta thì được gì?
 
-Thôi Đông Sơn vươn một bàn tay, nói: "Hai ta cũng đừng kéo đông kéo tây nữa, lấy Kim Đan ra, ta hỗ trợ chuyển tặng ngươi vị Kim Đan khách đệ tử chưa tễ thân Nguyên Anh kia."
+Ông lão lại nói, cảnh giới cao và quyền cứng thường chỉ phá hỏng cảnh đẹp. Về chuyện ấy, Thôi Đông Sơn còn thua tiên sinh mình xa. Rồi ông nhẹ đưa sào qua nước, cất giọng ngâm mấy câu về sắc núi như mày thiếu nữ, hoa như má người đẹp, mây trắng không ai giẫm, hoa rơi chẳng ai quét. Cứ để tự nhiên là đẹp nhất [?].
 
-Lão hán chèo thuyền cười lắc đầu, "Lão quan chủ lên tiếng, bảo ta ở đây chờ đợi người hữu duyên. Nếu Tùy Hữu Biên có thể gặp mặt ta, ta tự nhiên biết thời biết thế đưa ra Kim Đan. Nhưng nếu gần trong gang tấc, cũng không thể gặp lại, vậy cho dù không phải người hữu duyên gì, nhiều nhất có duyên cũng vô phận, đã có duyên vô phận, càng không tiện cưỡng cầu cái gì. Ngươi cũng đừng làm khó dễ ta. Thật sự muốn đánh một trận, ngươi thắng thì có thể thế nào, ta không đưa Kim Đan, ngươi thật sự có thể lấy đi? Một vị tiên nhân mà thôi, khi nào thủ đoạn thông thiên như phi thăng như thế? Giết được ta thì lại làm sao?"
+Từ bờ bên kia, Trần Bình An đáp lại bằng mấy câu về đường núi hái thuốc và hoa sen tự nở [?]. Ông lão cười vang, ném chiếc sào trúc xanh do tinh túy thủy vận kết thành cho trôi theo sông. Lớp che mắt tan đi. Người giữa thuyền hiện nguyên hình là đạo nhân trung niên, ngoài mặc vũ y thêu hạc, trong khoác đạo bào vàng. Một tay ông vê viên bùn vàng, tay kia nâng bạch ngọc như ý, trên vai có con cóc vàng ba chân.
 
-"Trên đại đạo, tu vi cao, nắm đấm cứng rắn, chẳng qua là đại sát phong cảnh nhiều một chút mà thôi. Ngươi không nhiều bằng tiên sinh nhà ngươi."
+Thôi Đông Sơn lặng lẽ thu chiếc sào vào tay áo. Nó được kết từ những viên thủy đan, đủ giúp Ngẫu Hoa phúc địa xuất hiện thêm một vị thủy thần chính thần với kim thân vững chắc [?].
 
-Lão hán chèo thuyền nhẹ nhàng lấy trúc nghiên múc nước, cười lớn một tiếng, "Sơn sắc như nga, hoa sắc như gò má. Không sơn không người, nước hoa nở. Mây trắng không người giẫm, hoa rơi không người quét, như thế tự nhiên nhất."
+Đạo nhân cất viên kim đan, nói với Trần Bình An một câu "hữu duyên gặp lại", rồi biến mất như tiên nhân thi giải. Chiếc áo hạc rơi xuống thuyền, Thôi Đông Sơn lại đành thu giúp, giữ hộ mấy trăm hay mấy nghìn năm cũng chưa biết.
 
-Trên bờ bên kia, Trần Bình An nghe vậy, cười nói: "Xuân Sơn hái thuốc còn, chuyến này đường đi khó. Khi hoa sen không rơi, hoa như hoa tự nở."
+Bùi Tiền đứng trên bờ khẽ hỏi:
 
-Lão hán chèo thuyền cao giọng cười to, ném cây trâm trúc xanh tươi dùng thủy vận tinh túy trong tay ngưng tụ thành, tùy ý trôi theo dòng nước, chỉ thấy vị thế ngoại cao nhân này thu lại Chướng Nhãn pháp, mặc một bộ vũ y chim hạc xoay quanh người, thích nói Phật gia ngữ với người khác, bên trong chiếc áo choàng hạc kia lại mặc một bộ đạo bào màu vàng.
+- Sư phụ, người nhìn một cái đã biết lai lịch ông chèo thuyền ấy?
 
-Đạo nhân trung niên, một tay vân vê viên bùn hoàn màu vàng, tay phải nâng bạch ngọc như ý, đầu vai ngồi xổm một con cóc ba chân toàn thân màu vàng kim.
+- Không. Ta lên thuyền chỉ để xin lỗi. Lúc trước đi đến đình ngắm cảnh, ta có liếc mặt sông. Sóng đã làm thuyền lắc dữ, vậy mà lão tiền bối diễn cảnh khốn đốn cũng chẳng thật lắm. Người là cao nhân ngoài đời, không nỡ diễn đến mức lật thuyền rơi xuống nước thôi.
 
-Thôi Đông Sơn thì lặng lẽ thu cây trúc liễn màu xanh kia vào trong tay áo, vật ấy không tầm thường, tương đương từng viên thủy đan ngưng tụ thành, đủ để Ngẫu Liên phúc địa tự nhiên có thêm một vị chính thần nước sông kim thân ngưng kết.
+Bùi Tiền thán phục sư phụ đi giang hồ lão luyện hơn mình trăm lần. Trần Bình An trở tay gõ đầu nàng một cái. Trong những năm ở Kiếm Khí Trường Thành, hắn nghĩ tới nghĩ lui, vẫn thấy thói tâng bốc trên núi Lạc Phách là do nàng với Thôi Đông Sơn mở đầu.
 
-Đạo nhân sau khi thu hồi viên kim đan kia, nói với Trần Bình An câu ý vị thâm trường "Hữu duyên tái kiến", thân hình chợt lóe rồi biến mất, như thi giải tiên nhân, món hạc cương kia trên người phiêu nhiên rơi xuống ở thuyền.
+Giữa sông, Thôi Đông Sơn nằm sấp nơi mũi thuyền, gọi tiên sinh và đại sư tỷ chờ mình, rồi dùng hai ống tay áo quạt nước đẩy thuyền.
 
-Thôi Đông Sơn đành phải lại hỗ trợ thu hồi món vũ y hạc cương tương đương với tiên nhân di thể, thay bảo quản mấy trăm năm hơn ngàn năm.
+Trên Hoàng Hạc Ki, sau khi ba người rời đi, Khương Thượng Chân quay sang đám người xem náo nhiệt:
 
-Trên bờ, Bùi Tiền nhỏ giọng hỏi: "Sư phụ, có phải sư phụ liếc một cái liền nhìn ra nền móng của người chèo thuyền này hay không?"
+- Tan đi, tan đi.
 
-Trần Bình An cười nói: "Không có chuyện gì, lên thuyền qua sông, chỉ vì xin lỗi. Nhưng lúc trước đi hướng Quan Cảnh đình Hoàng Hạc Ki, sư phụ chỉ là trong lúc vô tình liếc mắt nhìn mặt sông nhiều một chút, nước sông kích động, thuyền nhỏ lắc lư không ngừng, kỹ năng diễn xuất của lão tiền bối lúc đó... Không coi là quá mức xuất thần nhập hóa, lão tiền bối dù sao cũng là vị thế ngoại cao nhân, khinh thường cố ý làm vậy, bằng không lật thuyền rơi xuống nước có gì khó."
+Hình ảnh trong Kính Hoa Thủy Nguyệt của phủ đệ vỏ ốc đã bị hắn và Thôi Đông Sơn lần lượt phong kín từ lúc Bùi Tiền vượt sông, khiến không ít nữ tu tiếc nuối. Thấy lời mình không hiệu nghiệm, hắn đành nhờ Diệp Vân Vân. Nàng ôm quyền một cái, tu sĩ quanh đó lập tức tản như chim vỡ tổ, lần lượt trở vào cấm chế. Thể diện Hoàng Y Vân, họ không dám không cho. Hôm nay tình cờ gặp vị đại tông sư ấy tại Vân Quật phúc địa đã đủ náo nhiệt rồi.
 
-Bùi Tiền lập tức cảm khái nói: "Quả nhiên vẫn là sư phụ quen đi lại giang hồ, so với ta kinh nghiệm lão đạo gấp trăm lần."
+Chỉ có ba người từ phía phủ đệ đi ngược chiều đám đông đến đình ngắm cảnh. Một là Quách Bạch Chỉ, đại đệ tử khai sơn của võ thánh Ngô Thành [?], võ phu Kim Thân cảnh. Một là Tiết Hoài, đệ tử đích truyền của Diệp Vân Vân, võ phu Viễn Du cảnh. Người cuối là nữ tu trẻ mặc váy pháp bào hình long nữ, hậu nhân của huynh trưởng Diệp Vân Vân, tên Diệp Dĩ Nguy [?]. Họ đi chậm, không muốn quấy rầy sơn chủ nói chuyện với bằng hữu.
 
-Trần Bình An trở tay gõ một phát.
+Bồ Sơn có nhiều người vừa học thuật pháp vừa luyện quyền. Đến ngưỡng Kim Thân và Kim Đan, họ mới chọn một đường để dốc sức. Cách tập quyền với những cọc gỗ của Bồ Sơn liên quan tới mấy bức trận đồ tiên gia tổ truyền. Bởi vậy mới có câu, cọc từ trong tranh ra, quyền đi vào trong tranh.
 
-Ở Kiếm Khí Trường Thành bên kia, rất nhiều năm nghĩ tới nghĩ lui, vẫn là cảm thấy bầu không khí Lạc Phách Sơn, chính là bị Bùi Tiền và Thôi Đông Sơn kéo theo xấu hổ.
+Diệp Vân Vân vẫn bực chuyện hỏi quyền, hỏi Khương Thượng Chân:
 
-Trên mặt sông, Thôi Đông Sơn ghé vào đầu thuyền nhỏ, la hét tiên sinh đại sư tỷ chờ ta, dùng hai tay áo dùng sức bơi thuyền.
+- Có phải Tào Mạt mới vào cảnh giới thứ mười, chưa trấn được võ vận nên cảnh giới bất ổn? Nếu thế, ta có thể chờ.
 
-Bên trên Hoàng Hạc Ki, lúc trước sau khi ba người Trần Bình An rời khỏi, Khương Thượng Chân quay đầu nhìn phía những người trong đồng đạo xem náo nhiệt không chê chuyện lớn kia, phất phất tay, "Tản tán, tản đi."
+Khương Thượng Chân chỉ dẫn nàng đến vách đá, đặt tay lên lan can:
 
-Về phần Kính Hoa Thủy Nguyệt của xác tiên phủ Hoàng Hạc Ki ốc, ở nháy mắt Bùi Tiền vượt sông Đăng Cơ, đã bị Thôi Đông Sơn và Khương Thượng Chân trước sau phong cấm, khiến nhiều tiên tử nữ tu ai oán không thôi.
+- Hắn đã từ chối ngươi ba lần rồi.
 
-Khương Thượng Chân phát hiện mình nói chuyện không dùng được, đành phải nói với Diệp Vân Vân: "Diệp tỷ tỷ, ngươi nói câu nào?"
+Thấy nàng ngạc nhiên, hắn kiên nhẫn giải thích. Lần đầu, Trần Bình An khen môn phong Vân Thảo Đường nên không muốn hỏi quyền. Diệp Vân Vân cho đó là lý do không đáng kể, nhưng với hắn thì khác. Lúc này Đồng Diệp Châu đang cần lòng người. Nàng thắng một võ phu phương xa sẽ nâng sĩ khí. Nàng thua, cả châu vừa chịu binh lửa sẽ càng nản. Bồ Sơn vừa tham gia minh ước Đào Diệp, vị đại tông sư của họ sao có thể lập tức bại dưới tay người ngoài? Quyền chủng nàng sáng lập về sau sẽ dựa vào ai để hưng thịnh? Nàng có thể ngồi trong minh ước, chẳng nói chẳng làm, nhưng tuyệt không được thua. Bằng không lời đồn và ác ý sẽ ập tới, quyền cước giỏi mấy cũng không đánh tan nổi lòng người.
 
-Diệp Vân Vân hướng bên kia ôm quyền.
+- Nghe ngươi nói, ta chắc chắn sẽ thua? - Diệp Vân Vân nhíu mày.
 
-Ra ngoài xem náo nhiệt, nhất thời như chim chóc thủy triều tản đi, toàn bộ tu sĩ đi ra khỏi cửa lớn sơn thủy của ốc hộc đàn tràng, rất nhanh đều lui về phủ đệ.
+Nàng không thể phủ nhận mình đến minh ước vì muốn giúp quê hương. Nàng để Kim Đỉnh quan và Bạch Long động chủ trì, ít khi phản đối. Nay muốn hỏi quyền cũng là muốn thiên hạ biết Đồng Diệp Châu ngoài võ thánh Ngô còn có một Hoàng Y Vân.
 
-Mặt mũi của Hoàng Y Vân, phải cho. Không dám không cho.
+Khương Thượng Chân tiếp:
 
-Huống chi có thể ngẫu nhiên gặp được đại tông sư Diệp Vân Vân ở Vân Quật phúc địa, náo nhiệt hôm nay đã không còn tính là nhỏ.
+- Lần thứ hai, hắn bảo hai võ phu cùng Chỉ cảnh so quyền mà chỉ dừng ở mức luận bàn, không phân sinh tử, với hắn chẳng thú vị. Hắn thích hỏi quyền theo hai cách. Hoặc gặp đại tông sư cao hơn mình hai cảnh để rèn quyền, hoặc vào chiến trường giết địch, sống chết thật sự. Một trận giao thủ vừa tầm, hai bên giữ tay, gần như chẳng giúp gì cho võ đạo hắn. Hắn đã trải qua Kiếm Khí Trường Thành. Trong người cùng thế hệ, mấy ai có kinh nghiệm đối địch hơn hắn?
 
-Nhưng từ trong trận pháp Hoàng Hạc Ki Sơn Thủy đi ra ba người, phương hướng cùng mọi người vừa vặn tương phản, đi về hướng Quan Cảnh Đình bên kia.
+Hắn lấy bầu rượu xanh ra, vừa lắc vừa nói:
 
-Lần lượt là đại đệ tử khai sơn của võ thánh Ngô Thiên Thiên Đồng Diệp Châu kia, võ phu Kim Thân cảnh Quách Bạch Chỉ. Võ phu Viễn Du cảnh của Bồ Sơn Vân Thảo Đường, cùng với nữ tu trẻ tuổi mặc pháp bào long nữ váy tương kia, một người là đệ tử đích truyền của Hoàng Y Vân, Tiết Hoài, võ phu bát cảnh, một người là đệ tử Bồ Sơn Diệp thị, lão tổ của nàng, là một vị huynh trưởng của Diệp Vân Vân Vân, nữ tu trẻ tuổi tên là Diệp Miểu. Đệ tử Vân Thảo Đường, hạng người tuấn tú, nhiều thuật pháp võ học kiêm tu, nhưng mà chỉ cần vượt qua hai đại môn ngưỡng của kim thân, Kim Đan, từ đó về sau tu hành, sẽ chỉ chọn một, chuyên môn tu đạo hoặc là tập võ. Sở dĩ như thế, hơn phân nửa cọc gỗ do quyền chủng của Bồ Sơn tạo ra, đều có liên quan với mấy bức trận đồ tiên gia tổ truyền của Bồ Sơn.
+- Lần thứ ba, hắn xưng vãn bối, nói muốn "thỉnh giáo quyền lý". Đó vẫn chẳng phải nhận lời hỏi quyền. Lần đầu hắn nghĩ cho ngươi và Vân Thảo Đường. Lần thứ hai hắn nghĩ cho mình. Võ phu thuần túy học quyền vẫn có thể từ chối người đến hỏi quyền. Lần thứ ba là nhắc, chuyện này quá ba lần thì đừng trách.
 
-Cho nên Bồ Sơn vẫn luôn có cách nói "cọc từ trong tranh đến, quyền đi vào trong tranh".
+Diệp Vân Vân hỏi một võ phu như thế sao vào được Chỉ cảnh. Khương Thượng Chân chỉ cười. Chẳng phải hắn đã ở Chỉ cảnh, còn mang võ vận trên người mà vào cảnh giới thứ mười đó sao?
 
-Chỉ có điều ba người Quách Bạch Chỉ đều đi chậm, không dám gây trở ngại cho Hoàng Y Vân nói chuyện phiếm với bằng hữu.
+Nàng thở dài, thừa nhận Tào Mạt dường như đáng kết giao. Khương Thượng Chân có thể tự hạ mình nói tốt cho người ấy đến thế, hẳn không đơn giản. Nhưng nàng là bậc tiền bối, hỏi quyền bị từ chối mấy lượt, lại nói nặng với đồ đệ Trịnh Tiễn của hắn, trong lòng vẫn có chút uất ức.
 
-Diệp Vân Vân dù là Nê Bồ Tát cũng có vài phần tức giận, "Là Tào Mạt tễ thân thập cảnh không bao lâu, chưa hoàn toàn trấn áp võ vận, cho nên cảnh giới bất ổn? Thật sự là như thế, ta có thể chờ!"
+Nàng đã nghe danh Trịnh Tiễn tại hai chiến trường Kim Giáp Châu và Bảo Bình Châu. Nàng ấy còn lên đầu thành kinh đô Đại Đoan hỏi quyền Tào Từ bốn trận, thua cả bốn. Người ngoài nghe chỉ thấy thua. Võ phu thật sự lại hiểu, Tào Từ tính ôn hòa nhưng đâu đáp ứng bất kỳ ai đến hỏi quyền, huống hồ là bốn trận liên tiếp. Hắn đã xem Trịnh Tiễn là người theo sau võ đạo mình không xa. Diệp Vân Vân hỏi sao người ta vẫn bảo Trịnh Tiễn thuộc mạch Lôi Công miếu ở Ngai Ngai Châu, giờ lại là học trò Tào Mạt. Những lời đồn khác như nàng là sư muội Tào Từ hay đệ tử cuối của Bùi Bôi, Diệp Vân Vân biết đều không đúng.
 
-Khương Thượng Chân cười không nói gì, chỉ dẫn Diệp Vân Vân đi tới bên vách đá, Khương Thượng Chân đưa tay v**t v* lan can bạch ngọc, nhẹ giọng cười nói: "Kỳ thực Tào Mạt đã từ chối ba lần hỏi quyền của ngươi."
+- Sau này tỷ sẽ biết. Tào Mạt rất thú vị, không vội. - Khương Thượng Chân cười.
 
-Diệp Vân Vân nghi hoặc nói: "Ba lần?"
+Diệp Vân Vân hỏi hắn giật dây như vậy có khiến Tào Mạt khó chịu không. Hắn bảo mình đâu phải bà mối. Nàng lạnh nhạt nhắc quan hệ hai người vốn chỉ bình thường, bảo hắn nói chuyện cho đứng đắn. Hắn cười to, bảo được nói lâu với Diệp tỷ tỷ đã là chuyện chẳng bình thường rồi.
 
-Khương Thượng Chân kiên nhẫn giải thích: "Lần đầu tiên là nói Bồ Sơn Vân Thảo Đường môn phong tốt, cho nên Tào Mạt không muốn cùng ngươi luận bàn, theo ý ngươi, cái này có thể không đáng kể lý do, nhưng bạn tốt này của ta, hắn người này, luôn thích nghĩ nhiều hơn so với người bình thường nhiều chút, ví dụ như trong lúc mấu chốt này, Diệp Vân Vân cùng một vị ngoại hương võ phu vấn quyền, thắng còn dễ nói, khẳng định có thể khiến cho Đồng Diệp Châu trên dưới núi, tăng thêm vài phần sĩ khí. Nhưng nếu võ đạo đệ nhị nhân một châu Hoàng Y Vân đều thua, đối với người vốn đã nát bét lòng như bùn nhão, sẽ là họa thêm sương trên trời dưới đất., Nhất là bồ phiến vân thảo đường, chân trước vừa mới ký kết minh ước Đào Diệp, chân sau Hoàng Y Vân đã thua bởi một võ phu ngoại hương, có đúng không? Từ ngươi khai sáng ra quyền chủng Bồ Sơn, còn phát dương quang đại như thế nào? Một Hoàng Y Vân, có thể ngồi ở trên ghế đào diệp chi minh, cái gì cũng không nói, cái gì cũng không làm, nhưng mà tuyệt đối không thể thua. Bằng không cứ chờ đi, trong một đêm, sẽ có cây đổ bầy khỉ tan, bên ngoài không biết có bao nhiêu lời nói nhảm, che trời lấp đất tuôn hướng Bồ Sơn cùng Hoàng Y Vân, đến lúc đó công phu quyền cước của ngươi cao tới đâu, đều không ngăn được một phần "Quyền ý" phong ba hiểm ác nhân tâm mãnh liệt kia."
+Ba người kia đang tới gần, Khương Thượng Chân thôi nói bằng tiếng lòng, dựa lan can nhấp rượu. Tiết Hoài ôm quyền gọi sư phụ. Ông là võ phu bát cảnh, gầy gò, phong thái nho nhã, nếu không biết thân phận có khi người ta tưởng ông là bậc trưởng bối của Hoàng Y Vân. Nữ tu trẻ nắm cánh tay Diệp Vân Vân gọi "tổ sư nãi nãi", rồi bị nàng nhẹ gõ tay nhắc buông ra. Quách Bạch Chỉ cũng chắp tay chào tiền bối. Diệp Vân Vân trước nay làm gia chủ Diệp thị lẫn tổ sư Vân Thảo Đường đều nghiêm, song vẫn gật đầu đáp lễ.
 
-Diệp Vân Vân nhíu mày nói: "Nghe khẩu khí của ngươi, là ta sẽ thua?"
+Quách Bạch Chỉ ngoài hai mươi đã vào Kim Thân cảnh, từng hai lần lấy danh hiệu mạnh nhất [?]. Cứ giữ đà ấy, hắn có thể lên Sơn Điên cảnh trước năm mươi. Một mạch võ học chỉ có hai thầy trò mà thầy là đại tông sư Chỉ cảnh, trò có triển vọng lên đỉnh, đủ khiến thiên hạ kinh ngạc. Nhìn người thu đồ đệ, ai cũng phải phục vị võ thánh họ Ngô. Bồ Sơn của Diệp Vân Vân thì khác. Nàng thu hơn mười đích truyền, rồi môn nhân tiếp tục thu đồ, người tập võ trong núi lên đến mấy trăm, nhưng chưa ai vào Sơn Điên. Ngay Tiết Hoài, người tư chất tốt nhất, cần cù nhất, cũng khó vượt qua bình cảnh Viễn Du, nói gì đến lật trời bằng quyền để lên Chỉ cảnh.
 
-Nhưng nàng không thể không thừa nhận, mình quả thật rất muốn nói một hai câu cho Đồng Diệp tông, cho nên lúc trước mới tham dự minh ước Lá Đào, lại không để ý đại quyền bàng lạc, tùy ý Kim Đỉnh quan và Bạch Long động chủ trì đại cục, nàng hầu như chưa từng có dị nghị, chỉ để ý gật đầu. Còn hôm nay, mới có thể muốn vấn quyền với người ta như thế, quả thật muốn chứng minh một chuyện với Hạo Nhiên Thiên Hạ, võ phu Đồng Diệp tông, không chỉ có một Võ Thánh Ngô Khuyết.
+Khương Thượng Chân đẩy lan can đứng thẳng, ném bầu rượu rỗng xuống sông, cười với ba người:
 
-Khương Thượng Chân không tỏ ý kiến, vẫn tiếp tục nói: "Lần thứ hai uyển chuyển cự tuyệt, là vì võ phu cùng thân mới cảnh, bị Hoàng Y Vân cực kỳ coi trọng luận bàn cùng cảnh, ở trong mắt Tào Mạt, thật ra rất bình thường. Nhất là hai bên các ngươi rõ ràng điểm đến là dừng, không phân sinh tử. Tào Mạt thì càng thêm không nhiều hứng thú, bằng hữu này của ta, đối đãi với chuyện luận bàn rất thuần túy, chỉ có hai loại, một loại là Tông Sư cao hơn hắn hai cảnh, hỗ trợ luyện quyền, một loại là chém giết hung hiểm phân sinh tử trên chiến trường. Còn lại, ích lợi đối với võ đạo của hắn không lớn, thậm chí có thể nói hầu như không có."
+- Ta tên Chu Phì. Phì là béo, béo đến mức một người chiếm phần gầy của cả châu [?]. Ta với Diệp tỷ tỷ thân như tỷ đệ ruột đấy.
 
-Nhất là trận chiến đã trải qua ở Kiếm Khí Trường Thành, ẩn quan trẻ tuổi, sơn chủ trẻ tuổi không còn như vậy, về chuyện đối địch, trong bạn cùng lứa tuổi, không mấy ai có thể so sánh với hắn.
+Hắn vừa tự giới thiệu vừa nhìn nữ tu trẻ. Tiết Hoài mặt không đổi sắc, Quách Bạch Chỉ tưởng hắn là tiền bối trên núi nào đó, Diệp Dĩ Nguy [?] thì không hiểu sao tổ sư mình không giận. Nhờ nhan sắc tuyệt đẹp, Hoàng Y Vân đã nhiều lần phải ra quyền dạy những kẻ không biết giữ lễ. Người vừa đến lại là Lô Ưng, thủ tịch cung phụng Kim Đỉnh quan. Hắn không có đạo mạch chính truyền [?] mà khoác pháp bào đạo gia, tu vi Nguyên Anh, dáng vẻ cao gầy. Hắn chắp tay chào Diệp sơn chủ. Nàng xem như không nghe, chẳng buồn nhìn.
 
-Khương Thượng Chân ghé vào lan can, trong tay có thêm một bầu rượu màu xanh, hai ngón tay kẹp lấy, nhẹ nhàng lay động, mùi rượu tràn đầy, "Một lần cuối cùng là hắn cùng ngươi tự xưng vãn bối, cho nên mới có câu nói "thỉnh giáo quyền lý", vẫn không phải hỏi quyền. Lần đầu tiên cự tuyệt, là suy xét cho ngươi cùng Vân Thảo đường, lần thứ hai cự tuyệt, là hắn để cho mình thư thái, võ phu thuần túy học quyền, trừ có thể cùng người khác hỏi quyền, tự nhiên càng có thể ở lúc người khác cùng mình hỏi quyền, có thể không đáp ứng. Lần thứ ba, chính là nhắc nhở không quá tam."
+Lô Ưng vốn là sơn trạch dã tu. Cảnh giới đủ cao nhưng thanh danh tệ, tông môn không muốn nhận, môn phái nhỏ hắn lại chẳng để mắt, tự lập sơn môn thì thiếu căn cơ. Những dã tu tung hoành nhiều năm khó tránh có ân oán và việc mờ ám trên người. Lô Ưng cũng vậy. Hắn từng mang ý kết đạo lữ với nữ quan Hoàng Đình xuống núi, lại suýt bị nàng một kiếm chém chết. Nàng khi ấy chỉ ở Kim Đan, ban đầu còn đấu bằng thuật pháp, chẳng báo mình là kiếm tu Thái Bình sơn. Sau tai kiếp quét qua Đồng Diệp Châu, Lô Ưng nhận ra Đỗ Hàm Linh sẽ nổi lên, bèn đến Kim Đỉnh quan. Đỗ Hàm Linh mời hắn làm thủ tịch cung phụng, hắn cũng tận tâm bôn ba cho sơn môn. Hắn giao hảo với Bảo Chân đạo nhân Doãn Diệu Phong, nhất là xem trọng Thiệu Uyên Nhiên, đệ tử Kim Đan trẻ của vị đạo nhân ấy, cho rằng y có thể là quan chủ kế tiếp.
 
-Diệp Vân Vân khẽ nhíu mày, "Đây là võ phu thuần túy sao? Làm sao chen thân chỉ cảnh?"
+Lô Ưng vừa lên Nguyên Anh đã cố chọn chỗ xa địa giới tông môn để xuống núi làm tiên nhân, tránh chọc những thế lực khó dây vào. Hắn tình cờ gặp Hoàng Đình đang một mình du lịch. Ban đầu nàng dùng thuật pháp đối địch, hắn tưởng nàng chỉ là nữ đạo sĩ Kim Đan, lại không chịu tự báo tông môn, nên càng muốn kết thành đạo lữ. Đến lúc nàng xuất kiếm, hắn mới biết mình đã chọn nhầm người. Một dã tu mang tiếng như hắn cần nơi đủ lớn che chở, còn Kim Đỉnh quan muốn có người đủ cảnh giới để làm việc. Đó là lý do đôi bên nhanh chóng hợp ý.
 
-Khương Thượng Chân cười mà không nói. Có phải hay không, như thế nào, không phải đều là chỉ cảnh? Hơn nữa còn là phương thức võ vận trong người, tễ thân võ đạo mười cảnh.
+Nữ tu trẻ đang ghé tai Diệp Vân Vân thì giật mình. Chu Phì chỉ vào Lô Ưng, lớn tiếng mắng:
 
-Diệp Vân Vân thở dài, nói một câu trong lòng, "Bất kể như thế nào, nghe ngươi nói nhiều như vậy, Tào Mạt này hẳn là người đáng giá kết giao."
+- Đôi mắt chó của ngươi cứ dán vào Diệp tỷ tỷ ta, thật bỉ ổi!
 
-Một người có thể khiến Khương Thượng Chân cứ vậy mà xoa nhẹ gò má cho hắn, chắc chắn không đơn giản.
+Hắn còn đi quanh Diệp Vân Vân, làm bộ che nàng khỏi ánh mắt đối phương. Lô Ưng im lặng. Vốn biết Hoàng Y Vân chẳng coi mình ra gì, hắn không giận vì nàng lạnh nhạt, cũng chẳng muốn cãi với gã kia. Quách Bạch Chỉ thì cau mày. Hắn không thích Lô Ưng lân la kết giao, song lời bịa đặt vô cớ của Chu Phì càng khiến hắn khó chịu. Trên núi, đôi khi một câu vu vơ cũng đủ hại chết người.
 
-Nàng hỏi người quyền, kết quả bị Tào Mạt làm sư phụ uyển chuyển từ chối nhiều lần, kết quả còn phải nói nặng lời với một vãn bối Trịnh Tiễn, trong lòng Diệp Vân Vân đương nhiên có vài phần nghẹn khuất.
+Khương Thượng Chân liếc thiếu niên:
 
-Về phần Trịnh Tiền kia, Diệp Vân Vân đương nhiên có nghe thấy, một người ở trên chiến trường hai nơi Kim Giáp châu cùng Bảo Bình châu, đều là võ phu trẻ tuổi cực kỳ sặc sỡ loá mắt, ở trên đầu tường kinh thành vương triều Đại Đoan, cùng Tào Từ quyền bốn trận đều thua.
+- Thiếu hiệp còn trẻ, chưa hiểu ánh mắt bẩn thỉu của lão nam nhân đâu.
 
-Nghe qua rất không ra sao, thua liền bốn trận. Nhưng trên đời này võ phu nào không ghé mắt?
+Nữ tu trẻ nghĩ, Chu Phì nói Lô Ưng là lão nam nhân, vậy hắn thì sao? Khương Thượng Chân như nghe được tiếng lòng nàng, lập tức khoe mình thấy nữ tử đẹp thì nhìn, thấy không đẹp thì thôi, mắt nhìn ngay thẳng. Loại người dùng ánh mắt lột áo người khác như Lô Ưng mới đáng ghét. Hắn còn mô tả ánh mắt Lô Ưng trượt từ người Diệp Vân Vân xuống tận chân nàng. Nàng không đáp nổi, nhưng trong bụng thầm nghĩ gã nhìn kỹ đến thế, chẳng phải cũng cùng một giuộc sao?
 
-Tào Từ tuy nói tính tình hiền hòa, nhưng tuyệt đối không phải ai đến hỏi quyền đều sẽ tiếp. Càng huống chi một người liên tiếp hỏi bốn trận, Tào Từ đều nguyện ý đáp ứng?
+Diệp Vân Vân biết rõ Khương Thượng Chân là loại người nào nên chẳng buồn để ý. Lô Ưng lúc này mới cười nhắc Chu đạo hữu đừng đùa, trên núi gặp nhau là duyên, nên trân trọng. Nếu còn là dã tu, hắn có thể mặc người ta nói, chờ lần sau gặp riêng rồi tính. Nhưng hôm nay hắn đại diện cho thể diện Kim Đỉnh quan, không thể mãi nín nhịn.
 
-Đạo lý rất đơn giản, Tào Từ đã coi Trịnh Tiền kia là một "người đứng phía sau võ đạo không xa".
+Diệp Vân Vân lấy mu bàn tay đẩy Khương Thượng Chân sang một bên. Nàng biết Lô Ưng không đủ gan công khai mơ tưởng nữ võ phu Chỉ cảnh. Từ lúc xuất hiện hắn vẫn giữ lễ. Khương Thượng Chân chỉ cố ý tạt nước bẩn lên hắn và Kim Đỉnh quan. Nàng quay sang Quách Bạch Chỉ:
 
-Cho nên Diệp Vân Vân nhịn không được tò mò hỏi: "Trịnh Tiền này, không phải đều nói nàng là Ngai Ngai Ngai Lôi Công miếu nhất mạch sao? Làm sao thành đồ đệ Tào Mạt?"
+- Sư phụ ngươi bao giờ về Đồng Diệp Châu?
 
-Về phần một ít tin đồn trên đỉnh núi, nói Trịnh Tiễn thật ra là sư muội của Tào Từ, quan môn đệ tử của nữ tử Võ Thần Bùi Bôi, Diệp Vân Vân biết cũng không phải là như thế.
+- Sư phụ còn đang làm khách ở Lưu thị Ngai Ngai Châu. Phi kiếm của Từ Quân [?] gửi đến lúc trước không nói ngày về.
 
-Khương Thượng Chân cười nói: "Sau này Diệp tỷ tỷ tự nhiên sẽ biết. Bằng hữu Tào Mạt của ta là người rất có ý tứ. Không vội, từ từ sẽ biết."
+Ngày nay tu sĩ đi qua Đồng Diệp Châu thường ghé bến Du Châu cũ ở cực nam, Vân Quật phúc địa của Ngọc Khuê tông, thành Thận Cảnh Đại Tuyền và Kim Đỉnh quan phương bắc. Diệp Vân Vân bảo khi sư phụ trò về, cứ cùng đến Vân Thảo Đường làm khách. Quách Bạch Chỉ vui vẻ nhận lời, nói Tiết Hoài đã chỉ điểm mình nhiều trong chuyến du lịch, sau này còn muốn thỉnh giáo Diệp sơn chủ. Nụ cười tự tin của thiếu niên khiến trưởng bối khó mà không thích.
 
-Diệp Vân Vân nói: "Ngươi giật dây bắc cầu như thế, Tào Mạt có thể có khúc mắc hay không?"
+Khương Thượng Chân lại ghé tai Diệp Vân Vân:
 
-Khương Thượng Chân dựa nghiêng vào lan can, híp mắt cười nói: "Ta cũng không phải Nguyệt Lão Hồng Nương, Tào Mạt sẽ không để ý."
+- Quách thiếu hiệp nhìn tỷ cũng khác lạ đấy. Chẳng có ý xấu, chỉ là ái mộ. Đổi lại ta trẻ như hắn, cũng sẽ xem tỷ là tiên tử trên trời, chỉ dám vụng trộm ngắm.
 
-Diệp Vân Vân nói: "Làm phiền Khương lão tông chủ nói chuyện cho tốt, quan hệ của hai ta, kỳ thật cũng bình thường, thật sự rất bình thường."
+Thiếu niên đỏ mặt, nắm chặt tay:
 
-Khương Thượng Chân sang sảng cười to: "Có thể nói chuyện với Diệp tỷ tỷ lâu như vậy, cái này cũng rất không bình thường."
+- Chu tiền bối, ta kính ngươi là tiền bối. Xin ngươi giữ lời. Nếu còn nói bừa, dù biết mình sẽ thua, ta vẫn phải hỏi quyền!
 
-Ba người kia dần dần đến gần bên này, Khương Thượng Chân cũng không còn tiếng lòng nói chuyện với Diệp Vân Vân, lưng tựa lan can, nhấp một hớp rượu.
+Khương Thượng Chân nhanh chân núp sau Diệp Vân Vân, thò đầu ra:
 
-Tiết Hoài cung kính ôm quyền nói: "Sư phụ."
+- Tới đi. Tuổi còn nhỏ mà cũng định hỏi quyền ta?
 
-Vị võ phu bát cảnh này, là một vị lão giả nho nhã tướng mạo gầy gò, đầu đội khăn tay, khí thái phiêu nhiên có phong cách cổ xưa.
+Quách Bạch Chỉ chưa từng gặp đại nam nhân nào vứt hết thể diện như thế, nhất thời không biết làm sao. Trực giác bảo hắn dù thắng một quyền trước mắt, chuyện sau đó vẫn là mình thua thiệt. Lô Ưng khoanh tay nhìn, trong lòng cười lạnh. Gã này đã chọc Kim Đỉnh quan còn trêu cả đệ tử khai sơn của võ thánh Ngô. Võ thánh từng gom hơn ba trăm môn thương pháp, đúc thành sáu thức, đánh người xưa nay không nương tay. Một đại tông sư Chỉ cảnh khác còn bị ông đánh trọng thương rồi chết [?]. Nếu ông quay về, Chu Phì tránh được sao? Lô Ưng nghĩ gã chắc là tu sĩ xứ khác có cảnh giới và sư môn lớn, nếu không đâu dám ngông nghênh cạnh Hoàng Y Vân. Nghĩ vậy hắn càng tức. Những con cháu Bạch Long động như Mã Lân Sĩ, biệt danh Lân Tử, và Vưu Kỳ, cháu chưởng luật tổ sư, cũng ỷ thế mà kiêu ngạo. Đám tiên sư gia phả dựa vào tổ sư trên núi, xuống núi tác oai, thường khiến dã tu như hắn ghét cay ghét đắng. Trong lòng hắn cũng vụt qua vài ý nghĩ bẩn thỉu về nữ tu Bồ Sơn, song vì Tiết Hoài ở bên nên chẳng dám làm gì.
 
-Nếu như không biết thân phận của hai bên, đều phải lầm tưởng hắn là tổ tông của Hoàng Y Vân.
+Vị võ thánh kia ngoài quyền còn có kiếm trúc sát lực như phi kiếm của kiếm tu. Thương pháp mới là sở trường sâu nhất. Hắn đã đi khắp nơi tìm các lối đánh bằng thương, nhặt hơn ba trăm phép, sửa sang và hợp thành sáu thức riêng. Một lời đồn khác càng khiến Lô Ưng tin họ Ngô nay không có đối thủ trong châu: Hoàng Y Vân nhặt được tranh tiên nhân diện bích, có thể đã bỏ quyền để chuyển sang thuật pháp, bế quan tìm đường lên Phi Thăng. Nếu chuyện ấy là thật, dưới núi Đồng Diệp Châu sẽ vắng hẳn một đại tông sư giữ võ vận.
 
-Diệp Huyên đưa tay bắt lấy cánh tay Diệp Vân Vân, tựa như làm nũng, ôn nhu cười nói: "Tổ sư nãi nãi."
+Diệp Vân Vân bất ngờ tung một quyền ra sau, đánh trúng trán Khương Thượng Chân. Hắn ngã ngửa, lăn mấy vòng trên đất. Cả Quách Bạch Chỉ lẫn Lô Ưng đều kinh ngạc. Có chút bản lĩnh ấy thôi mà gã quen được Hoàng Y Vân?
 
-Quách Bạch Đình ôm quyền cười nói: "Bái kiến Diệp tiền bối."
+Nàng không quay đầu:
 
-Diệp Vân Vân cùng Quách Bạch Chỉ gật đầu chào hỏi, lại lấy hai ngón tay nhẹ gõ cánh tay Diệp Huyên, nữ tu trẻ tuổi đành phải buông cánh tay ra.
+- Không còn việc gì, ta về Lão Quân sơn.
 
-Vô luận là thân là Bồ Sơn Diệp thị gia chủ, hay là Vân Thảo Đường tổ sư gia, Diệp Vân Vân đều xem như một trưởng bối thận trọng.
+Khương Thượng Chân bật dậy, vội xin nàng nán lại mấy câu, hứa không làm lỡ thời gian. Diệp Vân Vân dặn Tiết Hoài tiếp tục chuyến lịch lãm. Ông dùng tiếng lòng hỏi việc phúc địa Yên Chi đồ [?] có cần mình thương lượng với người quen bên Khương thị không. Nàng nói đã có tính toán. Ba người cùng Lô Ưng lần lượt trở vào phủ đệ vỏ ốc.
 
-Quách Bạch Trệ dáng vẻ thiếu niên thanh tú kia, thật ra là tuổi nhược quán, tư chất võ học vô cùng tốt, hai mươi mốt tuổi Kim Thân cảnh, những năm gần đây, còn cầm qua hai lần mạnh nhất.
+Khương Thượng Chân phủi thanh sam, thở dài bảo Diệp tỷ tỷ làm hắn mất hết mặt mũi. Nàng đi đến lan can, hỏi thẳng Kim Đỉnh quan và Bạch Long động có thật giúp được Đồng Diệp Châu không. Hắn đáp Đỗ Hàm Linh là kiêu hùng, xứng với danh "quân chủ trên núi". Ông ta đã kết giao với triều Đại Tuyền, nhân vật lớn ở Bảo Bình Châu, lại đánh tiếng với các bên [?], đối nhân xử thế kín kẽ, nên Kim Đỉnh quan nhất định sẽ nổi. Bạch Long động thì chỉ như cá chép vùng nước đục, giỏi mượn thế; bước lên bờ sẽ lộ nguyên hình.
 
-Điều này có nghĩa là Quách Bạch Chỉ là điển hình của việc tích lũy dày bùng phát, một khi lại lấy hai chữ mạnh nhất chen thân viễn du cảnh, gần như có thể xác định Quách Bạch Chỉ có thể chen thân Sơn Điên cảnh trước năm mươi tuổi.
+Diệp Vân Vân lo Vân Thảo Đường liên hệ quá sâu với họ là sai. Khương Thượng Chân bảo tình thế mỗi lúc mỗi khác, hôm qua đúng chưa chắc hôm nay vẫn đúng, hôm nay sai cũng chưa chắc ngày mai còn sai. Nàng muốn câu trả lời rõ ràng, không thích kiểu tu sĩ nói mây nói gió. Nàng đến Vân Quật lần này vì ba việc: tế bái Tuân Uyên, giữ cho phúc địa một tòa Hoa Thần sơn [?], và hỏi Khương Thượng Chân chuyện liên minh.
 
-Một lưu phái võ học, cũng chỉ có hai thầy trò, kết quả lại có một vị Chỉ Cảnh Đại Tông Sư, một vị đỉnh núi trẻ tuổi, đương nhiên xem như kinh thế hãi tục.
+Nàng đã ngồi chung bàn với Kim Đỉnh quan và Bạch Long động trong minh ước Đào Diệp. Đỗ Hàm Linh giỏi mượn thế nên tất sẽ đi lên, nhưng chuyện một thế lực đi lên có thực sự giúp sơn hà Đồng Diệp Châu lại là chuyện khác. Bạch Long động chỉ biết nhìn bên nào mạnh để nương theo. Vân Thảo Đường đã liên lụy vào minh ước, về sau muốn giữ khoảng cách cũng khó. Diệp Vân Vân phải hỏi vì nàng còn gánh cả mấy trăm môn nhân Bồ Sơn.
 
-Ánh mắt Ngô Chiêu chọn lựa đệ tử, quả thật khiến người ta bội phục.
+Hắn chắp tay sau lưng, nhìn núi sông:
 
-Diệp Vân Vân thu mười mấy đệ tử đích truyền, lại thêm cả tòa Bồ Sơn, đích truyền thu tiếp tục truyền, lại truyền tiếp thu đệ tử, người tập võ nhiều đến mấy trăm người, lại đến nay không ai có thể chen thân đỉnh núi, cho dù là Tiết Hoài tư chất tốt nhất, luyện quyền càng là cực kỳ khắc khổ, nếu không có gì bất ngờ xảy ra, đời này cũng không đánh phá bình cảnh "Phúc địa" cảnh giới Viễn Du, nói gì đến chen thân đỉnh núi, lấy quyền "Lật thiên", tiến thêm một bước, tễ thân Chỉ cảnh?
+- Ngươi nghĩ xem vì sao ta đưa ngươi từ Lão Quân sơn đến Hoàng Hạc Ki?
 
-Khương Thượng Chân nhẹ nhàng đẩy lan can, ném bầu rượu không vào trong sông, đứng thẳng người, mỉm cười nói: "Ta tên Chu Phì, mập mạp, mập mạp một người gầy gò một châu. Các ngươi đại khái nhìn không ra, ta và Diệp tỷ tỷ thật ra là quan hệ như tỷ đệ ruột thịt."
+Nàng chờ nghe. Hắn gõ lan can:
 
-Khương Thượng Chân khi tự giới thiệu, cũng không nhìn Tiết Hoài cùng Quách Bạch Chỉ, chỉ nhìn chằm chằm tiểu cô nương kia.
+- Muốn nhìn xa nghìn dặm, phải lên thêm một tầng lầu. Chỉ cảnh có ba tầng: Khí Thịnh, Quy Chân, Thần Đến. Ngươi, Phái A Hương [?] ở Lôi Công miếu và Vương Phó Bạt [?] xứ Bắc Câu Lô đều đã lên tầng thứ hai, nhưng nền Khí Thịnh chưa đánh cho vững. Lên Quy Chân mà thân như còng lưng bò lầu thì tầng Thần Đến còn xa. Người ở Lôi Công miếu hiểu điều ấy nên mới thu mình trong miếu [?].
 
-Tiết Hoài mặt không biểu tình.
+Hắn nhắc người láng giềng họ Ngô nghiên cứu trăm loại thương thuật trong thiên hạ, muốn mở một lối lên đỉnh cho mọi võ phu dùng thương. Đó cũng là một cách hỏi quyền, vừa mở tầm mắt vừa nuôi chí lớn. Diệp Vân Vân thì nhặt được bức đồ tiên nhân diện bích, tâm lại dao động, muốn trở về đường tu đạo, mượn việc từ Kim Đan phá liền hai cảnh để phá bình cảnh Quy Chân. Hắn hỏi nàng có quên lời Tuân Uyên chưa. Võ phu mà không thuần, dù được tổ sư thưởng cơm cũng chỉ càng ăn càng ít, đường võ càng đi càng hẹp. Nàng còn hỏi Tào Mạt có phải võ phu thuần túy, sao lên được Chỉ cảnh. Nếu hắn nghe thấy chắc cười đến chết, coi như nàng thắng một trận hỏi quyền.
 
-Quách Bạch Chỉ chỉ cho rằng là một tiền bối trên núi không ảnh hưởng toàn cục.
+Diệp Vân Vân không giận. Nàng nghe từng lời, mặt càng nghiêm. Khương Thượng Chân dịu giọng, nói giao tình quân tử mới như trăng sáng trời cao, còn mượn lực kẻ hiểm thì như giành hạt dẻ trong lửa. Việc hôm qua đã qua, ngày mai phải tự tính. Tuân Uyên từng mong Đồng Diệp Châu có võ phu đi xa hơn cả vị họ Ngô, càng vui nếu đó là nữ tử quyền pháp đẹp mắt. Lần cuối ba người cùng đi Vân Cấp phong, lão đã nắm tay Diệp Vân Vân, vừa say vừa dặn nàng phải đi xa hơn trên võ đạo.
 
-Diệp Dĩ Nguy nghĩ mãi mà không rõ, vì sao tổ sư nãi nãi nhà mình không có chút không vui nào.
+Nàng cau mày:
 
-Bồ Sơn Hoàng Y Vân, bởi vì có nhan sắc tuyệt mỹ, nàng rất nhiều lần ra quyền, đều là để cho những tu sĩ trên núi không có mắt kia, nhớ lâu một chút.
+- Lão có nói thế à?
 
-Khương Thượng Chân nhìn lên, người trên đến tham gia náo nhiệt, không có gia phả đạo sĩ, không có đạo mạch pháp thống, lại mặc một bộ pháp bào đạo gia Kim Đỉnh quan, cảnh giới rất thấp, vóc dáng ngược lại rất hạc giữa bầy gà.
+Tuân Uyên ở bên nàng nói quá nhiều, nàng không nhớ hết. Nàng giữ kính ý với bậc trưởng bối, trước Khương Thượng Chân chưa từng chê lão không đứng đắn. Song lời say có quên, chuyện lão mượn cớ say nắm tay nàng thì nhớ rất rõ. Lão từng tìm đủ cách mời nàng đến Hoa Thần sơn, mỗi lần gặp ánh mắt lại đảo quanh làm nàng thấy không yên. Tuổi đã cao, lão vẫn như thiếu niên mới biết tương tư mà gan dạ, còn bày trò xem Kính Hoa Thủy Nguyệt của Vân Thảo Đường dưới một tên hiệu khó nghe. Mỗi lần nàng xuất hiện, lão vung tiền cốc vũ, hô hào chỉ cần Diệp sơn chủ ló mặt, dù chỉ lộ mép váy cũng đáng. Nàng nói thêm vài câu, lão sẽ đập nồi bán sắt, thậm chí trộm tiền tổ sư đường để tặng. Lão là tông chủ Ngọc Khuê tông, ai dám xóa tên khỏi gia phả Thần Cương phong?
 
-Vị lão tu sĩ này chắp tay với Diệp Vân Vân, "Kim Đỉnh Quan cung phụng Lô Ưng, bái kiến Diệp sơn chủ."
+Khương Thượng Chân nheo mắt nhớ lão. Rượu ngon chưa chắc làm người say ngã, người đẹp lại dễ khiến kẻ uống say chết. Hắn nhớ lần trêu Tuân Uyên, hỏi nắm tay mỹ nhân thấy sao. Lão đáp tuyệt diệu, chỉ tiếc hồi ấy hồi hộp nên không dám bóp nhẹ, thiệt lớn. Diệp Vân Vân nhìn vẻ mặt Khương Thượng Chân, biết hắn đang nghĩ chuyện phong nguyệt nàng không muốn nghe.
 
-Diệp Vân Vân không có phản ứng gì, chỉ coi như không nhìn thấy không nghe thấy.
+Nàng hỏi Chu Phì, Tào Mạt, Trịnh Tiễn đều là tên giả phải không. Hắn bảo nàng quen Tào Mạt rồi sẽ thấy hắn chân thành. Ra giang hồ dùng vài tên giả cũng giống tu sĩ dùng thuật che mắt để chơi nhân gian, không đáng để bụng. Nàng lại hỏi hắn đưa mình đến gặp Tào Mạt để làm gì. Hắn đáp gọn:
 
-Tên Lô Ưng này, không được đánh giá cao. Bây giờ làm thần tử của quân vương trên núi Đỗ quán chủ, tiểu nhân đắc chí liền càn rỡ, làm việc không quá chú ý.
+- Kết thiện duyên. Khởi đầu tốt rồi, chuyện về sau cũng dễ.
 
-Hoàng Y Vân lạnh nhạt, Lô Ưng không có gì khác thường, đạo tâm không gợn sóng. Vốn là chuyện trong dự liệu, không cần lo lắng.
+Nàng bảo nếu nhóm người kia đến Đồng Diệp Châu chỉ để chia lợi ích, Bồ Sơn thà không qua lại. Khương Thượng Chân mời nàng khoan kết luận, về sau đôi bên có lẽ gặp nhau nhiều. Nàng gật đầu chờ xem.
 
-Dưới núi có gạo nuôi trăm loại người, trên núi có một cây đạo thụ nở ra đủ loại hoa, có thể kết giao hay không, không cưỡng cầu được.
+Ai chỉ nhìn Khương Thượng Chân như kẻ miệng lưỡi trơn tru thì đã phí mất phần tốt của hắn. Hắn từng nói, càng gần người đời, hắn càng gần chính mình. Lên núi tu đạo, cầu chân rồi quên mình, nhìn như trở lại tự nhiên mà chưa chắc chân thật. Tuân Uyên từng đùa với chưởng luật Ngọc Khuê tông, bảo tranh thủ khi Khương Thượng Chân chưa lên Thượng ngũ cảnh thì cứ mắng cứ đánh ở tổ sư đường, sau này sẽ hết cơ hội. Ý lão là Khương Thượng Chân lên Ngọc Phác rồi bước sang Tiên Nhân cảnh sẽ chẳng có bình cảnh. Khi ấy cả tổ sư đường muốn đánh cũng đánh không thắng, mắng cũng mắng không lại. Trên Thần Cương phong, mỗi lần họp tổ sư đường dường như chỉ có ba việc: bàn chuyện tông môn, nịnh Tuân Uyên, rồi hợp nhau mắng Khương Thượng Chân.
 
-Kim Đỉnh quan thủ tịch cung phụng, Nguyên Anh tu sĩ Lô Ưng, cùng thủ tịch của Tiểu Long Dận cung phụng, là con đường không sai biệt lắm, trước tiên làm sơn trạch dã tu, hoành hành nhiều năm, tiêu dao khoái hoạt, tiên gia Tông Tự Đầu cao không với nổi, cảnh giới là đủ, nhưng thanh danh quá kém, mà không phải tông môn tiên gia môn phái, bọn họ lại nhìn không vừa mắt, cao không được thấp không xong, muốn nói tự lập môn hộ, lại kém rất nhiều nội tình, hơn nữa thanh danh bên ngoài, trên người dã tu nào không cõng mấy vụ án mạng ân oán trên núi?, Chưa từng làm mấy chuyện tuyệt đối không thể lộ ra ngoài ánh sáng? Tựa như Lô Ưng quan hệ cực kém với đạo sĩ Thái Bình sơn, Lô Ưng vừa mới chen thân Nguyên Anh cảnh, cố ý vòng qua địa giới những tông môn kia, ở một chỗ góc đối diện dưới núi vương triều, khi lão thần tiên hô phong hoán vũ dời non lấp biển, kết quả thiếu chút nữa bị nữ quan Hoàng Đình xuống núi một mình du lịch giang hồ một kiếm chém chết. Lúc ấy Lô Ưng là ý tốt bụng, chạy tới kết làm đạo lữ với mỹ nhân kia, con quỷ nhỏ kia cũng thật là, một lời không hợp liền khai chiến, mấu chốt là nàng từ đầu tới đuôi đều không tự báo danh hiệu, lúc ấy Hoàng Đình mới Kim Đan cảnh, lại lấy thuật pháp đối địch, thật ra hai bên chém giết, khó mà nói thắng bại cách xa, cho nên cuối cùng, Lô Ưng mới biết được cô gái kia thế mà là kiếm tu, nào có tiên sư gia phả không thích sĩ diện như vậy?
+Diệp Vân Vân chợt thấy người trước mắt hơi cô đơn, đáng thương. Đường hắn càng dài, có lẽ lòng càng tịch mịch. Hắn lại nói một câu phá tan chút thương cảm ấy:
 
-Cuối cùng may mắn tránh thoát trận tai ương long trời lở đất một châu kia, thấy Kim Đỉnh quan Đỗ Hàm Linh là hào kiệt một phương, tất sẽ quật khởi, Lô Ưng quyết đoán tìm đến Kim Đỉnh quan, Đỗ Hàm Linh cũng nỡ bỏ vốn, để Lô Ưng kiếm được vị cung phụng thủ tịch có phân lượng cực nặng. Lô Ưng liền khăng khăng một mực bôn ba bốn phía vì Kim Đỉnh quan. Lô Ưng cùng Doãn Diệu Phong đạo nhân "Bảo Chân đạo nhân" có quan hệ không tệ. Chủ yếu vẫn là Lô Ưng xem trọng đệ tử đích truyền Thiệu Uyên Nhiên của Doãn Diệu Phong, luôn cảm thấy vị Kim Đan trẻ tuổi này, rất có khả năng là quan chủ kế tiếp của Kim Đỉnh quan.
+- Diệp tỷ tỷ, năm nay đầu bảng son phấn [?] nên là tỷ chứ? Chọn người khác thiên hạ lại tranh cãi.
 
-Diệp Dĩ Nguy đang thì thầm với tổ sư nhà mình thì đột nhiên giật mình.
+Nàng lập tức hối hận đã thương hắn:
 
-Thì ra Chu Phì kia đột nhiên đưa tay chỉ vào Lô Ưng, giận dữ nói: "Đồ đệ tử nhà ngươi, một đôi mắt chó nhìn vào trên người Diệp tỷ tỷ ta, bỉ ổi, ghê tởm, làm người ta buồn nôn!"
+- Ngươi dám ghi tên ta, ta sẽ đập nát Hoa Thần sơn của ngươi.
 
-Khương Thượng Chân chẳng những ngậm máu phun người, còn làm bộ vờn quanh người Diệp Vân Vân, hình như là động thân mà ra, muốn ngăn trở ánh mắt Lô Ưng.
+Hắn thở dài, ngâm một bài thơ về ngắm mai, giai nhân, tiên quan và cung trăng [?]. Nàng cười lạnh, bảo thứ văn ấy chỉ lừa được cô nương như Chử Bằng [?]. Khương Thượng Chân đổi đề tài, hỏi nàng có thấy điều gì trong bức Sơn Hà đồ ở Lão Quân sơn không. Nàng nói Kim Đỉnh quan lấy bảy núi bày Bắc Đẩu Thất Tinh, Đỗ Hàm Linh muốn dựng đại trận phỏng theo trời đất.
 
-Lô Ưng im lặng, không giải thích gì thêm với Hoàng Y Vân, cũng không tức giận với tên đầu óc có vấn đề kia, thần tiên đạo môn lão Nguyên Anh, tiên phong đạo cốt, hàm dưỡng vô cùng tốt.
+Hắn vỗ tay:
 
-Quách Bạch Chỉ khẽ nhíu mày.
+- Mắt tỷ sáng, nhưng còn thiếu hai chỗ ẩn. Bảy hiện, hai ẩn, thành chín lò nấu nhật nguyệt [?]. Kim Đỉnh quan ở vị trí Thiên Khu. Ba ngọn núi khác làm phụ tá, các thế lực còn lại bị hắn âm thầm sắp vào trận, thành áo cưới cho một mình hắn. Bây giờ còn thiếu Thái Bình sơn và Thiên Khuyết phong. Trận Bắc Đẩu mở ra, miền bắc Đồng Diệp Châu sống chết trong một niệm của hắn. Bắc Đẩu thời xưa là cỗ xe của đế, định bốn mùa, chia ngũ hành, xoay tiết khí [?]. Gọi Đỗ Hàm Linh là quân chủ trên núi cũng xứng chứ?
 
-Tuy nói thiếu niên thanh tú đối với Lô Ưng kiệt lực kết giao mình ấn tượng cực kỳ bình thường, nhưng mà Chu Phì trước mắt này nói hươu nói vượn như thế, châm ngòi thị phi, chung quy càng khiến người ta phiền.
+Diệp Vân Vân kinh ngạc, hắn mới là Nguyên Anh sao làm nổi việc ấy. Khương Thượng Chân nói chính vì mới Nguyên Anh mà dám nghĩ, hắn mới phục. Trên đời không chỉ mình Khương Thượng Chân biết đè cảnh giới. Dù thay hai nơi kia bằng chỗ khác, trận vẫn có thể hoàn chỉnh. Nếu Đỗ Hàm Linh ở Ngọc Phác ngồi trong trận, uy thế chẳng khác tiên nhân. Tương lai bảy hiện hai ẩn đều đủ, qua mấy trăm năm, hắn còn có hy vọng tiến gần Phi Thăng. Kim Đỉnh quan vốn là một nhánh phụ của đạo mạch Lâu Quan Tinh [?], nhưng Đỗ Hàm Linh giấu pháp thống ấy. Hàn Ngọc Thụ và Đỗ Hàm Linh đều là kẻ tính sâu. Tiếc là họ gặp Khương Thượng Chân và Trần Bình An. Nếu Trần Bình An rời Vân Cấp phong là đến Sơn Hà đồ Lão Quân sơn, chuyện đặt hạ tông ở miền bắc sẽ từ "có thể" thành "nhất định".
 
-Có những lúc, một hai câu nói của tu sĩ trên núi sẽ hại chết người.
+Khương Thượng Chân hỏi bức họa tiên nhân diện bích nàng lấy ở đâu. Nàng đã xem thật giả và cho rằng chẳng có vấn đề. Hắn bảo nàng tin mình, bức họa nhất định có vấn đề. Nàng phải đề phòng cả khách khanh Bồ Sơn lẫn một đích truyền nào đó. Quan trọng nhất là đừng tùy tiện hỏi quyền võ thánh họ Ngô. Không hẳn ông ấy có vấn đề, nhưng ông ra tay quá nặng. Nàng bị thương, Bồ Sơn sẽ hở sườn, đến lúc ấy người vốn không có vấn đề cũng có thể thành vấn đề. Hắn vốn tính đợi Tào Mạt hỏi quyền với nàng rồi giải thích, nhờ người ấy lặng lẽ theo về Bồ Sơn, trong thời gian nàng dưỡng thương trông chừng Vân Thảo Đường. Nàng hỏi thật sự hiểm đến thế sao. Hắn gật đầu, thiên hạ còn xa mới thái bình. Trăm năm tới mới là thời hào kiệt lẫn kiêu hùng cùng nổi lên.
 
-Khương Thượng Chân liếc mắt nhìn thiếu niên, tấm tắc nói: "Thiếu hiệp ngươi vẫn còn quá trẻ, không hiểu được ánh mắt của một vài lão nam nhân, tâm tư bẩn thỉu."
+Trên đường đến Vân Cấp phong, Thôi Đông Sơn bàn với Trần Bình An chuyện chín đứa trẻ có tư chất kiếm tu. Hắn muốn tự dạy Ngu Thanh Chương. Chu Liễm nhận Trình Triêu Lộ, dạy nấu nướng và quyền. Trường Mệnh có thể thu Nạp Lan Ngọc Điệp. Mễ Dụ truyền kiếm cho đứa trẻ khác [?], Tùy Hữu Biên nhận Diêu Tiểu Nghiên làm đại đệ tử, dẫn đến Bái Kiếm đài luyện kiếm. Bạch Huyền giao Tào Tình Lãng, Hạ Hương Đình giao phu tử Chủng Thu. Chúng còn nhỏ, không nên vừa lên núi đã có bối phận quá cao, thành đích truyền của chính sơn chủ. Để chúng là đệ tử đời thứ ba trong gia phả tổ sư đường Phù Sắc phong sẽ ổn hơn.
 
-Diệp Mậu trừng mắt nhìn, "Chu Phì" cổ quái này còn dám ngay trước mặt tổ sư nãi nãi, ngôn ngữ không cố kỵ, thật sự là lợi hại.
+Trần Bình An gật đầu. Mọi chuyện mới là dự tính, phải xem cả thầy lẫn trò có hợp ý. Thu đồ đâu thể chỉ một bên muốn là xong. Thôi Đông Sơn tán thưởng tiên sinh cao kiến. Nghe Bùi Tiền có đệ tử khai sơn còn chưa chính thức ký danh, Trần Bình An hỏi nàng dạy quyền ra sao. Nàng ngượng ngùng, bảo Tiểu A Man chịu khó hơn mình hồi bé luyện quyền và chép sách. Thôi Đông Sơn giơ ngón cái khen đại sư tỷ tự biết mình. Nàng cười, nghĩ đến quyển sổ ghi thù của mình với ngỗng trắng lớn, lại nhớ Trần Linh Quân từng tuyên bố ở địa giới Bắc Nhạc, ngoài quê nhà hắn không ai hạ được hắn bằng một quyền. Nghĩ đến Long Tuyền Kiếm Tông đã dời khỏi Long Châu lên miền bắc Đại Ly, lòng nàng hơi chùng xuống.
 
-Chẳng qua Chu Phì nói Lô Ưng kia là lão nam nhân? Vậy bản thân Chu Phì hắn thì sao? Không phải người trong đồng đạo, có thể nói ra kinh nghiệm lần này?
+Tại tư trạch Khương thị khuất sau cấm chế ở Vân Cấp phong, Thôi Đông Sơn mở đường cho ba người vào. Trần Bình An thấy chỗ này khác hẳn nơi ở giữa biển trúc của mình. Bạch Huyền và mấy đứa trẻ đang ngồi xổm lựa những mảnh đá cho Nạp Lan Ngọc Điệp. Thấy Thôi Đông Sơn, Bạch Huyền chạy tới xun xoe mời Đông Sơn lão ca ngồi ghế trúc, kẻo nửa đêm còn mệt. Hai ghế dài dưới mái hiên là Thôi Đông Sơn làm cho tiên sinh và mình. Mấy ghế nhỏ do Trình Triêu Lộ và Diêu Tiểu Nghiên phụ giúp, tay nghề thô đến đáng thương.
 
-Khương Thượng Chân thật như tâm ý tương thông, lập tức cười nói với tiểu cô nương: "Chu Phì ta đối đãi nữ tử, chưa bao giờ che giấu, không dễ nhìn thì không nhìn, đẹp mắt chính là nhìn nhiều, ánh mắt bình thản, lòng dạ lỗi lạc. Khác biệt rất lớn với phôi lang thang có thể lấy tầm mắt lột quần áo người này! Diệp cô nương ngươi không biết đâu, vừa rồi ánh mắt hạ lưu của phôi tử này xảo trá ra sao, nếu nói là nhìn sơn không vui vẻ bằng phẳng thì cũng thôi đi, nhưng tên này hết lần này tới lần khác lại rất thích cổ quái, tầm mắt một đường đi xuống, như thác nước đổ xuống, cuối cùng rõ ràng dừng lại trên chân Diệp tỷ tỷ thêm vài phần."
+Thôi Đông Sơn phẩy tay bảo chúng đi ngủ. Nạp Lan Ngọc Điệp không nỡ, nói những viên đá Trử Khuyết [?] rất khó phân tốt xấu, nhìn mãi mỏi cả mắt. Bùi Tiền hẹn lát nữa giúp chia loại, làm nha đầu mê tiền cười tươi. Trần Bình An nói sau này còn đưa chúng đến Dĩ sơn [?] một chuyến. Nạp Lan Ngọc Điệp lập tức nhìn hắn mong đợi. Hắn hiểu, cười hứa những viên đá của Nguyễn Cung sẽ tính phần cho nàng. Nha đầu sáng mắt, rồi giả vờ ngáp, kéo Diêu Tiểu Nghiên về phòng.
 
-Diệp Huyên không phản bác được.
+Trình Triêu Lộ còn chậm chân, liền bị Bạch Huyền vỗ đầu, mắng tiểu mập mạp không biết ý, cứ nấn ná làm Tào sư phụ và Đông Sơn ca mất nghỉ. Đám trẻ đi hết, Trần Bình An kéo một ghế trúc nhỏ đặt giữa hai ghế dài, bảo Bùi Tiền và Thôi Đông Sơn nằm xuống, tốt nhất ngủ một giấc. Mai còn nhiều việc, giờ cứ nghỉ. Bùi Tiền định nói, Thôi Đông Sơn đã nháy mắt, hai người đành nằm hai bên. Hắn gác chân, nhìn vầng trăng trên trời.
 
-Chu Phì ngươi vẫn nhìn ra được, không phải càng là người trong đồng đạo sao?
+Bùi Tiền để hai tay nhẹ trên người, khẽ hỏi:
 
-Diệp Vân Vân vẫn không đếm xỉa đến, Khương Thượng thật sự là mặt hàng gì, nàng ta biết rất rõ ràng.
+- Sư phụ, con ngủ dậy người vẫn còn ở đây chứ?
 
-Lô Ưng rốt cuộc không còn làm rùa đen rụt đầu nữa, cười nói: "Vị Chu đạo hữu này, chớ nói đùa. Trên núi gặp nhau là đạo duyên, quý trọng nhiều hơn mới tốt a."
+- Ừ.
 
-Nếu vẫn là sơn trạch dã tu, tùy tiện người này nói, trên núi nói lớn cũng lớn, thế đạo nói nhỏ cũng nhỏ, đừng bị Lô Ưng hắn lén gặp được là được. Nhưng đã trở thành cung phụng thủ tịch của Kim Đỉnh quan, thì phải giảng chút thể diện tiên sư, dù sao Lô Ưng hắn hôm nay ra ngoài, trình độ rất lớn mang ý nghĩa mặt mũi của Kim Đỉnh quan.
+- Không gạt con?
 
-Diệp Vân Vân không để ý tới Khương Thượng Chân đang sinh sự, cũng không muốn đoàn người cứ như vậy bị Khương Thượng Chân kéo xuống cống, lấy mu bàn tay đẩy ra đầu vai Khương Thượng Chân, hỏi Quách Bạch Chỉ kia: "Sư phụ ngươi khi nào thì trở về Đồng Diệp châu?"
+Trần Bình An cười:
 
-Lô Ưng người này ngả ngớn nữa, cũng không có lá gan này, một tu sĩ Nguyên Anh, dám ngay mặt mơ ước sắc đẹp một vị võ phu chỉ cảnh, tương đương tìm chết.
+- Muốn ăn hạt dẻ à?
 
-Lô Ưng từ lộ diện đến hành lễ, đều quy củ, Diệp Vân Vân biết Khương Thượng Chân ở đó tìm lời nói, cố ý tạt nước bẩn lên đầu Lô Ưng cùng Kim Đỉnh Quan.
+Nàng khép mắt, chẳng bao lâu ngủ thật say. Thôi Đông Sơn cũng dần thiếp đi. Trần Bình An ngồi giữa hai người, hai tay giấu trong tay áo.
 
-Quách Bạch Đình đáp: "Lúc trước có phi kiếm truyền tin Khu Sơn Độ Kiếm Tiên Từ Quân, sư phụ hiện giờ còn đang làm khách ở Ngai Ngai châu Lưu thị, cụ thể khi nào thì trở về quê nhà, trong thư không nói."
+Đã lâu rồi hắn mới lại được gác đêm như thế.
 
-Đi đến bến Du Châu cũ phía nam nhất, du lịch Vân Quật phúc địa Ngọc Khuê Tông. Lại thêm thành Thận Cảnh vương triều Đại Tuyền ở trung bộ, cùng với Kim Đỉnh quan ở phương bắc.
+Ông lão chèo thuyền nói đúng. Giữa nhân gian, khó nhất chính là được một ngày hôm nay vô sự.
 
-Chính là lựa chọn tuyến đường tu sĩ Đồng Diệp châu hôm nay, hầu như là ba nơi phải đi qua.
-
-Diệp Vân Vân gật đầu cười nói: "Chờ sư phụ ngươi trở về Đồng Diệp Châu, hai người các ngươi có thể cùng đến Vân Thảo Đường làm khách."
-
-Quách Bạch Đình tươi cười xán lạn, ôm quyền nói: "Sẽ. Lần này xuống núi du lịch, Tiết tiền bối đã chỉ điểm rất nhiều, đến lúc đó vãn bối lại cả gan thỉnh giáo Sơn chủ."
-
-Khuôn mặt thiếu niên thanh tú, không coi là quá mức tuấn mỹ, chỉ là lúc cười lên, lộ ra vẻ phá lệ tự tin.
-
-Thiếu niên như vậy, rất khó khiến trưởng bối không thích.
-
-Khương Thượng Chân đè thấp giọng nói: "Diệp tỷ tỷ, ánh mắt vị Quách thiếu hiệp này nhìn tỷ cũng quái lạ, thật ra không có tà niệm gì, chỉ là loại ái mộ giữa nam nữ, dù sao lòng yêu cái đẹp ai cũng có, Diệp tỷ tỷ tỷ thật ra không cần tức giận, đổi lại ta là hắn, cũng sẽ coi Diệp tỷ tỷ là tiên tử trên trời chỉ có thể nhìn từ xa không thể đùa bỡn, chỉ dám vụng trộm nhìn, vụng trộm thích."
-
-Thiếu niên thanh tú kia mặt đỏ lên, theo bản năng hai tay nắm lại, trầm giọng nói: "Chu tiền bối, ta kính trọng ngươi là tiền bối trên núi, khẩn cầu đừng nói lời không cố kỵ như thế, nếu không cũng đừng trách trong lòng ta biết tất thua không thể nghi ngờ, cũng muốn cùng tiền bối hỏi quyền một hồi!"
-
-Khương Thượng Chân dịch bước đến sau lưng Diệp Vân Vân, thò đầu nói: "Tới đi, tiểu tử giỏi lắm, tuổi không lớn lắm, ngươi cũng phải hỏi quyền ta chứ."
-
-Thiếu niên nào đã từng thấy qua tu sĩ trên núi mình ném da mặt xuống đất như vậy, một đại lão gia, vậy mà lại núp ở sau lưng Diệp tiền bối. Khiến Quách Bạch Chỉ trong lúc nhất thời có chút do dự.
-
-Bởi vì trực giác nói cho thiếu niên, mình thật muốn hỏi quyền chính là thua. Dù là thắng quyền, lại sẽ thua trận càng nhiều.
-
-Lô Ưng mừng rỡ khoanh tay đứng nhìn, không có việc gì mà nhẹ nhàng, trong lòng cười lạnh không thôi.
-
-Khá lắm, gan chó không nhỏ a, chọc mình chẳng khác nào chọc Kim Đỉnh quan, còn không bỏ qua, còn dám tiếp tục trêu chọc đại đệ tử khai sơn Võ Thánh Ngô Thiên Thiên? Ngô Thiên Thiên kia tính tình thế nào, không biết rõ? Thân là võ phu thuần túy, kiếm thuật xuất thần nhập hóa, một thanh kiếm trúc, sát lực lớn như phi kiếm kiếm tiên, hơn nữa thương pháp Vưu Tinh, càng là gốc rễ lập thân sừng sững võ đạo đỉnh phong của Ngô Thiên Thiên.
-
-Hắn từng dốc lòng thu thập hơn ba trăm loại thương thuật của Hạo Nhiên Thiên Hạ, đúc ra một lô, sáng tạo ra sáu thức, độc bộ thiên hạ. Ngô Thành luận bàn với người ta, ra tay rất nặng, trước đó vị đại tông sư mười cảnh của Đồng Diệp Châu kia, chính là bị hắn vấn quyền, trọng thương mà chết, lại thêm Ngô Thành đánh khắp một châu võ phu vô địch thủ, du lịch Trung Thổ Thần Châu, trên núi lại có tin đồn nho nhỏ, nói Bồ Sơn Hoàng Y Vân kia điên rồi, sau khi có được một bức tranh tiên nhân mặt nạ của di vật viễn cổ, dứt khoát dứt khoát chuyển đi tu hành thuật pháp tiên gia, nói là học sinh tử quan của người tu đạo, hoặc là trở thành một vị Phi Thăng cảnh, bằng không sẽ chết già trong động quật tiên phủ. Khiến cho dưới núi một châu không còn một vị tông sư mười cảnh tọa trấn sơn hà nữa.
-
-Cho nên người trước mắt này...
-
-Con mẹ nó ngươi thật sự coi mình là Khương Thượng Chân à?!
-
-Người trước mắt này, quá nửa là tu sĩ châu khác như kiếm tiên Hứa Quân qua sông. Cảnh giới chắc chắn sẽ không thấp, sư môn chỗ dựa khẳng định càng lớn, bằng không không có tư cách ăn nói lung tung ở bên cạnh Hoàng Y Vân.
-
-Nghĩ đến đây, Lô Ưng thật sự tức giận.
-
-Tiên sư gia phả cẩu thả, thật là một đám con rùa con hoang danh xứng với thực, dựa vào tổ sư gia rùa con rùa ngàn năm trên núi, xuống núi, tác oai tác quái thiên kinh địa nghĩa.
-
-Mã Lân Sĩ tên là Lân Tử của Bạch Long Động, còn có cháu trai của chưởng luật tổ sư Bạch Long Động, tu sĩ Vưu Kỳ của Long Môn cảnh. Hậu duệ tiên gia bên trong những gia phả tiên sư này, người nào không kiêu căng khác thường, ai không mắt cao hơn đỉnh? Đều là như thế. Trái lại Vân Thảo Đường Diệp Quân cô nương nũng nịu này, tương đối hiếm thấy, đáng tiếc đến từ Bồ Sơn, bên cạnh còn có Tiết Hoài Viễn Du cảnh đi theo, Lô Ưng không dám nhúng tay, bằng không phải muốn cho nàng biết được mấy phần tư vị thần tiên phiên vân phúc vũ.
-
-Diệp Vân Vân một quyền lui về phía sau.
-
-Đánh vào trên trán Khương Thượng Chân.
-
-Đánh cho Khương Thượng Chân nháy mắt ngửa ra sau ngã xuống đất, nhảy nhót ba lần.
-
-Đừng nói là Diệp Dĩ Nguy cùng Quách Bạch Chỉ, ngay cả Lô Ưng cũng có chút kinh ngạc, chỉ chút đạo hạnh này? Làm sao nhận ra Hoàng Y Vân?
-
-Diệp Vân Vân cũng không quay đầu, nói: "Nếu không có việc gì, ta sẽ trở về Lão Quân Sơn."
-
-Khương Thượng Chân vội vàng giãy dụa đứng dậy: "Có việc, cơ hội hiếm có, nhất định phải hàn huyên vài câu với Diệp tỷ tỷ, chỉ vài câu, cam đoan không làm lỡ việc của Diệp tỷ tỷ."
-
-Diệp Vân Vân hướng Tiết Hoài nói: "Các ngươi tiếp tục lịch lãm là được."
-
-Tiết Hoài vẫn không nói gì, tụ âm thành tuyến nói: "Sư phụ, chuyện phúc địa Yên Chi Đồ có cần đệ tử thương lượng với mấy vị tổ sư Khương thị quen biết hay không?"
-
-Diệp Vân Vân nói: "Ta tự có tính toán."
-
-Tiết Hoài không dám nhiều lời, đoàn người xoay người đi trở về phủ đệ vỏ ốc.
-
-Khương Thượng Chân phủi phủi thanh sam trên người, run tay áo: "Mặt mũi không còn chút nào, quét rác nhã nhặn, Diệp tỷ tỷ hại ta khổ."
-
-Diệp Vân Vân đi đến chỗ lan can, nói: "Khương Thượng Chân, ngươi cảm thấy Kim Đỉnh quan và Bạch Long động như thế nào? Có thể thật sự giúp đến Đồng Diệp châu hay không?"
-
-Khương Thượng Chân cười nói: "Đỗ Hàm Linh cũng coi như là một phương kiêu hùng đi, tác phong của Sơn Trung Quân Mãnh đại trùng, được khen là sơn thượng quân chủ, thật ra còn có vài phần chuẩn xác, đã có Đại Tuyền vương triều tương trợ, lại cùng đại nhân vật Bảo Bình châu liên hệ, ngay cả Vi Ly bên kia cũng đã đánh tiếng trước, đối nhân xử thế linh lung không lọt một giọt nước nào, cho nên khẳng định là sẽ quật khởi, về phần Bạch Long động, thì kém xa, không coi là cái gì giao long, tựa như một con cá chép trong nước đục, chỉ biết trái phải phùng nguyên, mượn thế du duệ, một khi ra nước lên bờ, sẽ hiện ra nguyên hình."
-
-Diệp Vân Vân lo lắng, hỏi: "Vân Thảo Đường cùng bọn họ liên lụy quá sâu, có phải sai lầm rồi hay không?"
-
-Khương Thượng Chân ghé vào lan can, lười biếng nói: "Một nơi có cơ duyên, nhất thời có tình thế nhất thời, hôm qua đúng chưa chắc là hôm nay đúng, hôm nay sai chưa chắc là ngày mai sai."
-
-Diệp Vân Vân nói: "Khương Thượng Chân, ngươi cho câu trả lời chắc chắn, ta không phải người tu đạo các ngươi, không thích quanh co lòng vòng nói chút lời mây mù."
-
-Lần này nàng chủ động tới phúc địa Khương thị là vì ba chuyện, tế bái lão tông chủ Tuân Uyên, để Vân Quật phúc địa trân quý một tòa Hoa Thần sơn, cuối cùng là thỉnh giáo Khương Thượng Chân việc này.
-
-Khương Thượng Chân chắp hai tay sau lưng, nhìn núi sông xa xa, chậm rãi nói: "Diệp Vân Vân, ngươi có nghĩ tới, vì sao ta phải mang ngươi từ Lão Quân Sơn đến Hoàng Hạc Cơ này?"
-
-Diệp Vân Vân nói: "Nguyện lắng tai nghe."
-
-Khương Thượng Chân chỉ chỉ nơi xa, lại lấy ngón tay nhẹ nhàng gõ lên lan can bạch ngọc, nói: "Dục cùng thiên lý mục, cao hơn một tầng. Thập cảnh tam trọng lâu, khí thịnh, Quy Chân, Thần đến. Đăng cao nhìn ra xa, quan sát nhân gian, khí tráng sơn hà, đúng là khí thịnh. Ngươi và Ngai Ngai châu Lôi Công miếu Phái A Hương, Bắc Câu Lô châu lão thất phu Vương đến, tuy đều may mắn đứng ở lầu thứ hai, nhưng mà trụ cột khí thịnh, đánh thật sự quá kém, ngươi xem như Nguyễn Cung đi tới Quy Chân nhất cảnh, Bái Xuân không làm nên trò trống gì, chẳng khác nào thân hình còng xuống, bò đến nơi này, cho nên thần đến nhất cảnh, đã thành hy vọng xa vời. Bái Lăng Hữu Tự biết, cho nên mới phải rúc ở một tòa Lôi Công miếu."
-
-"Ngươi quay đầu lại nhìn hàng xóm Ngô Thao, hắn cũng rất thông minh, sớm đã xem kỹ bí tịch võ học trong thiên hạ, lại sàng chọn, sửa sang Hạo Nhiên mấy trăm loại thương thuật, đây là một loại hỏi quyền tu hành khác, vừa muốn cho nhãn giới của mình rộng hơn, còn phải khí phách lớn hơn, muốn vì người học thương võ đạo trong thiên hạ, mở ra một con đường đăng đỉnh. Ngươi thì sao, được một bức bích đồ tiên nhân diện bích của Võ Diệc Huyền, tâm bất định, muốn một lần nữa nhặt lên một vật tu đạo, ý đồ từ Kim Đan cảnh liên tục phá hai cảnh, tễ thân ngũ cảnh, đá núi của hắn có thể công ngọc, ý đồ mượn nó đánh vỡ bình cảnh Quy Chân?"
-
-"Quên lời Tuân lão nhi nói với ngươi rồi sao? Vũ phu không thuần túy, cho dù tổ sư gia thưởng cơm ăn, cũng chỉ biết ăn cơm trong bát càng ăn càng ít, võ đạo càng đi càng hẹp. Vừa rồi Diệp Vân Vân ngươi còn có mặt mũi hỏi Tào Mạt kia, có phải là võ phu thuần túy hay không, làm sao chen thân được. Nói thật, cũng chính là hắn không có ở đây, không nghe thấy lời này của ngươi, bằng không ngươi có thể cười chết hắn, coi như ngươi Hoàng Y Vân hỏi quyền đại thắng mà về."
-
-Diệp Vân Vân nghe được lời này, chẳng những không có chút tức giận nào, ngược lại thần sắc nàng càng thêm ngưng trọng, từng chữ từng câu đều nghe ở trong tai, ghi ở trong lòng.
-
-Khương Thượng Chân mỉm cười nói: "Bảo hổ lột da, là hành vi lấy hạt dẻ trong lò lửa. Nhưng giao tình quân tử mới là trời cao trăng sáng. Diệp tỷ tỷ của ta, nhân sự hôm qua là chuyện của ngày hôm qua, còn về ngày mai như thế nào, cũng phải suy nghĩ thật kỹ một phen. Tuân lão nhân gửi gắm kỳ vọng cao đối với ngươi, rất hi vọng một Đồng Diệp châu võ vận bình thường, có thể đi ra một người cao hơn Ngô Tông, nếu là một cô gái quyền pháp đẹp mắt hơn người, vậy thì là tốt nhất. Năm đó ba người chúng ta lần cuối cùng đồng du vân cấp phong, Tuân lão nhân nắm tay ngươi, lời nói nặng lòng, nói nhiều lời say, ví dụ như bảo ngươi nhất định phải đi xa hơn trên võ đạo. Là lời nói say của Tuân lão nhân cũng là lời thật lòng."
-
-Diệp Vân Vân nhíu mày nói: "Có nói qua những thứ này?"
-
-Diệp Vân Vân thật sự không nhớ được, thật sự là vị Tuân lão tông chủ kia ở bên nàng, nói chuyện quá nhiều.
-
-Hơn nữa Diệp Vân Vân là vì tôn giả kiêng kỵ, cho nên mới ở bên Khương Thượng Chân một mực không có ý tứ oán giận vị lão tiền bối kia là già mà không kính.
-
-Tuân Uyên nói cái gì, Diệp Vân Vân không có ấn tượng, lúc ấy làm bộ mắt say lờ đờ nắm tay của mình, Diệp Vân Vân ngược lại là không có quên.
-
-Lão tông chủ Tuân Uyên, ngoài hao hết tâm tư "Mời nàng đến Hoa Thần Sơn phúc địa, mỗi lần gặp nhau, nhìn ánh mắt của nàng, luôn làm cho nàng cảm thấy ánh mắt bất chính, không có ý tốt. Lão đầu tử thích ân cần, lải nhải không ngừng, tầm mắt chập chờn bất định, ánh mắt càng thêm bận rộn, tựa như tiểu tử mới mở đầu tình cảm còn lớn gan. Luận điệu lúc trước Khương Thượng Chân oan uổng cho Lô Ưng, đặt ở trên người Tuân lão đầu không hề oan uổng.
-
-Một đống tuổi rồi, còn thích ngắm trăng trong gương, còn đặt cho mình một biệt hiệu khó nghe, vung tiền khắp nơi, cũng may ngoài tổ sư đường Thần Cáo phong không có mấy tu sĩ Đồng Diệp Châu biết được việc này. Vân Thảo Đường mỗi lần mở ra trăng trong nước, đều có tên hiệu là Thủy Nguyệt, vừa đập tiền, vừa la hét Vân Tiên Tử áo vàng, một đồng Cốc Vũ tiền thì nắm trong tay ta, chỉ cần Diệp sơn chủ nể mặt, lộ ra một cái mặt, cho dù lộ một mảnh mép váy cũng được, đồng Cốc Vũ tiền này cũng không tính là trôi theo dòng nước, Diệp sơn chủ nếu bỏ ra được mấy lời, ta chính là đập nồi bán sắt, mạo hiểm từ trên sơn thủy gia bị xoá tên, đi Tổ Sư Đường trộm tiền, cũng phải liều mạng, gom thêm mấy đồng Cốc Vũ tiền...
-
-Tuân Uyên ngươi là một tông chủ Ngọc Khuê Tông, ai dám xoá tên ngươi khỏi gia phả Thần Cương Phong?
-
-Khương Thượng Chân nheo mắt lại, lại không nhịn được nhớ tới lão gia hỏa kia.
-
-Rượu ngon thường thường là người say không ngã, mỹ nhân lại có thể khiến người uống say chết.
-
-"Tuân lão nhi, bàn tay nhỏ bé nắm mỹ nhân, mùi vị thế nào?"
-
-"Vô cùng tốt vô cùng, chỉ là lúc trước tâm tình khẩn trương, chỉ biết ngại ngùng, chỉ dám nắm tay không dám bóp, thiệt thòi lớn rồi. Thiếu niên khiếp sợ, vẫn là quá thiếu niên rồi."
-
-Diệp Vân Vân liếc mắt nhìn Khương Thượng Chân, biết hắn khẳng định đang suy nghĩ một chút chuyện phong hoa tuyết nguyệt, tuyệt đối là nàng không muốn nghe.
-
-Diệp Vân Vân hỏi: "Giống như Chu Phì, Tào Mạt, Trịnh Tiễn, đều là tên giả đi?"
-
-Khương Thượng Chân cười nói: "Chờ sau khi ngươi cùng Tào Mạt chính thức quen biết, sẽ biết thật ra hắn rất chân thành đối đãi với người khác. Về phần hành tẩu giang hồ, có mấy tên giả không có gì, cùng tu sĩ thi triển thủ thuật che mắt, xuống núi chơi đùa nhân gian, đạo lý giống nhau."
-
-Diệp Vân Vân cau mày nói: "Ngươi còn chưa nói cố ý mang đến gặp Tào Mạt, đến cùng là vì sao."
-
-Khương Thượng Chân cười nói: "Kết thiện duyên. Vạn sự khởi đầu nan, chỉ cần có khởi đầu tốt, vạn sự không khó nữa."
-
-Diệp Vân Vân lắc đầu nói: "Nếu là thế lực đỉnh núi khác định đoạt lợi ích ở Đồng Diệp Châu, ta sẽ không kết giao, cùng lắm thì Bồ Sơn vân thảo đường ta, cùng bọn họ chết già không qua lại."
-
-Khương Thượng Chân cười ha ha nói: "Diệp tỷ tỷ không vội kết luận. Nói không chừng sau này cơ hội tiếp xúc với hai bên sẽ càng ngày càng nhiều."
-
-Diệp Vân Vân gật đầu nói: "Vậy mỏi mắt mong chờ."
-
-Nếu chỉ coi Khương Thượng Chân là hạng người chết tiệc chế được, miệng lưỡi trơn tru, đó chính là chuyện vốn có trở nên tốt, hoang phí.
-
-Khương Thượng Chân từng nói đùa tí chuyện, liên quan tới chuyện vào núi tu đạo, cách nhìn của ta, không giống với rất nhiều thần tiên trên núi, ta vẫn cảm thấy cách đám người càng gần, nên càng cách mình càng gần. Trong núi tu hành, cầu thực vong ngã, nhìn như phản phác, ngược lại không thật.
-
-Tuần Uyên càng là từng nói đùa một câu với chưởng luật lão tổ Ngọc Khuê Tông, thừa dịp Khương Thượng Chân còn chưa tiến lên ngũ cảnh, ở tổ sư đường bên kia, đánh nhiều mắng nhiều té ngã ghế, bằng không sau này sẽ không còn cơ hội.
-
-Ngụ ý, chính là chỉ cần Khương Thượng Chân trở thành Ngọc Phác cảnh, ý ở Tiên Nhân cảnh "Cầu thực", Khương Thượng Chân dễ như trở bàn tay, không tồn tại bình cảnh gì.
-
-Mà một khi Khương Thượng Chân tiến thân tiên nhân, tổ sư đường Thần Cáo phong, tùy ý người ngoài đánh chửi như trước, kết quả là đánh cũng đánh không lại, mắng càng không thắng.
-
-Trên Thần Cương phong, mỗi lần gặp nhau, thật ra chỉ có ba chuyện, thương nghị đại sự tông môn, nịnh nọt Tuân tông chủ, người người liên kết mắng to Khương Thượng Chân.
-
-Diệp Vân Vân đột nhiên có chút thương cảm, nam nhân trước mắt này, giống như có chút cô đơn, có vài phần đáng thương, về sau đại khái chỉ có thể càng thêm đạo tâm tịch liêu a?
-
-Khương Thượng Chân đột nhiên nói: "Diệp tỷ tỷ, năm nay son phấn chính sách đứng đầu bảng, chắc là ngươi rồi? Bằng không trên núi tranh luận quá lớn, mặc kệ ta chọn ai, đều khó có thể phục chúng."
-
-Diệp Vân Vân rất hối hận chút lòng thương hại của mình, cười lạnh nói: "Nếu dám có ta, ta sẽ đánh nát tòa Hoa Thần Sơn kia, làm đáp lễ."
-
-Khương Thượng Chân ai thán một tiếng, lẩm bẩm: "Cơm xong xuôi dọc núi ngắm mai vàng, không thấy hoa mai gặp cỏ, giai nhân duyên dáng yêu kiều, tiên quan đạo gia trang, giống như mặt bồ tát, hồ nghi ở Nguyệt Cung, cỏ động lòng người cũng động, cũng đi mây."
-
-Diệp Vân Vân cười lạnh nói: "Hảo văn thải, có thể lừa gạt một cô nương như Chử Bằng."
-
-Khương Thượng Chân lại chuyển hướng đề tài: "Trong bức họa Lão Quân Sơn kia, ngươi không phát hiện ra điều gì sao?"
-
-Diệp Vân Vân gật đầu nói: "Thiên chi tượng, Địa chi hình, Kim Đỉnh quan lấy bảy tòa núi làm Bắc Đẩu Thất Tinh, Đỗ Hàm Linh là muốn Pháp Thiên Tượng Địa, chế tạo một tòa sơn thủy đại trận, dã tâm thật lớn."
-
-Khương Thượng Chân vỗ tay cười, "Diệp tỷ tỷ tuệ nhãn, chỉ là còn chưa đủ nhìn xa, là bảy hiện hai ẩn mới đúng, chín lò nấu nhật nguyệt, thiết thước sắc lôi đình, hiểu luyện ngũ hồ nước, bắc đẩu tinh. Lấy Kim Đỉnh quan làm Thiên Khu, tỉ mỉ chọn lựa ra ba tòa chư quân chi sơn làm phụ tá, lại lấy thế lực chư vị còn lại âm thầm bố cục, xây dựng trận pháp, làm giá y cho một mình hắn., Cho nên hôm nay chỉ thiếu Thái Bình sơn và Thiên Khuyết phong, một khi tòa Bắc Đẩu đại trận này mở ra, địa giới phương bắc Đồng Diệp châu chúng ta, Đỗ Hàm Linh muốn ai sống thì người đó sống, muốn người đó chết thì chết, như thế nào? Đỗ quan chủ có phải rất hào kiệt hay không? Viễn cổ Bắc Đẩu gọi là đế xa, lấy hiệu lệnh chủ chốt, xây bốn thời gian ngũ hành, dời độ tiết định chư kỷ, đều đặt cho Bắc Đấu. Nói như vậy, ta thay Đỗ Hàm Linh đặt cho biệt hiệu đó, quân chủ trên núi, có phải sẽ càng thêm danh xứng với thực hay không?"
-
-Diệp Vân Vân trong lòng chấn động không thôi, "Đỗ Hàm Linh mới là cảnh giới Nguyên Anh, làm sao có thể làm được đại thủ bút bực này?"
-
-Khương Thượng Chân cười nói: "Chính bởi vì chỉ là Nguyên Anh, có tâm tư này mới khiến ta khâm phục."
-
-Huống chi trên đời này cũng không phải chỉ có Khương Thượng Chân hắn am hiểu áp cảnh.
-
-Trận này cùng nhau, cho dù chưa từng bao quát Thái Bình sơn cùng Thiên Khuyết phong, đổi lấy hai nơi khác làm thay thế, vẫn là một tòa Bắc Đấu trận hoàn chỉnh, đến lúc đó Ngọc Phác cảnh Đỗ Hàm Linh tọa trấn trong đó, chẳng khác nào là một vị tiên nhân ngang trời xuất thế.
-
-Một khi để Đỗ Hàm Linh thành công hoàn thành bảy Ẩn hai Ẩn, nói không chừng tương lai mấy trăm năm sau, có thể khiến một vị lão quan chủ tiên nhân, biến thành hơn nửa Phi Thăng cảnh.
-
-Kim Đỉnh quan, xuất thân sớm nhất từng là đạo gia kết Lâu Quan Tinh một nhánh bàng chi, chỉ là quán chủ Đỗ Hàm Linh cố ý giấu diếm pháp thống.
-
-Cho nên nói tiên nhân Hàn Ngọc Thụ cũng tốt, tạm thời Nguyên Anh Đỗ Hàm Linh cũng được, đều là người thông minh mưu tính sâu xa.
-
-Đáng tiếc đụng phải mình, cùng tương lai vô cùng có khả năng đem Lạc Phách Sơn hạ tông tuyển chỉ ở phương bắc Đồng Diệp Châu Trần Bình An.
-
-Chỉ cần chuyện thứ nhất Trần Bình An rời khỏi Vân Cấp Phong, phải đi núi Lão Quân một chuyến Vạn Lý Sơn Hà Đồ, như vậy cũng không phải là vô cùng có khả năng, mà là tất nhiên.
-
-Khương Thượng Chân hỏi: "Bức bích họa tiên nhân diện bích kia, ngươi lấy được từ đâu?"
-
-Diệp Vân Vân nói: "Ta đã kiểm tra chân tướng của bức họa và thật giả, cũng không có vấn đề gì."
-
-Khương Thượng Chân híp mắt nói: "Tin tưởng ta, vậy nhất định là có vấn đề. Tiếp theo ngươi phải cẩn thận với Bồ Sơn khách khanh, thậm chí là một vị đích truyền nào đó. Nhớ kỹ một chuyện, ngàn vạn vạn lần, không nên tùy tiện luận bàn với Ngô Chiêu, không phải là Ngô Thành có vấn đề, mà là sau khi hỏi quyền xong, với thói quen ra tay không nghiêm túc của Ngô Đình, ngươi khẳng định bị thương không nhẹ, đến lúc đó Bồ Sơn sẽ có vấn đề lớn. Đến lúc đó Ngô Thành không có vấn đề, cũng đều thành vấn đề, vậy không phải nhất cử lưỡng tiện, nhất cử tam tứ ngũ lục thất đều có thể. Ta vốn định, Tào Mạt sau khi vấn quyền với ngươi, trước tiên giải thích rõ nguyên do sự tình với hắn, lại vụng trộm đi theo ngươi đi Bồ Sơn. Khi ngươi dưỡng thương, giúp ngươi nhìn chằm chằm vào Vân Thảo Đường."
-
-Diệp Vân Vân trầm giọng hỏi: "Thật sự hung hiểm như thế?"
-
-Khương Thượng Chân gật đầu: "Thiên hạ còn xa mới có thái bình chân chính, trăm năm kế tiếp mới là năm tháng hào kiệt cùng kiêu hùng chân chính cùng nhau trỗi dậy."
-
-Trên đường đi tới Vân Cấp phong, về việc chín vị kiếm tiên phôi tử ở trong Lạc Phách sơn, Thôi Đông Sơn đại khái nói ra cách nhìn của mình, hắn tới dạy Ngu Thanh Chương kiếm pháp, Chu Liễm lão đầu bếp này thu tiểu đầu bếp Trình Triêu Lộ, dạy tay nghề, quyền pháp cũng dạy, chưởng luật Trường Sinh thu nạp Nạp Lan ngọc điệp làm đích truyền, Mễ Dụ truyền thụ kiếm thuật vô tội, Tùy Hữu Biên thu Diêu Tiểu Nghiên làm khai sơn đại đệ tử, theo Thôi Sàm đi tới Bái Kiếm Đài luyện kiếm, ném Bạch Huyền cho Tào Tình Lãng, lại ném Hạ Hương Đình cho phu tử Chủng Thu, nói tóm lại, đám trẻ con này, tốt nhất không nên quá nhỏ tuổi, nhưng bối phận quá cao, vừa đến Lạc Phách sơn đã trở thành đích truyền sơn chủ của tiên sinh ngươi, bọn họ hẳn là lấy gia phả thân phận đệ tử ba đời của Phù Sắc phong tổ sư đường, tu hành ở trên núi.
-
-Trần Bình An sau khi nghe xong, gật đầu nói: "Tạm định như thế, cụ thể có được hay không, cũng phải xem hai bên hợp ý hay không, chuyện bái sư thu đồ đệ, xưa nay không phải chuyện một bên tình nguyện."
-
-Thôi Đông Sơn rất bội phục, "Tiên sinh cao kiến."
-
-Biết được Bùi Tiền thu một khai sơn đại đệ tử chưa thật sự ký danh, Trần Bình An cười hỏi: "Giáo quyền giỏi không?"
-
-Bùi Tiền có chút ngượng ngùng, "Tiểu A Man đại khái so với ta năm đó học quyền chép sách, phải dụng tâm chút."
-
-Thôi Đông Sơn giơ ngón tay cái, "Chỉ nói đại sư tỷ tự biết mình, làm người bên ngoài quả thực khó có thể địch nổi!"
-
-Bùi Tiền cười cười, chờ, ngỗng trắng lớn là số ít mấy quyển sổ có thể viết xong, xấp xỉ với Trần Linh Quân, hôm nay tên kia dám tuyên bố trừ quê nhà, phóng mắt toàn bộ địa giới Bắc Nhạc, không ai có thể một quyền quật ngã hắn. Chỉ là nghĩ tới đây, Bùi Tiền có chút ảm đạm, Long Tuyền Kiếm Tông chẳng biết vì sao dọn ra khỏi địa giới Long Châu, đi phương bắc kinh kỳ của Đại Ly.
-
-Đến tòa tư trạch Khương thị ẩn nấp ở vị trí Vân Cấp phong, Thôi Đông Sơn mở ra cấm chế sơn thủy, ba người đi vào, Trần Bình An phát hiện thì ra có động thiên khác, cùng chỗ ở thấp thoáng trong biển trúc của mình, còn không phải một chỗ.
-
-Mấy người Bạch Huyền đang ngồi xổm trên mặt đất, lục lọi nhặt về phía một ngọn núi nhỏ, giúp Nạp Lan Ngọc Điệp chọn lựa đá dăm.
-
-Thôi Đông Sơn vừa hiện thân, Bạch Huyền lập tức chạy chậm tới, "Đông Sơn lão ca, hơn nửa đêm, tiểu đệ chờ huynh chờ thật lâu, nhanh ngồi xuống ghế trúc, ngàn vạn lần đừng mệt."
-
-Dưới mái hiên có hai chiếc ghế dài làm bằng trúc, là Thôi Đông Sơn lúc trước nhàm chán, chuẩn bị cho tiên sinh và mình, còn lại mấy chiếc ghế trúc nhỏ, là Trình Triêu Lộ, Diêu Tiểu Nghiên mấy người hỗ trợ chế tạo, thủ công thô ráp, vô cùng thê thảm.
-
-Thôi Đông Sơn vung tay áo, "Đi đi đi, đi ngủ đi."
-
-Nạp Lan Ngọc Điệp ngồi xổm tại chỗ, không tình nguyện: "Những vật liệu đá tên là Trử Khuyết này, khó phân ra tốt xấu, rất khó khăn, nhìn đến mắt chúng ta cũng mỏi nhừ."
-
-Bùi Tiền cười nói: "Lát nữa ta giúp ngươi phân ra ba bảy loại."
-
-Nạp Lan Ngọc Điệp nhếch miệng cười.
-
-Bùi Tiền nhìn tên tham tiền nhỏ kia, cũng có chút ý cười.
-
-Trần Bình An bổ sung: "Sau này chúng ta lại đi Dĩ sơn một chuyến."
-
-Nạp Lan Ngọc Điệp lập tức đứng dậy: "Tào sư phụ?"
-
-Trần Bình An lập tức hiểu ý, cười nói: "Đá Nguyễn Cung tính cho ngươi."
-
-Nạp Lan Ngọc Điệp nhãn tình sáng lên, lại cố ý ngáp, kéo Diêu Tiểu Nghiên trở về phòng định nói nhỏ.
-
-Trình Triêu Lộ bước chậm lại mấy phần, đầu trúng một cái tát của Bạch Huyền, trúng một câu tiểu mập mạp ngươi trước kia học quyền cơ trí, làm chậm trễ Tào sư phụ và Đông Sơn ca nghỉ ngơi đúng không.
-
-Sau khi bọn nhỏ đều rời khỏi, Trần Bình An lấy một cái ghế trúc nhỏ ngồi xuống, đặt ở giữa ghế trúc, nói với Bùi Tiền và Thôi Đông Sơn: "Các ngươi nằm là được, tốt nhất ngủ một giấc. Chuyện kế tiếp sẽ tương đối nhiều, nhưng không vội, nghỉ ngơi trước."
-
-Bùi Tiền vừa muốn nói chuyện, Thôi Đông Sơn lại nháy mắt, cuối cùng một trái một phải với Bùi Tiền, nằm ở trên ghế trúc dài.
-
-Trần Bình An ngồi ở ghế trúc nhỏ giữa.
-
-Thôi Đông Sơn bắt chéo chân, mở to mắt nhìn trăng tròn trên trời.
-
-Bùi Tiền thì hai tay nhẹ nhàng đặt lên người, nhẹ nhàng nói: "Sư phụ, ngủ một giấc tỉnh lại, người vẫn còn chứ?"
-
-Trần Bình An ừ một tiếng.
-
-Bùi Tiền nhỏ giọng nói: "Không gạt người?"
-
-Trần Bình An cười nói: "Muốn ăn hạt dẻ?"
-
-Bùi Tiền nhắm mắt, chậm rãi ngủ, ngủ thật say.
-
-Thôi Đông Sơn cũng rất nhanh ngủ say.
-
-Trần Bình An hai tay lồng trong tay áo.
-
-Gác đêm đã lâu không gặp.
-
-Vị lão triện sư kia nói rất đúng, nhân gian khó khăn nhất là hôm nay vô sự.
-
-Nếu đã may mắn như thế, vừa lúc ngày mai tiếp tục luyện kiếm luyện quyền.
+Đã may mắn có được, vậy ngày mai cứ tiếp tục luyện kiếm, luyện quyền.
